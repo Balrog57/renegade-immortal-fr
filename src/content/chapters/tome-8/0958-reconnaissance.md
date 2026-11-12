@@ -136,7 +136,7 @@ Sur ce, il cria aux quatre disciples qui le portaient: « Retour à la secte! »
 
 Les quatre disciples acquiescèrent rapidement, soulevèrent son corps colossal et disparurent au loin.
 
-Le vieil homme debout sur la gourde regarda profondément Wang Lin et rit: « Le camarade cultivateur Wang s'est bien caché. Ce vieil homme s'appelle Tan du Rêve Étrange. Si vous en avez le temps, vous êtes le bienvenu sur ma Planète du Rêve. » Sur ces mots, il salua Wang Lin d'un geste des mains et partit.
+Le vieil homme debout sur la gourde regarda profondément Wang Lin et rit: « Le camarade cultivateur Wang s'est bien caché. Ce vieil homme s'appelle Qi Mengtan. Si vous en avez le temps, vous êtes le bienvenu sur ma planète Meng. » Sur ces mots, il salua Wang Lin d'un geste des mains et partit.
 
 La personne qui s'en alla avec lui était le vieil homme maigre. Dès le début, il avait affiché une expression indifférente. Même en partant, il ne salua pas Tian Yunzi; il se contenta de partir.
 
@@ -148,7 +148,7 @@ Alors qu'elles s'éloignaient, les yeux de la femme en robe rose brillèrent. El
 
 « Il a peut-être déjà oublié mon nom... Après tout, pour lui, c'était une affaire dérisoire, mais pour moi, il m'a sauvé la vie... » soupira la femme.
 
-La femme en robe rose demanda: « Sœur aînée Qian Qin, qu'avez-vous? »
+La femme en robe rose demanda: « Senior sœur Qian Qin, qu'avez-vous? »
 
 Qian Qin secoua la tête sans dire un mot.
 

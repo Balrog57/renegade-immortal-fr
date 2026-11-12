@@ -54,15 +54,15 @@ Wang Lin était vêtu de blanc comme Yao Xixue, ses cheveux flottant au vent, lu
 
 « Tu arrives juste à temps. Maintenant, je dois ouvrir la formation pour que personne d'autre ne remarque l'anomalie ici! » Tout en parlant, Yao Xixue frappa son sac de rangement et en sortit plusieurs statues de couleur sang.
 
-Ces statues étaient petites, mesurant chacune environ 10 centimètres de haut. Elles représentaient des bêtes féroces que Wang Lin ne reconnut pas. Une aura sanglante se propagea lentement depuis les sculptures.
+Ces statues étaient petites, mesurant chacune environ trois pouces de haut. Elles représentaient des bêtes féroces que Wang Lin ne reconnut pas. Une aura sanglante se propagea lentement depuis les sculptures.
 
-La main de Yao Xixue traça un sceau tandis qu'elle murmurait une incantation. Puis, elle mordit le bout de sa langue pour cracher un filet de sang et s'en servit pour dessiner un symbole dans l'air. Elle frappa le symbole de sa paume, provoquant son expansion immédiate jusqu'à atteindre une taille d'environ 330 mètres, avant de s'imprimer dans le sol.
+La main de Yao Xixue traça un sceau tandis qu'elle murmurait une incantation. Puis, elle mordit le bout de sa langue pour cracher un filet de sang et s'en servit pour dessiner un symbole dans l'air. Elle frappa le symbole de sa paume, provoquant son expansion immédiate jusqu'à atteindre une taille d'environ mille pieds, avant de s'imprimer dans le sol.
 
 Simultanément, les statues s'animèrent et chacune prit place sur l'un des sept points alentour. Un éclair de lumière rouge sang jaillit, et elles se fondirent dans le sol.
 
 Une fois les statues intégrées au sol, une force mystérieuse enveloppa le Mont Gu entier. Wang Lin vit clairement que le symbole n'était qu'un catalyseur et que la véritable puissance émanait des sept statues.
 
-Cette force était invisible; si Wang Lin n'avait pas été à moins de 330 mètres d'elle, il ne l'aurait pas remarquée.
+Cette force était invisible; si Wang Lin n'avait pas été à moins de mille pieds d'elle, il ne l'aurait pas remarquée.
 
 Wang Lin déploya son sens divin et fut immédiatement surpris de constater qu'il ne parvenait pas à se percevoir lui-même.
 
@@ -108,9 +108,9 @@ Yao Xixue retrouva son équilibre un demi-souffle après Wang Lin. À cet instan
 
 L'endroit ressemblait au vide spatial, sans distinction entre le ciel et la terre. Il n'y avait que des éclats de lumière vive qui permettaient de tout distinguer nettement.
 
-Un sentier sinueux, d'environ 33 mètres de large, s'étirait au loin. C'était l'unique passage, et il n'était pas fixe; il oscillait de gauche à droite selon un rythme régulier.
+Un sentier sinueux, d'environ cent pieds de large, s'étirait au loin. C'était l'unique passage, et il n'était pas fixe; il oscillait de gauche à droite selon un rythme régulier.
 
-Wang Lin se tenait sur une plateforme d'environ 330 mètres de large où le tableau de transfert avait été secrètement gravé.
+Wang Lin se tenait sur une plateforme d'environ mille pieds de large où le tableau de transfert avait été secrètement gravé.
 
 Il comprit que Yao Xixue était venue ici maintes fois. Elle s'assit en position du lotus sur la plateforme et dit à Wang Lin: « Méditez pour comprendre votre domaine. Ce n'est qu'en obtenant la marque de qualification que l'on pourra marcher sur le Chemin de la Bête Révérée! » Sans un mot de plus, elle ferma les yeux et commença sa culture.
 

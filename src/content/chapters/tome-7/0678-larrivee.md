@@ -55,7 +55,7 @@ Boum!
 
 L'autodestruction de cultivateurs Ascendants brûlant leur âme originelle et leur corps provoqua une catastrophe planétaire pour la planète Ran Yun.
 
-Le ciel sembla s'effondrer et la terre se fendit. Les mers de la planète Ran Yun s'élevèrent sur environ 330 mètres avant de s'abattre sur les terres, comme si la planète elle-même était en proie à une rage divine. Sous l'impulsion de ces autodestructions, les veines spirituelles de la planète Ran Yun commencèrent toutes à exploser.
+Le ciel sembla s'effondrer et la terre se fendit. Les mers de la planète Ran Yun s'élevèrent sur mille pieds avant de s'abattre sur les terres, comme si la planète elle-même était en proie à une rage divine. Sous l'impulsion de ces autodestructions, les veines spirituelles de la planète Ran Yun commencèrent toutes à exploser.
 
 Les âmes originelles et les corps de Sun Xi et Xiaoyao Sanren se dissipèrent. Même au moment de leur agonie, ils n'avaient pas retrouvé la raison.
 

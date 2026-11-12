@@ -25,7 +25,7 @@ Seul Sun Yunshan sentit son excitation atteindre son apogée. Il laissa échappe
 
 L'homme en or tremblait et balbutia rapidement: « Se... Senior... Malentendu. Tout ceci est un malentendu... Nous ne sommes ici que pour représenter l'Union de Culture afin de vous inviter à nous rejoindre... »
 
-Sun Yunshan ricana tandis qu'il s'éloignait brusquement du groupe de plus de trente mètres et s'écria: « Frère Wang, leur but était de vous capturer vivant! »
+Sun Yunshan ricana tandis qu'il s'éloignait brusquement du groupe de plus de cent pieds et s'écria: « Frère Wang, leur but était de vous capturer vivant! »
 
 Wang Lin avait repéré Sun Yunshan depuis longtemps. À cet instant, il se contenta d'un signe de tête.
 

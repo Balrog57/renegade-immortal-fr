@@ -92,7 +92,7 @@ En vérité, tous les cultivateurs possèdent un Dao, mais le condenser sous une
 
 « Il... il a déjà atteint ce niveau... » L'homme en bleu fut envahi par une profonde mélancolie. À cet instant, il en oublia la graine dans son corps. Sa seule pensée était de comparer le Wang Lin d'autrefois — un sauvage issu d'une planète de culture déclinante comme Suzaku, moqué par tous — et l'homme qu'il était devenu: un être doté de son propre Dao, digne d'être considéré comme un grand maître de sa génération.
 
-Tandis que Wang Lin continuait d'avancer, l'ombre se rapprochait rapidement. Lorsqu'elle fut à trente-trois mètres, l'assaillant déclencha divers sorts liés aux bêtes. Ces sortilèges se transformèrent en créatures féroces qui ouvrirent leurs mâchoires pour dévorer Wang Lin.
+Tandis que Wang Lin continuait d'avancer, l'ombre se rapprochait rapidement. Lorsqu'elle fut à cent pieds, l'assaillant déclencha divers sorts liés aux bêtes. Ces sortilèges se transformèrent en créatures féroces qui ouvrirent leurs mâchoires pour dévorer Wang Lin.
 
 « Sans le domaine d'un Ascendant, même avec la puissance d'un Ascendant, on n'est qu'une coquille vide. Un seul coup... »
 

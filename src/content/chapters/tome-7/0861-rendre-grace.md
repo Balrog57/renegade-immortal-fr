@@ -24,7 +24,7 @@ Zhan Konglie fut également stupéfait. Il ne s'attendait pas à ce que l'intent
 
 « La première fois que je l'ai vu, il était au stade avancé de l'Ascendant. La deuxième fois, il était au stade Yang Corporel. Et maintenant, la troisième fois... il a atteint le début du Scruteur du Nirvana!! Ne cachait-il donc pas sa culture... » Zhan Konglie était perdu.
 
-« Senior! » À côté de Zhan Konglie, Zhan Yun se leva brusquement, surprise. Elle s'élança rapidement vers Wang Lin et se tint respectueusement à une centaine de mètres de lui.
+« Senior! » À côté de Zhan Konglie, Zhan Yun se leva brusquement, surprise. Elle s'élança rapidement vers Wang Lin et se tint respectueusement à quelques centaines de pieds de lui.
 
 Elle n'était pas la seule; d'autres personnes présentes avaient également été sauvées par Wang Lin. En proie à une vive émotion, elles volèrent vers lui pour s'incliner devant lui.
 
@@ -38,7 +38,7 @@ En voyant ces gens, Wang Lin hocha la tête.
 
 L'expression de Wang Lin resta glaciale tandis qu'il contemplait le vieil homme.
 
-Au même instant, un homme d'âge moyen se tenait à environ 330 mètres de Wang Lin. C'était l'un des hommes que Wang Lin avait sauvés du Royaume Céleste du Tonnerre. Après une brève réflexion, il serra les dents, se tourna vers l'Ancien de la famille Tang et déclara: « La famille Chen du Système Stellaire de Luotian, dans le Domaine Sud, recommande Senior Xu Mu pour participer! Je ne sais pas si ma famille Chen en a les qualifications! »
+Au même instant, un homme d'âge moyen se tenait à environ mille pieds de Wang Lin. C'était l'un des hommes que Wang Lin avait sauvés du Royaume Céleste du Tonnerre. Après une brève réflexion, il serra les dents, se tourna vers l'Ancien de la famille Tang et déclara: « La famille Chen du Système Stellaire de Luotian, dans le Domaine Sud, recommande Senior Xu Mu pour participer! Je ne sais pas si ma famille Chen en a les qualifications! »
 
 Les yeux du vieil homme nommé Tang s'illuminèrent. Il ne regarda pas l'homme d'âge moyen, mais plutôt l'un des ancêtres de la famille Chen présents non loin de là.
 

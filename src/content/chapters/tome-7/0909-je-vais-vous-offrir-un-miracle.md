@@ -68,7 +68,7 @@ Yu Fei fut surpris et ses pupilles se rétractèrent. Son énergie originelle ja
 
 Il existait une planète de culture dans le Système Stellaire de l'Alliance, située loin de la planète Suzaku. L'énergie spirituelle y était dense; c'était un pays de culture de rang 6.
 
-On y trouvait six pays de culture de rang 5. Dans l'un d'eux, au sein de la Secte Lune Déchue, une femme se tenait devant la salle d'alchimie, dans une montagne reculée.
+On y trouvait six pays de culture de rang 5. Dans l'un d'eux, au sein de la Secte Luo Yue, une femme se tenait devant la salle d'alchimie, dans une montagne reculée.
 
 Elle portait une robe rose en forme de papillon. Elle ne paraissait pas très âgée et était d'une grande beauté. Quelques éclats de cristal sur son sourcil droit lui donnaient un air très mignon.
 

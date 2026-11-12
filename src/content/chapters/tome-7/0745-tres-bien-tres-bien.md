@@ -44,7 +44,7 @@ Tout au long du trajet, les trois restèrent silencieux. Chaque fois que la femm
 
 D'autant plus qu'elle savait qu'une partie de son âme était entre ses mains, ce qui la terrifiait davantage.
 
-La femme songea: « Je n'ai aucune véritable haine envers lui, seulement quelques conflits passés. Puisqu'il est un aîné, tant que je reste obéissante et que je suis ses ordres, je devrais pouvoir survivre. »
+La femme songea: « Je n'ai aucune véritable haine envers lui, seulement quelques conflits passés. Puisqu'il est un Senior, tant que je reste obéissante et que je suis ses ordres, je devrais pouvoir survivre. »
 
 Quant à Li Yuan, il réprima le choc provoqué par la présence de Wang Lin et resta silencieusement sur la pointe de l'épée, immobile, comme s'il avait toujours été ainsi.
 

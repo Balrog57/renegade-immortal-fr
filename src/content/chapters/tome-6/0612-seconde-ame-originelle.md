@@ -98,7 +98,7 @@ Pourtant, le corps de Zi Shu était toujours là!
 
 Une faible lueur dorée émanait de sa dépouille, attirant d'innombrables animaux et oiseaux. Au début, ils étaient venus pour se repaître de la chair, mais dès qu'ils approchaient du corps de Zi Shu, ils mouraient instantanément.
 
-Ce jour-là, un rayon de lumière bleue apparut au loin. C'était un homme d'âge moyen vêtu d'une robe daoïste. Après avoir déployé son sens divin, il localisa le corps de Zi Shu au sol. Il descendit aussitôt pour atterrir à une trentaine de mètres du cadavre.
+Ce jour-là, un rayon de lumière bleue apparut au loin. C'était un homme d'âge moyen vêtu d'une robe daoïste. Après avoir déployé son sens divin, il localisa le corps de Zi Shu au sol. Il descendit aussitôt pour atterrir à cent pieds du cadavre.
 
 « C'est bien ici. Comme je m'y attendais, cet homme doit porter un trésor sur lui, sans quoi une telle énergie d'épée ne pourrait s'en échapper! » Les yeux de l'homme brillaient de joie en contemplant le corps de Zi Shu.
 
@@ -108,7 +108,7 @@ L'homme fut surpris et sentit immédiatement que quelque chose clochait, ce qui 
 
 Il observa le corps de Zi Shu et prit une grande inspiration. Il tapota son sac de rangement, d'où s'échappèrent une multitude de scarabées noirs qui volèrent aussitôt vers le cadavre.
 
-Cependant, dès que ces scarabées furent à moins d'une trentaine de mètres du corps, celui-ci émit des décharges de lumière dorée. À la suite de ces éclats, tous les insectes furent instantanément anéantis.
+Cependant, dès que ces scarabées furent à moins de cent pieds du corps, celui-ci émit des décharges de lumière dorée. À la suite de ces éclats, tous les insectes furent instantanément anéantis.
 
 L'homme d'âge moyen ne fut pas choqué; au contraire, il semblait ravi. Il fixa le corps et murmura: « Il y a forcément un trésor ici! » Il prit une profonde inspiration, mais juste au moment où il s'apprêtait à lancer de nouveaux sorts, un reniflement glacial retentit derrière lui.
 
@@ -118,8 +118,8 @@ Profitant de cette diversion, l'homme recula de quelques pas pour observer son a
 
 Un homme en armure noire se tenait là, entouré d'ondes d'une énergie démoniaque monstrueuse. Les insectes qu'il avait lancés périrent instantanément dès qu'ils approchèrent de lui.
 
-L'expression de l'homme changea radicalement et il recula de plusieurs pas. Il joignit les mains et demanda: « Pourquoi cet ami m'empêche-t-il de récupérer le corps de mon jeune frère d'apprentissage? »
+L'expression de l'homme changea radicalement et il recula de plusieurs pas. Il joignit les mains et demanda: « Pourquoi cet ami m'empêche-t-il de récupérer le corps de mon Junior frère? »
 
-« Votre jeune frère d'apprentissage? » L'homme en armure n'était autre que Wang Lin. Après sa téléportation, il avait vu cet homme s'extasier devant le corps de Zi Shu.
+« Votre Junior frère? » L'homme en armure n'était autre que Wang Lin. Après sa téléportation, il avait vu cet homme s'extasier devant le corps de Zi Shu.
 
-« Bien sûr qu'il est mon frère d'apprentissage. Nous sommes des disciples de la Secte He Yun. Cet homme s'appelait Zhou Qu, et moi je suis Teng Yun. Nous étions venus ensemble dans la Terre Yao Ling. Il y a un mois, nous nous sommes séparés. Je n'aurais jamais cru qu'il serait tué! Si ce n'était pas pour l'objet de suivi de la secte qu'il portait et qui émet cette lueur dorée, je ne l'aurais jamais retrouvé aujourd'hui. » Teng Yun affichait une expression empreinte d'une profonde tristesse.
+« Bien sûr qu'il est mon Junior frère. Nous sommes des disciples de la Secte He Yun. Cet homme s'appelait Zhou Qu, et moi je suis Teng Yun. Nous étions venus ensemble dans la Terre Yao Ling. Il y a un mois, nous nous sommes séparés. Je n'aurais jamais cru qu'il serait tué! Si ce n'était pas pour l'objet de suivi de la secte qu'il portait et qui émet cette lueur dorée, je ne l'aurais jamais retrouvé aujourd'hui. » Teng Yun affichait une expression empreinte d'une profonde tristesse.

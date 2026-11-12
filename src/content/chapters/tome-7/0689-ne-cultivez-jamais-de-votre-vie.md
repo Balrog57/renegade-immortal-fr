@@ -94,7 +94,7 @@ Dans la cour, la lumière lunaire enveloppait le corps de Wang Lin, lui conféra
 
 Wang Lin murmura pour lui-même: « Cinq ans... »
 
-Cinq ans auparavant, Wang Lin était revenu sur la planète Ran Yun et s'était installé au village de la Lune Déchue. Il avait choisi ce lieu car il ressemblait énormément à son propre village natal.
+Cinq ans auparavant, Wang Lin était revenu sur la planète Ran Yun et s'était installé au village Luo Yue. Il avait choisi ce lieu car il ressemblait énormément à son propre village natal.
 
 Wang Ping était cet esprit vengeur. Grâce à la pilule laissée par Liu Mei et à l'usage du sort de tonnerre de Wang Lin, une grande partie de sa rancœur s'était dissipée, lui permettant de mener une vie d'enfant normal. Cependant, sans ce traitement quotidien administré par Wang Lin, il redeviendrait ce qu'il était autrefois. Il fallait un processus long et rigoureux pour expulser totalement cette amertume résiduelle.
 

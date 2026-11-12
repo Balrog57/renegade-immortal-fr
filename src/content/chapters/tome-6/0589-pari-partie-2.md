@@ -12,7 +12,7 @@ Tandis qu'il reculait, l'armure sur son corps explosa en cendres et se dissipa. 
 
 Il frappa le tambour du doigt et le tambour démoniaque retentit une nouvelle fois. C'était la huitième fois!
 
-Un contre-coup encore plus violent s'abattit sur Mo Fei, faisant voler en éclats tous les miroirs de cristal qui l'entouraient. Cependant, bien que les miroirs aient considérablement atténué la force, celle-ci fut telle qu'en frappant le corps de Mo Fei, elle le projeta en arrière de plus de trois cents mètres avant qu'il ne parvienne à se stabiliser.
+Un contre-coup encore plus violent s'abattit sur Mo Fei, faisant voler en éclats tous les miroirs de cristal qui l'entouraient. Cependant, bien que les miroirs aient considérablement atténué la force, celle-ci fut telle qu'en frappant le corps de Mo Fei, elle le projeta en arrière de mille pieds avant qu'il ne parvienne à se stabiliser.
 
 Son masque vola en éclats, révélant son beau visage.
 
@@ -134,7 +134,7 @@ Les yeux de Wang Lin se rétrécirent. À cet instant, tous les sceaux de vie su
 
 La main droite de Wang Lin se serra en un poing, puis il frappa violemment le tambour démoniaque!
 
-Dong! Le son du tambour retentit à travers la place et dans les cieux comme un tonnerre grondant. Le corps de Wang Lin ne bougea absolument pas alors qu'il rétractait son poing d'environ dix centimètres; et aussitôt, il frappa de nouveau. Une fois, deux fois, trois fois, quatre fois!
+Dong! Le son du tambour retentit à travers la place et dans les cieux comme un tonnerre grondant. Le corps de Wang Lin ne bougea absolument pas alors qu'il rétractait son poing de trois pouces; et aussitôt, il frappa de nouveau. Une fois, deux fois, trois fois, quatre fois!
 
 Dong! Dong! Dong! Dong!
 

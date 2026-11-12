@@ -30,21 +30,21 @@ Wang Lin s'arrêta à l'intersection pour examiner les trois voies. Il devait d�
 
 Cet individu était tel un voleur raffiné qui s'emparait de tout ce qui en valait la peine, tandis que les deux suivants ressemblaient à des pilleurs prenant tout ce qu'ils pouvaient saisir. Cependant, leurs capacités étant limitées, certains trésors de valeur avaient été laissés derrière eux.
 
-Après avoir scruté les trois directions, Wang Lin parcourut une dizaine de mètres sur chaque sentier avant de revenir à l'intersection. Ses yeux s'illuminèrent et il s'élança sur le chemin de droite.
+Après avoir scruté les trois directions, Wang Lin parcourut plusieurs dizaines de pieds sur chaque sentier avant de revenir à l'intersection. Ses yeux s'illuminèrent et il s'élança sur le chemin de droite.
 
-Bien que le paysage semblât inchangé après environ 330 mètres, Wang Lin voyait des restrictions brisées partout. Elles avaient toutes été forcées, et certaines n'étaient même brisées qu'à moitié, signe que leur auteur avait abandonné. Chaque fois qu'il rencontrait une restriction partiellement brisée, il s'arrêtait pour l'étudier avec soin. Il ne cherchait pas à les briser précipitamment, préférant passer son chemin après observation.
+Bien que le paysage semblât inchangé après environ mille pieds, Wang Lin voyait des restrictions brisées partout. Elles avaient toutes été forcées, et certaines n'étaient même brisées qu'à moitié, signe que leur auteur avait abandonné. Chaque fois qu'il rencontrait une restriction partiellement brisée, il s'arrêtait pour l'étudier avec soin. Il ne cherchait pas à les briser précipitamment, préférant passer son chemin après observation.
 
 Le sentier de droite continuait de s'étendre, bordé lui aussi d'une clôture. Cependant, de l'autre côté, ce n'était plus un étang mais un bosquet de bambous.
 
 Alors qu'il progressait prudemment, Wang Lin s'arrêta brusquement. Le pied droit qu'il avait levé redescendit lentement à sa position initiale. Il resta immobile, mais des éclairs de compréhension des restrictions brillaient dans son regard.
 
-Un pavillon se dressait à environ 33 mètres devant lui. À l'intérieur se trouvaient une table ronde et quatre tabourets de pierre. Un pichet accompagné de quelques coupes reposait sur la table. Les yeux de Wang Lin se plissèrent; un air de prudence envahit son visage tandis qu'il inspectait les environs avec vigilance. Les restrictions entourant le pavillon étaient intactes, sans aucune trace de rupture.
+Un pavillon se dressait à environ cent pieds devant lui. À l'intérieur se trouvaient une table ronde et quatre tabourets de pierre. Un pichet accompagné de quelques coupes reposait sur la table. Les yeux de Wang Lin se plissèrent; un air de prudence envahit son visage tandis qu'il inspectait les environs avec vigilance. Les restrictions entourant le pavillon étaient intactes, sans aucune trace de rupture.
 
 « Il doit y avoir quelque chose de spécial avec ce pichet! J'ai suivi la trace du dernier qui a forcé le passage jusqu'ici, mais il semble avoir été stoppé par les restrictions de ce lieu! »
 
 Wang Lin réfléchit un instant, puis recula de quelques pas. Tandis qu'il observait attentivement, des lueurs de compréhension traversèrent son esprit, et son expression se fit de plus en plus grave.
 
-« Je vois... La restriction à l'intérieur du pavillon possède des dizaines de milliers de variations différentes. Si je ne parviens pas à les déchiffrer, dès que je m'approcherai à moins de 33 mètres, elle s'activera. Si quelqu'un tentait de la briser par la force, face à ces dizaines de milliers de changements, il lui serait presque impossible de battre en retraite, à moins d'avoir une culture défiant les cieux. »
+« Je vois... La restriction à l'intérieur du pavillon possède des dizaines de milliers de variations différentes. Si je ne parviens pas à les déchiffrer, dès que je m'approcherai à moins de cent pieds, elle s'activera. Si quelqu'un tentait de la briser par la force, face à ces dizaines de milliers de changements, il lui serait presque impossible de battre en retraite, à moins d'avoir une culture défiant les cieux. »
 
 « De plus, le point crucial est que la restriction du pavillon est le centre de toutes les autres et peut activer tout ce qui l'entoure. C'est précisément pour cela que celui qui est passé avant a renoncé! »
 
@@ -62,11 +62,11 @@ Wang Lin resta assis pendant trois jours. Durant cette période, des vaisseaux s
 
 Dès qu'il eut lancé ce rayon, il n'hésita pas une seconde et recula avec une rapidité telle qu'il laissa presque une image rémanente derrière lui.
 
-Au moment où le rayon d'énergie spirituelle céleste franchit la limite des 33 mètres du pavillon, il s'effondra instantanément pour se dissiper en étincelles lumineuses. Ce fut comme jeter une goutte d'eau dans de l'huile bouillante: une explosion surgit dans un périmètre de 33 mètres.
+Au moment où le rayon d'énergie spirituelle céleste franchit la limite des cent pieds du pavillon, il s'effondra instantanément pour se dissiper en étincelles lumineuses. Ce fut comme jeter une goutte d'eau dans de l'huile bouillante: une explosion surgit dans un périmètre de cent pieds.
 
 Alors que les ondes de choc commençaient à se propager, une force aussi folle qu'oppressante jaillit de la zone. Cette puissance déferla et s'étendit avec une rage incontrôlable. Si Wang Lin n'avait pas été préparé et d'une rapidité extrême, il aurait été instantanément englouti par cette onde.
 
-Wang Lin ne s'arrêta qu'après avoir parcouru plus de 330 mètres. Bien qu'en pleine retraite, son regard restait verrouillé sur le pavillon, et ses yeux brillèrent d'un éclat nouveau.
+Wang Lin ne s'arrêta qu'après avoir parcouru mille pieds. Bien qu'en pleine retraite, son regard restait verrouillé sur le pavillon, et ses yeux brillèrent d'un éclat nouveau.
 
 « Il n'y avait pas moins de dix mille variations dans cette restriction! » Wang Lin se rassit silencieusement pour poursuivre ses calculs.
 
@@ -88,14 +88,14 @@ Wang Lin avait énormément progressé durant ce mois de recherche; ses compéte
 
 Un autre mois s'écoula. Bien qu'il n'ait pas encore maîtrisé tous les changements de la restriction, il était désormais confiant à 50 % de pouvoir la briser.
 
-Ce jour-là, il se leva, l'expression grave. Malgré ses yeux injectés de sang, il était en pleine possession de ses moyens. Il s'approcha immédiatement à 33 mètres du pavillon et, après quelques calculs, fit un pas en avant!
+Ce jour-là, il se leva, l'expression grave. Malgré ses yeux injectés de sang, il était en pleine possession de ses moyens. Il s'approcha immédiatement à cent pieds du pavillon et, après quelques calculs, fit un pas en avant!
 
 Wang Lin n'était nullement nerveux pour ce premier pas. Il était certain que celui-ci ne provoquerait rien et n'activerait pas la restriction. Après avoir fait un pas, son environnement resta inchangé. Son visage demeura impassible alors qu'il avançait d'un autre pas, lequel fut suivi sans délai par un troisième!
 
-Trois pas représentaient 3,3 mètres; il en fit directement neuf. Il restait extrêmement calme, comme s'il déambulait dans son propre jardin. Pour l'instant, rien d'anormal ne se produisait.
+Trois pas représentaient dix pieds; il en fit directement neuf. Il restait extrêmement calme, comme s'il déambulait dans son propre jardin. Pour l'instant, rien d'anormal ne se produisait.
 
-Il s'arrêta après ces neuf pas et des éclairs de compréhension traversèrent son regard. Il fixa alors le pavillon situé à 23 mètres de lui. Il joignit ses doigts pour quelques calculs, puis avança silencieusement.
+Il s'arrêta après ces neuf pas et des éclairs de compréhension traversèrent son regard. Il fixa alors le pavillon situé à soixante-dix pieds de lui. Il joignit ses doigts pour quelques calculs, puis avança silencieusement.
 
-Cette fois, il fit encore neuf pas! Il avait déjà parcouru près de 20 mètres.
+Cette fois, il fit encore neuf pas! Il avait déjà parcouru soixante pieds.
 
-La distance de 20 mètres n'était certes pas longue, mais il avait fallu deux mois à Wang Lin pour calculer un chemin sûr à travers ces 20 mètres. C'était une épreuve que même les monstres millénaires ne pourraient aisément surmonter!
+La distance de soixante pieds n'était certes pas longue, mais il avait fallu deux mois à Wang Lin pour calculer un chemin sûr à travers ces soixante pieds. C'était une épreuve que même les monstres millénaires ne pourraient aisément surmonter!

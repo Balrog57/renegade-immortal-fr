@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 854 - Youre Not Qualified
 slug: tu-nes-pas-qualifie
 ---
-À l'instant même où le démon apparut, le corps du Dieu de Sang se figea.
+À l'instant même où le démon apparut, le corps de Xue Shenzi se figea.
 
-Wang Lin saisit cette opportunité et se retira promptement. Ses mains formèrent rapidement des sceaux, faisant déplacer le fourneau de l'ancien dieu sur 330 mètres pour esquiver la foudre de la rétribution divine!
+Wang Lin saisit cette opportunité et se retira promptement. Ses mains formèrent rapidement des sceaux, faisant déplacer le fourneau de l'ancien dieu sur mille pieds pour esquiver la foudre de la rétribution divine!
 
-Ces éclairs de rétribution divine perdirent leur cible mais ne se dissipèrent pas. C'était comme s'ils possédaient une intelligence propre et avaient soudainement changé de direction. La distance de 330 mètres ne fut franchie par la foudre qu'en un instant.
+Ces éclairs de rétribution divine perdirent leur cible mais ne se dissipèrent pas. C'était comme s'ils possédaient une intelligence propre et avaient soudainement changé de direction. La distance de mille pieds ne fut franchie par la foudre qu'en un instant.
 
 Bien que cela fût extrêmement rapide pour Wang Lin, il eut tout de même le temps d'utiliser un sort!
 
@@ -36,9 +36,9 @@ Boum, boum, boum!
 
 La foudre à l'intérieur du Sceau Céleste atteignait son apogée. Pourtant, Wang Lin se retira directement vers le nuage de la rétribution divine. Il agita la main et les sceaux dorés brillèrent intensément.
 
-Wang Lin savait qu'il ne pourrait échapper au Dieu de Sang. Bien qu'il ait été blessé par la frappe brise-étoiles de l'ancien dieu, le Dieu de Sang n'était pas un adversaire qu'il pouvait affronter. Cependant, en empruntant la puissance de la rétribution divine, il avait peut-être une chance de s'en sortir!
+Wang Lin savait qu'il ne pourrait échapper à Xue Shenzi. Bien qu'il ait été blessé par la frappe brise-étoiles de l'ancien dieu, Xue Shenzi n'était pas un adversaire qu'il pouvait affronter. Cependant, en empruntant la puissance de la rétribution divine, il avait peut-être une chance de s'en sortir!
 
-Le démon qui émergea du Dieu de Sang fixa froidement Wang Lin. Il se rétracta dans le corps du Dieu de Sang, lequel dégagea une lueur démoniaque. D'un seul pas, il avança et tendit la main vers la tête de Wang Lin!
+Le démon qui émergea de Xue Shenzi fixa froidement Wang Lin. Il se rétracta dans le corps de Xue Shenzi, lequel dégagea une lueur démoniaque. D'un seul pas, il avança et tendit la main vers la tête de Wang Lin!
 
 Il était évident qu'il comptait extraire l'âme de Wang Lin pour fouiller ses souvenirs!
 
@@ -48,51 +48,51 @@ Ce sort le plus puissant, Invoque le Vent, fut utilisé une fois de plus. Le ven
 
 Avant d'atteindre le stade du Scruteur du Nirvana, Wang Lin ne pouvait créer qu'un seul dragon noir. Avec l'augmentation de son niveau de culture, il pouvait désormais en invoquer deux de toute sa puissance. Les deux dragons s'enroulèrent autour de lui avant d'ouvrir la gueule pour projeter des rafales de vent glacial!
 
-Des craquements retentirent dans les environs. Cette bourrasque était si puissante que l'espace environnant commença à se fissurer. Au même moment, la main de Wang Lin forma un sceau et le Sceau Céleste brilla intensément. Un éclair de rétribution divine se forma rapidement et fonça vers le Dieu de Sang.
+Des craquements retentirent dans les environs. Cette bourrasque était si puissante que l'espace environnant commença à se fissurer. Au même moment, la main de Wang Lin forma un sceau et le Sceau Céleste brilla intensément. Un éclair de rétribution divine se forma rapidement et fonça vers Xue Shenzi.
 
 Wang Lin frappa son sac de stockage et l'épée céleste apparut dans sa main. À ce stade, il ne se souciait plus de l'énergie originelle et enchaîna les Coups Célestes. Il perdait le compte de ses attaques tant elles s'enchaînaient avec rapidité.
 
-L'expression du Dieu de Sang restait calme alors qu'il s'approchait nonchalamment. Il pointa le ciel du doigt, et l'éclair formé par le Sceau Céleste s'effondra.
+L'expression de Xue Shenzi restait calme alors qu'il s'approchait nonchalamment. Il pointa le ciel du doigt, et l'éclair formé par le Sceau Céleste s'effondra.
 
-Puis le Dieu de Sang effectua un geste du doigt. L'attaque dévastatrice des cent Coups Célestes fut percutée par une force colossale avant de s'évanouir!
+Puis Xue Shenzi effectua un geste du doigt. L'attaque dévastatrice des cent Coups Célestes fut percutée par une force colossale avant de s'évanouir!
 
-Enfin, le Dieu de Sang pointa vers l'avant, et le vent glacial craché par les dragons noirs se brisa. Même les deux dragons noirs poussèrent des gémissements de douleur avant d'être tranchés en deux par une puissance inimaginable.
+Enfin, Xue Shenzi pointa vers l'avant, et le vent glacial craché par les dragons noirs se brisa. Même les deux dragons noirs poussèrent des gémissements de douleur avant d'être tranchés en deux par une puissance inimaginable.
 
-« L'Invoque le Vent de l'Empereur Céleste Bai Fan n'est donc que cela? » La lueur démoniaque dans les yeux du Dieu de Sang s'intensifia. Sa main droite se dirigea vers Wang Lin.
+« L'Invoque le Vent de l'Empereur Céleste Bai Fan n'est donc que cela? » La lueur démoniaque dans les yeux de Xue Shenzi s'intensifia. Sa main droite se dirigea vers Wang Lin.
 
 C’est alors que...
 
-« Moi, Seigneur Céleste Qing Shui, j'ose te défier de prononcer à nouveau le nom de mon maître! » Une intention meurtrière capable de fendre le monde surgit soudainement, accompagnée de ces paroles lugubres au moment même où le Dieu de Sang s'exprimait.
+« Moi, Seigneur Céleste Qing Shui, j'ose te défier de prononcer à nouveau le nom de mon maître! » Une intention meurtrière capable de fendre le monde surgit soudainement, accompagnée de ces paroles lugubres au moment même où Xue Shenzi s'exprimait.
 
 Dès que cette voix retentit, un rugissement tonnerre l'accompagna et une vaste étendue d'espace s'effondra. C'était comme si l'espace lui-même ne pouvait supporter la puissance de ce cri.
 
 Non seulement l'espace, mais même le nuage de rétribution divine recula précipitamment!
 
-Les paroles contenant des lois utilisées par le Dieu de Sang étaient manifestement plus faibles que cette voix. La zone de loi qu'il avait créée s'effondra instantanément!
+Les paroles contenant des lois utilisées par Xue Shenzi étaient manifestement plus faibles que cette voix. La zone de loi qu'il avait créée s'effondra instantanément!
 
 Même Yao Yun, au loin, cracha du sang tandis que son corps perdait toute vigueur. Ses yeux étaient emplis de terreur et il se retira promptement.
 
 La zone entière fut saturée par cette intention meurtrière inimaginable. Par ailleurs, à cet instant précis, tous les cultivateurs du Domaine Sud purent ressentir une intention meurtrière surpuissante émanant de l'énergie originelle du monde. Cela fit cracher du sang à de nombreux cultivateurs; bien que cela ne fût pas mortel, ils en furent blessés.
 
-Et en ce moment, le Dieu de Sang, au centre de la tempête, le ressentit avec une acuité totale. Ses pupilles se rétractèrent violemment.
+Et en ce moment, Xue Shenzi, au centre de la tempête, le ressentit avec une acuité totale. Ses pupilles se rétractèrent violemment.
 
 Le dragon noir devant Wang Lin, qui avait été tranché, poussa un rugissement et se reconstitua. Parmi les étoiles, un jeune homme vêtu de blanc, aux cheveux noirs élégants et à l'œil droit d'un rouge sombre, s'avança lentement!
 
-Pour la première fois, l'expression du Dieu de Sang changea radicalement!
+Pour la première fois, l'expression de Xue Shenzi changea radicalement!
 
-« Seigneur Céleste Qing Shui! » Le Dieu de Sang retira sa main et recula de quelques pas. En observant le jeune homme approcher, son visage devint sombre.
+« Seigneur Céleste Qing Shui! » Xue Shenzi retira sa main et recula de quelques pas. En observant le jeune homme approcher, son visage devint sombre.
 
 Qing Shui marchait, les mains dans le dos, avec une expression glaciale. Une pointe de fierté émanait de lui lorsqu'il dit calmement: « Oses-tu répéter ces mots devant moi? »
 
 Tandis qu'il parlait, la lueur rouge à l'intérieur des yeux de Qing Shui était si dense qu'elle semblait en jaillir. Elle portait une aura destructrice qui faisait frissonner quiconque la croisait.
 
-Les yeux du Dieu de Sang brillèrent d'un éclat démoniaque et il déclara: « Seigneur Céleste Qing Shui, il n'y a aucune querelle entre nous. Si c'est à cause de mes paroles, je les retire! Plus tard, nous rejoindrons toujours le Système Stellaire de l'Alliance. Je trouverai un moyen de me faire pardonner pour mes propos à ce moment-là! »
+Les yeux de Xue Shenzi brillèrent d'un éclat démoniaque et il déclara: « Seigneur Céleste Qing Shui, il n'y a aucune querelle entre nous. Si c'est à cause de mes paroles, je les retire! Plus tard, nous rejoindrons toujours le Système Stellaire de l'Alliance. Je trouverai un moyen de me faire pardonner pour mes propos à ce moment-là! »
 
 « Cependant, cet enfant a un différend avec ma famille, j'espère donc que le Seigneur Céleste ne s'immiscera pas. Autrement, cela nuira à notre harmonie! »
 
-L'expression de Qing Shui demeurait indifférente alors qu'il marchait vers le Dieu de Sang et disait calmement: « Les compétences de ce jeune frère apprenti sont défaillantes et il a provoqué votre famille Yao, mais même ainsi, qu'importe? »
+L'expression de Qing Shui demeurait indifférente alors qu'il marchait vers Xue Shenzi et disait calmement: « Les compétences de ce Junior frère sont défaillantes et il a provoqué votre famille Yao, mais même ainsi, qu'importe? »
 
-« Jeune frère apprenti?! » Le Dieu de Sang fut stupéfait et son expression changea une fois de plus.
+« Junior frère?! » Xue Shenzi fut stupéfait et son expression changea une fois de plus.
 
 L'œil droit de Qing Shui brilla lorsqu'il leva la main droite pour pointer vers le haut. Un vent noir, plusieurs fois plus puissant que celui de Wang Lin, apparut immédiatement. Ce vent était d'une densité dépassant l'imagination et ses rugissements résonnaient parmi les étoiles. En un clin d'œil, six dragons noirs se formèrent à partir de ce vent.
 
@@ -100,19 +100,19 @@ Ces six dragons noirs mesuraient chacun plus de 33 kilomètres de long et sembla
 
 Un seul regard suffisait à terrifier n'importe qui!
 
-« Puisqu'il a appris l'Invoque le Vent, il est le successeur intergénérationnel de mon maître. Avec son statut actuel, oublie ta famille Yao; même l'ancêtre de ta lignée n'oserait pas lui faire la moindre égratignure! » Tandis que Qing Shui parlait froidement, il pointa le Dieu de Sang du doigt. Les six dragons noirs poussèrent des rugissements et ouvrirent leurs gueules pour projeter de terrifiantes rafales de vent glacial.
+« Puisqu'il a appris l'Invoque le Vent, il est le successeur intergénérationnel de mon maître. Avec son statut actuel, oublie ta famille Yao; même l'ancêtre de ta lignée n'oserait pas lui faire la moindre égratignure! » Tandis que Qing Shui parlait froidement, il pointa Xue Shenzi du doigt. Les six dragons noirs poussèrent des rugissements et ouvrirent leurs gueules pour projeter de terrifiantes rafales de vent glacial.
 
-Le visage du Dieu de Sang s'assombrit davantage. À cet instant, la bourrasque glaciale fonça sur lui et, malgré sa culture, il ressentit le froid. Bien que le sort ressemblât à celui de Wang Lin, la différence de puissance était comparable au ciel et à la terre!
+Le visage de Xue Shenzi s'assombrit davantage. À cet instant, la bourrasque glaciale fonça sur lui et, malgré sa culture, il ressentit le froid. Bien que le sort ressemblât à celui de Wang Lin, la différence de puissance était comparable au ciel et à la terre!
 
-Le Dieu de Sang n'hésita pas à ouvrir les bras. Une immense brume de sang apparut. Des hirondelles ensanglantées se formèrent une à une jusqu'à atteindre un total de 99. Elles constituèrent une tempête de sang qui entra en collision avec la rafale glaciale.
+Xue Shenzi n'hésita pas à ouvrir les bras. Une immense brume de sang apparut. Des hirondelles ensanglantées se formèrent une à une jusqu'à atteindre un total de 99. Elles constituèrent une tempête de sang qui entra en collision avec la rafale glaciale.
 
-Une explosion qui fit trembler les cieux retentit alors que l'espace entre le Dieu de Sang et Qing Shui s'effondrait. La fissure spatiale s'élargit soudainement pour devenir un gouffre.
+Une explosion qui fit trembler les cieux retentit alors que l'espace entre Xue Shenzi et Qing Shui s'effondrait. La fissure spatiale s'élargit soudainement pour devenir un gouffre.
 
-Le corps du Dieu de Sang trembla tandis qu'il se retirait précipitamment. Il fixa Qing Shui et cria avec hâte:
+Le corps de Xue Shenzi trembla tandis qu'il se retirait précipitamment. Il fixa Qing Shui et cria avec hâte:
 
-« Qing Shui, je te respecte car tu es un Seigneur Céleste, mais ne me pousse pas à bout! Tu as dormi trop longtemps; serais-tu devenu confus? Même si ce Xu Mu a appris l'Invoque le Vent, comment pourrait-il être ton jeune frère apprenti!?! De plus, il a tué plusieurs membres de la troisième génération de la famille Yao, il est donc naturel que je vienne le supprimer. De quel droit t'en mêles-tu? Qing Shui, ce vieil homme n'a pas peur de toi, ne me force pas! »
+« Qing Shui, je te respecte car tu es un Seigneur Céleste, mais ne me pousse pas à bout! Tu as dormi trop longtemps; serais-tu devenu confus? Même si ce Xu Mu a appris l'Invoque le Vent, comment pourrait-il être ton Junior frère!?! De plus, il a tué plusieurs membres de la troisième génération de la famille Yao, il est donc naturel que je vienne le supprimer. De quel droit t'en mêles-tu? Qing Shui, ce vieil homme n'a pas peur de toi, ne me force pas! »
 
-Le Dieu de Sang ignorait que Qing Shui éprouvait une immense culpabilité envers son maître. Ce sentiment était profond, mais il n'aurait plus jamais l'occasion de s'en acquitter.
+Xue Shenzi ignorait que Qing Shui éprouvait une immense culpabilité envers son maître. Ce sentiment était profond, mais il n'aurait plus jamais l'occasion de s'en acquitter.
 
 Après son réveil, lorsqu'il vit Wang Lin utiliser l'Invoque le Vent et qu'il recouvra ses souvenirs lors de son combat contre Yan Leizi, une émotion complexe envers Wang Lin s'était développée en lui.
 

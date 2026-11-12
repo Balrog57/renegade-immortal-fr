@@ -96,7 +96,7 @@ La quatrième personne était une femme. Vêtue d'une robe bleue, ses cheveux re
 
 L'apparition de ces cultivateurs de l'Alliance attira l'attention de tous. Les membres de l'Alliance, ravis, reculèrent précipitamment et se rassemblèrent aussitôt autour d'eux.
 
-Du côté de Luotian, le Dieu de Sang et les trois ancêtres observaient la scène avec froideur.
+Du côté de Luotian, Xue Shenzi et les trois ancêtres observaient la scène avec froideur.
 
 Maître Yan Leizi s'avança et d'un geste de la main droite, projeta une mer de flammes vers l'avant. Simultanément, le Serpent aux yeux de lune poussa un rugissement et déploya ses tentacules.
 

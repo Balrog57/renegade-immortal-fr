@@ -36,7 +36,7 @@ Après un temps indéterminé, l'épée céleste transportant Zhou Yi s'arrêta 
 
 La voix de Zhou Yi devint quelque peu éthérée au sein de la brume.
 
-Le regard de Wang Lin se glaça. L'apparition de cette brume était tout à fait anormale. Non seulement elle obstruait la vue, mais elle limitait également le sens divin à moins de 9,9 mètres. Dès qu'il tentait d'étendre sa perception au-delà, son sens divin disparaissait, comme s'il était dévoré par la brume. Même à 9,9 mètres, ce que son sens divin percevait restait flou.
+Le regard de Wang Lin se glaça. L'apparition de cette brume était tout à fait anormale. Non seulement elle obstruait la vue, mais elle limitait également le sens divin à moins de trente pieds. Dès qu'il tentait d'étendre sa perception au-delà, son sens divin disparaissait, comme s'il était dévoré par la brume. Même à trente pieds, ce que son sens divin percevait restait flou.
 
 Simultanément, l'aspiration du gouffre sembla s'intensifier avec l'apparition de la brume. Pourtant, cette force n'avait aucun effet sur la brume elle-même, ce qui était extrêmement singulier.
 
@@ -82,7 +82,7 @@ Wang Lin eut l'impression que son corps allait être déchiré. La grande épée
 
 Au fur et à mesure de leur ascension, l'or recouvrant l'épée s'effrita, révélant une lame totalement noire. Les joyaux restants sur la garde se brisèrent et furent aspirés dans le gouffre.
 
-Zhou Yi poussa un rugissement, décuplant la puissance de l'épée céleste, et la grande épée fut hissée d'une dizaine de mètres supplémentaires. Wang Lin utilisa davantage d'énergie spirituelle céleste pour faire tournoyer le Fleuve Huang Quan encore plus vite, affaiblissant ainsi la force d'aspiration. Finalement, Zhou Yi jaillit du gouffre avec Wang Lin!
+Zhou Yi poussa un rugissement, décuplant la puissance de l'épée céleste, et la grande épée fut hissée de plusieurs dizaines de pieds supplémentaires. Wang Lin utilisa davantage d'énergie spirituelle céleste pour faire tournoyer le Fleuve Huang Quan encore plus vite, affaiblissant ainsi la force d'aspiration. Finalement, Zhou Yi jaillit du gouffre avec Wang Lin!
 
 Au moment où ils s'échappèrent, Wang Lin poussa un grand cri. La grande épée fut arrachée à l'abîme et atterrit dans ses mains! Un mot, gravé superficiellement sur la lame, apparut: « Richesse! »
 

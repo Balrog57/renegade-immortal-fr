@@ -18,7 +18,7 @@ Les brèches de la formation se refermèrent à une vitesse visible à l'œil nu
 
 Après avoir accompli cela, Wang Lin fit un pas en avant puis disparut complètement. Lorsqu'il réapparut, il se trouvait à l'extérieur de la vallée.
 
-L'homme en robe noire, perché sur son épée volante, le fixa froidement à une centaine de mètres de distance.
+L'homme en robe noire, perché sur son épée volante, le fixa froidement à plusieurs centaines de pieds de distance.
 
 Des filaments de gaz violets dansaient autour de chacun d'eux comme des spectres. Dans les flots d'énergie démoniaque alentour, des bêtes spirituelles démoniaques prenaient parfois forme; certaines, à peine apparues, bondissaient directement sur eux.
 
@@ -30,7 +30,7 @@ Trois filaments de gaz gris dansaient entre les doigts de Wang Lin, produisant u
 
 L'homme en robe noire eut un rire colérique: « Quel être arrogant! Si tu ne me semblais pas familier et que je ne voulais pas blesser un ami ou une connaissance, pourquoi même te parlerais-je? Puisque tu cherches la mort, je vais exaucer ton vœu! »
 
-Wang Lin ne prit même pas la peine de lui répondre. Tandis que l'homme parlait, Wang Lin frappa son sac de rangement et l'épée céleste apparut. Il fit un pas en avant et trancha l'air avec l'épée céleste. Un rayon d'énergie d'épée large d'une dizaine de mètres jaillit dans les airs avant de fondre sur l'homme tel l'éclair.
+Wang Lin ne prit même pas la peine de lui répondre. Tandis que l'homme parlait, Wang Lin frappa son sac de rangement et l'épée céleste apparut. Il fit un pas en avant et trancha l'air avec l'épée céleste. Un rayon d'énergie d'épée large de plusieurs dizaines de pieds jaillit dans les airs avant de fondre sur l'homme tel l'éclair.
 
 Simultanément, la lame demi-lune le suivit de près, telle un éclair.
 
@@ -46,11 +46,11 @@ En contemplant son épée volante fissurée, le regard de l'homme en robe noire 
 
 L'homme cria: « Flamme d'Extinction Terrestre, consume-le jusqu'au néant! » Il pointa l'avant et la flamme noire s'élança. En plein vol, elle se fragmenta en d'innombrables petites étincelles qui pleuvent sur Wang Lin.
 
-Dès que la pluie de flammes noires atteignit sa cible, une lueur sombre jaillit. Cette lumière fit changer brusquement l'expression de l'homme en robe noire et força son corps à reculer d'une dizaine de centimètres. Cependant, il était trop tard. Il vit soudain le sang jaillir du côté droit de sa poitrine; un regard d'incrédulité traversa ses yeux alors qu'il reculait précipitamment pour avaler quelques pilules.
+Dès que la pluie de flammes noires atteignit sa cible, une lueur sombre jaillit. Cette lumière fit changer brusquement l'expression de l'homme en robe noire et força son corps à reculer de trois pouces. Cependant, il était trop tard. Il vit soudain le sang jaillir du côté droit de sa poitrine; un regard d'incrédulité traversa ses yeux alors qu'il reculait précipitamment pour avaler quelques pilules.
 
 La lame demi-lune apparut à côté de l'épée céleste en un éclair, encore maculée de sang.
 
-Les yeux de Wang Lin se plissèrent; la culture de l'adversaire était véritablement puissante. Il fallait admettre que la lame demi-lune était extrêmement rapide et que, même pour Wang Lin, il aurait été difficile d'éviter le désastre sans préparation préalable. Pourtant, cet homme avait réussi à forcer son corps à reculer d'une dizaine de centimètres au moment critique pour éviter une blessure fatale. Cela signifiait que son Sens Divin était bien plus puissant que celui de Wang Lin et qu'il avait pu détecter la trajectoire de la lame.
+Les yeux de Wang Lin se plissèrent; la culture de l'adversaire était véritablement puissante. Il fallait admettre que la lame demi-lune était extrêmement rapide et que, même pour Wang Lin, il aurait été difficile d'éviter le désastre sans préparation préalable. Pourtant, cet homme avait réussi à forcer son corps à reculer de trois pouces au moment critique pour éviter une blessure fatale. Cela signifiait que son Sens Divin était bien plus puissant que celui de Wang Lin et qu'il avait pu détecter la trajectoire de la lame.
 
 Une lueur meurtrière passa dans le regard de Wang Lin. Puisque la culture de cet homme était supérieure, il devait être éliminé sur-le-champ. S'il parvenait à s'échapper, à se rétablir puis à connaître les techniques et les trésors de Wang Lin, celui-ci ne pourrait plus lui résister à son retour.
 
@@ -82,7 +82,7 @@ D'immenses ondulations de fluctuations magiques se propagèrent depuis l'épicen
 
 Peu après, les ondes d'énergie démoniaque revinrent en force comme une armée de chevaux au galop pour recouvrir à nouveau la zone.
 
-L'homme en robe noire se tenait au milieu de ces vagues noires d'énergie démoniaque. Loin de montrer le moindre signe de joie, son regard devint extrêmement sérieux. Il prit une profonde inspiration, recula brusquement d'une centaine de mètres et commença à former des sceaux, fixant intensément l'endroit de l'explosion sans même ciller!
+L'homme en robe noire se tenait au milieu de ces vagues noires d'énergie démoniaque. Loin de montrer le moindre signe de joie, son regard devint extrêmement sérieux. Il prit une profonde inspiration, recula brusquement de plusieurs centaines de pieds et commença à former des sceaux, fixant intensément l'endroit de l'explosion sans même ciller!
 
 La zone de l'explosion s'assombrit sous le retour de l'énergie démoniaque, mais au milieu de cette obscurité, une silhouette émergea lentement, pas après pas.
 

@@ -74,7 +74,7 @@ Une fois le vent passé, la main droite de Yu Sen pressa le tambour.
 
 Presque au moment où le troisième coup s'éteignait, le quatrième suivit instantanément. Les deux sons se propagèrent comme un tonnerre roulant.
 
-Yu Sen rétracta précipitamment sa main et recula. Il battit en retraite sur plus de trois cents mètres avant de parvenir à se stabiliser. Son visage devint rouge et il lutta de toutes ses forces pour ne pas cracher du sang.
+Yu Sen rétracta précipitamment sa main et recula. Il battit en retraite sur mille pieds avant de parvenir à se stabiliser. Son visage devint rouge et il lutta de toutes ses forces pour ne pas cracher du sang.
 
 Sa main droite tremblait et il en avait perdu toute sensation. Il avait consommé 80 % de son énergie spirituelle démoniaque pour ce seul sort.
 
@@ -104,17 +104,17 @@ Il reprit de plus belle: « Si cet enfant fait sonner le tambour six fois, même
 
 Tandis que Mo Fei marchait d'un pas nonchalant vers le tambour, tous les regards suivaient ses moindres mouvements.
 
-À trente-trois mètres de l'instrument, il s'arrêta et le contempla. Sans perdre un instant pour ajuster sa posture, il lança un coup de poing dans le vide.
+À cent pieds de l'instrument, il s'arrêta et le contempla. Sans perdre un instant pour ajuster sa posture, il lança un coup de poing dans le vide.
 
 *Dong!* Le son du tambour résonna sur la place comme un tonnerre sourd.
 
 L'armure de Mo Fei semblait être secouée par un vent violent, produisant des craquements fracassants. Ses cheveux étaient projetés en arrière avec fureur par ce souffle, mais son corps restait parfaitement immobile, comme s'il était cloué au sol. Son expression, elle, ne changea pas d'un iota.
 
-« Ce n'est donc pas si difficile », gloussa-t-il en faisant un pas de trois mètres pour lancer un autre coup.
+« Ce n'est donc pas si difficile », gloussa-t-il en faisant un pas de dix pieds pour lancer un autre coup.
 
 *Dong!*
 
-Mo Fei ne s'arrêta pas. Il avança encore de trois mètres et décocha un nouveau coup dans l'air.
+Mo Fei ne s'arrêta pas. Il avança encore de dix pieds et décocha un nouveau coup dans l'air.
 
 *Dong!*
 
@@ -124,7 +124,7 @@ Après le troisième coup, Mo Fei marqua une pause, sentant une force inimaginab
 
 L'armure autour de son corps trembla violemment, mais elle se stabilisa lorsqu'il déploya son aura démoniaque.
 
-Les yeux de Mo Fei s'illuminèrent comme des torches ardentes. Arborant une expression sérieuse, il murmura pour lui-même: « Intéressant! » Il fit un nouveau pas de trois mètres et frappa.
+Les yeux de Mo Fei s'illuminèrent comme des torches ardentes. Arborant une expression sérieuse, il murmura pour lui-même: « Intéressant! » Il fit un nouveau pas de dix pieds et frappa.
 
 *Dong!*
 

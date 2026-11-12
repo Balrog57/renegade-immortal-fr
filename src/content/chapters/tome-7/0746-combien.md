@@ -44,7 +44,7 @@ Puis le vieil homme murmura doucement: « Inversion! »
 
 En un clin d'œil, tout le vide vacilla comme si la réalité même avait changé. La vision de Wang Lin se brouilla et son corps fut brusquement projeté en arrière. Sa posture était alors exactement la même que lorsqu'il tentait de fuir.
 
-Presque instantanément, lorsqu'il retrouva la vue, il se trouvait à près de dix mètres du vieil homme. Une sueur froide recouvrit immédiatement son front. Un tel sort dépassait déjà l'entendement.
+Presque instantanément, lorsqu'il retrouva la vue, il se trouvait à trente pieds du vieil homme. Une sueur froide recouvrit immédiatement son front. Un tel sort dépassait déjà l'entendement.
 
 Le vieil homme regarda Wang Lin et sourit: « Pourquoi ne cours-tu pas? »
 

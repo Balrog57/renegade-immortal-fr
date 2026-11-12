@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 904 - Exploring the Immortal Graveyard
 slug: exploration-du-cimetiere-des-immortels
 ---
-Un vieil homme était assis près de l'immense fosse où le Clan Xian Yi avait autrefois été scellé sur la planète Suzaku. Ce vieil homme portait une robe rouge et des cheveux blancs. Une plante scintillait sur son front, déployant onze feuilles. Cependant, au sommet de la onzième feuille, une douzième demi-feuille s'épanouissait.
+Un vieil homme était assis près de l'immense fosse où se trouvait autrefois le Clan Xian Yi, sur la planète Suzaku. Ce vieil homme portait une robe rouge et des cheveux blancs. Une plante scintillait sur son front, déployant onze feuilles. Cependant, au sommet de la onzième feuille, une douzième demi-feuille s'épanouissait.
 
 Si cette demi-feuille s'ouvrait complètement, ce vieil homme deviendrait instantanément un membre du Clan Xian Yi à douze feuilles!
 
@@ -34,7 +34,7 @@ Yun Quezi esquissa un sourire amer et son corps vacilla alors qu'il pénétrait 
 
 En chemin, Wang Lin ne se pressait pas. Il progressait lentement à travers le Cimetière des Immortels. Le Clan Xian Yi avait quitté les lieux, laissant derrière lui un vide absolu.
 
-À mesure qu'il descendait de strate en strate, Wang Lin se souvint que la profondeur maximale qu'il ait atteinte était la onzième couche. Là, il avait rencontré le troisième ancêtre du Clan Xian Yi et avait été traqué par elle jusqu'à ce qu'il sorte le parchemin scellant la femme de la famille Xiang. Ce n'est que grâce à cela qu'il avait pu échapper à cette crise.
+À mesure qu'il descendait de strate en strate, Wang Lin se souvint que la profondeur maximale qu'il ait atteinte était la onzième couche. Là, il avait rencontré le troisième ancêtre du Clan Xian Yi et avait été traqué par lui jusqu'à ce qu'il sorte le parchemin scellant la femme de la famille Xiang. Ce n'est que grâce à cela qu'il avait pu échapper à cette crise.
 
 À travers l'horreur qui avait marqué le visage du troisième ancêtre, Wang Lin comprit que le parchemin était d'une manière ou d'une autre lié au Clan Xian Yi.
 
@@ -54,7 +54,7 @@ La clé de tout résidait dans l'énergie originelle céleste!
 
 En y songeant, Wang Lin ressentit de l'amertume. L'énergie originelle céleste qu'il possédait était un présent de Qing Shui et n'était pas illimitée. Chaque fois qu'il utilisait un sort céleste, il en consommait une partie. S'il ne trouvait pas de moyen de la reconstituer, elle finirait par s'épuiser.
 
-Les sorts célestes que Qing Shui lui avait transmis, *Invoquer la Pluie* et *Arsenal Magique*, exigeaient tous une quantité massive d'énergie originelle céleste. Sans réserves suffisantes, il ne pourrait même pas les apprendre, et encore moins les utiliser.
+Les sorts célestes que Qing Shui lui avait transmis, *Invoquer la Pluie* et *Transformer les Haricots en Soldats*, exigeaient tous une quantité massive d'énergie originelle céleste. Sans réserves suffisantes, il ne pourrait même pas les apprendre, et encore moins les utiliser.
 
 C'était précisément pour cela que Qing Shui voulait que Wang Lin pénètre dans le bassin céleste, et la raison pour laquelle il lui avait offert le haricot céleste par la suite.
 

@@ -16,15 +16,15 @@ Aux yeux de Li Yuan, la vision de Wang Lin frisait la folie, tout en étant d'un
 
 En y songeant, le cœur de Li Yuan s'emballa. L'excitation provoquée par la tentation de tuer un cultivateur ayant au moins atteint le stade du Purificateur du Nirvana fit bondir son pouls et accélérer son flux sanguin.
 
-« Frère Xu, nous... nous essayons en fait de tuer un dieu! »
+« Frère Xu, nous... nous essayons en fait de tuer un Immortel! »
 
-Comme l'avait dit Li Yuan, cela revenait presque à tenter d'assassiner une divinité. Même à l'époque où le Royaume Céleste du Tonnerre n'avait pas encore été détruit, bien que Xue Zu n'eût pu égaler un Seigneur Céleste, il aurait assurément pu régner en maître sur toute une région.
+Comme l'avait dit Li Yuan, cela revenait presque à tenter de tuer un Immortel. Même à l'époque où le Royaume Céleste du Tonnerre n'avait pas encore été détruit, bien que Xue Zu n'eût pu égaler un Seigneur Céleste, il aurait assurément pu régner en maître sur toute une région.
 
 Aucun cultivateur des royaumes inférieurs n'aurait osé se dresser contre lui!
 
 Wang Lin se lécha les lèvres et dit: « J'aurai toujours besoin de l'aide du frère Li pour cette affaire. Une fois l'événement terminé, je ne manquerai pas de te récompenser, frère Li. »
 
-Li Yuan réfléchit un instant. L'excitation précédente lui avait asséché la gorge. Il regarda alors Wang Lin et répondit: « Frère Xu n'a pas besoin de me remercier. Ce que tu as sauvé, ce n'est pas seulement moi, mais des générations entières de la famille Li. N'est-ce que tuer un dieu? Comment pourrais-je ne pas participer à une entreprise aussi exaltante?! »
+Li Yuan réfléchit un instant. L'excitation précédente lui avait asséché la gorge. Il regarda alors Wang Lin et répondit: « Frère Xu n'a pas besoin de me remercier. Ce que tu as sauvé, ce n'est pas seulement moi, mais des générations entières de la famille Li. N'est-ce que tuer un Immortel? Comment pourrais-je ne pas participer à une entreprise aussi exaltante?! »
 
 Le regard de Wang Lin se fit glacial et il déclara d'une voix lente: « Xue Zu n'est pas si facile à abattre; cela exigera une planification minutieuse. Avant que nous ne passions à l'action, le frère Li peut partir le premier. »
 
@@ -36,7 +36,7 @@ Le ciel n'était pas le seul endroit où des fissures spatiales pouvaient appara
 
 La vallée était bordée de montagnes couvertes de nombreux arbres. En chemin, Wang Lin s'arrêta, observa la montagne et resta pensif. Il posa sa main droite contre la paroi rocheuse et déploya rapidement son Sens Divin.
 
-Lorsqu'il avait survolé les lieux plus tôt, Li Yuan avait aperçu deux montagnes et trois vallées. À l'instant présent, Wang Lin contemplait la montagne, ressentant une aura similaire à celle de la Montagne Céleste qu'il gardait dans sa sacoche.
+Lorsqu'il avait survolé les lieux plus tôt, Li Yuan avait aperçu deux montagnes et trois vallées. À l'instant présent, Wang Lin contemplait la montagne, ressentant une aura similaire à celle de la roche de montagne du Royaume Céleste qu'il gardait dans son sac de rangement.
 
 Fort de cette intuition, Wang Lin retira sa main. Peu de temps après, la première vallée apparut devant eux.
 

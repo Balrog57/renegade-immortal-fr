@@ -90,7 +90,7 @@ En reculant, sa propre pression faiblit. En réaction, celle de Wang Lin monta e
 
 À cet instant précis, sa culture au sommet du stade avancé de la Transformation de l'Âme se révéla avec fracas!
 
-Alors qu'il reculait, le colosse serra les poings et les frappa l'un contre l'autre dans un grondement assourdissant, propageant des ondes sonores vers l'avant. Simultanément, l'énergie spirituelle démoniaque de son corps jaillit pour former une tortue noire d'environ 330 mètres de large!
+Alors qu'il reculait, le colosse serra les poings et les frappa l'un contre l'autre dans un grondement assourdissant, propageant des ondes sonores vers l'avant. Simultanément, l'énergie spirituelle démoniaque de son corps jaillit pour former une tortue noire d'environ mille pieds de large!
 
 Cette tortue noire était couverte d'innombrables pointes sur son dos et sa queue. Lorsque celle-ci balaya l'air, elle sembla pouvoir briser l'espace lui-même, laissant apparaître des lignes noires dans le vide.
 

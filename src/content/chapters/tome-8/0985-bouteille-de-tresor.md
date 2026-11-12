@@ -28,7 +28,7 @@ Wang Lin lui tournait le dos et continuait d'avancer. D'un revers de manches, il
 
 « Senior, Ling Er veut savoir ce qu'était ce géant apparu hier soir. Il... Qu'est-il... » Ling Er était sur le point de faire un pas en avant.
 
-Les yeux de Ta Shan s'illuminèrent et il fit un pas vers elle. Une onde de choc se propagea et frappa Ling Er, la repoussant d'une dizaine de mètres.
+Les yeux de Ta Shan s'illuminèrent et il fit un pas vers elle. Une onde de choc se propagea et frappa Ling Er, la repoussant de plusieurs dizaines de pieds.
 
 Le niveau de culture de Ling Er n'était pas élevé; alors, tandis qu'elle reculait, son visage pâlit. L'énergie spirituelle dans son corps devint instable et, combinée à son anxiété extrême et à sa nuit agitée, l'énergie à l'intérieur de son corps sombra dans un chaos total. Le sang monta à sa gorge et elle cracha une bouchée de sang.
 

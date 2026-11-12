@@ -44,7 +44,7 @@ Le vieil homme se lécha les lèvres et disparut en un éclair dans le pus. Auss
 
 La paroi de pus couvrait le ciel et la terre; en se contractant, elle finit par former une sphère gigantesque.
 
-Le vieil homme réapparut à l'extérieur de cette sphère. Fixant la masse qui se réduisait rapidement, il lança d'une voix rauque: « Chanson du Vent, nul besoin de rester ici, tu peux repartir. Un simple cultivateur ose agir à sa guise en ces lieux... Il n'a aucune chance de survivre à mon Ulcère Céleste et Terre Purulente! »
+Le vieil homme réapparut à l'extérieur de cette sphère. Fixant la masse qui se réduisait rapidement, il lança d'une voix rauque: « Feng Yin, nul besoin de rester ici, tu peux repartir. Un simple cultivateur ose agir à sa guise en ces lieux... Il n'a aucune chance de survivre à mon Ulcère Céleste et Terre Purulente! »
 
 Une bourrasque de vent froid souffla et la femme au visage tatoué apparut à une quarantaine de mètres du vieil homme. Elle observa froidement la sphère de pus qui ne faisait plus qu'une trentaine de mètres de large et déclara d'un ton glacial: « Si cet individu pouvait être tué si facilement, Maître ne nous aurait pas envoyés ici! »
 
@@ -92,9 +92,9 @@ Il referma ensuite sa main et tira brusquement. Un bruit de déchirure retentit 
 
 Puis, il saisit violemment le vide de sa main droite.
 
-Le cocon explosa en plein vol. Une masse de pus fut projetée et un gémissement étouffé s'échappa du vide. Le corps de Chanson du Vent apparut là où le cocon avait explosé. Son visage était pâle, mais son regard était plus sombre encore.
+Le cocon explosa en plein vol. Une masse de pus fut projetée et un gémissement étouffé s'échappa du vide. Le corps de Feng Yin apparut là où le cocon avait explosé. Son visage était pâle, mais son regard était plus sombre encore.
 
-La lame en croissant la suivit de près pour l'empaler. Chanson du Vent agita la main et un poignard apparut dans sa paume. Le choc des métaux retentit alors que la lame en croissant était repoussée, mais Chanson du Vent fut elle aussi projetée en arrière de quelques pas.
+La lame en croissant la suivit de près pour l'empaler. Feng Yin agita la main et un poignard apparut dans sa paume. Le choc des métaux retentit alors que la lame en croissant était repoussée, mais Feng Yin fut elle aussi projetée en arrière de quelques pas.
 
 Elle venait d'arriver pour contrer la lame et l'explosion du cocon l'avait contrainte à se dévoiler. Elle ignorait si Wang Lin l'avait pressenti depuis longtemps ou si ce n'était qu'une coïncidence.
 
@@ -102,21 +102,21 @@ Une fois le cocon détruit, le vieil homme cracha du sang, le visage marqué par
 
 Cette fois, la lumière noire jaillit avec une fureur déchaînée. Sa vitesse était telle qu'elle fut déjà à bout portant avant même que le vieil homme ne puisse réagir. Au moment où elle se manifesta, elle se trouvait déjà devant lui. Paniqué, l'homme ouvrit la bouche pour dévorer la lumière noire, mais bien qu'il l'ait engloutie, celle-ci ne se dissipa pas et traversa son corps pour ressortir par son dos.
 
-Au même moment, Chanson du Vent lança son poignard. Le poignard et la lame en croissant entamèrent un duel. Elle se transforma ensuite en une brise glaciale pour charger Wang Lin, qui lui tournait le dos.
+Au même moment, Feng Yin lança son poignard. Le poignard et la lame en croissant entamèrent un duel. Elle se transforma ensuite en une brise glaciale pour charger Wang Lin, qui lui tournait le dos.
 
 Le vent était impétueux; elle atteignit Wang Lin presque instantanément.
 
 Wang Lin ne se retourna pas, mais effleura sa sacoche de rangement. Le Fouet Kunji apparut dans sa main. Ce long fouet, d'un noir absolu, dégageait une aura capable de faire trembler les âmes mêmes.
 
-Alors que Chanson du Vent s'approchait, le Fouet Kunji fendit l'air brusquement. Un fracas retentit, suivi du gémissement misérable de la femme. Projetée hors du vide, elle portait sur le visage la marque rouge d'un coup de fouet. Pour la première fois, ses yeux trahirent une profonde stupeur. À cet instant, elle ne cherchait plus à tuer, mais à fuir de toutes ses forces!
+Alors que Feng Yin s'approchait, le Fouet Kunji fendit l'air brusquement. Un fracas retentit, suivi du gémissement misérable de la femme. Projetée hors du vide, elle portait sur le visage la marque rouge d'un coup de fouet. Pour la première fois, ses yeux trahirent une profonde stupeur. À cet instant, elle ne cherchait plus à tuer, mais à fuir de toutes ses forces!
 
-L'esprit de Wang Lin ayant perdu toute conscience sous l'effet du Fruit de l'Ascension Céleste, tout ce qu'il faisait procédait par pur instinct. Chanson du Vent recula avec célérité. Pour pouvoir combattre la lame en croissant, sa vitesse était naturellement prodigieuse. Elle s'enfuit si vite qu'elle ne laissait même pas d'ombre derrière elle.
+L'esprit de Wang Lin ayant perdu toute conscience sous l'effet du Fruit de l'Ascension Céleste, tout ce qu'il faisait procédait par pur instinct. Feng Yin recula avec célérité. Pour pouvoir combattre la lame en croissant, sa vitesse était naturellement prodigieuse. Elle s'enfuit si vite qu'elle ne laissait même pas d'ombre derrière elle.
 
 Sans même réfléchir, Wang Lin abattit sa paume, et une empreinte de main gigantesque apparut soudainement devant lui. La même empreinte sans nom qui avait réussi à terrifier Mo Lihai!
 
 L'énergie de massacre de Wang Lin s'anima au sein de cette empreinte.
 
-Créant des bourrasques sur son passage, l'empreinte se déplaça à une vitesse inimaginable pour traquer Chanson du Vent. Elle la traversa alors que la femme tentait de fuir. L'énergie de massacre contenue dans la paume pénétra son corps, provoquant son explosion immédiate.
+Créant des bourrasques sur son passage, l'empreinte se déplaça à une vitesse inimaginable pour traquer Feng Yin. Elle la traversa alors que la femme tentait de fuir. L'énergie de massacre contenue dans la paume pénétra son corps, provoquant son explosion immédiate.
 
 Une brise légère souffla, faisant flotter les cheveux de Wang Lin. Il continua sa marche, tandis que ses trois armes le suivaient.
 

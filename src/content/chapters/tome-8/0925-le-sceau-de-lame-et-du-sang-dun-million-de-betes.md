@@ -80,36 +80,36 @@ Le bois trembla et s'immobilisa brusquement dans les airs. Lie Yunzi s'assit, se
 
 L'âme originelle de Lie Yunzi désigna l'un des Parchemins de Bataille et projeta une onde tonitruante de sens divin.
 
-Alors que ce sens divin se propageait, l'un des 17 Lou Fu explosa soudainement, laissant sortir une silhouette sanglante.
+Alors que ce sens divin se propageait, l'un des 17 Luo Fu explosa soudainement, laissant sortir une silhouette sanglante.
 
-Cette silhouette était un homme fait de sang pur. Dès son apparition, il poussa un rugissement et chargea dans la mêlée. Le Dieu de Sang et ses compagnons ne restaient pas en retrait non plus; le Saint Démon Noir et le Saint Démon du Dragon des Nuages attaquaient le groupe du Dieu de Sang. Les deux camps avaient ouvert un nouveau champ de bataille où aucun ne parvenait à prendre l'avantage!
+Cette silhouette était un homme fait de sang pur. Dès son apparition, il poussa un rugissement et chargea dans la mêlée. Xue Shenzi et ses compagnons ne restaient pas en retrait non plus; le Saint Démon Noir et le Saint Démon du Dragon des Nuages attaquaient le groupe de Xue Shenzi. Les deux camps avaient ouvert un nouveau champ de bataille où aucun ne parvenait à prendre l'avantage!
 
-L'être de sang se dirigea vers l'affrontement entre le Dieu de Sang et le Saint Démon Noir. Dès son arrivée, le Saint Démon Noir fut contraint dans une situation désastreuse et dut battre en retraite.
+L'être de sang se dirigea vers l'affrontement entre Xue Shenzi et le Saint Démon Noir. Dès son arrivée, le Saint Démon Noir fut contraint dans une situation désastreuse et dut battre en retraite.
 
-L'âme originelle de Lie Yunzi trembla, et il dut s'asseoir immédiatement pour se rétablir. Bien que sa culture ne fût pas aussi puissante que celle du Maître Yan Leizi ou même du Dieu de Sang, son rôle dans cette guerre entre Luotian et l'Alliance était crucial!
+L'âme originelle de Lie Yunzi trembla, et il dut s'asseoir immédiatement pour se rétablir. Bien que sa culture ne fût pas aussi puissante que celle du Maître Yan Leizi ou même de Xue Shenzi, son rôle dans cette guerre entre Luotian et l'Alliance était crucial!
 
-Les 18 Lou Fu n'appartenaient pas à la famille Zhan, mais seule la famille Zhan possédait le sort pour les contrôler. Ce secret ne pouvait être transmis à des étrangers; seuls quelques membres de la lignée Zhan pouvaient l'utiliser!
+Les 18 Luo Fu n'appartenaient pas à la famille Zhan, mais seule la famille Zhan possédait le sort pour les contrôler. Ce secret ne pouvait être transmis à des étrangers; seuls quelques membres de la lignée Zhan pouvaient l'utiliser!
 
 Ce sort était issu d'un fragment de compréhension et d'héritage provenant des Parchemins de Bataille.
 
 Bien que cela paraisse complexe, c'était l'un des grands secrets du Système Stellaire de Luotian.
 
-« Ne laissez personne de la famille Zhan toucher aux sphères de sang Lou Fu! »
+« Ne laissez personne de la famille Zhan toucher aux sphères de sang Luo Fu! »
 
-Cependant, ce secret avait été brisé lors des préparatifs de la guerre contre l'Alliance. Le Maître Yan Leizi, l'ancêtre de la famille Xiang, l'homme d'âge mûr de la famille Gongsun et plusieurs vieux monstres avaient tous décidé de laisser Lie Yunzi contrôler les 18 Lou Fu!
+Cependant, ce secret avait été brisé lors des préparatifs de la guerre contre l'Alliance. Le Maître Yan Leizi, l'ancêtre de la famille Xiang, l'homme d'âge mûr de la famille Gongsun et plusieurs vieux monstres avaient tous décidé de laisser Lie Yunzi contrôler les 18 Luo Fu!
 
 Dès que son âme originelle fut quelque peu rétablie, Lie Yunzi pointa un autre Parchemin de Bataille!
 
-Son sens divin pénétra le parchemin et se transforma en une vague incroyable qui balaya les étoiles. L'un des 16 Lou Fu restants explosa en d'innombrables gouttes de sang pour former un autre homme de sang!
+Son sens divin pénétra le parchemin et se transforma en une vague incroyable qui balaya les étoiles. L'un des 16 Luo Fu restants explosa en d'innombrables gouttes de sang pour former un autre homme de sang!
 
 Cet être poussa un rugissement et chargea directement vers l'endroit où l'ancêtre de la famille Shengong combattait le sceau retenant le Serpent aux yeux de lune!
 
-Parmi les cultivateurs de l'Alliance, la femme en robe bleue fronça les sourcils. Elle pointa vers l'avant sa main semblable au jade, et l'un des membres du Clan Ju Mo poussa un rugissement avant de s'avancer. La planète de culture qu'il portait n'était pas très grande, ne représentant qu'environ 1 % d'une planète normale. Néanmoins, le démon géant paraissait minuscule face à elle. Mais il était extrêmement rapide et, dans sa course, il la lança sans aucune pitié. La planète de culture s'abattit directement vers les 15 Lou Fu restants.
+Parmi les cultivateurs de l'Alliance, la femme en robe bleue fronça les sourcils. Elle pointa vers l'avant sa main semblable au jade, et l'un des membres du Clan Ju Mo poussa un rugissement avant de s'avancer. La planète de culture qu'il portait n'était pas très grande, ne représentant qu'environ 1 % d'une planète normale. Néanmoins, le démon géant paraissait minuscule face à elle. Mais il était extrêmement rapide et, dans sa course, il la lança sans aucune pitié. La planète de culture s'abattit directement vers les 15 Luo Fu restants.
 
-Un vieil homme flottait encore sur cette planète de culture. Ses yeux brillèrent alors qu'il fonçait rapidement vers les 15 Lou Fu, porté par l'astre.
+Un vieil homme flottait encore sur cette planète de culture. Ses yeux brillèrent alors qu'il fonçait rapidement vers les 15 Luo Fu, porté par l'astre.
 
-Cependant, la force de suppression devenait plus intense à mesure que l'on approchait des Lou Fu. L'expression du vieil homme se fit grave tandis qu'il s'approchait de leur position.
+Cependant, la force de suppression devenait plus intense à mesure que l'on approchait des Luo Fu. L'expression du vieil homme se fit grave tandis qu'il s'approchait de leur position.
 
 Quant au membre du Clan Ju Mo, il poussa un rugissement et chargea vers Lie Yunzi.
 
-L'âme originelle de Lie Yunzi flottait là, paraissant quelque peu affaiblie. Il ouvrit soudainement les yeux et cria: « Lou Hong, Zhou Xingtian, vous deux, allez vite protéger les Lou Fu! »
+L'âme originelle de Lie Yunzi flottait là, paraissant quelque peu affaiblie. Il ouvrit soudainement les yeux et cria: « Luo Hong, Zhou Xingtian, vous deux, allez vite protéger les Luo Fu! »

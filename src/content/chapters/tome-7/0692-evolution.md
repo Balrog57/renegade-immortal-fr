@@ -58,7 +58,7 @@ Après s'être intégré à l'immensité de la mer, à la férocité de la monta
 
 Bien qu'il fût toujours mortel, son âme embrassait le monde!
 
-À leur retour, la dernière montagne qu'ils franchirent fut le mont Quilian, près du village de la Lune Déchue.
+À leur retour, la dernière montagne qu'ils franchirent fut le mont Qilian, près du village de la Lune Déchue.
 
 La nature enfantine avait totalement disparu du visage de Wang Ping, âgé de vingt-sept ans. À la place, ses yeux étaient empreints de détermination. Durant ces huit années de voyage, les traces de sa nature démoniaque s'étaient progressivement évanouies, remplacées par une beauté absolue.
 
@@ -70,17 +70,17 @@ La pilule de Liu Mei et les sorts de Wang Lin n'avaient pu éliminer qu'une part
 
 Ce reliquat était une chose que ni pilule ni sort ne pouvaient effacer; il ne pouvait être dissipé que par le cycle de la réincarnation.
 
-Au pied du pic Quilian, Wang Lin regarda le village de montagne au loin et demanda: « Ne veux-tu pas regarder? »
+Au pied du pic Qilian, Wang Lin regarda le village de montagne au loin et demanda: « Ne veux-tu pas regarder? »
 
 À ses côtés, Wang Ping secoua la tête et répondit: « Je n'irai pas. »
 
-Wang Lin ne dit plus rien et se dirigea vers le sommet de la montagne. Wang Ping courut après son père en riant: « Père, quand j'étais enfant, j'ai entendu dire que le pic Quilian possédait des nuages célestes. On disait qu'en en inhalant une seule bouffée, on deviendrait immunisé contre les maladies pendant dix ans. Je me suis toujours demandé quand vous m'emmèneriez ici. »
+Wang Lin ne dit plus rien et se dirigea vers le sommet de la montagne. Wang Ping courut après son père en riant: « Père, quand j'étais enfant, j'ai entendu dire que le pic Qilian possédait des nuages célestes. On disait qu'en en inhalant une seule bouffée, on deviendrait immunisé contre les maladies pendant dix ans. Je me suis toujours demandé quand vous m'emmèneriez ici. »
 
 Wang Lin sourit discrètement et regarda tendrement Wang Ping.
 
-Ce duo de père et de fils atteignit finalement le sommet de la haute montagne de Quilian. D'innombrables nuages flottaient à la cime; c’était comme s'ils marchaient sur les cieux.
+Ce duo de père et de fils atteignit finalement le sommet de la haute montagne de Qilian. D'innombrables nuages flottaient à la cime; c’était comme s'ils marchaient sur les cieux.
 
-Wang Ping prit une profonde inspiration, puis regarda son père. Bien que la montagne de Quilian fût immense, elle ne pouvait égaler ce père. Bien que la montagne de Quilian fût haute, elle ne pouvait être comparée à lui!
+Wang Ping prit une profonde inspiration, puis regarda son père. Bien que la montagne de Qilian fût immense, elle ne pouvait égaler ce père. Bien que la montagne de Qilian fût haute, elle ne pouvait être comparée à lui!
 
 Au loin, les nuages semblèrent s'assombrir, et des éclairs et des grondements de tonnerre en firent émaner. Cette puissance du ciel et de la terre captiva le regard de Wang Ping.
 
@@ -102,7 +102,7 @@ Cependant, à cet instant, ce calme fut rompu par un sifflement strident. Au loi
 
 Un homme d'âge moyen se tenait sur le halo lumineux de l'épée. Il dégageait l'aura d'un être céleste, debout sur une épée volante verte qui émettait un éclat froid.
 
-En passant, il repéra immédiatement Wang Lin et Wang Ping au sommet du pic Quilian et fut surpris.
+En passant, il repéra immédiatement Wang Lin et Wang Ping au sommet du pic Qilian et fut surpris.
 
 Pour un mortel, grimper jusqu'ici était inhabituel et exigeait une grande détermination. Il afficha un regard d'admiration, mais ne s'arrêta pas. Il survola la montagne et disparut au loin.
 
@@ -118,7 +118,7 @@ Le regard de Wang Lin se posa sur l'arc-en-ciel qui se dissipait lentement. Au f
 
 Wang Ping ne dit plus rien, mais fixa l'endroit où l'homme d'âge moyen avait disparu.
 
-Après avoir quitté le pic Quilian, Wang Ping resta totalement silencieux. Ils empruntèrent le chemin principal jusqu'à une bourgade, avant de prendre un chariot en direction de la grande ville. Tout au long du trajet, Wang Ping ne prononça pas un mot.
+Après avoir quitté le pic Qilian, Wang Ping resta totalement silencieux. Ils empruntèrent le chemin principal jusqu'à une bourgade, avant de prendre un chariot en direction de la grande ville. Tout au long du trajet, Wang Ping ne prononça pas un mot.
 
 Hormis le cocher, il n'y avait que Wang Lin et Wang Ping. Wang Lin regardait par la fenêtre, et dans ses yeux, la tristesse s'intensifiait, mêlée d'une amertume indicible.
 

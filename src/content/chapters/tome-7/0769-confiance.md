@@ -72,7 +72,7 @@ Le grondement tonnerreux se propagea rapidement dans toute la zone. Le sceau de 
 
 Les nuages se dissipèrent complètement et la rétribution divine disparut.
 
-L'âme originelle de Wang Lin ramena les restes du corps de Xue Zu vers le fragment. Ce fragment ne mesurait plus qu'environ 330 mètres de large; il ne ressemblait plus à un débris, mais plutôt à un immense sceau.
+L'âme originelle de Wang Lin ramena les restes du corps de Xue Zu vers le fragment. Ce fragment ne mesurait plus qu'environ mille pieds de large; il ne ressemblait plus à un débris, mais plutôt à un immense sceau.
 
 Lorsque son âme originelle réintégra son corps, ses yeux s'ouvrirent et une aura puissante gonfla en lui. Il prit une profonde inspiration et rangea le corps de sang. Simultanément, il regarda le sceau sous ses pieds. Ses yeux brillèrent et il frappa le sol de la main.
 

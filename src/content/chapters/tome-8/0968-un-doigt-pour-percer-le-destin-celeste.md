@@ -106,7 +106,7 @@ Il observa calmement la Terre. Après un long silence, il poussa un soupir.
 
 « Ce qu'ils poursuivent n'est qu'une illusion, la vision d'une fourmi! Moi, Tian Yunzi, je ne cherche pas à vivre aussi longtemps que le monde. Je veux que mon destin devienne celui des cieux. Je veux que ma volonté devienne celle des cieux. Je veux que le Dao des cieux fusionne avec mon propre Dao! »
 
-Le regard de Tian Yunzi se posa vers la lointaine Cité aux Yeux Fantômes. Une lueur étrange brilla dans ses yeux et il murmura: « Wang Lin... tu oses! »
+Le regard de Tian Yunzi se posa vers la lointaine Cité Gui Yan. Une lueur étrange brilla dans ses yeux et il murmura: « Wang Lin... tu oses! »
 
 Sans bouger, il leva simplement sa main droite. Son index pointa négligemment vers l'avant!
 

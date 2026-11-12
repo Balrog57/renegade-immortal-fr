@@ -112,7 +112,7 @@ Cependant, le talisman de Yao Changdong ne se dissipa pas totalement; un fragmen
 
 Le corps de Wang Lin trembla. Il ressentit une chaleur entre ses sourcils, comme si une flamme y brûlait. Un pouvoir de scellement inimaginable se propagea dans tout son corps avec frénésie. En un clin d'œil, son énergie originelle et son âme originelle furent totalement scellées.
 
-« Ceci... C'est le pouvoir du tatouage du Clan Xian Yi! Mais comment le tatouage du Clan Xian Yi peut-il être aussi puissant?! » Wang Lin prit une inspiration glacée, les yeux remplis de terreur. Toute l'énergie originelle en lui était soudainement verrouillée. À cet instant, il n'était plus qu'un mortel!
+« Ceci... C'est le pouvoir des runes du Clan Xian Yi! Mais comment les runes du Clan Xian Yi peuvent-elles être aussi puissantes?! » Wang Lin prit une inspiration glacée, les yeux remplis de terreur. Toute l'énergie originelle en lui était soudainement verrouillée. À cet instant, il n'était plus qu'un mortel!
 
 Son corps devint instantanément très faible. Si Ta Shan n'était pas accouru pour permettre à Wang Lin de s'asseoir en tailleur sur sa main gauche, ce dernier serait immédiatement tombé dans le vide infini.
 
@@ -130,8 +130,8 @@ Le corps de Yao Changdong fut stoppé net et sa poitrine explosa, le projetant e
 
 Les yeux de Yao Changdong étaient emplis d'une intention meurtrière. Tandis que le papillon battait des ailes, il sortit un autre talisman. Cette fois, il ne le lança pas, mais le pressa contre ses propres sourcils.
 
-Une puissante fluctuation du pouvoir du tatouage émana du talisman et se diffusa dans le corps de Yao Changdong. Rapidement, une multitude de tatouages apparurent sur lui.
+Une puissante fluctuation du pouvoir des runes émana du talisman et se diffusa dans le corps de Yao Changdong. Rapidement, une multitude de runes apparurent sur lui.
 
-Des bruits de craquement retentirent. À chaque battement d'ailes du papillon, une partie des tatouages s'effondrait. Pourtant, il continua sa charge et se rapprocha à nouveau de Wang Lin.
+Des bruits de craquement retentirent. À chaque battement d'ailes du papillon, une partie des runes s'effondrait. Pourtant, il continua sa charge et se rapprocha à nouveau de Wang Lin.
 
 « Je dois tuer Xu Mu. Il n'est qu'au stade Corporel Yang et il est déjà si puissant. Une fois qu'il atteindra le stade Scruteur du Nirvana, je ne serai plus son adversaire! »

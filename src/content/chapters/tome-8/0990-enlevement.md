@@ -50,25 +50,25 @@ Le temps passa lentement. Les jours et les nuits se succédèrent, et plus d'un 
 
 Le processus de raffinage était extrêmement complexe et exigeait toute sa concentration. En conséquence, Wang Lin ne sortit jamais, se contentant de former des sceaux à intervalles réguliers.
 
-À cet instant, la boussole d'une trentaine de mètres tournait toujours dans son palais, avec la femme assise au sommet. Tout son corps brillait d'un éclat argenté et un marquage scintillait entre ses sourcils.
+À cet instant, la boussole de cent pieds tournait toujours dans son palais, avec la femme assise au sommet. Tout son corps brillait d'un éclat argenté et un marquage scintillait entre ses sourcils.
 
 Son expression était désormais paisible, le ressentiment passé ayant disparu. Si quelqu'un l'avait vue ainsi, il lui aurait été difficile d'imaginer sa véritable identité. Peu importe le regard porté sur elle, elle n'était qu'une magnifique cultivatrice.
 
-Pendant que Wang Lin séjournait sur la planète Shuiling, un événement d'une importance non négligeable se produisait sur la planète Tian Yun. Un puissant cultivateur nommé Situ Nan s'était fait un nom sur la planète Tian Yun et était devenu le Seigneur du Palais Rose.
+Pendant que Wang Lin séjournait sur la planète Shuiling, un événement d'une importance non négligeable se produisait sur la planète Tian Yun. Un puissant cultivateur nommé Situ Nan s'était fait un nom sur la planète Tian Yun et était devenu le Seigneur du Palais Hong Fen.
 
 Cependant, sa réputation n'était guère exemplaire.
 
-En trois mois, presque toutes les disciples féminines des petites et moyennes sectes avaient été harcelées par lui. Il n'utilisait pourtant jamais la force. Il se contentait d'utiliser sa culture de Purificateur du Nirvana comme prétexte pour leur enseigner des sorts, laissant entendre qu'il pouvait leur offrir des pilules pour augmenter leur niveau de culture. De ce fait, il avait rassemblé une multitude de cultivatrices et avait considérablement renforcé le Palais Rose.
+En trois mois, presque toutes les disciples féminines des petites et moyennes sectes avaient été harcelées par lui. Il n'utilisait pourtant jamais la force. Il se contentait d'utiliser sa culture de Purificateur du Nirvana comme prétexte pour leur enseigner des sorts, laissant entendre qu'il pouvait leur offrir des pilules pour augmenter leur niveau de culture. De ce fait, il avait rassemblé une multitude de cultivatrices et avait considérablement renforcé le Palais Hong Fen.
 
 Il passait ses journées dans un plaisir sans fin et, lorsqu'il sortait, plusieurs milliers de cultivatrices l'escortaient. Cela avait rendu ses mœurs perverties célèbres.
 
-Toutefois, cet homme était jugé digne de confiance car toutes les disciples entrant au Palais Rose recevaient des enseignements et des pilules. Si une secte portait plainte, Situ Nan se précipitait, plein d'assurance, pour discuter avec elle. Souvent, la secte finissait par lui céder, car après tout, Situ Nan était un cultivateur de niveau Purificateur du Nirvana.
+Toutefois, cet homme était jugé digne de confiance car toutes les disciples entrant au Palais Hong Fen recevaient des enseignements et des pilules. Si une secte portait plainte, Situ Nan se précipitait, plein d'assurance, pour discuter avec elle. Souvent, la secte finissait par lui céder, car après tout, Situ Nan était un cultivateur de niveau Purificateur du Nirvana.
 
-Ainsi, de plus en plus de femmes rejoignaient le Palais Rose, et l'on pouvait dire que le nom de Situ Nan s'était répandu sur toute la planète Tian Yun.
+Ainsi, de plus en plus de femmes rejoignaient le Palais Hong Fen, et l'on pouvait dire que le nom de Situ Nan s'était répandu sur toute la planète Tian Yun.
 
 Il avait appris par des sources anonymes que les trois frères Chen possédaient deux disciples d'une beauté époustouflante. L'une possédait une racine spirituelle aquatique et l'autre était d'une froideur glaciale. Cela fit frémir le cœur de Situ Nan qui, après avoir mûrement réfléchi, entreprit de mener un grand groupe de cultivatrices vers la planète Shuiling, guidé par un subalterne.
 
-Ce groupe imposant était presque exclusivement composé de femmes vêtues de rose. Au milieu d'elles se trouvait un immense lit de jade blanc de plusieurs dizaines de mètres de long. Situ Nan y était allongé, entouré de nombreuses cultivatrices, l'air extrêmement satisfait.
+Ce groupe imposant était presque exclusivement composé de femmes vêtues de rose. Au milieu d'elles se trouvait un immense lit de jade blanc de plusieurs centaines de pieds de long. Situ Nan y était allongé, entouré de nombreuses cultivatrices, l'air extrêmement satisfait.
 
 Plusieurs centaines de femmes entouraient ce lit alors qu'elles progressaient vers la planète Shuiling.
 
@@ -90,7 +90,7 @@ Ce phénomène avait surpris tous les cultivateurs de Tian Yun, qui n'en trouvai
 
 Nul ne savait que Tian Yunzi avait donné cet ordre avant de se retirer en méditation: sceller la Secte Tian Yun et activer la formation de protection de la secte!
 
-Heureusement, il y avait trop de disciples dans la Secte Tian Yun pour que tout le monde fût bloqué. Certains étaient à l'extérieur, dont quelques cultivatrices emmenées au Palais Rose par Situ Nan pour « s'amuser ». En les interrogeant, il avait appris les rumeurs concernant les actes de Wang Lin dans la Terre Yao Ling.
+Heureusement, il y avait trop de disciples dans la Secte Tian Yun pour que tout le monde fût bloqué. Certains étaient à l'extérieur, dont quelques cultivatrices emmenées au Palais Hong Fen par Situ Nan pour « s'amuser ». En les interrogeant, il avait appris les rumeurs concernant les actes de Wang Lin dans la Terre Yao Ling.
 
 Ces rumeurs n'étaient pas un secret, et Situ Nan les avait déjà entendues sur Tian Yun. Après confirmation, il fut d'abord surpris, puis il rit: « C'est bien mon frère. S'il décide d'agir, ce sera pour accomplir quelque chose de grandiose! »
 

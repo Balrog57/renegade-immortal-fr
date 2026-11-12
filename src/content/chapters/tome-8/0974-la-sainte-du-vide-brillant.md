@@ -1,6 +1,6 @@
 ---
 n: 974
-title: La Sainte du Vide Brillant
+title: La Sainte du Kun Xu
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 974 - The Saintress of Brilliant Void
@@ -22,17 +22,17 @@ L'expression de Ling Tianhou devint instantanément sombre et il fronça les sou
 
 Peu après, l'expression de Ling Tianhou devint encore plus lugubre et il marmonna: « Ce vieux maudit d'Tian Yunzi, qu'est-il en train de manigancer... » Tout en réfléchissant, il leva la tête et regarda Wang Lin.
 
-« Si Tian Yunzi complote ainsi contre Wang Lin, cela signifie qu'il doit être d'une grande utilité. Je présume qu'il est crucial pour le Dao de Tian Yunzi! Surtout si l'on considère que cette personne fait partie de la Série de l'Oiseau Vermillon... Le plan de Tian Yunzi à son égard doit être d'une importance capitale, sinon il ne serait pas prêt à offenser les Quatre Sectes Divines pour lui seul! »
+« Si Tian Yunzi complote ainsi contre Wang Lin, cela signifie qu'il doit être d'une grande utilité. Je présume qu'il est crucial pour le Dao de Tian Yunzi! Surtout si l'on considère que cette personne fait partie de la Série de Suzaku... Le plan de Tian Yunzi à son égard doit être d'une importance capitale, sinon il ne serait pas prêt à offenser les Quatre Sectes Divines pour lui seul! »
 
 « Si son plan réussit, il pourrait obtenir un pouvoir capable de faire trembler les Quatre Sectes Divines! Si c'est le cas, je dois arrêter ce vieil Tian Yunzi. Sinon, si Tian Yunzi triomphe, je n'aurai plus jamais l'espoir de me retourner contre lui de mon vivant! »
 
 Des pensées fulgurantes traversèrent l'esprit de Ling Tianhou.
 
-« Cependant, si Wang Lin est vraiment si important pour lui, pourquoi est-il parti avec autant de calme... Même le diagramme de divination ne permet pas de dire si cela présage le bien ou le mal. Étrange! » Ling Tianhou laissa échapper un sombre soupir en regardant Wang Lin, puis dit lentement: « Wang Lin, même si je n'étais pas venu t'aider aujourd'hui, Tian Yunzi n'aurait pas osé te tuer aussi facilement. Après tout, tu fais partie de la Série de l'Oiseau Vermillon. »
+« Cependant, si Wang Lin est vraiment si important pour lui, pourquoi est-il parti avec autant de calme... Même le diagramme de divination ne permet pas de dire si cela présage le bien ou le mal. Étrange! » Ling Tianhou laissa échapper un sombre soupir en regardant Wang Lin, puis dit lentement: « Wang Lin, même si je n'étais pas venu t'aider aujourd'hui, Tian Yunzi n'aurait pas osé te tuer aussi facilement. Après tout, tu fais partie de la Série de Suzaku. »
 
-Wang Lin réfléchissait sans relâche à la relation entre Ling Tianhou et Tian Yunzi. À cet instant, il joignit ses mains: « Il y a trois personnes dans la Série de l'Oiseau Vermillon, et je ne suis que l'une d'entre elles. En bref, ce junior se souviendra de l'aide du Saint de l'Épée! »
+Wang Lin réfléchissait sans relâche à la relation entre Ling Tianhou et Tian Yunzi. À cet instant, il joignit ses mains: « Il y a trois personnes dans la Série de Suzaku, et je ne suis que l'une d'entre elles. En bref, ce junior se souviendra de l'aide du Saint de l'Épée! »
 
-Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de l'Oiseau Vermillon a atteint le Dao, je n'étais qu'un cadet. Sa grâce m'a aidé autrefois, mais trop de temps a passé et je doute qu'il s'en souvienne. Tu es de la Série de l'Oiseau Vermillon et, si tu saisis la bonne opportunité, tu seras le prochain Empereur Saint. Il est préférable que nous parlions d'égal à égal. Après tout, tu n'es plus le disciple de ce vieil Tian Yunzi. »
+Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de Suzaku a atteint le Dao, je n'étais qu'un cadet. Sa grâce m'a aidé autrefois, mais trop de temps a passé et je doute qu'il s'en souvienne. Tu es de la Série de Suzaku et, si tu saisis la bonne opportunité, tu seras le prochain Empereur Saint. Il est préférable que nous parlions d'égal à égal. Après tout, tu n'es plus le disciple de ce vieil Tian Yunzi. »
 
 L'expression de Wang Lin resta calme: « Le Saint de l'Épée est trop aimable. Puisqu'il en est ainsi, je suivrai les conseils du Saint de l'Épée. »
 
@@ -46,7 +46,7 @@ En chemin, Ling Tianhou ne mentionna jamais le fait que Wang Lin avait tué ses 
 
 Tout au long du trajet, bien que Wang Lin parlât peu, ses paroles suscitaient l'admiration de Ling Tianhou.
 
-« Ce Wang Lin est bel et bien digne de faire partie de la Série de l'Oiseau Vermillon. Non seulement sa culture est puissante, mais son intuition et sa compréhension sont tout aussi stupéfiantes! »
+« Ce Wang Lin est bel et bien digne de faire partie de la Série de Suzaku. Non seulement sa culture est puissante, mais son intuition et sa compréhension sont tout aussi stupéfiantes! »
 
 Pendant qu'ils parlaient, Wang Lin réfléchissait également à la question du Yang Extrême et élaborait un plan. Il médita longtemps sans parvenir à comprendre pourquoi Tian Yunzi avait renoncé si calmement.
 
@@ -62,37 +62,37 @@ C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin réalisa que 
 
 « La planète Da Luo n'appartient pas à la zone de la planète Tian Yun. Ce vieil homme a déployé des efforts acharnés pour accomplir une mission de rang Humain de la Secte Kun Xu et a été récompensé par cette planète! »
 
-« Cette planète provient d'une planète illusoire qui brûle éternellement dans le domaine du Vide Brillant. Cette planète illusoire était immense, plus de mille fois plus grande que la planète Tian Yun! » La voix de Ling Tianhou était calme, mais empreinte d'une pointe de fierté.
+« Cette planète provient d'une planète illusoire qui brûle éternellement dans le domaine du Kun Xu. Cette planète illusoire était immense, plus de mille fois plus grande que la planète Tian Yun! » La voix de Ling Tianhou était calme, mais empreinte d'une pointe de fierté.
 
 « À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par le Vénérable Xu Ling de la Secte Kun Xu. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
 
-« Vide Brillant! » L'expression de Wang Lin changea. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Qing Shui. Il semblait que le Système Stellaire de l'Alliance s'appelait autrefois le Système Stellaire du Vide Brillant.
+« Kun Xu! » L'expression de Wang Lin changea. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Qing Shui. Il semblait que le Système Stellaire de l'Alliance s'appelait autrefois le Système Stellaire du Kun Xu.
 
-« Une secte de culture... Serait-ce une secte de culture nommée le Vide Brillant... » Wang Lin réfléchit.
+« Une secte de culture... Serait-ce une secte de culture nommée le Kun Xu... » Wang Lin réfléchit.
 
 « La Secte Kun Xu est la seule nation de culture de rang 9 dans l'Alliance. Cependant, tout le monde l'appelle simplement la Secte Kun Xu. » Ling Tianhou remarqua naturellement la confusion de Wang Lin et, comprenant qu'il n'en savait pas grand-chose, lui offrit une explication.
 
-« Ils sont les seuls à avoir conservé l'ancien nom: 'Vide Brillant!' » Une pointe de nostalgie brilla dans les yeux de Ling Tianhou.
+« Ils sont les seuls à avoir conservé l'ancien nom: 'Kun Xu!' » Une pointe de nostalgie brilla dans les yeux de Ling Tianhou.
 
 « Dans le Système Stellaire de l'Alliance, lorsqu'une personne atteint un certain niveau de culture, elle peut ne pas respecter l'Alliance Xiu Zhen. Cependant, cette personne respectera toujours sincèrement la Secte Kun Xu! C'est un honneur d'être invité par eux! »
 
-« Tous les 3 000 ans, la Secte Kun Xu envoie trois jades d'invitation à des cultivateurs reconnus pour qu'ils soient conviés dans le domaine du Vide Brillant pour y cultiver... À l'époque, Tian Yunzi et moi avions reçu nos invitations ensemble... »
+« Tous les 3 000 ans, la Secte Kun Xu envoie trois jades d'invitation à des cultivateurs reconnus pour qu'ils soient conviés dans le domaine du Kun Xu pour y cultiver... À l'époque, Tian Yunzi et moi avions reçu nos invitations ensemble... »
 
-« Vide Brillant... » Wang Lin digéra silencieusement les paroles de Ling Tianhou. Un instant plus tard, ses yeux s'illuminèrent: « Puisque des gens y entrent tous les 3 000 ans, je suppose que des membres de la Secte Kun Xu en sortent aussi... »
+« Kun Xu... » Wang Lin digéra silencieusement les paroles de Ling Tianhou. Un instant plus tard, ses yeux s'illuminèrent: « Puisque des gens y entrent tous les 3 000 ans, je suppose que des membres de la Secte Kun Xu en sortent aussi... »
 
 « Bien sûr qu'il y a des gens qui en sortent. Quand tu es arrivé à la Secte Tian Yun il y a quelques jours, as-tu remarqué la femme qui avait l'air d'une simple paysanne mortelle? À l'époque, la troisième personne qui est entrée avec Tian Yunzi et moi dans la Secte Kun Xu, c'était elle! Elle avait une disciple à ses côtés et, si je ne me trompe pas, cette disciple vient de la Secte Kun Xu. »
 
 Wang Lin fut stupéfait. La première personne à laquelle il pensa fut la femme en rose qui l'avait invité.
 
-« La Secte Kun Xu a préservé une ancienne tradition: il y a toujours une Sainte du Vide Brillant. Je ne sais juste pas si c'est elle... »
+« La Secte Kun Xu a préservé une ancienne tradition: il y a toujours une Sainte du Kun Xu. Je ne sais juste pas si c'est elle... »
 
-« Sainte du Vide Brillant... » Wang Lin se frotta les tempes. Tout ce que Ling Tianhou venait de dire étaient des informations qu'il n'avait jamais entendues auparavant.
+« Sainte du Kun Xu... » Wang Lin se frotta les tempes. Tout ce que Ling Tianhou venait de dire étaient des informations qu'il n'avait jamais entendues auparavant.
 
-« Vos Quatre Sectes Divines étaient la puissance dominante du Vide Brillant il y a très longtemps. Malheureusement... » Ling Tianhou secoua la tête sans poursuivre.
+« Vos Quatre Sectes Divines étaient la puissance dominante du Kun Xu il y a très longtemps. Malheureusement... » Ling Tianhou secoua la tête sans poursuivre.
 
 Cependant, ces mots firent trembler l'esprit de Wang Lin!
 
-« Les Quatre Sectes Divines étaient autrefois la puissance dominante du Vide Brillant? » Wang Lin avait déjà conjecturé la puissance des Quatre Sectes Divines, mais il semblait qu'elles surpassaient de loin son imagination.
+« Les Quatre Sectes Divines étaient autrefois la puissance dominante du Kun Xu? » Wang Lin avait déjà conjecturé la puissance des Quatre Sectes Divines, mais il semblait qu'elles surpassaient de loin son imagination.
 
 À mesure qu'ils avançaient, la planète Da Luo se rapprochait. C'était la première fois que Wang Lin venait sur cette planète. Plus il s'en approchait, plus il ressentait l'énergie d'épée infinie qui s'en dégageait constamment.
 

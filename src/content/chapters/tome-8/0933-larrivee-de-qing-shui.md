@@ -52,13 +52,13 @@ Lorsque les neuf rayons de lumière noire s'unirent, un changement inimaginable 
 
 Alors qu'ils battaient des ailes, une poudre multicolore tomba et créa un vortex aux quatre couleurs autour de l'Estimé Xuan Bao, bloquant immédiatement l'assaut des sept dragons noirs.
 
-« S'il s'agissait d'un trésor magique créé par ton frère aîné, l'Estimé Tian Bao, je, Qing Shui, serais quelque peu inquiet. Mais tu n'en as pas la qualification! » Tandis que la voix glaciale de Qing Shui résonnait, ses deux mains formèrent un sceau. Au milieu des rugissements des sept dragons noirs, des centaines de milliers, presque un million, de gouttes de pluie apparurent.
+« S'il s'agissait d'un trésor magique créé par ton Senior frère, l'Estimé Tian Bao, je, Qing Shui, serais quelque peu inquiet. Mais tu n'en as pas la qualification! » Tandis que la voix glaciale de Qing Shui résonnait, ses deux mains formèrent un sceau. Au milieu des rugissements des sept dragons noirs, des centaines de milliers, presque un million, de gouttes de pluie apparurent.
 
 Ces gouttes étaient si denses qu'elles s'abattirent avec violence sur l'Estimé Xuan Bao, pourtant protégé par la poudre du papillon multicolore!
 
 Des bruits de craquement résonnèrent et l'Estimé Xuan Bao afficha un sourire amer. Son identité était un mystère pour les autres, mais rien ne pouvait échapper à Qing Shui!
 
-Il était un être céleste du Royaume Céleste de la Pluie! Il était également le frère cadet de l'Estimé Tian Bao, le créateur du Char de Guerre Divin!
+Il était un être céleste du Royaume Céleste de la Pluie! Il était également le Junior frère de l'Estimé Tian Bao, le créateur du Char de Guerre Divin!
 
 « Qing Shui, ne me pousse pas à bout! Le Royaume Céleste n'existe plus, ceci est le Système Stellaire de l'Alliance! » hurla l'Estimé Xuan Bao en ouvrant les bras. L'origine céleste qu'il avait gardée scellée durant d'innombrables années fut soudainement libérée!
 
@@ -96,7 +96,7 @@ Lorsque Wang Lin vit cette scène, son esprit vacilla et son cœur s'emballa.
 
 Tous les sons s'éteignirent dans ses oreilles, ne laissant place qu'aux battements de son cœur. Son cerveau avait mémorisé le sceau manuel utilisé par l'Estimé Xuan Bao; il s'en souvenait avec une netteté absolue!
 
-« Ainsi, cet homme est le frère cadet de l'Estimé Tian Bao, et ce papillon aux quatre couleurs a été créé par lui, bien qu'il ne soit pas aussi puissant que celui de l'Estimé Tian Bao! Si seulement je pouvais déchiffrer son sceau... » Le cœur de Wang Lin battait de plus en plus vite et ses yeux restaient fixés sur le combat.
+« Ainsi, cet homme est le Junior frère de l'Estimé Tian Bao, et ce papillon aux quatre couleurs a été créé par lui, bien qu'il ne soit pas aussi puissant que celui de l'Estimé Tian Bao! Si seulement je pouvais déchiffrer son sceau... » Le cœur de Wang Lin battait de plus en plus vite et ses yeux restaient fixés sur le combat.
 
 L’« Appel du Vent et Convocation de la Pluie » repoussé n'arrêta absolument pas Qing Shui. Le regard froid, il tendit sa main droite vers le vide, faisant apparaître d'innombrables éclats de cristal qu'il projeta en avant!
 

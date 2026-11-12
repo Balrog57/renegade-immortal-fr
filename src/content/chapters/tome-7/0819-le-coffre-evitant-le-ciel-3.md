@@ -92,7 +92,7 @@ Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsqu
 
 Peu importe la difficulté ou le danger, Wang Lin choisirait de tout affronter! Il y a des choses dans la vie que l'on doit accomplir, quels que soient les périls!
 
-Dans la partie ouest du système stellaire Luotian, au plus profond du Domaine Étrange, personne n'avait mis les pieds depuis une éternité. L'endroit semblait être une zone interdite, saturée d'un brouillard gris si dense qu'on ne pouvait voir à plus de trente-trois mètres.
+Dans la partie ouest du système stellaire Luotian, au plus profond du Domaine Étrange, personne n'avait mis les pieds depuis une éternité. L'endroit semblait être une zone interdite, saturée d'un brouillard gris si dense qu'on ne pouvait voir à plus de 100 pieds.
 
 La brume dérivait lentement, comme promise à l'éternité.
 

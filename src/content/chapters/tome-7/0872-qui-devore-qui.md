@@ -68,9 +68,9 @@ Même le garçon à la grosse tête et le cultivateur aux six doigts décidèren
 
 À cet instant, il ne restait plus que deux personnes dans le lac de tonnerre!
 
-Le brouillard noir autour de Xu Ting était extrêmement dense. Il enveloppait tout dans un rayon de dix mètres et le tonnerre ne pouvait y pénétrer!
+Le brouillard noir autour de Xu Ting était extrêmement dense. Il enveloppait tout dans un rayon de trente pieds et le tonnerre ne pouvait y pénétrer!
 
-Wang Lin restait assis calmement à 330 mètres de Xu Ting. Immobile, les yeux clos, il laissait le tonnerre l'entourer. Ses longs cheveux flottaient sans qu'aucun vent ne soufflât. Il dégageait la prestance d'un céleste du tonnerre.
+Wang Lin restait assis calmement à mille pieds de Xu Ting. Immobile, les yeux clos, il laissait le tonnerre l'entourer. Ses longs cheveux flottaient sans qu'aucun vent ne soufflât. Il dégageait la prestance d'un céleste du tonnerre.
 
 Xu Ting maugréait intérieurement. Le tonnerre devenait de plus en plus puissant, au point qu'il peinait à tenir bon. Mais le voir ainsi lui causait une frustration immense!
 
@@ -78,7 +78,7 @@ Xu Ting maugréait intérieurement. Le tonnerre devenait de plus en plus puissan
 
 L'esprit du tonnerre se retourna soudainement. N'osant pas provoquer Wang Lin, il fixa Xu Ting. Il poussa un rugissement et chargea. Dans son mouvement, tout le lac de tonnerre étincela violemment pour être absorbé par l'esprit, l'emplissant d'une pression de tonnerre antique. Il chargea la gueule ouverte, tentant de dévorer Xu Ting!
 
-Le brouillard noir autour de Xu Ting se dissipa frénétiquement. Son visage devint pâle et il fut contraint de reculer de plus de trente mètres.
+Le brouillard noir autour de Xu Ting se dissipa frénétiquement. Son visage devint pâle et il fut contraint de reculer de plus de cent pieds.
 
 Une fois hors du lac de tonnerre, Xu Ting poussa un cri: « Je refuse de m'avouer vaincu! Ce Xu Mu triche forcément! »
 

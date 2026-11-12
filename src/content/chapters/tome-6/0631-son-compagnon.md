@@ -86,7 +86,7 @@ Cependant, si je peux résister à cette tentation, je ne sais pas si l'Ancien D
 
 L'Abîme Chao Xi était une partie très mystérieuse de la Terre Yao Ling. C'était la source de la phase de marée à l'extérieur. Au fil des millénaires, d'innombrables trésors magiques, pierres spirituelles et bêtes spirituelles avaient été aspirés dans la Terre Yao Ling pour finir ici.
 
-À cet instant, au plus profond de l'Abîme Chao Xi, s'étendait une vaste étendue de brume noire. Plusieurs individus étaient assis sur un terrain découvert de 330 mètres de large au cœur de cette obscurité.
+À cet instant, au plus profond de l'Abîme Chao Xi, s'étendait une vaste étendue de brume noire. Plusieurs individus étaient assis sur un terrain découvert de mille pieds de large au cœur de cette obscurité.
 
 L'un d'eux était un homme d'âge moyen. Il était très beau, mais son visage trahissait une nature insidieuse. Par intermittence, il dégageait une aura d'ambition dévorante.
 
@@ -106,7 +106,7 @@ Il laissa échapper un reniflement froid: « C'est moi qui ai sous-estimé cet e
 
 Cet homme occupait une position singulière; il semblait que tous les autres disciples gravitaient autour de lui.
 
-Tan Lang le regarda. Il savait que cet homme occupait une place prépondérante dans le cœur de ces disciples. C'était leur frère aîné, Chen Long!
+Tan Lang le regarda. Il savait que cet homme occupait une place prépondérante dans le cœur de ces disciples. C'était leur Grand Senior frère, Chen Long!
 
 Ce dernier était le disciple bien-aimé du Saint de l'Épée Ling Tianhou et se montrait très rusé. Il dissimulait sa culture si parfaitement que Tan Lang dut l'observer attentivement pour en déceler quelques indices. En apparence, il se situait au stade avancé de la Transformation de l'Âme, mais en réalité, il était au début de l'Ascendant. Bien qu'il ne possède pas le niveau de culture le plus élevé parmi les Douze Épées, même Chou Niu, qui avait atteint le milieu du stade Ascendant, lui témoignait un immense respect.
 
@@ -116,7 +116,7 @@ Ces bêtes ont probablement été aspirées par la phase de marée qui survient 
 
 Chen Long se tut et les autres plongèrent dans une réflexion silencieuse.
 
-Des rugissements stridents commencèrent à émaner de la brume noire. À sa lisière, d'innombrables bêtes larges d'une dizaine de mètres, couvertes de poils noirs et dotées de gueules acérées, battaient des ailes et encerclaient densément la sortie.
+Des rugissements stridents commencèrent à émaner de la brume noire. À sa lisière, d'innombrables bêtes larges de plusieurs dizaines de pieds, couvertes de poils noirs et dotées de gueules acérées, battaient des ailes et encerclaient densément la sortie.
 
 Leurs yeux rouges dégageaient une lumière froide et intense, et leurs gueules allongées auraient fait trembler le cœur de quiconque croiserait son regard.
 

@@ -6,15 +6,15 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 531 - Shi Realm
 slug: le-domaine-shi
 ---
-« La Terre Yao Ling est divisée en neuf pays, et chaque pays abrite un ancien esprit démoniaque scellé. Un ancien esprit démoniaque se forme naturellement du ciel et de la terre et possède des pouvoirs prodigieux. Une fois qu'un cultivateur fusionne avec lui, sa culture augmente considérablement et il a la chance d'apprendre un sort puissant. Selon les souvenirs de Lou Yun, chaque ancien esprit démoniaque est un trésor rare; après avoir fusionné avec lui, on a une chance d'entrer dans un état appelé le Début de l'Âme. »
+« La Terre Yao Ling est divisée en neuf pays, et chaque pays abrite un ancien esprit démoniaque scellé. Un ancien esprit démoniaque se forme naturellement du ciel et de la terre et possède des pouvoirs prodigieux. Une fois qu'un cultivateur fusionne avec lui, sa culture augmente considérablement et il a la chance d'apprendre un sort puissant. Selon les souvenirs de Luo Yun, chaque ancien esprit démoniaque est un trésor rare; après avoir fusionné avec lui, on a une chance d'entrer dans un état appelé le Début de l'Âme. »
 
 « Ce qu'on appelle le Début de l'Âme est un état très mystérieux. Une fois qu'un cultivateur entre dans cet état, la vitesse à laquelle il peut comprendre les lois célestes atteint un degré inimaginable. Si ce n'était que là, cela ne serait pas si exceptionnel. Ce qui rend tous les cultivateurs si fous, c'est qu'une fois dans cet état, il y a une chance de pouvoir créer son propre sort céleste en se fondant sur son domaine! »
 
 « La rumeur raconte que les sorts célestes laissés par le Royaume Céleste ont été créés par de puissants cultivateurs lorsqu'ils atteignaient cet état... »
 
-Alors que Wang Lin volait, ses yeux s'illuminèrent. Après avoir parcouru tous les souvenirs de Lou Yun, il avait une idée assez précise de cette terre.
+Alors que Wang Lin volait, ses yeux s'illuminèrent. Après avoir parcouru tous les souvenirs de Luo Yun, il avait une idée assez précise de cette terre.
 
-« Il sera très difficile d'obtenir un ancien esprit démoniaque. D'après les souvenirs de Lou Yun, bien que ce lieu existe depuis des dizaines de milliers d'années et ne s'ouvre que tous les 5 000 ans, le nombre de cultivateurs ayant réussi à obtenir un ancien esprit démoniaque est bien trop faible. La rumeur prétend qu'en ces innombrables années, moins de dix personnes ont réellement obtenu un ancien esprit démoniaque.
+« Il sera très difficile d'obtenir un ancien esprit démoniaque. D'après les souvenirs de Luo Yun, bien que ce lieu existe depuis des dizaines de milliers d'années et ne s'ouvre que tous les 5 000 ans, le nombre de cultivateurs ayant réussi à obtenir un ancien esprit démoniaque est bien trop faible. La rumeur prétend qu'en ces innombrables années, moins de dix personnes ont réellement obtenu un ancien esprit démoniaque.
 
 La seule façon d'en obtenir un est de s'illustrer par ses accomplissements!
 
@@ -38,21 +38,21 @@ Ce n'est qu'en tuant les autres que ma concurrence diminuera! »
 
 Wang Lin afficha une expression pensive alors qu'il volait rapidement vers l'endroit où se trouvaient les âmes primaires. Il traversait le ciel tel un météore avant de disparaître à l'horizon.
 
-« Si Lou Yun savait tout cela, c'est parce qu'il y a des dizaines de milliers d'années, un membre de sa secte est venu ici. Bien que cet homme n'ait pas obtenu d'ancien démon, il a réussi à s'en sortir vivant, alors que ses chances de survie étaient infimes.
+« Si Luo Yun savait tout cela, c'est parce qu'il y a des dizaines de milliers d'années, un membre de sa secte est venu ici. Bien que cet homme n'ait pas obtenu d'ancien démon, il a réussi à s'en sortir vivant, alors que ses chances de survie étaient infimes.
 
-Après son retour à la Secte Tian Gui, il a immédiatement consigné ses 500 ans d'expérience dans la Terre Yao Ling. C'est ainsi que Lou Yun savait tout cela. Désormais, ses connaissances me facilitent la tâche!
+Après son retour à la Secte Tian Gui, il a immédiatement consigné ses 500 ans d'expérience dans la Terre Yao Ling. C'est ainsi que Luo Yun savait tout cela. Désormais, ses connaissances me facilitent la tâche!
 
-Lou Yun avait appris de son ancêtre que pour trouver rapidement ses racines ici, il devait rejoindre un pays au plus vite.
+Luo Yun avait appris de son ancêtre que pour trouver rapidement ses racines ici, il devait rejoindre un pays au plus vite.
 
 C'est le seul moyen d'obtenir des exploits militaires, mais plus important encore, une fois ces exploits acquis, on n'est plus seul. On aura des soldats et des commandants démoniaques à son commandement. C'est la meilleure façon de prendre l'avantage dès le départ!
 
-Le pays le plus proche est le Pays Tian Yao. Lou Yun s'était rendu plus tôt à la Cité Gu Yao et avait obtenu un jeton d'entrée du général démoniaque de l'aile gauche, mais il devait acquérir trois rangs d'énergie spirituelle démoniaque pour y pénétrer!
+Le pays le plus proche est le Pays Tian Yao. Luo Yun s'était rendu plus tôt à la Cité Gu Yao et avait obtenu un jeton d'entrée du général démoniaque de l'aile gauche, mais il devait acquérir trois rangs d'énergie spirituelle démoniaque pour y pénétrer!
 
 Cet endroit utilise des rangs pour mesurer l'énergie spirituelle démoniaque. Trois rangs d'énergie spirituelle démoniaque équivalent à la quantité dont un cultivateur de l'Établissement des Fondations a besoin! »
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il agitait la main et qu'un cristal apparut dans sa paume. C'était le cristal démoniaque provenant du dantian de Lou Yun. Après avoir examiné le cristal, il réalisa qu'il contenait deux rangs d'énergie spirituelle démoniaque.
+Les yeux de Wang Lin s'illuminèrent alors qu'il agitait la main et qu'un cristal apparut dans sa paume. C'était le cristal démoniaque provenant du dantian de Luo Yun. Après avoir examiné le cristal, il réalisa qu'il contenait deux rangs d'énergie spirituelle démoniaque.
 
-« Pas étonnant que ce Lou Yun ait voulu me tuer. Le cristal démoniaque que j'ai absorbé dans la vallée ne contient qu'un seul rang, et en y ajoutant les deux rangs d'ici, cela fera trois rangs!
+« Pas étonnant que ce Luo Yun ait voulu me tuer. Le cristal démoniaque que j'ai absorbé dans la vallée ne contient qu'un seul rang, et en y ajoutant les deux rangs d'ici, cela fera trois rangs!
 
 Cependant, cela a fini par me profiter! »
 
@@ -60,7 +60,7 @@ Wang Lin ricana tout en se déplaçant à toute vitesse. Son sens divin détecta
 
 Son corps se transforma en un nuage de fumée verte et chargea rapidement. Cependant, une idée lui vint soudainement, et il força son corps à sortir de la fumée verte, le regard pensif.
 
-« Attendez une minute. Dans les souvenirs de Lou Yun, il était dit que lorsqu'on fusionne avec un ancien esprit démoniaque, il y a une chance d'entrer dans l'état appelé Début de l'Âme. Cela me semble familier... Début de l'Âme... Début de l'Âme... Âme... »
+« Attendez une minute. Dans les souvenirs de Luo Yun, il était dit que lorsqu'on fusionne avec un ancien esprit démoniaque, il y a une chance d'entrer dans l'état appelé Début de l'Âme. Cela me semble familier... Début de l'Âme... Début de l'Âme... Âme... »
 
 Le corps de Wang Lin trembla; il s'arrêta brusquement, figé dans les airs. Ses yeux brillaient d'un éclat intense. Si quelqu'un l'observait de loin, il verrait ses yeux rayonner si puissamment qu'ils pourraient éclairer une zone de plus de 33 kilomètres.
 
@@ -92,7 +92,7 @@ L'une d'elles était une bête Qilin qui rugissait en se déplaçant.
 
 Le sens divin de Wang Lin s'étendit et se concentra sur une fissure noire au sol.
 
-Cette faille mesurait environ 330 mètres de long. Elle semblait avoir été créée par quelqu'un frappant avec une épée volante depuis le ciel. Cependant, un long moment s'était écoulé et la majeure partie s'était refermée, ne laissant plus qu'un interstice de moins de 33 mètres.
+Cette faille mesurait environ mille pieds de long. Elle semblait avoir été créée par quelqu'un frappant avec une épée volante depuis le ciel. Cependant, un long moment s'était écoulé et la majeure partie s'était refermée, ne laissant plus qu'un interstice de moins de cent pieds.
 
 L'herbe sauvage recouvrait toute la zone; à moins de regarder très attentivement, il était difficile de distinguer cette fissure dans le sol.
 
@@ -100,9 +100,9 @@ Wang Lin ouvrit la bouche et aspira. Les âmes primaires autour de lui se transf
 
 Après avoir rangé les âmes primaires, Wang Lin atterrit près de la fissure et la dévisagea froidement.
 
-« Selon les souvenirs de Lou Yun, le fantôme céleste est une entité surnaturelle unique que seule la Secte Tian Gui possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte Tian Gui utilisent une rivière de sang de femmes enceintes mortelles comme appât, le sang chaud d'hommes vigoureux comme guide, et ajoutent l'âme originelle d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
+« Selon les souvenirs de Luo Yun, le fantôme céleste est une entité surnaturelle unique que seule la Secte Tian Gui possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte Tian Gui utilisent une rivière de sang de femmes enceintes mortelles comme appât, le sang chaud d'hommes vigoureux comme guide, et ajoutent l'âme originelle d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
 
-Lou Yun occupait un rang très élevé au sein de la Secte Tian Gui. Avant de venir ici, son maître lui avait donné le plus faible de ses neuf fantômes célestes liés à la vie pour le protéger. Lou Yun n'avait pas eu beaucoup de temps pour l'affiner, et c'est pourquoi le fantôme céleste l'a trahi. »
+Luo Yun occupait un rang très élevé au sein de la Secte Tian Gui. Avant de venir ici, son maître lui avait donné le plus faible de ses neuf fantômes célestes liés à la vie pour le protéger. Luo Yun n'avait pas eu beaucoup de temps pour l'affiner, et c'est pourquoi le fantôme céleste l'a trahi. »
 
 Les yeux de Wang Lin devinrent glacials et il agita sa main droite. Deux filaments de gaz gris apparurent soudainement et commencèrent à danser entre ses doigts. D'un coup de doigt, les deux filaments jaillirent vers la fissure au sol.
 

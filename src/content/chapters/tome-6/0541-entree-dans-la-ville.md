@@ -16,7 +16,7 @@ En regardant les plus de 5 000 membres de la tribu derrière lui, le seul mot qu
 
 Wang Lin s'éloigna pas à pas jusqu'à disparaître progressivement de la vue de tous, mais personne ne se redressa.
 
-À cinq kilomètres de la tribu du Affinement de l'Âme, Wang Lin frappa son sac de stockage et une lumière pourpre et dorée en jaillit. Elle se transforma en une bête gigantesque d'une taille d'environ trente-trois mètres, de couleur pourpre et or, dont la gueule acérée était particulièrement oppressante.
+À cinq kilomètres de la tribu du Affinement de l'Âme, Wang Lin frappa son sac de stockage et une lumière pourpre et dorée en jaillit. Elle se transforma en une bête gigantesque d'une taille d'environ cent pieds, de couleur pourpre et or, dont la gueule acérée était particulièrement oppressante.
 
 C'était la bête moustique!
 

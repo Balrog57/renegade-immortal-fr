@@ -72,7 +72,7 @@ Durant ce mois de préparation, tous les hommes étaient débordants d'énergie 
 
 L'affinité de l'enfant pour le sort d'affinement des âmes se manifesta une fois de plus. Après trois échecs, il réussit enfin à fabriquer son premier drapeau d'âmes.
 
-Ce premier drapeau provoqua un grand tumulte dans la vallée. Tout le monde entoura Treize, et le drapeau d'environ 2,3 mètres qu'il tenait devint le centre de tous les regards.
+Ce premier drapeau provoqua un grand tumulte dans la vallée. Tout le monde entoura Treize, et le drapeau de sept pieds qu'il tenait devint le centre de tous les regards.
 
 Treize était transporté par cette attention.
 
@@ -110,7 +110,7 @@ La férocité dans ses yeux s'était muée en une intention meurtrière.
 
 Le visage de Treize se décomposa. Il brandit le drapeau et cria: « Retour! »
 
-L'âme du lion ignora totalement l'ordre et chargea, provoquant la dispersion générale. Ouyang Hua serra les dents et s'élança à son tour, tenant désormais un petit drapeau d'environ dix centimètres.
+L'âme du lion ignora totalement l'ordre et chargea, provoquant la dispersion générale. Ouyang Hua serra les dents et s'élança à son tour, tenant désormais un petit drapeau de trois pouces.
 
 D'un mouvement sec, une lueur verte jaillit et un petit oiseau semblable à un moineau s'envola pour charger le lion.
 

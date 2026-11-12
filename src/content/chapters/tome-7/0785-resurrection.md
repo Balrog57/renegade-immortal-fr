@@ -24,13 +24,13 @@ Li Yuan, qui ne s'attendait pas à partir si tôt, demanda: « Mon frère ne veu
 
 Wang Lin secoua la tête. Il scruta le vide et dit: « Je n'y vais pas! » Le souvenir du vortex aux cinq couleurs dans le passage fit naître un mauvais pressentiment dans son cœur.
 
-De plus, il avait obtenu le Pavillon Cang Jue, et l'excitation ne l'avait pas encore quitté. Après avoir acquis un tel trésor, sa seule priorité était de s'éloigner au plus vite.
+De plus, il avait obtenu le Pavillon Cang Pin, et l'excitation ne l'avait pas encore quitté. Après avoir acquis un tel trésor, sa seule priorité était de s'éloigner au plus vite.
 
 Après tout, ce pavillon était d'une importance capitale pour les quatre grandes familles, tant pour leur réputation que pour la valeur réelle du trésor. Dès qu'ils réaliseraient sa disparition, ils lanceraient immédiatement une traque massive contre Wang Lin.
 
 « Le fragment est déjà scellé, les chances que l'on découvre ce qui s'y est passé sont donc minimes! »
 
-Il n'avait pas révélé à Li Yuan qu'il avait obtenu le Pavillon Cang Jue. Cette affaire était bien trop cruciale. Compte tenu de la prudence de Wang Lin, à moins d'être absolument certain, il ne le dirait à personne.
+Il n'avait pas révélé à Li Yuan qu'il avait obtenu le Pavillon Cang Pin. Cette affaire était bien trop cruciale. Compte tenu de la prudence de Wang Lin, à moins d'être absolument certain, il ne le dirait à personne.
 
 Li Yuan réfléchit un instant puis hocha la tête: « Très bien. Il faut se trouver en un lieu précis pour quitter le Royaume Céleste du Tonnerre. Ce n'est qu'à la porte céleste que nous pourrons utiliser le fourneau de tonnerre pour notre retour. »
 
@@ -46,7 +46,7 @@ Sous l'effet de ces fluctuations, quatre anciennes restrictions apparurent sur l
 
 L'énergie spirituelle céleste émanait de l'intérieur de ces restrictions. À mesure que la foule s'agrandissait, des maîtres des restrictions se joignirent naturellement à eux. Une fois qu'un accord fut trouvé entre les cultivateurs les plus puissants, les divers experts commencèrent à briser les sceaux.
 
-Les quatre fragments présentant des fluctuations apparurent respectivement aux points cardinaux du Royaume Céleste: est, sud, ouest et nord. À cet instant, sur le fragment occidental, Shengong Hu observait calmement la plaine devant lui. Une ancienne restriction de 3,3 kilomètres de large, dégageant une riche énergie spirituelle céleste, s'étendait sur la plaine.
+Les quatre fragments présentant des fluctuations apparurent respectivement aux points cardinaux du Royaume Céleste: est, sud, ouest et nord. À cet instant, sur le fragment occidental, Shengong Hu observait calmement la plaine devant lui. Une ancienne restriction de dix mille pieds de large, dégageant une riche énergie spirituelle céleste, s'étendait sur la plaine.
 
 Une multitude de cultivateurs s'était massée à l'extérieur des restrictions, principalement en groupes de trois à cinq. Quelques maîtres des restrictions tentaient déjà de forcer le passage.
 

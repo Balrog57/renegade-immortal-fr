@@ -114,13 +114,13 @@ On doit s'incliner devant la Puissance des Cieux! Il faut être subjugué par le
 
 Telle est la Puissance des Cieux!
 
-Alors que la Puissance des Cieux descendait, une pression colossale émana du ciel. Le massif nuage rouge s'abaissa de 3,3 centimètres!
+Alors que la Puissance des Cieux descendait, une pression colossale émana du ciel. Le massif nuage rouge s'abaissa d'un pouce!
 
-Cette descente de 3,3 centimètres fit exploser partout la place déjà brisée. L'onde de choc produite par l'explosion ne put même pas se propager avant d'être écrasée dans le sol par cette pression.
+Cette descente d'un pouce fit exploser partout la place déjà brisée. L'onde de choc produite par l'explosion ne put même pas se propager avant d'être écrasée dans le sol par cette pression.
 
 Sous la puissance des cieux, l'onde de choc n'avait même pas la moindre capacité à soulever un grain de poussière!
 
-Wang Lin sentit son corps devenir pesant, comme si cinq tonnes s'abattaient sur lui. Il entendait des craquements sinistres émaner de ses propres os. À cet instant, Wang Lin eut l'illusion d'être broyé par le monde lui-même!
+Wang Lin sentit son corps devenir pesant, comme si dix mille livres s'abattaient sur lui. Il entendait des craquements sinistres émaner de ses propres os. À cet instant, Wang Lin eut l'illusion d'être broyé par le monde lui-même!
 
 C'était la même sensation qu'autrefois, lorsqu'il cultivait sous la pression du filon spirituel au sein de la Secte Lian Hun. À l'époque, sa culture avait été gaspillée et il était redevenu un simple mortel.
 
@@ -132,7 +132,7 @@ Les jambes de Wang Lin ne bougèrent pas d'un iota, alors qu'une aura puissante 
 
 Il leva la tête vers le nuage rouge et murmura doucement: « Je ne céderai pas! »
 
-Des éclats de tonnerre jaillirent du nuage rouge alors qu'il entamait une nouvelle descente. 3,3 centimètres, 3,3 centimètres, 3,3 centimètres! Cette fois, il descendit de près de dix centimètres d'affilée, et la Puissance des Cieux s'abattit avec fracas!
+Des éclats de tonnerre jaillirent du nuage rouge alors qu'il entamait une nouvelle descente. Un pouce, un pouce, un pouce! Cette fois, il descendit de trois pouces d'affilée, et la Puissance des Cieux s'abattit avec fracas!
 
 La terre poussa un cri comme si elle ne pouvait plus supporter le poids. Tous les édifices du palais impérial furent broyés par cette pression. La cité impériale du Pays Tian Yao, qui s'était dressée pendant d'innombrables années, fut réduite en poussière, à l'exception du tambour démoniaque, objet sacré!
 

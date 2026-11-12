@@ -42,7 +42,7 @@ Il ne tenta pas immédiatement d'activer le sort, mais manipula l'épée pour la
 
 « Quelle épée! » En contemplant l'arme volante, les yeux du jeune homme brillaient d'admiration, teintés pourtant d'un soupçon de regret. « Ce niveau d'intégration peut être considéré comme de qualité moyenne. Une énergie spirituelle aussi féroce pourrait même être qualifiée de haute qualité. Malheureusement, il est impossible d'égaler la vitesse de cette épée. Quel dommage! Quel dommage! »
 
-Alors qu'il parlait, il activa le sort à l'intérieur de l'épée volante et, à cet instant précis, ses pupilles se rétractèrent brutalement. Il vit l'épée disparaître devant lui pour réapparaître à trente-trois mètres plus loin.
+Alors qu'il parlait, il activa le sort à l'intérieur de l'épée volante et, à cet instant précis, ses pupilles se rétractèrent brutalement. Il vit l'épée disparaître devant lui pour réapparaître à cent pieds plus loin.
 
 « Ceci... »
 
@@ -74,7 +74,7 @@ L'expression décontractée et sereine de Wang Lin n'était pas celle qu'un cult
 
 Peu de temps après, une brise légère souffla de l'extérieur. Une fois la brise dissipée, un vieil homme vêtu d'une robe verte entra dans le pavillon. La première chose que ses yeux cherchèrent fut l'épée volante entre les mains du jeune homme. En la voyant, un éclair de lumière traversa son regard.
 
-Voyant le vieil homme, le jeune homme se leva immédiatement et dit respectueusement: « Le junior Sun Mo salue l'Aîné. »
+Voyant le vieil homme, le jeune homme se leva immédiatement et dit respectueusement: « Le junior Sun Mo salue l'Ancien. »
 
 Le vieil homme répondit doucement et son regard balaya Wang Lin. Son expression ne changea pas lorsqu'il demanda calmement: « Est-ce cette personne qui a demandé l'examen d'un trésor magique? »
 
@@ -84,7 +84,7 @@ Au moment où le vieil homme entra, Wang Lin lui jeta un coup d'œil avant de d�
 
 Le vieil homme ne perdit pas de temps. Il agita la main droite et saisit l'épée volante. Après l'avoir balayée de son Sens Divin, son expression calme fut remplacée par la stupéfaction.
 
-« Aîné, le junior a examiné ce trésor... » commença le jeune homme à ses côtés. Mais alors qu'il parlait, le vieil homme lui lança un regard si tranchant qu'il en eut le souffle coupé et laissa sa phrase en suspens.
+« Ancien, le junior a examiné ce trésor... » commença le jeune homme à ses côtés. Mais alors qu'il parlait, le vieil homme lui lança un regard si tranchant qu'il en eut le souffle coupé et laissa sa phrase en suspens.
 
 Le vieil homme effleura l'épée volante du bout du doigt. Elle libéra un chant d'épée cristallin qui résonna instantanément dans tout le bâtiment. Ce son, semblable à une musique céleste, était d'une pureté absolue. Ses yeux se remplirent d'un choc encore plus grand lorsqu'il agita la main droite. L'épée s'envola et disparut.
 

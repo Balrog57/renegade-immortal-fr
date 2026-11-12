@@ -106,9 +106,9 @@ Son visage devint livide. S'il n'avait pas eu à faire face à la présence de l
 
 Wang Lin retira sa main droite de l'épaule de Hu Pao et fit un pas en avant. Un filament d'énergie spirituelle céleste pénétra le corps de Treize et y circula une fois. Ce dernier sentit son corps s'alléger, ses blessures se résorbant quelque peu.
 
-Après cela, Wang Lin observa les environs. Il s'agissait d'une caserne construite en pierre noire, s'étendant sur environ cinquante kilomètres de large. Aux limites de la caserne se dressaient des murs d'une centaine de mètres de haut. Des fluctuations d'énergie spirituelle démoniaque émanaient de ces murs, signe que des sorts de renforcement les protégeaient.
+Après cela, Wang Lin observa les environs. Il s'agissait d'une caserne construite en pierre noire, s'étendant sur environ cinquante kilomètres de large. Aux limites de la caserne se dressaient des murs de plusieurs centaines de pieds de haut. Des fluctuations d'énergie spirituelle démoniaque émanaient de ces murs, signe que des sorts de renforcement les protégeaient.
 
-Wang Lin était apparu au centre des casernes. À trois cent trente mètres devant lui, des rangées de soldats démons en armure se tenaient droits. Ils dégageaient tous des filaments d'aura noire, tels des dieux démons!
+Wang Lin était apparu au centre des casernes. À mille pieds devant lui, des rangées de soldats démons en armure se tenaient droits. Ils dégageaient tous des filaments d'aura noire, tels des dieux démons!
 
 Mille soldats démons composaient un régiment; actuellement, dix régiments entouraient Wang Lin. Une puissante vague d'intention de tuer se propagea instantanément.
 

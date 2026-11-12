@@ -28,7 +28,7 @@ Ta Shan rugit: « Qui est cet homme?! »
 
 Alors que Ta Shan s'approchait, son visage pâlit instantanément. Il sentit clairement une puissance émanant de l'intérieur de son propre corps, l'empêchant de s'avancer pour attaquer.
 
-Cette force était d'une puissance extrême, comme un instinct profondément imprimé dans sa chair. Lorsqu'il se trouva à environ 66 mètres de l'homme, Ta Shan fut incapable de faire un pas de plus. Son visage se crispa de douleur tandis que son corps tremblait et que de larges gouttes de sueur s'écoulaient.
+Cette force était d'une puissance extrême, comme un instinct profondément imprimé dans sa chair. Lorsqu'il se trouva à environ deux cents pieds de l'homme, Ta Shan fut incapable de faire un pas de plus. Son visage se crispa de douleur tandis que son corps tremblait et que de larges gouttes de sueur s'écoulaient.
 
 Il comprit avec certitude que la puissance qui entravait ses mouvements provenait de ses propres tatouages. Cette force rendait toute résistance impossible.
 
@@ -52,7 +52,7 @@ Il n'avait d'autre choix que de s'agenouiller!
 
 L'homme d'âge moyen ricana: « Clan inférieur, vous osez résister à l'empreinte d'esclave! Si je ne voulais pas vous épargner, une simple pensée de cet être céleste suffirait à vous anéantir, corps et âme! Maintenant, disparaissez! »
 
-Comme si le corps de Ta Shan avait été frappé par un poing invisible, des bruits d'explosions résonnèrent en lui alors qu'il était projeté en arrière. Il s'écrasa au sol à environ 330 mètres de là.
+Comme si le corps de Ta Shan avait été frappé par un poing invisible, des bruits d'explosions résonnèrent en lui alors qu'il était projeté en arrière. Il s'écrasa au sol à environ mille pieds de là.
 
 Ta Shan lutta pour se redresser. Ses yeux brillaient d'un éclat meurtrier et indomptable lorsqu'il hurla: « Qui es-tu?! »
 
@@ -82,7 +82,7 @@ Des bruits d'explosions émanaient de son corps et le sang jaillissait de partou
 
 Wang Lin fronça les sourcils en observant la scène. Il put en tirer de nombreuses informations.
 
-« Que ce soit le Clan Xian Xuan ou celui des Immortels Délaissés, il est évident que les deux sont des esclaves des êtres célestes. L'empreinte d'esclave condamne toutes les générations futures à la servitude! »
+« Que ce soit le Clan Xian Xuan ou celui du Clan Xian Yi, il est évident que les deux sont des esclaves des êtres célestes. L'empreinte d'esclave condamne toutes les générations futures à la servitude! »
 
 « C'est une empreinte d'esclavage placée sur l'héritage d'un clan, tout comme pour la famille de Li Yuan... » Si ce n'était pour l'affaire de Li Yuan, Wang Lin n'aurait pas pu percevoir l'ampleur de la situation.
 

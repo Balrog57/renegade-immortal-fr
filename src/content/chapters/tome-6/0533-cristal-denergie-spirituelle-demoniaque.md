@@ -20,7 +20,7 @@ Wang Lin lança les deux morceaux de jade à Ouyang Hua.
 
 Ce dernier fut surpris. Il examina attentivement les jades, puis, s'enthousiasmant, demanda: « Suprême Céleste, pourrait-il s'agir de jades démoniaques? »
 
-« Des jades démoniaques... en quelque sorte! » Wang Lin avait parcouru les souvenirs de Lou Yun et découvert qu'un ancêtre de ce dernier avait utilisé le terme « jade démoniaque ».
+« Des jades démoniaques... en quelque sorte! » Wang Lin avait parcouru les souvenirs de Luo Yun et découvert qu'un ancêtre de ce dernier avait utilisé le terme « jade démoniaque ».
 
 Ouyang Hua prit le jade et prit une profonde inspiration. Après l'avoir observé longuement, son vieux visage devint rouge. Un peu embarrassé, il murmura: « Suprême Céleste, je sais seulement que ces objets contiennent des enregistrements; je ne sais pas comment les lire... »
 
@@ -46,11 +46,11 @@ Bien que la douleur fût atroce, il serra les dents. Il savait que si Wang Lin a
 
 À son âge, un homme serait normalement resté bloqué à une étoile pour toujours, et il lui serait impossible de progresser. Pourtant, il avait le sentiment que s'il saisissait cette chance, la percée ne serait plus un simple rêve.
 
-Le doigt de Wang Lin, pointé vers le dantian d'Ouyang Hua, remonta lentement. À chaque centimètre et demi parcouru, la douleur ressentie par Ouyang Hua doublait. La sueur tombait de son front comme une pluie, son corps entier tremblait violemment et son visage était devenu livide.
+Le doigt de Wang Lin, pointé vers le dantian d'Ouyang Hua, remonta lentement. À chaque demi-pouce parcouru, la douleur ressentie par Ouyang Hua doublait. La sueur tombait de son front comme une pluie, son corps entier tremblait violemment et son visage était devenu livide.
 
-L'expression de Wang Lin demeurait impassible. Après avoir levé son doigt d'environ dix centimètres, il regarda calmement Ouyang Hua et dit: « Endure! »
+L'expression de Wang Lin demeurait impassible. Après avoir levé son doigt de trois pouces, il regarda calmement Ouyang Hua et dit: « Endure! »
 
-Sur ces mots, sa main gauche remonta brusquement de ces dix centimètres jusqu'au front d'Ouyang Hua.
+Sur ces mots, sa main gauche remonta brusquement de ces trois pouces jusqu'au front d'Ouyang Hua.
 
 Un gémissement de douleur déchirant s'échappa de la bouche d'Ouyang Hua et résonna dans toute la vallée. Ses yeux roulèrent en arrière alors qu'il s'effondrait au sol, inerte.
 

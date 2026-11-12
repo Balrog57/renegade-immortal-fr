@@ -58,15 +58,15 @@ Sun Qiming était également très sérieux et resta muet un moment.
 
 « Un seul jade céleste pour acquérir une pilule de rang 8... »
 
-Non seulement eux, mais même le jeune homme nommé Lou avait les yeux écarquillés par le choc. Cette voix lui était très familière; c'était le jeune homme qu'il avait arrêté à l'extérieur il y a quelques jours.
+Non seulement eux, mais même le jeune homme nommé Lu avait les yeux écarquillés par le choc. Cette voix lui était très familière; c'était le jeune homme qu'il avait arrêté à l'extérieur il y a quelques jours.
 
-Au moment où il entendit Wang Lin proposer un jade céleste, le jeune Lou marmonna pour lui-même: « Cet homme est devenu fou! »
+Au moment où il entendit Wang Lin proposer un jade céleste, le jeune Lu marmonna pour lui-même: « Cet homme est devenu fou! »
 
 À cet instant précis, personne ne remarqua que dans une pièce isolée du troisième étage, l'esprit d'un vieil homme fut violemment ébranlé en entendant cette voix!
 
 Il leva brusquement la tête vers le quatrième étage, ses yeux brillant d'une lueur singulière.
 
-« Ce n'est pas... ce n'est pas sa voix, mais pourquoi mon esprit tremble-t-il ainsi... Dans toute ma vie, seul Ceng Niu a laissé une marque dans mon âme. » Le vieil homme resta silencieux un long moment. Il se leva, hésita, puis se rassit, fixant le sol d'un regard vide.
+« Ce n'est pas... ce n'est pas sa voix, mais pourquoi mon esprit tremble-t-il ainsi... Dans toute ma vie, seul Zeng Niu a laissé une marque dans mon âme. » Le vieil homme resta silencieux un long moment. Il se leva, hésita, puis se rassit, fixant le sol d'un regard vide.
 
 « Ma marque aurait dû être brisée sur la planète Dong Lin, alors pourquoi... est-elle encore là... »
 

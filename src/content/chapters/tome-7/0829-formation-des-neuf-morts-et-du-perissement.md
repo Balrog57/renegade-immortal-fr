@@ -116,15 +116,15 @@ Les débris projetés par l'impact et l'effondrement de la planète déformèren
 
 À cet instant, alors que le fracas se propageait, de nouveaux éclairs de lumière arrivèrent de la distance. Un autre groupe de cultivateurs venait d'arriver!
 
-Le sentiment de malaise dans le cœur de Yao Bingyun s'intensifia. Elle regarda soudainement autour d'elle et vit les fragments de gravats dispersés sur un rayon de 33 kilomètres. C'était comme si ces débris avaient encerclé les cultivateurs.
+Le sentiment de malaise dans le cœur de Yao Bingyun s'intensifia. Elle regarda soudainement autour d'elle et vit les fragments de gravats dispersés sur un rayon de cent mille pieds. C'était comme si ces débris avaient encerclé les cultivateurs.
 
 « Quelque chose ne va pas! » Les yeux de Yao Bingyun se plissèrent alors qu'elle s'apprêtait à lancer une alerte.
 
 Mais, à cet instant précis, un éclair violet apparut soudainement sur un fragment de gravier très éloigné. Dès son apparition, il rejoignit rapidement un autre fragment.
 
-Le phénomène ne s'arrêta pas là. En un clin d'œil, des éclairs jaillirent de tous les débris. Instantanément, la totalité des gravats dans un rayon de 33 kilomètres fut reliée par la foudre.
+Le phénomène ne s'arrêta pas là. En un clin d'œil, des éclairs jaillirent de tous les débris. Instantanément, la totalité des gravats dans un rayon de cent mille pieds fut reliée par la foudre.
 
-Au milieu des craquements tonitruants, une cage de foudre se forma dans cette zone de 33 kilomètres.
+Au milieu des craquements tonitruants, une cage de foudre se forma dans cette zone de cent mille pieds.
 
 Tout cela se produisit en un instant; c'était d'une rapidité inconcevable. Lorsque les cultivateurs s'en rendirent compte, la prison était déjà formée!
 
@@ -154,7 +154,7 @@ Les yeux d'un cultivateur Yin Illusoire issu d'une famille du Domaine Nord furen
 
 Un autre cultivateur du Domaine Sud tentait de s'échapper, mais son corps se raidit instantanément lorsque l'onde le toucha. Il explosa aussitôt en une brume de sang.
 
-En un instant, les pertes furent innombrables dans ce rayon de 33 kilomètres. La silhouette de Wang Lin apparut à la limite de cette zone. Sa main tendue fit que la brume noire se condensa à nouveau en drapeau de l'âme, qu'il rangea aussitôt dans son sac.
+En un instant, les pertes furent innombrables dans ce rayon de cent mille pieds. La silhouette de Wang Lin apparut à la limite de cette zone. Sa main tendue fit que la brume noire se condensa à nouveau en drapeau de l'âme, qu'il rangea aussitôt dans son sac.
 
 Puis sa silhouette vacilla et il chargea en avant. Juste au moment où il allait disparaître, Yao Bingyun se rapprocha soudainement et ses deux doigts pressèrent impitoyablement!
 
@@ -164,13 +164,13 @@ Elle était certaine que ce doigt pourrait absolument ôter la vie à Xu Mu. Ce 
 
 « Un simple cultivateur Corporel Yang n'a aucune chance de survivre face au Sceau de Dommage Spirituel! »
 
-Le corps de Wang Lin trembla et il fut projeté à trois cent trente mètres de là. Il cracha une large bouchée de sang, le visage livide. Cependant, il ne marqua aucune pause; il se replongea dans le vide et s'enfuit au loin.
+Le corps de Wang Lin trembla et il fut projeté à mille pieds de là. Il cracha une large bouchée de sang, le visage livide. Cependant, il ne marqua aucune pause; il se replongea dans le vide et s'enfuit au loin.
 
 « Il n'est pas mort! » Yao Bingyun fut stupéfaite et ses yeux brillèrent d'intensité. Elle s'élança à nouveau pour le poursuivre.
 
 L'effondrement de l'âme d'origine de Xue Zu avait causé la mort d'un grand nombre de poursuivants. Personne ne s'attendait à ce que Xu Mu possède un tel atout!
 
-Plusieurs membres de la famille Yao se trouvaient dans ce rayon de 33 kilomètres. Incapables de s'échapper, ils périrent dans l'explosion.
+Plusieurs membres de la famille Yao se trouvaient dans ce rayon de cent mille pieds. Incapables de s'échapper, ils périrent dans l'explosion.
 
 Alors que les ondes se dissipaient, la zone était saturée de sang. Cette fois-ci, le nombre de morts était colossal. Pourtant, cela ne représentait qu'un peu moins de la moitié des traqueurs de Wang Lin. Des rayons de lumière arrivèrent de la distance et, progressivement, tous les cultivateurs à sa poursuite se rassemblèrent sur les lieux. Le massacre provoqua un tremblement dans leurs esprits, mais leur volonté de tuer Wang Lin n'en devint que plus farouche!
 

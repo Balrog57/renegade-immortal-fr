@@ -34,7 +34,7 @@ Derrière l'homme en or, un cultivateur au début du stade de la Transformation 
 
 Le cultivateur serra les dents et chargea vers le nuage noir. Cependant, à mesure qu'il approchait, la pression capable d'ébranler l'âme originelle devenait de plus en plus intense. Les hurlements fantomatiques jaillissaient également comme des sorts de vagues sonores.
 
-À 3,3 kilomètres du nuage, le cultivateur fut incapable de progresser davantage. Il sentit que s'il forçait le passage, il mourrait à coup sûr!
+À dix mille pieds du nuage, le cultivateur fut incapable de progresser davantage. Il sentit que s'il forçait le passage, il mourrait à coup sûr!
 
 Voyant le cultivateur s'arrêter, le visage de l'homme en or se mua en hostilité. Il hurla d'un ton glacial: « Numéro 10, oses-tu désobéir à un ordre?! »
 
@@ -42,7 +42,7 @@ En entendant cela, un sourire amer apparut sur le visage du cultivateur. Il soup
 
 Il prit une profonde inspiration, fit un pas en avant et chargea tel un météore!
 
-En un clin d'œil, il franchit la limite des 3,3 kilomètres autour du nuage noir, et à cet instant précis, le nuage bougea soudainement.
+En un clin d'œil, il franchit la limite des dix mille pieds autour du nuage noir, et à cet instant précis, le nuage bougea soudainement.
 
 La masse sombre se souleva comme des vagues déchaînées et prit des formes de champignons en s'étendant vers l'extérieur. Les hurlements stridents redoublèrent d'intensité, résonnant à travers le ciel. Alors que les nuages tourbillonnaient, une série de rugissements capables de faire trembler les cieux jaillit de l'intérieur. Simultanément, le nuage noir se transforma rapidement en une gueule béante capable d'engloutir le monde. Il dévora le cultivateur sans la moindre hésitation, ne laissant aucune trace de lui.
 
@@ -58,7 +58,7 @@ Ce vieillard aux cheveux blancs était l'oncle martial de Sun Yunshan. Son visag
 
 Sun Yunshan serra les poings. En regardant l'Oncle Martial Feng partir, son cœur saigna.
 
-En quelques enjambées seulement, le vieil homme atteignit la limite des trois cent trente mètres du nuage noir. Juste au moment où il allait poursuivre sa course, le nuage accéléra et tourbillonna brusquement. En un instant, il se fendit, laissant apparaître un passage dégagé au milieu.
+En quelques enjambées seulement, le vieil homme atteignit la limite des mille pieds du nuage noir. Juste au moment où il allait poursuivre sa course, le nuage accéléra et tourbillonna brusquement. En un instant, il se fendit, laissant apparaître un passage dégagé au milieu.
 
 Un jeune homme au visage froid sortit pas à pas. Il jeta un regard au vieil homme avant de scruter les membres de l'Union de Culture. Puis, d'un ton calme, il déclara: « Mon Ancêtre vous souhaite la bienvenue! »
 

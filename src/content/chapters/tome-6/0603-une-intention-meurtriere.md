@@ -30,23 +30,23 @@ Cette fois-ci, avec son niveau de culture actuel, il avait dépassé le niveau a
 
 En plein vol, l'un d'eux eut soudain un éclair de lucidité. Il scruta l'horizon et sentit clairement qu'une bête primale émettant une intention meurtrière inimaginable se dirigeait vers eux.
 
-L'expression du jeune homme changea brusquement et il hurla: « Frère cadet, retraite vite! » Sur ce cri, ils s'écartèrent rapidement de chaque côté, et l'instant d'après, une silhouette semblable à une météorite passa entre eux.
+L'expression du jeune homme changea brusquement et il hurla: « Junior frère, retraite vite! » Sur ce cri, ils s'écartèrent rapidement de chaque côté, et l'instant d'après, une silhouette semblable à une météorite passa entre eux.
 
 La silhouette fendit l'air devant eux.
 
 « Un Ascendant! » Les pupilles du jeune homme se rétractèrent.
 
-« Frère aîné, il... il semble blessé! » Le frère cadet, fixant la silhouette chargée d'une intention meurtrière qui s'éloignait, envoya soudain une transmission de voix: « Un cultivateur Ascendant doit posséder de nombreux trésors sur lui. Si nous pouvons obtenir son cristal démoniaque... »
+« Senior frère, il... il semble blessé! » Le Junior frère, fixant la silhouette chargée d'une intention meurtrière qui s'éloignait, envoya soudain une transmission de voix: « Un cultivateur Ascendant doit posséder de nombreux trésors sur lui. Si nous pouvons obtenir son cristal démoniaque... »
 
-Le frère aîné plissa les yeux, hésitant.
+Le Senior frère plissa les yeux, hésitant.
 
-« Frère aîné, nous sommes tous deux au stade avancé de la Transformation de l'Âme. Bien que nos chances ne soient pas grandes, si nous nous opposons à un Ascendant blessé en utilisant des trésors magiques... »
+« Senior frère, nous sommes tous deux au stade avancé de la Transformation de l'Âme. Bien que nos chances ne soient pas grandes, si nous nous opposons à un Ascendant blessé en utilisant des trésors magiques... »
 
 Alors qu'ils communiquaient, Wang Lin s'arrêta brusquement. Il se retourna, fixa l'arrière avec ses yeux injectés de sang et murmura: « Il y a une intention meurtrière... »
 
 Il fit soudain volte-face et chargea vers les deux jeunes comme un éclair!
 
-En voyant Wang Lin se retourner, leurs expressions changèrent radicalement et ils tentèrent de fuir. Cependant, la vitesse de Wang Lin était trop fulgurante; en un clin d'œil, il atteignit le frère cadet et pointa son doigt vers lui!
+En voyant Wang Lin se retourner, leurs expressions changèrent radicalement et ils tentèrent de fuir. Cependant, la vitesse de Wang Lin était trop fulgurante; en un clin d'œil, il atteignit le Junior frère et pointa son doigt vers lui!
 
 Le visage du jeune homme se décomposa, terrassé par l'effroi. En croisant le regard de Wang Lin, il fut pétrifié; ce regard était trop terrifiant!
 
@@ -54,7 +54,7 @@ Le doigt de Wang Lin lui fit ressentir une impuissance absolue, comme si cette s
 
 L'index toucha son front à une vitesse inimaginable. Le jeune homme laissa échapper un gémissement misérable avant que son corps ne se dessèche instantanément et que son âme originelle ne s'effondre. L'âme brisée et l'essence de son corps furent transformées en énergie de massacre, laquelle quitta son enveloppe par les sept orifices de son visage pour voler vers Wang Lin.
 
-Tout cela se produisit avec une rapidité telle que le frère aîné fut incapable de réagir. Lorsqu'il sortit de sa stupeur, son corps tremblait de tous ses membres. Sans hésiter, il tenta une téléportation pour s'enfoncer dans le vide.
+Tout cela se produisit avec une rapidité telle que le Senior frère fut incapable de réagir. Lorsqu'il sortit de sa stupeur, son corps tremblait de tous ses membres. Sans hésiter, il tenta une téléportation pour s'enfoncer dans le vide.
 
 Wang Lin fit un pas en avant, fendit le ciel et tendit la main droite. Son doigt sembla percer le vide pour arracher violemment le jeune homme!
 
@@ -120,7 +120,7 @@ Yin Dong se sentit fier en percevant l'intention meurtrière dans l'air. Cependa
 
 Cette puissante intention meurtrière fut immédiatement perçue par Wang Lin, dont les sens étaient exacerbés par son état actuel. Cette aura était si forte qu'elle provoqua, dans l'esprit dément de Wang Lin, une multiplication d'innombrables fois de son intention de combat.
 
-Il ne ralentit nullement et pressa le pas. Yin Dong laissa échapper un reniflement méprisant et s'apprêtait à exécuter une technique, mais à cet instant précis, Wang Lin leva soudainement la tête. Ses yeux brillaient d'une lueur rouge effrayante alors qu'il levait la main pour pointer l'avant. Instantanément, un éclat noir large d'une dizaine de mètres, issu du doigt de la mort, jaillit.
+Il ne ralentit nullement et pressa le pas. Yin Dong laissa échapper un reniflement méprisant et s'apprêtait à exécuter une technique, mais à cet instant précis, Wang Lin leva soudainement la tête. Ses yeux brillaient d'une lueur rouge effrayante alors qu'il levait la main pour pointer l'avant. Instantanément, un éclat noir large de plusieurs dizaines de pieds, issu du doigt de la mort, jaillit.
 
 Yin Dong n'eut même pas le temps d'esquiver qu'il fut enveloppé par cette lumière noire; son corps se flétrit aussitôt avant de s'effondrer.
 

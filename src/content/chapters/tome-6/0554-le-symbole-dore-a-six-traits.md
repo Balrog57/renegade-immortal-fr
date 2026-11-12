@@ -82,7 +82,7 @@ L'expression de Yao Xixue restait sereine. Elle était venue ici de nombreuses f
 
 Quelques jours plus tard, une autre plateforme gigantesque apparut sur le Chemin du Dragon Sacré. Un objet se tenait au centre de celle-ci!
 
-Il s'agissait d'une statue d'environ 9,9 mètres de haut. Cette statue représentait un humain, mais doté d'oreilles et de bras démesurément grands.
+Il s'agissait d'une statue d'environ trente pieds de haut. Cette statue représentait un humain, mais doté d'oreilles et de bras démesurément grands.
 
 Yao Xixue s'arrêta sur le chemin du dragon, jeta un regard à Wang Lin qui la suivait de près et dit: « Cet endroit est le premier sceau! Nous allons chacun briser une couche. Je briserai la première, et tu briseras la seconde! »
 

@@ -44,7 +44,7 @@ Tandis qu'il demeurait silencieux, il affichait parfois un sourire heureux et pa
 
 Son bonheur était empreint de solitude. Son sourire était manifestement teinté d'une tristesse muette... Des larmes coulèrent au coin de ses yeux, laissant sur le sol des traces semblables à des fragments de souvenirs...
 
-La lune disparut peu à peu et l'aube pointa, chassant les ténèbres. La lumière du soleil tomba sur la terre et s'étendit jusqu'à recouvrir la Cité Ancestrale.
+La lune disparut peu à peu et l'aube pointa, chassant les ténèbres. La lumière du soleil tomba sur la terre et s'étendit jusqu'à recouvrir la Cité Huangzu.
 
 Alors que la clarté pénétrait par la fenêtre, Wang Lin s'éveilla de ses rêveries. Il observa les lieux d'un regard profond avant de se lever pour partir.
 

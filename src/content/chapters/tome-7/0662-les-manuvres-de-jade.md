@@ -50,7 +50,7 @@ Wang Lin ne ressentit aucune gêne en déambulant dans la rue; c'était comme s'
 
 En pénétrant dans le quartier nord de la ville, Wang Lin sentit immédiatement le silence et l'énergie spirituelle dense qui imprégnaient la zone. De nombreuses demeures isolées y étaient protégées par des restrictions.
 
-Une restriction à l'entrée interdisait l'accès aux mortels. Un rocher d'environ dix mètres de haut se dressait également, sur lequel pendaient sept ou huit jetons noirs.
+Une restriction à l'entrée interdisait l'accès aux mortels. Un rocher de plus de trente pieds de haut se dressait également, sur lequel pendaient sept ou huit jetons noirs.
 
 Un jeune homme au stade de l'Âme Naissante était assis sous le rocher. Il avait les yeux clos et un souffle chaud s'échappait de ses narines.
 

@@ -88,7 +88,7 @@ C'était la Boussole du Cœur, l'attribut indispensable à l'héritier de la res
 
 Tenant la boussole, Wang Lin se tint droit. Les vagues cinglaient ses vêtements et ses longs cheveux flottaient en arrière, lui donnant l'allure d'un être céleste! Sa main gauche parcourut la boussole dans un cliquetis, puis celle-ci commença à pivoter.
 
-La main gauche de Wang Lin devint une ombre tandis qu'il continuait son mouvement, ses yeux étincelant de détermination. Sans hésiter, il fit un pas de côté, se déplaça de plusieurs mètres en une seule enjambée et plongea dans les flots tumultueux.
+La main gauche de Wang Lin devint une ombre tandis qu'il continuait son mouvement, ses yeux étincelant de détermination. Sans hésiter, il fit un pas de côté, se déplaça de plusieurs dizaines de pieds en une seule enjambée et plongea dans les flots tumultueux.
 
 Cependant, au moment où il s'approcha des vagues, une lueur glaciale passa dans ses yeux. Il projeta la boussole devant lui et, ses deux mains formant des sceaux, une quantité massive de restrictions jaillit.
 

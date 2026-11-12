@@ -92,7 +92,7 @@ Wang Lin tenait un homme et une femme dans ses mains. Le regard de Sun Yunshan t
 
 Wang Lin atterrit et fit un geste de la main gauche. Sun Ruonan fut projetée vers Sun Yunshan. Puis, sa main gauche s'étira vers le vide et la créature Qilin surgit. À l'instant où la bête apparut, toutes les lignes vertes sur les cultivateurs au sol et sur Sun Yunshan se mirent à trembler. Elles se transformèrent en points qui furent aussitôt dévorés par le Qilin.
 
-La bête semblait ravie. Elle poussa un rugissement avant de se transformer en une âme que Wang Lin rangea dans son drapeau d'âme.
+La bête semblait ravie. Elle poussa un rugissement avant de se transformer en une âme que Wang Lin rangea dans son étendard de l'âme.
 
 « Frère Sun, la restriction a été levée et votre petite sœur a été sauvée. Quant à vos oncles martiaux, vous devrez les retrouver par vous-même. Quant à celui qui se trouve dans ma Tribu de l'Affinement de l'Âme, je le libérerai. Adieu! » Sur ces mots, Wang Lin saisit le petit vieil homme qui prétendait venir du Royaume Céleste et disparut par téléportation.
 

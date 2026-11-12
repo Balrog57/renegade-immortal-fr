@@ -62,7 +62,7 @@ Après avoir jeté le tatouage, la femme devint extrêmement faible et sombra pr
 
 Elle afficha une ultime fois un sourire misérable et se poignarda impitoyablement les deux orbites. Elle en extirpa le gaz vert et le projeta. Celui-ci se transforma en deux rayons de lumière verte qui fusionnèrent pour ne former qu'un seul faisceau, projeté vers Wang Lin.
 
-« Outre le tatouage vital de mon clan, une autre chose qui nous rendait célèbres dans le royaume extérieur était le sortilège du Tatou Flétri. Voici la méthode du Tatou Flétri. Puisque tu as aidé mon Clan Fu Wen, tu devrais pouvoir obtenir l'aide d'un descendant pour acquérir le pouvoir des tatouages. »
+« Outre le tatouage vital de mon clan, une autre chose qui nous rendait célèbres dans le royaume extérieur était le sortilège du Talisman Flétri. Voici la méthode du Talisman Flétri. Puisque tu as aidé mon Clan Fu Wen, tu devrais pouvoir obtenir l'aide d'un descendant pour acquérir le pouvoir des tatouages. »
 
 Wang Lin saisit la lumière verte et entendit son message instantanément.
 
@@ -70,9 +70,9 @@ Elle fixa profondément la silhouette glaciale de Qing Lin alors qu'elle s'enfon
 
 Seul le grondement du vortex en rotation subsistait. Le tourbillon descendit lentement, sur le point de disparaître dans le gouffre profond.
 
-En tenant la lumière verte, Wang Lin comprit naturellement les intentions de Qiu Yao. Selon elle, ce sortilège du Tatou Flétri exigeait l'aide du Clan Fu Wen, créant ainsi une chaîne invisible liant Wang Lin à ce clan.
+En tenant la lumière verte, Wang Lin comprit naturellement les intentions de Qiu Yao. Selon elle, ce sortilège du Talisman Flétri exigeait l'aide du Clan Fu Wen, créant ainsi une chaîne invisible liant Wang Lin à ce clan.
 
-« Si elle est si confiante, c'est que le Tatou Flétri ne peut pas être un sort ordinaire! » Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait le talisman jaune capable de sceller l'énergie originelle, qu'il avait vu lors de son combat contre la famille Yao à Luotian...
+« Si elle est si confiante, c'est que le Talisman Flétri ne peut pas être un sort ordinaire! » Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait le talisman jaune capable de sceller l'énergie originelle, qu'il avait vu lors de son combat contre la famille Yao à Luotian...
 
 « Serait-ce possible...? » Ses yeux se plissèrent.
 

@@ -56,7 +56,7 @@ L'expression de Ling Tianhou était extrêmement sombre. S'il ne craignait pas c
 
 Wang Wei frappa son sac de rangement et deux personnes en sortirent immédiatement: Chen Long et Tan Lang.
 
-En voyant Ling Tianhou, les yeux de Chen Long se remplirent de joie. Il s'agenouilla, les larmes aux yeux, et s'écria: « Maître! C'est lui, c'est Tan Lang qui a fait du mal à tous mes jeunes frères apprentis! »
+En voyant Ling Tianhou, les yeux de Chen Long se remplirent de joie. Il s'agenouilla, les larmes aux yeux, et s'écria: « Maître! C'est lui, c'est Tan Lang qui a fait du mal à tous mes Junior frères! »
 
 L'expression de Tan Lang resta parfaitement neutre. Après être apparu, il se tint simplement derrière Wang Wei et Hu Juan, tel un vieux serviteur.
 
@@ -64,7 +64,7 @@ Ling Tianhou ne daigna pas regarder Chen Long; il fixa Tan Lang et dit d'un ton 
 
 Bien que le cœur de Tan Lang ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua: « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ta Secte Da Luo Jian? »
 
-Chen Long le dévisagea avec haine. La présence de son maître lui donnait du courage, et il hurla: « Même si vous ne les avez pas tués de vos propres mains, vous nous avez piégés dans la brume violette! Sans cela, comment mes jeunes frères auraient-ils pu mourir?! »
+Chen Long le dévisagea avec haine. La présence de son maître lui donnait du courage, et il hurla: « Même si vous ne les avez pas tués de vos propres mains, vous nous avez piégés dans la brume violette! Sans cela, comment mes Junior frères auraient-ils pu mourir?! »
 
 Tan Lang eut un rire moqueur. « Ce vieil homme vous a enfermés dans la brume pour obtenir le jeton, mais ai-je porté la moindre main sur l'un de vous? Au lieu de chercher celui qui a tué tes frères, tu viens m'accuser. Quelles futilités! »
 
@@ -78,7 +78,7 @@ Tan Lang sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen L
 
 Ling Tianhou fronça les sourcils et se tourna vers Chen Long.
 
-Ce dernier s'empressa de dire: « Maître, le disciple a seulement vu que Wang Lin possédait le jeton et qu'il avait été piégé par Tan Lang. Je ne sais pas ce qui s'est passé ensuite. Cependant... il a bel et bien tué plusieurs de mes jeunes frères! »
+Ce dernier s'empressa de dire: « Maître, le disciple a seulement vu que Wang Lin possédait le jeton et qu'il avait été piégé par Tan Lang. Je ne sais pas ce qui s'est passé ensuite. Cependant... il a bel et bien tué plusieurs de mes Junior frères! »
 
 À cet instant précis, Tian Yunzi ouvrit soudainement les yeux et regarda vers l'est.
 

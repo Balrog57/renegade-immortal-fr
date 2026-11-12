@@ -34,23 +34,23 @@ En marchant, il croisa un homme et une femme vêtus de robes bleues qui discutai
 
 Portés par le vent, leurs mots lui parvinrent lentement.
 
-« Sœur Cadette, j'ai entendu dire que dans sept jours, le Marché de l'Œil Fantôme rouvrirait ses portes. Plusieurs cultivateurs s'y seraient déjà précipités. »
+« Junior sœur, j'ai entendu dire que dans sept jours, le Marché Gui Yan rouvrirait ses portes. Plusieurs cultivateurs s'y seraient déjà précipités. »
 
-« Le Marché de l'Œil Fantôme? Celui qui est devenu célèbre instantanément après avoir mis aux enchères un sort céleste? » La voix de la femme était empreinte de surprise.
+« Le Marché Gui Yan? Celui qui est devenu célèbre instantanément après avoir mis aux enchères un sort céleste? » La voix de la femme était empreinte de surprise.
 
-« C'est bien lui. Ce sort céleste a provoqué un immense tumulte. On raconte que même de puissants vieux monstres s'y sont rendus. Un sort céleste! Avec notre statut, nous ne pouvons obtenir que des sorts incomplets, et de bas grade pour couronner le tout. Mais la rumeur dit que ce sort était une rareté: un sort complet! Et cette fois, on murmure que le Marché de l'Œil Fantôme mettra aux enchères un objet mystérieux. »
+« C'est bien lui. Ce sort céleste a provoqué un immense tumulte. On raconte que même de puissants vieux monstres s'y sont rendus. Un sort céleste! Avec notre statut, nous ne pouvons obtenir que des sorts incomplets, et de bas grade pour couronner le tout. Mais la rumeur dit que ce sort était une rareté: un sort complet! Et cette fois, on murmure que le Marché Gui Yan mettra aux enchères un objet mystérieux. »
 
-« Ah, mais qu'est-ce que cela peut nous faire? Les prix au Marché de l'Œil Fantôme sont inimaginables. De plus, il faut une invitation pour y entrer. »
+« Ah, mais qu'est-ce que cela peut nous faire? Les prix au Marché Gui Yan sont inimaginables. De plus, il faut une invitation pour y entrer. »
 
 « Peu importe. Bien que nous n'ayons pas le droit d'accéder à la salle des enchères, nous pouvons fréquenter la zone commerciale du marché. » Tandis qu'il parlait, l'homme en bleu sortit un jade de sa sacoche. Ce jade était d'un noir profond, à l'exception du centre où se trouvait un œil. Cet œil émettait des éclats de lumière rouge et paraissait très étrange.
 
-« La pierre de jade d'invitation du Marché de l'Œil Fantôme! » Les yeux de la femme s'illuminèrent.
+« La pierre de jade d'invitation du Marché Gui Yan! » Les yeux de la femme s'illuminèrent.
 
 L'homme en bleu, empreint de fierté, s'apprêtait à répondre lorsqu'il leva les yeux. Ce qu'il vit le fit sursauter: Wang Lin descendait de la montagne.
 
-Remarquant l'anomalie de son frère aîné, la femme leva la tête et aperçut également Wang Lin. Avec leur niveau de culture, ils n'avaient même pas perçu la présence de Wang Lin.
+Remarquant l'anomalie de son Senior frère, la femme leva la tête et aperçut également Wang Lin. Avec leur niveau de culture, ils n'avaient même pas perçu la présence de Wang Lin.
 
-L'expression de Wang Lin était sereine. En approchant du duo, il adressa un sourire à l'homme en bleu et dit: « Frère aîné Li, je vous vois en bonne santé depuis notre dernière rencontre. »
+L'expression de Wang Lin était sereine. En approchant du duo, il adressa un sourire à l'homme en bleu et dit: « Senior frère Li, je vous vois en bonne santé depuis notre dernière rencontre. »
 
 « Vous... Vous... » L'homme en bleu restait figé, les yeux hagards comme un poulet stupéfait. Il venait de revenir à la secte et ignorait le retour de Wang Lin. En apercevant ce dernier, il l'avait trouvé familier, mais après avoir entendu sa voix, il fut frappé de stupeur.
 
@@ -62,13 +62,13 @@ En observant cet homme aujourd'hui, il nota que son niveau de culture était pas
 
 Sans accorder plus d'attention à cet homme nommé Li, Wang Lin passa devant eux et continua sa route.
 
-« Frère aîné, il s'appelle Wang Lin? Ce nom me semble familier... » La femme regardait le dos de Wang Lin avec un air perplexe.
+« Senior frère, il s'appelle Wang Lin? Ce nom me semble familier... » La femme regardait le dos de Wang Lin avec un air perplexe.
 
-« Wang Lin est réellement de retour! Si je l'ai croisé ici, Maître doit en être informé. Se pourrait-il qu'il ait obtenu le pardon de Maître? À l'instant, je n'ai ressenti aucune énergie spirituelle émaner de lui, comme s'il était un mortel. Pourtant, au moment où il est passé, j'ai été si choqué que toute l'énergie spirituelle de mon corps a tremblé jusqu'à presque s'effondrer. » Le visage de l'homme en bleu était livide. Il saisit sa sœur cadette et s'éloigna précipitamment.
+« Wang Lin est réellement de retour! Si je l'ai croisé ici, Maître doit en être informé. Se pourrait-il qu'il ait obtenu le pardon de Maître? À l'instant, je n'ai ressenti aucune énergie spirituelle émaner de lui, comme s'il était un mortel. Pourtant, au moment où il est passé, j'ai été si choqué que toute l'énergie spirituelle de mon corps a tremblé jusqu'à presque s'effondrer. » Le visage de l'homme en bleu était livide. Il saisit sa Junior sœur et s'éloigna précipitamment.
 
-« Frère aîné, qu'est-ce qui vous arrive? » demanda la femme, confuse.
+« Senior frère, qu'est-ce qui vous arrive? » demanda la femme, confuse.
 
-L'homme en bleu répondit brusquement: « Il s'appelle Wang Lin. C'était le septième disciple de la Division Pourpre de la Secte Tian Yun. Sœur Cadette, tu ne t'en souviens toujours pas?! »
+L'homme en bleu répondit brusquement: « Il s'appelle Wang Lin. C'était le septième disciple de la Division Pourpre de la Secte Tian Yun. Junior sœur, tu ne t'en souviens toujours pas?! »
 
 La femme fut saisie d'effroi et son expression changea instantanément.
 

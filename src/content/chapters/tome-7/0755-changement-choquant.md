@@ -60,7 +60,7 @@ Wang Lin fut encore plus stupéfait. Ce Sens Divin lui procurait un sentiment fa
 
 Le visage de Li Yuan était livide; il faillit voir son âme se disperser alors qu'il suivait de près Wang Lin.
 
-Les deux n'étaient initialement pas loin du réseau de transfert. En se déplaçant à une vitesse fulgurante, ils s'en rapprochèrent davantage. Cependant, le Sens Divin devint soudainement incontrôlable et la zone située dans un rayon de 330 mètres autour d'eux vira brusquement au rouge.
+Les deux n'étaient initialement pas loin du réseau de transfert. En se déplaçant à une vitesse fulgurante, ils s'en rapprochèrent davantage. Cependant, le Sens Divin devint soudainement incontrôlable et la zone située dans un rayon de mille pieds autour d'eux vira brusquement au rouge.
 
 Des volutes de fumée rouge jaillirent soudainement, prenant l'apparence de spectres. Elles poussèrent des hurlements perçants et chargèrent Wang Lin.
 
@@ -76,13 +76,13 @@ C'est à cet instant précis qu'un ricanement glacial émana du Sens Divin, suiv
 
 « Espace sanglant, condense! »
 
-Dès que ces trois mots furent prononcés, une force commença immédiatement à comprimer cette zone de 330 mètres de rayon. L'espace se solidifia rapidement, comme s'il tentait de geler tout ce qui se trouvait dans ce périmètre.
+Dès que ces trois mots furent prononcés, une force commença immédiatement à comprimer cette zone de mille pieds de rayon. L'espace se solidifia rapidement, comme s'il tentait de geler tout ce qui se trouvait dans ce périmètre.
 
 Wang Lin était sur le point de franchir le réseau de transfert. Pourtant, alors qu'il levait le pied pour faire le pas, ce fut comme si une montagne entière avait été arrimée à son dos, ralentissant sa course.
 
 Il ressentit même son corps oppressé par d'innombrables forces puissantes qui semblaient vouloir le clouer sur place. Non seulement Wang Lin, mais Li Yuan éprouva la même sensation.
 
-Cette puissance était tout simplement colossale; elle égalait la majesté des cieux. C'était comme si une main invisible était tombée du firmament pour saisir cette zone de 330 mètres de rayon. Ses cinq doigts se refermaient lentement, comme pour broyer l'espace même.
+Cette puissance était tout simplement colossale; elle égalait la majesté des cieux. C'était comme si une main invisible était tombée du firmament pour saisir cette zone de mille pieds de rayon. Ses cinq doigts se refermaient lentement, comme pour broyer l'espace même.
 
 Le visage de Wang Lin devint pâle et la sueur froide inonda son front. Il ne pouvait même pas lever la main pour dégainer un trésor magique. Il entrevoyait vaguement une lueur rouge charger vers cet endroit depuis le vide lointain, une silhouette écarlate se condensant rapidement au cœur de cette lumière.
 

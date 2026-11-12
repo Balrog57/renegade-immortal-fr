@@ -108,7 +108,7 @@ En chemin, toutes les restrictions furent brisées d'un simple revers de main de
 
 Une immense statue de pierre trônait au sommet de la montagne. C'était la sculpture d'un homme d'âge moyen et, à ses côtés, une épée volante. Une personne se tenait à la pointe de l'épée.
 
-En voyant la statue, Li Yuan fut transporté par l'excitation et accéléra inconsciemment le pas. Il s'élança et atteignit la statue en un clin d'œil. Debout devant cette sculpture de plus de trente mètres de haut, ses yeux étaient noyés de tristesse.
+En voyant la statue, Li Yuan fut transporté par l'excitation et accéléra inconsciemment le pas. Il s'élança et atteignit la statue en un clin d'œil. Debout devant cette sculpture de plus de cent pieds de haut, ses yeux étaient noyés de tristesse.
 
 Wang Lin atteignit également le sommet et contempla la statue. Une aura naturelle émanait de la pierre, dégageant une majesté solennelle ainsi qu'une subtile sensation de restriction.
 

@@ -14,7 +14,7 @@ Alors qu'il était assis, Wang Lin dévora l'âme originelle qu'il tenait en mai
 
 Un vent noir apparut instantanément. Il se mua en un dragon noir qui chargea l'homme en robe bleue. Le visage de ce dernier changea radicalement et il battit en retraite précipitamment. Cependant, à cet instant précis, le dragon noir ouvrit la gueule et cracha un souffle de vent noir et glacial.
 
-Le rugissement du vent emplit le monde. Les yeux de l'homme en robe bleue s'obscurcirent alors qu'il luttait désespérément. Il ne remarqua pas qu'une faille spatiale de dix mètres de long s'était ouverte derrière lui; en reculant, il fit un pas directement dans la déchirure.
+Le rugissement du vent emplit le monde. Les yeux de l'homme en robe bleue s'obscurcirent alors qu'il luttait désespérément. Il ne remarqua pas qu'une faille spatiale de plus de trente pieds de long s'était ouverte derrière lui; en reculant, il fit un pas directement dans la déchirure.
 
 Son corps disparut sans laisser de trace, emporté par un hurlement de désespoir. Seul ce cri de détresse continua de résonner à travers le vide.
 
@@ -44,11 +44,11 @@ L'effondrement du Royaume Céleste du Tonnerre atteignit son paroxysme alors que
 
 Le fracas des fragments célestes en pleine désintégration continuait de résonner.
 
-Plus ils approchaient de l'intérieur du Royaume Céleste, plus la situation devenait critique. Le vide tout entier était lacéré de fissures. Certaines s'étiraient et se rejoignaient pour former des déchirures dépassant les 330 mètres.
+Plus ils approchaient de l'intérieur du Royaume Céleste, plus la situation devenait critique. Le vide tout entier était lacéré de fissures. Certaines s'étiraient et se rejoignaient pour former des déchirures dépassant les mille pieds.
 
 Le regard de Wang Lin devint sérieux alors qu'il maniait le fragment. À cet instant précis, ses yeux s'écarquillèrent: le fragment sous ses pieds effectua un virage brusque en courbe.
 
-Au moment de cette manœuvre, une immense faille spatiale d'environ 660 mètres apparut. De nombreux cultivateurs qui suivaient ne purent réagir à temps, et des vagues de cris de détresse furent englouties par la déchirure.
+Au moment de cette manœuvre, une immense faille spatiale d'environ deux mille pieds apparut. De nombreux cultivateurs qui suivaient ne purent réagir à temps, et des vagues de cris de détresse furent englouties par la déchirure.
 
 Wang Lin était totalement absorbé par le contrôle du fragment et n'eut pas le temps de se soucier des autres. Il dirigea l'engin pour éviter la grande faille, mais son expression devint plus sombre encore.
 
@@ -94,7 +94,7 @@ Une fois le bruit passé, une série de craquements retentit alors que d'innombr
 
 Au même moment, les cultivateurs qui suivaient de près le fragment s'engouffrèrent tous par l'ouverture.
 
-Le regard de Wang Lin devint glacial alors qu'il faisait reculer le fragment d'une dizaine de mètres. Sous les yeux de tous les cultivateurs alentour, il accéléra l'engin pour percuter une nouvelle fois l'écran de lumière.
+Le regard de Wang Lin devint glacial alors qu'il faisait reculer le fragment de quelques dizaines de pieds. Sous les yeux de tous les cultivateurs alentour, il accéléra l'engin pour percuter une nouvelle fois l'écran de lumière.
 
 De nouvelles fissures apparurent et se répandirent partout. La luminosité de l'écran commença à faiblir.
 

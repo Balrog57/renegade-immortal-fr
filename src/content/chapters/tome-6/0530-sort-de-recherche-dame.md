@@ -88,26 +88,26 @@ L'âme originelle ricana: « Homme sans vergogne. D'abord, tu me forces à rival
 
 Wang Lin fronça les sourcils et serra le poing droit. L'âme poussa une série de cris déchirants et s'affaiblit, mais le regard de l'homme restait venimeux.
 
-L'âme ricana de nouveau en fixant Wang Lin: « Moi, Lou Yun, suis un disciple de la Secte Tian Gui. Je cultive la voie du fantôme céleste et possède naturellement mon propre esprit fantomatique. Si tu me tues, mon maître, le Daoïste Fantôme, le saura et se vengera! C'est un être avec qui même Tian Yunzi discute d'égal à égal! Wang Lin, as-tu bien réfléchi aux conséquences!?!? »
+L'âme ricana de nouveau en fixant Wang Lin: « Moi, Luo Yun, suis un disciple de la Secte Tian Gui. Je cultive la voie du fantôme céleste et possède naturellement mon propre esprit fantomatique. Si tu me tues, mon maître, le Daoïste Fantôme, le saura et se vengera! C'est un être avec qui même Tian Yunzi discute d'égal à égal! Wang Lin, as-tu bien réfléchi aux conséquences!?!? »
 
 Wang Lin le regarda froidement. Perdant patience, il leva la main gauche et frappa l'âme originelle. Cette dernière, ayant déjà perdu son corps, faillit s'effondrer sous la violence du coup.
 
-« Mon maître ne te pardonnera pas! » La férocité dans les yeux de Lou Yun atteignit son paroxysme.
+« Mon maître ne te pardonnera pas! » La férocité dans les yeux de Luo Yun atteignit son paroxysme.
 
 Le regard de Wang Lin se glaça. Sa main gauche pressa le front de l'être et il murmura: « Recherche d'âme! »
 
 Il existait de nombreuses restrictions à ce sort, mais avec le niveau de culture actuel de Wang Lin et l'usage de l'énergie spirituelle céleste, la tâche n'était guère difficile. De plus, l'âme originelle étant déjà affaiblie, elle ne put opposer aucune résistance.
 
-Des hurlements de douleur s'échappèrent de la bouche de Lou Yun. Le sort de recherche d'âme était une technique tyrannique et destructrice. Lorsqu'il est utilisé sur un être corporel, la douleur est atténuée, mais lorsqu'il frappe directement une âme originelle, elle est multipliée plusieurs fois.
+Des hurlements de douleur s'échappèrent de la bouche de Luo Yun. Le sort de recherche d'âme était une technique tyrannique et destructrice. Lorsqu'il est utilisé sur un être corporel, la douleur est atténuée, mais lorsqu'il frappe directement une âme originelle, elle est multipliée plusieurs fois.
 
-Les cris de Lou Yun s'étouffèrent progressivement. Au bout d'un temps équivalent à la combustion d'un bâton d'encens, ses hurlements cessèrent et son âme originelle devint presque transparente.
+Les cris de Luo Yun s'étouffèrent progressivement. Au bout d'un temps équivalent à la combustion d'un bâton d'encens, ses hurlements cessèrent et son âme originelle devint presque transparente.
 
-Wang Lin leva la main gauche et plongea directement dans le dantian de Lou Yun. Lorsqu'il la retira, un cristal reposait au creux de sa paume.
+Wang Lin leva la main gauche et plongea directement dans le dantian de Luo Yun. Lorsqu'il la retira, un cristal reposait au creux de sa paume.
 
-Wang Lin afficha une expression pensive avant de sceller l'âme originelle de Lou Yun dans l'étendard d'âme. Il avait un usage pour elle: il prévoyait d'affiner cette âme pour en faire l'une des âmes primaires de son étendard.
+Wang Lin afficha une expression pensive avant de sceller l'âme originelle de Luo Yun dans l'étendard d'âme. Il avait un usage pour elle: il prévoyait d'affiner cette âme pour en faire l'une des âmes primaires de son étendard.
 
 Une fois l'âme rangée, le corps de Wang Lin s'élança comme l'éclair vers l'horizon, suivant la direction prise par les âmes primaires pour traquer le fantôme céleste.
 
 « Ainsi, cette terre d'esprits démoniaques recèle de tels secrets. Pas étonnant qu'Ouyang Hua ait dit qu'un bain de sang se déversait à chaque arrivée d'étrangers... »
 
-« La Secte Tian Gui... Bien que Lou Yun ait exagéré, ses paroles contiennent une part de vérité. Cependant, cette affaire pourra être réglée dans cinq cents ans; il n'y a pas lieu de s'en préoccuper pour l'instant. Les méthodes de cette secte sont intéressantes, et les sorts de restriction démoniaque dans les souvenirs de Lou Yun pourraient m'être utiles! »
+« La Secte Tian Gui... Bien que Luo Yun ait exagéré, ses paroles contiennent une part de vérité. Cependant, cette affaire pourra être réglée dans cinq cents ans; il n'y a pas lieu de s'en préoccuper pour l'instant. Les méthodes de cette secte sont intéressantes, et les sorts de restriction démoniaque dans les souvenirs de Luo Yun pourraient m'être utiles! »

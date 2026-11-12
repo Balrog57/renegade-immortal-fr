@@ -23,7 +23,7 @@ Toutefois, l'énergie démoniaque locale était si puissante qu'un seul pilier n
 
 Dans cet espace de 50 kilomètres, tout était saturé d'énergie spirituelle céleste, tandis qu'au-delà, l'énergie démoniaque régnait en maître. Un équilibre fut instauré: l'énergie céleste ne pouvait s'étendre, et l'énergie démoniaque ne pouvait l'envahir.
 
-À ce moment précis, Ling Tianhou, un homme vêtu de pourpre, et le célèbre Maître du Vide étaient assis au centre de la formation dans la troisième grotte. Les yeux de Ling Tianhou s'ouvrirent, brillant d'un éclat vif. Sans hésiter, il tendit sa main droite et une fissure apparut. Une épaisse fumée verte s'en échappa, laissant apparaître lentement la clé de la grotte.
+À ce moment précis, Ling Tianhou, un homme vêtu de pourpre, et le célèbre Xu Kongzi étaient assis au centre de la formation dans la troisième grotte. Les yeux de Ling Tianhou s'ouvrirent, brillant d'un éclat vif. Sans hésiter, il tendit sa main droite et une fissure apparut. Une épaisse fumée verte s'en échappa, laissant apparaître lentement la clé de la grotte.
 
 « Il lui a fallu moins de sept jours pour ouvrir la quatrième grotte. J'avais déjà surestimé Wang Lin, mais il semble que je l'ai encore sous-estimé... J'ai passé près d'un mois pour ouvrir la troisième... » songea Ling Tianhou tout en pointant la pierre noire située au centre de la formation sous ses pieds.
 

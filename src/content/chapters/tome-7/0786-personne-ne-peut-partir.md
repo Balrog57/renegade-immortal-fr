@@ -48,7 +48,7 @@ Ce membre était tout simplement trop singulier. Dès qu'il l'avait vu, il n'ava
 
 Le Coup Céleste projeta un rayon d'énergie de l'épée. En tombant, elle sembla trancher les lois mêmes du monde, faisant trembler violemment le vide. Une longue fissure spatiale apparut soudainement et fonça droit sur le bras sectionné.
 
-Le membre s'arrêta net en plein vol, commença à former un sceau et le pressa contre la fissure spatiale. Cela provoqua un fracas immédiat, et tout ce qui se trouvait dans un rayon de 330 mètres autour du bras sembla s'effondrer.
+Le membre s'arrêta net en plein vol, commença à former un sceau et le pressa contre la fissure spatiale. Cela provoqua un fracas immédiat, et tout ce qui se trouvait dans un rayon de mille pieds autour du bras sembla s'effondrer.
 
 Une lueur froide passa dans les yeux de Wang Lin. D'un geste du doigt, il fit jaillir à nouveau le sceau fragmentaire. Cette fois, la vitesse fut telle qu'il s'abattit instantanément sur le bras sectionné.
 

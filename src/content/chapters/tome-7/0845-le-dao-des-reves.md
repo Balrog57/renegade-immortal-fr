@@ -78,7 +78,7 @@ Wang Lin était plongé dans l'incertitude alors qu'il cherchait la preuve de so
 
 « Quoi... est le Dao... » Dans cet état étrange, il sentit son corps se dissiper lentement pour ne faire qu'un avec la planète Qing Ling. C'était comme s'il était devenu la planète elle-même.
 
-Dans la jungle dense, un python de 10 mètres de long s'enroula autour d'une petite bête qui passait par là. Alors que son corps massif se resserrait légèrement, le craquement des os résonna à l'intérieur de la proie. Juste au moment où le python allait dévorer la bête, son corps trembla soudainement.
+Dans la jungle dense, un python long de trente pieds s'enroula autour d'une petite bête qui passait par là. Alors que son corps massif se resserrait légèrement, le craquement des os résonna à l'intérieur de la proie. Juste au moment où le python allait dévorer la bête, son corps trembla soudainement.
 
 Il leva sa grosse tête pour regarder au loin. La froideur dans ses yeux disparut, remplacée par de la confusion.
 

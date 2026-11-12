@@ -17,7 +17,7 @@ Il tendit sa main droite et saisit l'enfant à distance. Sa paume frappa ensuite
 
 Le membre du Clan Ju Mo à ses côtés afficha une expression respectueuse et répondit: « À vos ordres! »
 
-Tout en parlant, il se retourna brusquement et fixa Wang Lin avec une intention meurtrière. Il fit un pas en avant, ferma le poing et s'approcha avec un sourire narquois. Alors qu'il chargeait, la main droite de ce colosse nommé Sun Gouzi forma un sceau et un vaste océan apparut sous ses pieds. Une vague immense s'éleva de l'océan sur 330 mètres à la ronde, et le géant sembla arriver en chevauchant cette lame d'eau.
+Tout en parlant, il se retourna brusquement et fixa Wang Lin avec une intention meurtrière. Il fit un pas en avant, ferma le poing et s'approcha avec un sourire narquois. Alors qu'il chargeait, la main droite de ce colosse nommé Sun Gouzi forma un sceau et un vaste océan apparut sous ses pieds. Une vague immense s'éleva de l'océan sur mille pieds à la ronde, et le géant sembla arriver en chevauchant cette lame d'eau.
 
 « Petit, accepte la mort! » Alors qu'il projetait sa main droite, l'océan parut bouillir pour se concentrer sur son geste. Il se transforma en un dragon de mer qui chargea Wang Lin dans un rugissement.
 

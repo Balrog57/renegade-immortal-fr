@@ -106,7 +106,7 @@ Planète Suzaku, pays de culture de rang 5 de Zhao, Secte He Huan. Une belle fem
 
 L'endroit où elle pratiquait était réservé aux disciples internes de la secte; l'énergie spirituelle y était bien plus dense qu'à l'extérieur. Alors qu'elle était absorbée par sa culture, un rire parvint de l'entrée de la grotte.
 
-« Junior Sister Zhang, n'oublie pas ta promesse! Puisque je t'ai laissé cultiver dans ma grotte pendant un mois, tu devras être ma partenaire de culture pendant trois jours! Plus que quatre jours avant la fin du mois! » Cette voix était empreinte d'une intention moqueuse. Après le rire, la voix s'éloigna progressivement.
+« Junior sœur Zhang, n'oublie pas ta promesse! Puisque je t'ai laissé cultiver dans ma grotte pendant un mois, tu devras être ma partenaire de culture pendant trois jours! Plus que quatre jours avant la fin du mois! » Cette voix était empreinte d'une intention moqueuse. Après le rire, la voix s'éloigna progressivement.
 
 La femme ouvrit les yeux et soupira. Elle n'était qu'une disciple extérieure de la Secte He Huan. L'énergie spirituelle à l'extérieur était trop ténue pour lui permettre d'atteindre le neuvième niveau de Condensation de Qi; elle ne pouvait espérer sa percée qu'ici.
 

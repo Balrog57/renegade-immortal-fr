@@ -78,11 +78,11 @@ Sa main droite forma un sceau, il pointa le ciel et ordonna: « Invoquez la plui
 
 Peu après, une force invisible sembla émaner du doigt de Wang Lin. En un instant, toute la pluie située dans un rayon de dizaines de milliers de kilomètres fut enveloppée par cette force et s'immobilisa.
 
-Même la nouvelle pluie formée par les nuages ne tombait plus. Toutes les gouttes de pluie restèrent figées dans diverses positions dans l'air. Même si elles n'étaient qu'à 3,3 centimètres du sol ou d'un avant-toit, elles demeuraient immobiles.
+Même la nouvelle pluie formée par les nuages ne tombait plus. Toutes les gouttes de pluie restèrent figées dans diverses positions dans l'air. Même si elles n'étaient qu'à un pouce du sol ou d'un avant-toit, elles demeuraient immobiles.
 
 Chaque goutte de pluie contenait une force étrange.
 
-Une énergie originelle infinie se rassembla instantanément pour pénétrer chaque goutte. À cet instant, le monde s'illumina, et la poussée d'énergie originelle choqua tous les puissants cultivateurs de la Cité aux Yeux Fantômes.
+Une énergie originelle infinie se rassembla instantanément pour pénétrer chaque goutte. À cet instant, le monde s'illumina, et la poussée d'énergie originelle choqua tous les puissants cultivateurs de la Cité Gui Yan.
 
 Les trois frères Chen levèrent les yeux vers le ciel, stupéfaits.
 
@@ -94,7 +94,7 @@ Le fracas de la tempête résonna dans le ciel. Le Sens Divin de Wang Lin se pro
 
 Chaque avatar déployait son propre Sens Divin; bien que cela n'augmentât pas la portée globale, cela rendait sa recherche infiniment plus précise.
 
-Alors que son Sens Divin balayait la zone, les yeux de Wang Lin s'illuminèrent et se fixèrent sur une vallée située à des milliers de kilomètres à l'ouest de la Cité aux Yeux Fantômes.
+Alors que son Sens Divin balayait la zone, les yeux de Wang Lin s'illuminèrent et se fixèrent sur une vallée située à des milliers de kilomètres à l'ouest de la Cité Gui Yan.
 
 Il fit un pas, provoquant un grondement puissant. Wang Lin se transforma en un éclair et chargea vers la vallée lointaine.
 

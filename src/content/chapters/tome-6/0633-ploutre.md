@@ -14,7 +14,7 @@ Les cultivateurs excellaient dans l'art de ralentir leur vieillissement physique
 
 Comparée à cette femme, l'autre semblait un peu ordinaire. Ses longs cheveux drapés sur son épaule lui donnaient un air de fragilité. Sa silhouette gracile laissait croire qu'elle pourrait être emportée par une simple brise. Elle portait du rose, ce qui contrastait avec son visage extrêmement pâle. Face à la femme éclatante, elle paraissait moins éblouissante, mais semblait plus délicate.
 
-Un jeune homme vêtu d'une robe rouge se tenait aux côtés des deux femmes. Il dit d'un ton doux: « Mes deux jeunes sœurs de discipline, cet endroit est la chaîne de montagnes de la Mer Yun, dans le Pays Shui Yao. Autrefois, j'ai découvert ce lieu par accident et j'y ai séjourné quelque temps. Bien que votre frère aîné ne soit pas encore monté au Royaume Céleste, je suis convaincu que cette Mer Yun est d'un niveau supérieur à celui du Royaume Céleste. Frère Murong, qu'en pensez-vous? »
+Un jeune homme vêtu d'une robe rouge se tenait aux côtés des deux femmes. Il dit d'un ton doux: « Mes deux Junior sœurs, cet endroit est la chaîne de montagnes de la Mer Yun, dans le Pays Shui Yao. Autrefois, j'ai découvert ce lieu par accident et j'y ai séjourné quelque temps. Bien que votre frère aîné ne soit pas encore monté au Royaume Céleste, je suis convaincu que cette Mer Yun est d'un niveau supérieur à celui du Royaume Céleste. Frère Murong, qu'en pensez-vous? »
 
 Ce jeune homme était plutôt beau et dégageait un certain orgueil, comme s'il était un fils favori des cieux.
 
@@ -22,9 +22,9 @@ Un autre homme, vêtu de noir, répondit froidement: « Passable! » Son express
 
 Le jeune homme en robe rouge sourit. Il s'était habitué depuis longtemps au parler concis de l'autre.
 
-« Je crois que le frère aîné Du n'est pas resté ici pour la Mer Yun », dit la femme éclatante en serrant les lèvres avec un sourire.
+« Je crois que le Senior frère Du n'est pas resté ici pour la Mer Yun », dit la femme éclatante en serrant les lèvres avec un sourire.
 
-Le jeune homme en robe rouge sourit à nouveau: « Je ne vous mentirai pas, petite sœur Zhao. Lorsque j'étais à la Mer Yun, j'ai découvert une fissure dans le sol. Je crains qu'il ne s'agisse de l'entrée du légendaire Abîme Chao Xi. »
+Le jeune homme en robe rouge sourit à nouveau: « Je ne vous mentirai pas, Junior sœur Zhao. Lorsque j'étais à la Mer Yun, j'ai découvert une fissure dans le sol. Je crains qu'il ne s'agisse de l'entrée du légendaire Abîme Chao Xi. »
 
 Les yeux de la femme nommée Zhao s'emplirent de convoitise. Alors qu'elle s'apprêtait à reprendre la parole, le jeune homme en noir ouvrit soudainement les yeux et scruta l'horizon.
 
@@ -32,7 +32,7 @@ Le regard de l'homme en noir s'illumina: « Très puissant! »
 
 Un rayon de lumière apparut à l'horizon et se mua en un jeune homme vêtu de blanc. Son apparence était ordinaire, sans rien de particulier. Il flottait dans les airs sans même accorder un regard aux quatre personnes en dessous de lui. Il observa froidement les nuages, puis fit un pas.
 
-« C'est lui! » Le jeune homme en robe rouge fut frappé de stupeur en le voyant, et une pointe de peur apparut dans ses yeux. Il réalisa que la culture de cet individu avait déjà atteint le stade Ascendant! Ses pensées s'emballèrent avant qu'il ne reprenne son sourire: « Jeune frère Wang, veuillez patienter! »
+« C'est lui! » Le jeune homme en robe rouge fut frappé de stupeur en le voyant, et une pointe de peur apparut dans ses yeux. Il réalisa que la culture de cet individu avait déjà atteint le stade Ascendant! Ses pensées s'emballèrent avant qu'il ne reprenne son sourire: « Junior frère Wang, veuillez patienter! »
 
 Le jeune homme en blanc était Wang Lin. Il s'arrêta et se retourna pour observer les quatre individus. Il ne regarda pas d'abord les deux femmes ni le jeune homme en robe rouge, mais fixa l'homme en noir.
 
@@ -40,13 +40,13 @@ Le jeune homme en blanc était Wang Lin. Il s'arrêta et se retourna pour observ
 
 Parmi les quatre, hormis l'homme en noir, les trois autres étaient tous des cultivateurs au sommet du stade de la Transformation de l'Âme. Cependant, l'homme de la Division Rouge avait manifestement déjà un pied dans le stade Ascendant et pouvait l'atteindre à tout moment. Il craignait probablement l'épreuve de vie ou de mort liée à ce passage, c'est pourquoi il n'avait jamais franchi le pas!
 
-L'homme en robe rouge dit: « Jeune frère, mon nom est Du Jian. » Après une courte réflexion, il réalisa que Wang Lin ne connaissait probablement pas son nom.
+L'homme en robe rouge dit: « Junior frère, mon nom est Du Jian. » Après une courte réflexion, il réalisa que Wang Lin ne connaissait probablement pas son nom.
 
-Wang Lin joignit les mains: « Salutations, frère aîné Du. »
+Wang Lin joignit les mains: « Salutations, Senior frère Du. »
 
-Du Jian sourit et désigna l'homme en noir: « Frère Wang, voici Murong Zhuo de la Secte Shui Mo. Quant à ces deux-là, ce sont des compagnons de culture de la Secte Fu Yun. »
+Du Jian sourit et désigna l'homme en noir: « Frère Wang, voici Murong Zhuo de la Secte Mo. Quant à ces deux-là, ce sont des compagnons de culture de la Secte Fu Yun. »
 
-L'homme vêtu de noir, Murong Zhuo, observa attentivement Wang Lin avant de joindre les mains: « Compagnon de culture Wang, je suis Murong Zhuo, disciple de la quatrième génération de la Secte Shui Mo! »
+L'homme vêtu de noir, Murong Zhuo, observa attentivement Wang Lin avant de joindre les mains: « Compagnon de culture Wang, je suis Murong Zhuo, disciple de la quatrième génération de la Secte Mo! »
 
 Lorsque Murong Zhuo eut fini de parler, Du Jian et les deux femmes furent stupéfaits. Ils n'avaient jamais vu Murong Zhuo prononcer plus de cinq mots d'un trait; son identité de solitaire était profondément ancrée dans leurs esprits.
 
@@ -54,23 +54,23 @@ Même face à un compagnon au milieu du stade Ascendant, ce Murong Zhuo n'avait 
 
 Surtout, ses paroles consistaient en une présentation de soi. Les trois autres cultivaient depuis longtemps et, pour avoir atteint ce niveau, aucun d'eux n'était stupide. Ces quelques mots simples révélaient un respect entre pairs.
 
-La femme éclatante nommée Zhao regarda Wang Lin de ses beaux yeux et sourit: « Frère aîné Wang, voici la petite sœur Zhao Yixuan, et voici ma jeune sœur de discipline, Xu Fei. »
+La femme éclatante nommée Zhao regarda Wang Lin de ses beaux yeux et sourit: « Senior frère Wang, voici la petite sœur Zhao Yixuan, et voici ma Junior sœur, Xu Fei. »
 
-« Xu Fei... » Ce simple nom raviva certains souvenirs chez Wang Lin. Il ne put s'empêcher de dévisager la femme à l'allure fragile. Celle-ci s'inclina devant lui et dit doucement: « Xu Fei salue le frère aîné Wang. »
+« Xu Fei... » Ce simple nom raviva certains souvenirs chez Wang Lin. Il ne put s'empêcher de dévisager la femme à l'allure fragile. Celle-ci s'inclina devant lui et dit doucement: « Xu Fei salue le Senior frère Wang. »
 
 Du Jian lança un regard profond à Wang Lin et sourit.
 
-« Le jeune frère Wang connaît-il la sœur Xu? »
+« Le Junior frère Wang connaît-il la Junior sœur Xu? »
 
 Wang Lin secoua la tête: « Je ne la connais pas. C'est simplement que la sœur Xu porte le même nom qu'une membre de ma secte de jeunesse. »
 
-Du Jian eut un léger sourire. Il esquiva le sujet et demanda: « Jeune frère Wang, êtes-vous venu ici à cause de l'Abîme Chao Xi? »
+Du Jian eut un léger sourire. Il esquiva le sujet et demanda: « Junior frère Wang, êtes-vous venu ici à cause de l'Abîme Chao Xi? »
 
 Il ne chercha ni à simuler ou à tourner autour du pot; il était d'une grande franchise.
 
 L'expression de Wang Lin resta neutre lorsqu'il acquiesça: « Exactement! »
 
-Les yeux de Du Jian se plissèrent: « Jeune frère Wang, l'Abîme Chao Xi est extrêmement dangereux. Même au stade Ascendant, la tâche sera ardue. Nous quatre nous rendons également dans l'Abîme Chao Xi. Pourquoi ne pas nous accompagner? Au moins, nous pourrons nous entraider. »
+Les yeux de Du Jian se plissèrent: « Junior frère Wang, l'Abîme Chao Xi est extrêmement dangereux. Même au stade Ascendant, la tâche sera ardue. Nous quatre nous rendons également dans l'Abîme Chao Xi. Pourquoi ne pas nous accompagner? Au moins, nous pourrons nous entraider. »
 
 Wang Lin réfléchit un instant. Il connaissait les périls de l'Abîme Chao Xi. Avant de venir, il avait utilisé le cristal que Bei Luo lui avait donné pour sonder l'intérieur de l'abîme. Certains endroits étaient risqués à traverser, même avec sa culture actuelle.
 
@@ -122,4 +122,4 @@ Tandis qu'il volait, les yeux de Wang Lin s'illuminèrent et il afficha un souri
 
 Les cinq passèrent rapidement à travers les nuages. Bientôt, un ravin profond apparut devant eux.
 
-Ce ravin était extrêmement vaste; il mesurait plus de 33 mètres de large. Quant à sa longueur, elle atteignait 3,3 kilomètres, s'étirant à perte de vue dans la brume. Ce gouffre ressemblait à une gueule béante dissimulée dans le sol, comme si un sortilège l'avait tranché.
+Ce ravin était extrêmement vaste; il mesurait plus de cent pieds de large. Quant à sa longueur, elle atteignait dix mille pieds, s'étirant à perte de vue dans la brume. Ce gouffre ressemblait à une gueule béante dissimulée dans le sol, comme si un sortilège l'avait tranché.

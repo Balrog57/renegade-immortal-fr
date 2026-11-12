@@ -12,7 +12,7 @@ Une fois cela fait, il lança un regard glacial dans la direction où Xu Liguo s
 
 Le hurlement de Xu Liguo parvint de loin, mais ce gémissement s'estompa rapidement. Le regard de Wang Lin devint plus froid encore.
 
-« Comme je m'y attendais: à moins que ce démon de Xu Liguo n'ait eu la certitude de pouvoir résister à la restriction que je lui ai imposée il y a toutes ces années, il n'aurait certainement pas osé être aussi désobéissant! » Wang Lin fit un pas en avant et franchit plus de trois cents mètres d'une seule enjambée.
+« Comme je m'y attendais: à moins que ce démon de Xu Liguo n'ait eu la certitude de pouvoir résister à la restriction que je lui ai imposée il y a toutes ces années, il n'aurait certainement pas osé être aussi désobéissant! » Wang Lin fit un pas en avant et franchit mille pieds d'une seule enjambée.
 
 Bien que Xu Liguo ait réussi à résister à la restriction par quelque moyen inconnu, il ne pouvait rompre le lien qui l'unissait à Wang Lin. Sur cette seule base, Wang Lin pouvait le capturer.
 
@@ -32,7 +32,7 @@ Initialement, il faisait preuve d'une immense fierté, mais il avait sous-estim�
 
 Une pointe de tristesse traversa Xu Liguo avant qu'il ne se retourne. Alors qu'il s'apprêtait à poursuivre sa fuite, il s'arrêta soudainement. Son expression changea légèrement, mais il afficha aussitôt un visage empreint de flatterie pour plaire à son maître. « Ma... Maître, votre vitesse est incroyable. Il semble que votre culture ait énormément progressé. Vous êtes véritablement digne d'être mon maître. Je... »
 
-Wang Lin apparut à trente mètres devant Xu Liguo, le visage empreint d'indifférence.
+Wang Lin apparut à cent pieds devant Xu Liguo, le visage empreint d'indifférence.
 
 Wang Lin dit lentement: « Quel culot! »
 
@@ -54,7 +54,7 @@ Le fracas du métal retentit une nouvelle fois, et la lame noire fut de nouveau 
 
 « Intéressant! » Les yeux de Wang Lin s'illuminèrent. Grâce à l'aide des sceaux de vie, affronter cette lame pour la deuxième fois était bien plus facile que la première fois, jadis.
 
-Alors que la lame noire fonçait vers Xu Liguo, Wang Lin fit un pas, et l'énergie spirituelle céleste se propagea instantanément autour de son pied, prenant celui-ci pour centre. Cette énergie s'étendit sur plus de trois cents mètres, entrant en résonance avec le sceau à l'intérieur du corps de Xu Liguo, ce qui figea ce dernier sur place.
+Alors que la lame noire fonçait vers Xu Liguo, Wang Lin fit un pas, et l'énergie spirituelle céleste se propagea instantanément autour de son pied, prenant celui-ci pour centre. Cette énergie s'étendit sur mille pieds, entrant en résonance avec le sceau à l'intérieur du corps de Xu Liguo, ce qui figea ce dernier sur place.
 
 Xu Liguo semblait porter un immense regret pour ses actes, mais intérieurement, il maudissait Wang Lin de toutes ses forces. Cela ne lui servait pourtant à rien.
 

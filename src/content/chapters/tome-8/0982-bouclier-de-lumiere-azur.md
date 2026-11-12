@@ -14,7 +14,7 @@ Dès qu'il toucha la marque, une puissante force répulsive en jaillit. Cette fo
 
 Le bouclier de lumière azur trembla et la marque du dragon brilla intensément. La lueur de la marque atteignit son apogée et se métamorphosa en un dragon azur!
 
-Le corps du dragon mesurait 33 mètres de long et occupait plus de la moitié du palais. Ses écailles étaient magnifiques et sa silhouette, enroulée sur elle-même, dégageait une grande dignité. Il ouvrit la gueule, poussa un rugissement et tenta d'engloutir Wang Lin.
+Le corps du dragon mesurait environ cent pieds de long et occupait plus de la moitié du palais. Ses écailles étaient magnifiques et sa silhouette, enroulée sur elle-même, dégageait une grande dignité. Il ouvrit la gueule, poussa un rugissement et tenta d'engloutir Wang Lin.
 
 « Espèce de bête maudite! » Les yeux de Wang Lin devinrent froids tandis qu'il tendait sa main droite. Une tempête jaillit et balaya le dragon. Il saisit l'être d'azur et s'apprêta à l'écraser.
 
@@ -68,9 +68,9 @@ Dès sa sortie, l'aura d'Ancien Dieu contenue dans le bouclier jaillit totalemen
 
 L'infinie aura d'Ancien Dieu se déversa et forgea une gigantesque illusion divine qui apparut au monde. Cette silhouette était floue, ses étoiles tournoyant à une vitesse vertigineuse. Il était impossible de déterminer combien d'étoiles cet Ancien Dieu possédait!
 
-À cet instant, le bouclier qui n'avait été que de la taille de sa main grandit instantanément pour atteindre une dizaine de mètres. Et de toute évidence, il continuait de croître.
+À cet instant, le bouclier qui n'avait été que de la taille de sa main grandit instantanément pour atteindre plusieurs dizaines de pieds. Et de toute évidence, il continuait de croître.
 
-À mesure qu'il s'étendait, une aura colossale se propageait. Le bouclier, parti de sa petite taille, dépassa les trois cent trente mètres de large. Puis, une pression inimaginable s'abattit sur le monde.
+À mesure qu'il s'étendait, une aura colossale se propageait. Le bouclier, parti de sa petite taille, atteignit mille pieds de large. Puis, une pression inimaginable s'abattit sur le monde.
 
 Au loin, les trois frères Chen avaient déjà remarqué la scène et accouraient. La stupeur se lisait dans leurs yeux; à leurs yeux, Wang Lin était devenu un être d'une puissance incroyable.
 
@@ -100,7 +100,7 @@ Il n'aurait pas osé l'utiliser si tôt; il ne l'avait sorti que par nécessité
 
 « Ce Wang Lin n'est pas un homme ordinaire! Ce ne serait pas un tel déshonneur pour mon identité que de le suivre », soupira Maître Fu Fengzi.
 
-L'expression de Wang Lin était grave tandis qu'il fixait le bouclier en pleine expansion. Celui-ci était passé de plus de trois cents mètres à près de mille mètres.
+L'expression de Wang Lin était grave tandis qu'il fixait le bouclier en pleine expansion. Celui-ci était passé de plus de mille pieds à près de trois mille pieds.
 
 Vu de près, le bouclier ressemblait à une muraille. Son aspect était brut, mais nul n'oserait sous-estimer sa puissance!
 

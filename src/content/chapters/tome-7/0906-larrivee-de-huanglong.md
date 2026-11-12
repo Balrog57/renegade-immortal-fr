@@ -46,7 +46,7 @@ Il n'avait pas besoin d'un lieu pour stocker les âmes; il utilisait simplement 
 
 Dans son arrogance, Qing Shui avait baptisé sa création le sort céleste « Confinement »!
 
-Bien qu'il ait reçu l'Arsenal Magique, Wang Lin n'envisageait pas d'utiliser ni le royaume mystérieux, ni le Confinement. Il pensait que sa propre version de ce sort céleste devrait utiliser son propre Tao de la vie et de la mort pour former son propre cycle de réincarnation!
+Bien qu'il ait reçu l'Arsenal Magique, Wang Lin n'envisageait pas d'utiliser ni le royaume mystérieux, ni le Confinement. Il pensait que sa propre version de ce sort céleste devrait utiliser son propre Dao de la vie et de la mort pour former son propre cycle de réincarnation!
 
 À l'heure actuelle, ces momies éveillaient en lui une opportunité. Elles n'étaient pas dépourvues d'âmes; leurs âmes étaient piégées dans leurs âmes d'origine, lesquelles avaient fusionné avec leurs corps après avoir été emprisonnées durant d'innombrables années.
 
@@ -62,9 +62,9 @@ Cette rivière s'enroula autour de lui et bougea à ses côtés. Il fit un pas e
 
 Il exerçait son contrôle sur le tonnerre!
 
-Ce cri fut assourdissant. Bien qu'il se trouvât au 17e étage du Cimetière des Immortels, ce rugissement tonitruant provoqua un bouleversement inimaginable sur la planète Suzaku!
+Ce cri fut assourdissant. Bien qu'il se trouvât au 17e étage souterrain du Clan Xian Yi, ce rugissement tonitruant provoqua un bouleversement inimaginable sur la planète Suzaku!
 
-D'immenses nuages d'orage apparurent soudainement dans le ciel. Saturés d'éclairs, ils descendirent massivement, se dirigeant droit vers le Cimetière des Immortels.
+D'immenses nuages d'orage apparurent soudainement dans le ciel. Saturés d'éclairs, ils descendirent massivement, se dirigeant droit vers le gouffre du Clan Xian Yi.
 
 Le tonnerre était omniprésent. En s'accumulant, il remplit le gouffre profond du Clan Xian Yi. La fosse agissait comme un entonnoir, aspirant toute la foudre qui s'y précipitait.
 

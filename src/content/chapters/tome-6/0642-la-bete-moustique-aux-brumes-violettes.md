@@ -101,7 +101,7 @@ Cependant, peut-être à cause d'un séjour trop prolongé en ces lieux, la natu
 
 Un cri strident retentit du fond de l'essaim. Les deux moustiques en plein combat s'interrompirent un instant, mais leur férocité reprit le dessus. Ils ignorèrent le rugissement et poursuivirent leur lutte.
 
-Le cri strident retentit une seconde fois, et cette fois, l'essaim de moustiques se dispersa pour laisser place à un passage. Une bête moustique d'environ trente-trois mètres de long, parcourue de légères nuances violettes, s'en éleva lentement.
+Le cri strident retentit une seconde fois, et cette fois, l'essaim de moustiques se dispersa pour laisser place à un passage. Une bête moustique d'environ cent pieds de long, parcourue de légères nuances violettes, s'en éleva lentement.
 
 Bien que cette bête fût teintée de violet, la coloration était très ténue.
 

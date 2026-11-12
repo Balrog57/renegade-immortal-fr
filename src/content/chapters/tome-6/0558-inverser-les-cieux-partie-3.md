@@ -26,7 +26,7 @@ Yao Xixue ouvrit soudainement les yeux, terrassée par le choc. Elle voulut esqu
 
 Une force destructrice pénétra par ce point et s'engouffra dans ses méridiens, les pulvérisant sur son passage.
 
-Au même moment, le peu d'énergie spirituelle céleste qui lui restait fut dispersé par cette puissance dévastatrice. Conjuguée à la force de l'énergie d'épée de l'attaque précédente, elle fit cracher du sang à Yao Xixue et la projeta à dix mètres en arrière. Lorsqu'elle toucha le sol, un filet de gaz gris apparut entre ses sourcils, se transforma en sceau de vie et enveloppa son corps tout entier.
+Au même moment, le peu d'énergie spirituelle céleste qui lui restait fut dispersé par cette puissance dévastatrice. Conjuguée à la force de l'énergie d'épée de l'attaque précédente, elle fit cracher du sang à Yao Xixue et la projeta à trente pieds en arrière. Lorsqu'elle toucha le sol, un filet de gaz gris apparut entre ses sourcils, se transforma en sceau de vie et enveloppa son corps tout entier.
 
 Yao Xixue ne put contenir le sang qui coulait du coin de sa bouche lorsqu'elle hurla de toutes ses forces: « Wang Lin! »
 
@@ -160,9 +160,9 @@ Il déploya son sens divin et découvrit immédiatement que les environs étaien
 
 « Malheureusement, ils sont tous protégés par des sceaux très puissants. Sinon, je les aurais déterrés un par un! » Il regarda le chemin de jade avec regret.
 
-À environ 330 mètres devant lui se trouvait un immense fourneau à pilules. Des orifices de la taille d'un bras y étaient percés, et des panaches de fumée blanche s'en échappaient.
+À environ mille pieds devant lui se trouvait un immense fourneau à pilules. Des orifices de la taille d'un bras y étaient percés, et des panaches de fumée blanche s'en échappaient.
 
-À près d'un kilomètre du fourneau se dressait un pavillon à trois étages.
+À plusieurs milliers de pieds du fourneau se dressait un pavillon à trois étages.
 
 Wang Lin avança, s'arrêta près du fourneau et inspecta les orifices.
 

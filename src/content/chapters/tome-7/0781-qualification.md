@@ -14,7 +14,7 @@ Le temps s'écoula rapidement et, en un clin d'œil, des mois passèrent. À mes
 
 Une fois arrivés sur place, ils ne virent plus aucun autre cultivateur. L'endroit était plongé dans une obscurité totale et ne laissait présager aucune présence.
 
-Suspendu dans le vide, Wang Lin observa attentivement les environs. Dans les souvenirs du vieillard de la famille Yao, le fragment scellé contenant le Pavillon Cang Jue se trouvait précisément ici!
+Suspendu dans le vide, Wang Lin observa attentivement les environs. Dans les souvenirs du vieillard de la famille Yao, le fragment scellé contenant le Pavillon Cang Pin se trouvait précisément ici!
 
 Wang Lin demanda: « Frère Li, percevez-vous une anomalie en ce lieu? »
 
@@ -76,7 +76,7 @@ L'homme en robe noire avait le regard glacial. Il avait depuis longtemps remarqu
 
 Peu après, un éclair de tonnerre céleste surgit des cieux et fondit sur Wang Lin.
 
-« Ceci est le Royaume Céleste du Tonnerre, et le Pavillon Cang Jue appartient au Royaume Céleste. Pourquoi vos quatre grandes familles peuvent-elles venir, alors que moi, je ne le peux pas?! » Wang Lin laissa échapper un ricanement froid et chargea. Bien que le tonnerre céleste descendît sur lui, Wang Lin ne chercha nullement à l'esquiver. Son âme originelle surgit et dévora le tonnerre céleste.
+« Ceci est le Royaume Céleste du Tonnerre, et le Pavillon Cang Pin appartient au Royaume Céleste. Pourquoi vos quatre grandes familles peuvent-elles venir, alors que moi, je ne le peux pas?! » Wang Lin laissa échapper un ricanement froid et chargea. Bien que le tonnerre céleste descendît sur lui, Wang Lin ne chercha nullement à l'esquiver. Son âme originelle surgit et dévora le tonnerre céleste.
 
 La foudre enveloppa immédiatement son corps, lui conférant une apparence terrifiante.
 
@@ -86,7 +86,7 @@ L'homme en robe noire fut stupéfait et son expression se mua en une grimace som
 
 Le sceau du fragment s'écrasa avec une impétuosité stupéfiante. La pression était telle que l'homme en robe noire fut incapable de l'esquiver. À cet instant, le fragment percuta sa position.
 
-Les yeux de l'homme révélèrent un choc immense alors qu'il se mordait la langue pour cracher une large quantité de sang. Son corps émit une lueur sanglante et, au moment où le sceau du fragment s'abattait, il parvint à forcer le passage à travers la pression. Il réapparut à 330 mètres de là.
+Les yeux de l'homme révélèrent un choc immense alors qu'il se mordait la langue pour cracher une large quantité de sang. Son corps émit une lueur sanglante et, au moment où le sceau du fragment s'abattait, il parvint à forcer le passage à travers la pression. Il réapparut à mille pieds de là.
 
 Dès son retour, son visage était livide. Il lança un regard venimeux avant de se retourner et de partir sans dire un mot.
 
@@ -98,7 +98,7 @@ Les trois autres individus sur le pavillon ouvrirent les yeux. En un éclair, il
 
 Les trois restants étaient également au stade Corporel Yang. Désormais, quatre cultivateurs du stade Corporel Yang se tenaient là, leurs auras puissantes verrouillées sur Wang Lin. Une épaisse intention meurtrière imprégna l'air.
 
-Le regard de Wang Lin devint glacial et il déclara lentement: « Le Pavillon Cang Jue n'appartient pas à vos quatre familles. Laissez-moi passer et nous éviterons le combat. Sinon, même si je succombe, la moitié d'entre vous mourra! »
+Le regard de Wang Lin devint glacial et il déclara lentement: « Le Pavillon Cang Pin n'appartient pas à vos quatre familles. Laissez-moi passer et nous éviterons le combat. Sinon, même si je succombe, la moitié d'entre vous mourra! »
 
 L'un d'eux répondit froidement: « À moins d'atteindre le stade Scruteur du Nirvana, aucun étranger n'est qualifié pour entrer dans le pavillon! » Ils avaient naturellement perçu le niveau de culture de Wang Lin, et la scène précédente les avait grandement surpris. Cependant, étant quatre, ils ne craignaient pas son opposition.
 
@@ -120,7 +120,7 @@ Le regard de Wang Lin resta calme; il pointa le doigt en avant et s'écria: « F
 
 Instantanément, l'homme en robe noire et l'épée volante furent figés. Ignorant l'épée, Wang Lin avança sans hésiter. Il atteignit l'homme, pointa son doigt entre ses sourcils et une énergie originelle jaillit avec violence.
 
-Le corps de l'homme s'effondra aussitôt et son âme originelle fut projetée hors de lui. Paniqué, il tenta de fuir, mais le Fouet du Karma apparut soudainement. Le fouet cingla l'âme originelle, arrachant à l'homme un gémissement misérable tandis qu'une immense quantité d'énergie originelle se libérait.
+Le corps de l'homme s'effondra aussitôt et son âme originelle fut projetée hors de lui. Paniqué, il tenta de fuir, mais le Fouet Kunji apparut soudainement. Le fouet cingla l'âme originelle, arrachant à l'homme un gémissement misérable tandis qu'une immense quantité d'énergie originelle se libérait.
 
 Au même instant, l'autre cultivateur fondit sur lui avec sa gigantesque tornade, voulant manifestement entraver les actions de Wang Lin.
 
@@ -128,7 +128,7 @@ Wang Lin ne daigna même pas un regard à cet assaillant; l'os de bête sur le d
 
 Simultanément, Wang Lin frappa son sac de rangement et le Drapeau des Âmes d'un Milliard en sortit. Il se transforma en une vaste brume noire tentant d'engloutir l'homme en robe noire. Ce dernier s'apprêtait à résister, mais il aperçut alors l'âme originelle féroce de Xue Zu scintiller à l'intérieur du drapeau. Ce visage familier le terrifia et lui fit perdre tout contrôle. Il se retrouva aussitôt encerclé par la brume noire.
 
-Tout cela fut exécuté avec une précision chirurgicale. Après avoir capturé l'âme originelle de l'homme en robe noire, Wang Lin agita ses manches, propageant la brume noire sur un rayon de 330 mètres. Il fixa les trois survivants et dit d'un ton sombre: « Je veux entrer dans le Pavillon Cang Jue! »
+Tout cela fut exécuté avec une précision chirurgicale. Après avoir capturé l'âme originelle de l'homme en robe noire, Wang Lin agita ses manches, propageant la brume noire sur un rayon de mille pieds. Il fixa les trois survivants et dit d'un ton sombre: « Je veux entrer dans le Pavillon Cang Pin! »
 
 L'esprit des deux qui résistaient au sceau du fragment trembla. Avant qu'ils ne puissent réagir, un autre cri retentit. Ils virent le cultivateur de la tornade reculer précipitamment. L'os de bête dégageait une lueur fantomatique, libérant une aura monstrueuse et maléfique qui semblait saturer le monde.
 
@@ -138,7 +138,7 @@ Si Wang Lin réagissait ainsi, que dire des trois autres? Dès l'apparition de c
 
 Lorsque le regard de l'os de bête se posa sur lui, le visage du cultivateur devint livide et il recula aussitôt. Mais à cet instant précis, cette aura riche et maléfique réapparut.
 
-Les yeux du cultivateur furent envahis par la panique et sa main droite devint instantanément grise. La grisaille se propagea avec frénésie; face à l'urgence, il n'hésita pas à lever sa main gauche pour trancher directement son bras droit. Ignorant le sang qui jaillissait de partout, il recula de plus de 3,3 kilomètres et s'assit immédiatement en position de lotus.
+Les yeux du cultivateur furent envahis par la panique et sa main droite devint instantanément grise. La grisaille se propagea avec frénésie; face à l'urgence, il n'hésita pas à lever sa main gauche pour trancher directement son bras droit. Ignorant le sang qui jaillissait de partout, il recula à dix mille pieds et s'assit immédiatement en position de lotus.
 
 Bien qu'il eût amputé son propre bras, la grisaille ne disparut pas et se propagea depuis sa main gauche. Ses yeux étaient remplis de désespoir alors qu'il serrait les dents. Au moment où le gris recouvrit tout son corps, son âme originelle s'échappa, abandonnant son enveloppe charnelle.
 

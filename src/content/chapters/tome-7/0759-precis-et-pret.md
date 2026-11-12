@@ -40,7 +40,7 @@ Wang Lin fut très stupéfait par cela, mais en considérant la nature des restr
 
 Au cours de ce mois, Li Yuan avait placé des restrictions sur tous les points d'effondrement qu'il avait calculés à l'intérieur de l'espace de stockage. Il semblait même plus investi que Wang Lin dans le projet de comploter contre Xue Zu.
 
-Chaque fois qu'il pensait à la manière dont ses restrictions pourraient aider à tuer un dieu, la respiration de Li Yuan s'accélérait. Bien qu'il fût extrêmement vigilant, il possédait une faiblesse flagrante: sa confiance aveugle dans les restrictions de sa propre famille.
+Chaque fois qu'il pensait à la manière dont ses restrictions pourraient aider à tuer un Immortel, la respiration de Li Yuan s'accélérait. Bien qu'il fût extrêmement vigilant, il possédait une faiblesse flagrante: sa confiance aveugle dans les restrictions de sa propre famille.
 
 De plus, il avait réfléchi aux conséquences si Xue Zu ne mourait pas, et prit ainsi sa décision. Il n'apporterait qu'une aide secrète sans participer directement. Une fois ses arrangements terminés, il décida de se séparer de Wang Lin. Après tout, cette affaire était trop vaste, même s'il avait une dette envers lui.
 
@@ -78,4 +78,4 @@ Tout en ricanant, Wang Lin sortit la sphère de restriction contenant Yao Xixue.
 
 Une fois cela fait, Wang Lin fit un pas et entra dans le réseau de transfert. Dans un éclat de lumière, il disparut.
 
-« Xue Zu... Puisque vous refusez de me laisser partir, alors je ferai comme Li Yuan: j'essaierai de tuer un dieu! »
+« Xue Zu... Puisque vous refusez de me laisser partir, alors je ferai comme Li Yuan: j'essaierai de tuer un Immortel! »

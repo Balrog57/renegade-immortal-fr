@@ -15,7 +15,7 @@ Cependant, l'aura émanant de l'Armure de Cuir de l'Ancien Dieu fit onduler tous
 
 Le cuir chevelu de Wang Lin s'engourdit. Il était pris dans une situation inextricable: s'il retirait l'armure, son âme originelle s'effondrerait sous la force du rugissement; mais s'il la portait, il attirerait une multitude de petits Serpents aux yeux de lune.
 
-Après un soupir, l'expression de Wang Lin changea soudainement lorsqu'une aura glaciale émana du sol devant lui. Une fissure apparut brusquement et un Serpent aux yeux de lune d'une quarantaine de mètres de long se précipita vers lui. De son point de vue, la gueule béante de la créature ne visait pas simplement à dévorer l'aura de l'armure.
+Après un soupir, l'expression de Wang Lin changea soudainement lorsqu'une aura glaciale émana du sol devant lui. Une fissure apparut brusquement et un Serpent aux yeux de lune de plus de cent pieds de long se précipita vers lui. De son point de vue, la gueule béante de la créature ne visait pas simplement à dévorer l'aura de l'armure.
 
 Après mille ans de culture, Wang Lin n'avait pas pour habitude de se bercer d'illusions. Il ne croyait pas un instant que le Serpent aux yeux de lune allait le reconnaître comme son maître simplement à cause de l'aura de l'Ancien Dieu!
 
@@ -27,7 +27,7 @@ Le regard de Wang Lin devint encore plus froid. Il était fort probable que, tou
 
 Alors qu'il reculait, une aura plus glaciale encore enveloppa la zone. L'expression de Wang Lin devint plus sombre et il changea immédiatement de direction.
 
-Une fissure s'ouvrit dans la terre derrière lui et un Serpent aux yeux de lune de 330 mètres de long en jaillit. Cette créature avait tous ses tentacules enroulés autour de son corps et sa gueule grande ouverte, témoignant d'une excitation extrême. Une quantité phénoménale de substance visqueuse s'échappait de sa bouche alors qu'elle tentait de dévorer Wang Lin.
+Une fissure s'ouvrit dans la terre derrière lui et un Serpent aux yeux de lune de mille pieds de long en jaillit. Cette créature avait tous ses tentacules enroulés autour de son corps et sa gueule grande ouverte, témoignant d'une excitation extrême. Une quantité phénoménale de substance visqueuse s'échappait de sa bouche alors qu'elle tentait de dévorer Wang Lin.
 
 Wang Lin changea de trajectoire tandis que des bruits de craquement retentissaient de toutes parts. Plus de dix fissures apparurent et des Serpents aux yeux de lune de tailles diverses chargèrent vers lui.
 
@@ -39,7 +39,7 @@ Le cuir chevelu de Wang Lin s'engourdit alors qu'il était traqué par ces monst
 
 Alors que les Serpents aux yeux de lune se précipitaient pour dévorer Wang Lin, celui-ci afficha un regard féroce et un rugissement puissant résonna à travers le corps du Serpent aux yeux de lune. Sous l'effet de ce cri, tous les petits serpents qui chargeaient s'arrêtèrent net et reculèrent, créant ainsi un passage.
 
-Les yeux de Wang Lin se rétrécirent, mais à cet instant précis, des bruits de rupture retentirent. Un immense Serpent aux yeux de lune d'environ 33 kilomètres de long surgit soudainement du passage. Sa vitesse était prodigieuse et l'aura qu'il dégageait n'était pas moins puissante que celle de Xue Zu. Ce spectacle bouleversa l'expression de Wang Lin.
+Les yeux de Wang Lin se rétrécirent, mais à cet instant précis, des bruits de rupture retentirent. Un immense Serpent aux yeux de lune d'environ cent mille pieds de long surgit soudainement du passage. Sa vitesse était prodigieuse et l'aura qu'il dégageait n'était pas moins puissante que celle de Xue Zu. Ce spectacle bouleversa l'expression de Wang Lin.
 
 S'élançant avec une vélocité incroyable, le Serpent aux yeux de lune engloutit directement Wang Lin, avant de plonger rapidement sous terre pour disparaître. Tous les autres Serpents aux yeux de lune s'élancèrent à sa suite dans le lointain.
 

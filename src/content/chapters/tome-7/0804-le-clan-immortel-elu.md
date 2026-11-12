@@ -54,7 +54,7 @@ Wang Lin réfléchit un instant puis acquiesça. Il voulait voir de ses propres 
 
 Le vieil homme s'apprêtait à parler, quand soudain un cri retentit parmi la foule dans le ciel.
 
-« L'Ancêtre ne peut pas emmener cet individu au Fourneau Yin Mystérieux! » Cette voix, semblable au tonnerre, résonna à travers les cieux. Un homme d'environ 3,3 mètres de haut s'avança à travers le vide.
+« L'Ancêtre ne peut pas emmener cet individu au Fourneau Yin Mystérieux! » Cette voix, semblable au tonnerre, résonna à travers les cieux. Un homme d'environ dix pieds de haut s'avança à travers le vide.
 
 Le haut de son corps était recouvert de tatouages qui se propageaient pour presque tout masquer; même son cou et son visage étaient presque entièrement recouverts par ces marques.
 

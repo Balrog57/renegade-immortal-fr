@@ -18,7 +18,7 @@ Cette énergie spirituelle démoniaque ne se trouvait pas dans ses méridiens, m
 
 Cependant, ce garçon ne maîtrisait pas la technique de raffinage corporel, ce qui entraînait un immense gaspillage d'énergie spirituelle démoniaque. Treize ignorait également comment faire circuler cette énergie; ainsi, même en suivant la voie du raffinement corporel, il ne pourrait pas aller loin avant que son corps ne se rigidifie et ne meure.
 
-« Étrange. Il y a un an, le corps de Treize ne contenait aucune énergie spirituelle démoniaque, mais il en possède déjà presque deux étoiles. » Les yeux de Wang Lin s'illuminèrent. Il savait, d'après les souvenirs de Lou Yun, que trois étoiles composaient un rang, et que trois rangs équivalaient à la force d'un cultivateur de l'Établissement des Fondations.
+« Étrange. Il y a un an, le corps de Treize ne contenait aucune énergie spirituelle démoniaque, mais il en possède déjà presque deux étoiles. » Les yeux de Wang Lin s'illuminèrent. Il savait, d'après les souvenirs de Luo Yun, que trois étoiles composaient un rang, et que trois rangs équivalaient à la force d'un cultivateur de l'Établissement des Fondations.
 
 Il leva sa main droite et s'assit. Après un instant, ses yeux brillèrent, et son âme originelle jaillit pour pénétrer le front de Treize.
 
@@ -70,9 +70,9 @@ Ce n'est qu'une fois Treize parti que Wang Lin laissa échapper un soupir. En fi
 
 « S'il parvient à maîtriser la méthode de raffinement corporel du Clan Ju Mo, je lui enseignerai le premier stade de la Tactique de l'Ancien Dieu. S'il échoue, cela signifiera simplement qu'il n'est pas destiné à l'apprendre. »
 
-En un clin d'œil, deux années supplémentaires s'écoulèrent. Durant cette période, la Tribu de l'Affinement de l'Âme connut une croissance fulgurante. Sa taille ne cessa de croître, passant de 20 kilomètres à environ 150 kilomètres de large, et la tribu comptait désormais plus de 5 000 hommes.
+En un clin d'œil, deux années supplémentaires s'écoulèrent. Durant cette période, la Tribu Lian Hun connut une croissance fulgurante. Sa taille ne cessa de croître, passant de 20 kilomètres à environ 150 kilomètres de large, et la tribu comptait désormais plus de 5 000 hommes.
 
-Dans un rayon de 50 000 kilomètres, à l'exception de deux tribus de dix mille membres chacune, toutes les autres avaient été dévorées par la Tribu de l'Affinement de l'Âme.
+Dans un rayon de 50 000 kilomètres, à l'exception de deux tribus de dix mille membres chacune, toutes les autres avaient été dévorées par la Tribu Lian Hun.
 
 Au cours de ces deux ans, Wang Lin était intervenu à trois reprises pour neutraliser des individus puissants issus de tribus ennemies. Cependant, dans cette terre désolée, quelle que soit leur force, ils ne faisaient pas le poids face à lui.
 
@@ -94,13 +94,13 @@ Quatre ans auparavant, Wang Lin avait eu l'occasion d'y aller, mais il s'en éta
 
 Après quatre ans, Wang Lin pouvait enfin se rendre à la Cité Gu Yao sans inquiétude. Même s'il ne parvenait pas à y établir une assise solide, il aurait tout de même la capacité d'infléchir le cours des événements en sa faveur.
 
-Pour faciliter les communications, il passa un demi-mois à fabriquer deux jades de transmission vocale. Il en garda un sur lui et laissa l'autre au sein de la Tribu de l'Affinement de l'Âme. S'il n'avait pas manqué de matériaux, il aurait installé une formation de transfert dans la tribu afin de pouvoir y revenir instantanément.
+Pour faciliter les communications, il passa un demi-mois à fabriquer deux jades de transmission vocale. Il en garda un sur lui et laissa l'autre au sein de la Tribu Lian Hun. S'il n'avait pas manqué de matériaux, il aurait installé une formation de transfert dans la tribu afin de pouvoir y revenir instantanément.
 
 Cette fois, Wang Lin ne partirait pas seul. Deux jeunes l'accompagneraient, et l'un d'eux était Treize!
 
 L'autre s'appelait Hu Pao. Originaire d'une petite tribu, il avait déjà éveillé son énergie spirituelle démoniaque. Il possédait deux étoiles de cette énergie lorsqu'il rejoignit la tribu, étant alors le premier expert de son clan d'origine.
 
-Ouyang Hua l'avait personnellement capturé et contraint à boire la soupe de Séparation des Démons, faisant de lui un membre de la Tribu de l'Affinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
+Ouyang Hua l'avait personnellement capturé et contraint à boire la soupe de Séparation des Démons, faisant de lui un membre de la Tribu Lian Hun. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
 
 À l'heure actuelle, il avait déjà atteint le cinquième stade et possédait 93 drapeaux d'âme ainsi que 31 âmes primaires. Sa force actuelle n'était guère différente de celle d'un cultivateur de la Formation du Noyau.
 
@@ -114,4 +114,4 @@ Le respect que Hu Pao vouait à Wang Lin n'était pas moindre que celui de Treiz
 
 Quant à Treize, la robustesse de son corps avait atteint un degré stupéfiant. Même face à Hu Pao, il ne serait pas désavantagé. Cela tenait en grande partie à sa détermination et à ses efforts acharnés. Depuis qu'il avait obtenu la méthode de raffinement corporel, il avait passé de nombreux jours et nuits à cultiver. En matière de sérieux envers la culture, il était le premier de la tribu.
 
-Ce matin-là, au moment où le soleil s'élevait dans le ciel, Wang Lin sortit de la Tribu de l'Affinement de l'Âme, suivi par Hu Pao et Treize tels des gardes d'élite.
+Ce matin-là, au moment où le soleil s'élevait dans le ciel, Wang Lin sortit de la Tribu Lian Hun, suivi par Hu Pao et Treize tels des gardes d'élite.

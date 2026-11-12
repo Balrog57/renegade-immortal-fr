@@ -20,7 +20,7 @@ Quant à l'épée portant le sens divin de Wang Lin, alors qu'elle approchait du
 
 L'expression de Wang Lin changea et son sens divin quitta l'épée sans la moindre hésitation pour tenter de l'éviter. Cependant, cette déferlante était trop puissante; telle une inondation, elle frappa de plein fouet l'épée volante.
 
-La pointe de l'arme s'effondra centimètre par centimètre, jusqu'à la garde. Pourtant, le sens divin de Wang Lin réagit plus promptement encore: il abandonna l'épée en pleine désintégration pour esquiver.
+La pointe de l'arme s'effondra pouce par pouce, jusqu'à la garde. Pourtant, le sens divin de Wang Lin réagit plus promptement encore: il abandonna l'épée en pleine désintégration pour esquiver.
 
 Malgré cela, son sens divin fut tout de même touché par cette énergie originelle, et une grande partie de celui-ci se dissipa.
 
@@ -78,9 +78,9 @@ Qing Shui recula également. C'est alors que des rugissements étouffés provinr
 
 Alors qu'il rugissait, le tunnel se mit à trembler violemment et une crevasse gigantesque s'ouvrit au-dessus du passage. Une quantité massive de sang vert s'en déversa, accompagnée d'une aura maléfique infinie. Le rugissement devint plus intense encore, comme si quelque chose cherchait à jaillir de cette brèche.
 
-Les yeux de Qing Shui s'illuminèrent. Il interrompit sa retraite et chargea. Ses longs cheveux flottant au vent, ses mains formèrent un sceau tandis qu'il criait: « Domaine Sha Yu! »
+Les yeux de Qing Shui s'illuminèrent. Il interrompit sa retraite et chargea. Ses longs cheveux flottant au vent, ses mains formèrent un sceau tandis qu'il criait: « Domaine Sha Lu! »
 
-À l'instant où il parla, ses cheveux se dispersèrent d'eux-mêmes et un rayon de lumière rouge apparut sous ses pieds avant de se propager. Le Domaine Sha Yu était un sort que Qing Shui avait lui-même créé.
+À l'instant où il parla, ses cheveux se dispersèrent d'eux-mêmes et un rayon de lumière rouge apparut sous ses pieds avant de se propager. Le Domaine Sha Lu était un sort que Qing Shui avait lui-même créé.
 
 La lumière rouge sous ses pas était éblouissante; lorsqu'elle frappa le dragon doré, elle sembla presque altérer sa couleur.
 
@@ -96,9 +96,9 @@ Une aura d'une puissance inouïe explosa du dragon doré. Puis, fixant Qing Shui
 
 Sous l'effet de cette inversion, la zone sembla s'isoler pour devenir un monde à part entière! Même Yi Muzi et Wu Dongchan, qui combattaient au loin, reculèrent pour observer la scène.
 
-Un éclat de froideur passa dans les yeux de Qing Shui. Le Domaine Sha Yu sous ses pieds s'anima alors qu'il levait la main pour pointer le doigt vers le bas. Il murmura doucement: « Prison Terrestre! »
+Un éclat de froideur passa dans les yeux de Qing Shui. Le Domaine Sha Lu sous ses pieds s'anima alors qu'il levait la main pour pointer le doigt vers le bas. Il murmura doucement: « Prison Terrestre! »
 
-Les six sorts de l'Empereur Céleste Bai Fan constituaient les fondements de Qing Shui. Cependant, son talent exceptionnel lui avait permis de créer ses propres sorts célestes. Ils étaient tous basés sur son Domaine Sha Yu, visant à ouvrir un autre univers pour transformer la terre en prison!
+Les six sorts de l'Empereur Céleste Bai Fan constituaient les fondements de Qing Shui. Cependant, son talent exceptionnel lui avait permis de créer ses propres sorts célestes. Ils étaient tous basés sur son Domaine Sha Lu, visant à ouvrir un autre univers pour transformer la terre en prison!
 
 Partout où il passait, il créait une prison pour l'esprit!
 

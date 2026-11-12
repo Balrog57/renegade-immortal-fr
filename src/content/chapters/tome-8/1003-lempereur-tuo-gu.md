@@ -1,6 +1,6 @@
 ---
 n: 1003
-title: "L'Empereur Tuo Gu"
+title: "L'Empereur confie sa protégée"
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1003 - Emperor Tuo Gu

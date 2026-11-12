@@ -74,11 +74,11 @@ Wang Lin ne pourrait jamais oublier ce qu'il avait entendu lorsqu'il était entr
 
 Plus Wang Lin obtenait d'informations, plus il avait l'impression qu'un voile de brume se dressait devant lui, une brume qu'il ne parvenait pas à déchirer. Il regarda calmement Yao Xixue et demanda: « Comment les quatre grottes factices étaient-elles réparties entre eux à l'époque? »
 
-« Tian Yunzi et Ling Tianhou en ont chacun pris une. L'autre a été prise par le Couple Céleste Nuageux! À l'époque, le niveau de culture de mon père n'était pas assez élevé pour lutter contre les quatre d'entre eux pour les grottes factices. Cependant, sa chance fut grande et il parvint à découvrir l'existence de cette grotte. En fait, hormis mon père, tous pensent encore que cet endroit possède trois grottes factices et une vraie! »
+« Tian Yunzi et Ling Tianhou en ont chacun pris une. L'autre a été prise par le Couple Yun Xian! À l'époque, le niveau de culture de mon père n'était pas assez élevé pour lutter contre les quatre d'entre eux pour les grottes factices. Cependant, sa chance fut grande et il parvint à découvrir l'existence de cette grotte. En fait, hormis mon père, tous pensent encore que cet endroit possède trois grottes factices et une vraie! »
 
-« Le Couple Céleste Nuageux? » C'était la première fois que Wang Lin entendait ce nom.
+« Le Couple Yun Xian? » C'était la première fois que Wang Lin entendait ce nom.
 
-« Le Couple Céleste Nuageux vivait il y a des dizaines de milliers d'années. Ils ne sont pas partis de cet endroit comme les autres, mais ont décidé de cultiver à l'intérieur de leur grotte factice. C'est pourquoi, en dehors de très peu de gens, ils sont presque inconnus. Je n'ai entendu parler de ce couple que par mon père. » En disant cela, Yao Xixue laissa transparaître une trace d'envie et de mélancolie. Lorsqu'elle avait entendu parler de ce couple, elle traversait sa période de jeunesse. Même maintenant, un lambeau de ce rêve subsistait au fond de son cœur, et l'évocation de ce souvenir la plongeait dans une douce tristesse.
+« Le Couple Yun Xian vivait il y a des dizaines de milliers d'années. Ils ne sont pas partis de cet endroit comme les autres, mais ont décidé de cultiver à l'intérieur de leur grotte factice. C'est pourquoi, en dehors de très peu de gens, ils sont presque inconnus. Je n'ai entendu parler de ce couple que par mon père. » En disant cela, Yao Xixue laissa transparaître une trace d'envie et de mélancolie. Lorsqu'elle avait entendu parler de ce couple, elle traversait sa période de jeunesse. Même maintenant, un lambeau de ce rêve subsistait au fond de son cœur, et l'évocation de ce souvenir la plongeait dans une douce tristesse.
 
 Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent soudainement alors qu'il fixait Yao Xixue: « Ton père, Xue Zu, devrait arriver bientôt! »
 

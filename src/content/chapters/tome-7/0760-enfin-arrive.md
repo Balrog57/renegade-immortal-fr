@@ -108,7 +108,7 @@ Ce sens divin était d'une puissance telle que le pouvoir divin de la deuxième 
 
 C'était comme si, à cet instant, le fragment avait été plongé dans un bassin de sang.
 
-La lumière rouge se condensa à 330 mètres de Wang Lin. Presque instantanément, une silhouette se matérialisa, révélant un homme d'âge mûr aux cheveux et aux sourcils rouges, vêtu d'une robe écarlate!
+La lumière rouge se condensa à mille pieds de Wang Lin. Presque instantanément, une silhouette se matérialisa, révélant un homme d'âge mûr aux cheveux et aux sourcils rouges, vêtu d'une robe écarlate!
 
 Cet homme était d'une beauté telle que même Qian Feng se sentait quelque peu inférieur en sa présence. Il dégageait une aura unique. Lorsqu'il apparut, il regarda calmement Wang Lin sans dire un mot.
 

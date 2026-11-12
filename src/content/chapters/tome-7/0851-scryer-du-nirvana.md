@@ -26,7 +26,7 @@ Malgré cela, sa vitesse surpassait de loin celle des cultivateurs incapables de
 
 Un puissant sentiment de crise envahit les environs. Le regard de Wang Lin se fit froid et son corps vacilla. L'espace dans lequel il se trouvait s'effondra brusquement dans un fracas, propageant une onde de choc. Calme, Wang Lin fixa l'horizon d'un œil glacial.
 
-Il vit un nuage rouge emplir le lointain. En un instant, ce nuage se rassembla à environ 330 mètres de lui et prit la forme d'un homme d'âge mûr.
+Il vit un nuage rouge emplir le lointain. En un instant, ce nuage se rassembla à environ mille pieds de lui et prit la forme d'un homme d'âge mûr.
 
 « Es-tu Xu Mu? » L'homme tenait un miroir dans sa main droite et fixait Wang Lin avec froideur.
 
@@ -60,7 +60,7 @@ Un éclair de froideur traversa son regard alors qu'il levait la tête vers le c
 
 Yao Yun progressait rapidement à travers l'espace, l'expression impassible. Soudain, son visage se décomposa en voyant une masse de nuages rouges s'accumuler. Ces nuages différaient radicalement de ceux qu'il avait sous ses pieds; ils contenaient une puissance qui le terrifiait.
 
-« Ceci... Ceci est un nuage de rétribution divine! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Purificateur du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa culture avait régressé au milieu du stade Scruteur du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète du Sang, des millénaires plus tôt, étaient totalement embrumés.
+« Ceci... Ceci est un nuage de rétribution divine! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Purificateur du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa culture avait régressé au milieu du stade Scruteur du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète Xue Shen, des millénaires plus tôt, étaient totalement embrumés.
 
 Il avait beau s'efforcer, il ne parvenait à rien se remémorer.
 
@@ -72,9 +72,9 @@ C'était comme si ce carnage était le seul moyen d'évacuer la douleur qui lui 
 
 Au début, il parvenait à réprimer cet instinct grâce à sa culture. Cependant, avec le temps et la régression de ses pouvoirs, la douleur s'intensifiait. Il devenait de plus en plus difficile de contenir l'envie de massacrer toute forme de vie dans ce monde!
 
-Il pressentait que cela était lié à une rencontre sur la Planète du Sang, mais malgré tous ses efforts, le souvenir lui échappait.
+Il pressentait que cela était lié à une rencontre sur la Planète Xue Shen, mais malgré tous ses efforts, le souvenir lui échappait.
 
-Il avait un jour interrogé le Dieu de Sang, sans jamais obtenir de réponse.
+Il avait un jour interrogé Xue Shenzi, sans jamais obtenir de réponse.
 
 Se sentant impuissant, il s'était muré dans la zone interdite de sa famille, s'adonnant à une culture en isolement pour stopper sa régression et tenter de retrouver ses souvenirs perdus. Cela dura jusqu'à récemment, quand il reçut l'ordre de l'Ancêtre de sortir de la zone interdite de sa famille pour éliminer un certain Xu Mu.
 

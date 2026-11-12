@@ -40,7 +40,7 @@ Dès que le massacre débuta, tous les occupants du bassin de sang s'élancèren
 
 Une fois le carnage sans fin achevé, seul l'homme aux cheveux noirs subsistait dans les airs. Ceux qui venaient de renaître affichaient des expressions sereines et ne daignèrent même pas lever les yeux vers le ciel.
 
-La brume de sang entourant le jeune homme s'étendait sur plusieurs centaines de mètres. Il prit une profonde inspiration, montrant une rare lueur de lucidité, avant de foncer vers la sortie.
+La brume de sang entourant le jeune homme s'étendait sur plusieurs milliers de pieds. Il prit une profonde inspiration, montrant une rare lueur de lucidité, avant de foncer vers la sortie.
 
 Mais alors qu'il n'avait parcouru que quelques pas, un éclat de lumière argentée jaillit: le dragon argenté apparut soudainement et projeta sa griffe massive. L'homme aux cheveux noirs, au cœur de la brume de sang, esquissa un sourire amer.
 
@@ -90,7 +90,7 @@ Pourtant, soudain, il fronça les sourcils. Sa compréhension des cieux et son p
 
 « Tu es le vice-général de Mo Lihai? » Une voix empreinte de mépris perça la musique de la cithare, brisant net l'atmosphère.
 
-Un homme en robe noire se tenait à plus de trois cents mètres de Wang Lin. Il avait les bras croisés sur la poitrine et une épée serpentiforme tournait autour de lui. Une trace d'impatience marquait son visage.
+Un homme en robe noire se tenait à mille pieds de Wang Lin. Il avait les bras croisés sur la poitrine et une épée serpentiforme tournait autour de lui. Une trace d'impatience marquait son visage.
 
 « Tu peux attaquer; te tuer reviendrait à trancher l'un des bras de Mo Lihai! »
 

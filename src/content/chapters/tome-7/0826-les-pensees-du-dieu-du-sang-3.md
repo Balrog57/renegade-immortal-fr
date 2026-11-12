@@ -34,7 +34,7 @@ La bataille du Dao ne peut être menée qu'avec le Dao. Cependant, il est rare q
 
 Cela n'avait rien à voir avec la culture, mais avec la compréhension. Une compréhension du monde, une compréhension de la vie et une compréhension de son propre Dao!
 
-Yao Changdong n'aurait jamais imaginé que ce Xu Mu puisse manifester son propre Dao. Son expression devint sombre, mais il ne recula pas. Au lieu de cela, il s'assit à moins de dix mètres de Wang Lin et ferma les yeux. Une ombre dorée apparut soudainement au-dessus de sa tête.
+Yao Changdong n'aurait jamais imaginé que ce Xu Mu puisse manifester son propre Dao. Son expression devint sombre, mais il ne recula pas. Au lieu de cela, il s'assit à moins de trente pieds de Wang Lin et ferma les yeux. Une ombre dorée apparut soudainement au-dessus de sa tête.
 
 Cette ombre dorée dégageait l'aura d'un être céleste et était d'une grande élégance; il était évident qu'il s'agissait d'un Céleste!
 
@@ -106,7 +106,7 @@ Cependant, juste au moment où il s'évanouissait, une ride se forma à proximit
 
 Elle fronça légèrement les sourcils et, d'un pas, disparut à son tour en fusionnant avec le monde pour poursuivre Wang Lin!
 
-Pendant ce temps, dans le Domaine Dong, sur une planète rouge sang, se dressait un immense temple ancestral où un « Yao » empreint d'une aura meurtrière était gravé sur un arbre géant de trente-trois mètres de haut, à côté.
+Pendant ce temps, dans le Domaine Dong, sur une planète rouge sang, se dressait un immense temple ancestral où un « Yao » empreint d'une aura meurtrière était gravé sur un arbre géant de cent pieds de haut, à côté.
 
 Un vieil homme était assis à l'intérieur du temple. Ses sourcils étaient recourbés et d'un rouge écarlate.
 

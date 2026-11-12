@@ -32,7 +32,7 @@ C'est alors que le rugissement du Serpent aux yeux de lune résonna à travers l
 
 Cette scène fit changer les expressions de ceux qui se trouvaient du côté de l'Alliance!
 
-Le Saint Démon Noir et le Saint Démon du Dragon des Nuages, qui combattaient le Dieu de Sang et sa troupe, eurent le visage assombri et reculèrent rapidement.
+Le Saint Démon Noir et le Saint Démon du Dragon des Nuages, qui combattaient Xue Shenzi et sa troupe, eurent le visage assombri et reculèrent rapidement.
 
 Ji Xiantian laissa échapper un reniflement glacial et ses yeux brillèrent. Au lieu de battre en retraite, il chargea droit sur Maître Yan Leizi, piégé dans la glace. Une fois à portée, il pressa sa main droite sur la glace sans l'ombre d'une hésitation.
 

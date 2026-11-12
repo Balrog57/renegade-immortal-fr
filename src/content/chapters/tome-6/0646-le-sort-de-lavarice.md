@@ -16,7 +16,7 @@ Le visage de Tan Lang s'assombrit alors qu'il formait des sceaux des deux mains 
 
 Un cri strident jaillit des profondeurs de l'essaim, et la vaste nuée de moustiques ouvrit immédiatement une brèche. Du centre du groupe, un moustique géant, portant sept aiguilles d'argent plantées dans la tête, s'éleva lentement.
 
-Une lutte intérieure faisait rage dans ses yeux rouges. La bête moustique fixa Tan Lang et poussa un rugissement. Sous le cri sourd de Tan Lang, les aiguilles argentées sur sa tête s'enfoncèrent d'environ dix centimètres supplémentaires. Le corps du moustique trembla et le combat dans ses yeux devint plus intense encore.
+Une lutte intérieure faisait rage dans ses yeux rouges. La bête moustique fixa Tan Lang et poussa un rugissement. Sous le cri sourd de Tan Lang, les aiguilles argentées sur sa tête s'enfoncèrent de trois pouces supplémentaires. Le corps du moustique trembla et le combat dans ses yeux devint plus intense encore.
 
 Cependant, une trace de résolution apparut soudainement dans son regard alors qu'il poussait un cri puissant empreint de mort! Son regard se déplaça comme l'éclair pour se poser sur la bête moustique de Wang Lin.
 
@@ -60,7 +60,7 @@ Hormis l'unique fil qu'il conservait dans son âme originelle, tous les autres a
 
 « L'Esprit d'Épée Brisée de Ling Tianhou et l'Art du Massacre Céleste de Tian Yunzi! » Les yeux de Tan Lang brillèrent intensément, mais une pointe de dérision s'y nichait. Il recula en disant: « Bien que ces deux sorts soient puissants, votre maîtrise est incomplète. Devant les yeux de ce vieil homme, ils sont tout simplement trop faibles! »
 
-Tan Lang frappa sa sacoche de rangement et une petite montagne s'en envola immédiatement. Une fois sortie, elle grandit instantanément pour atteindre environ 330 mètres de haut et flotta dans les airs.
+Tan Lang frappa sa sacoche de rangement et une petite montagne s'en envola immédiatement. Une fois sortie, elle grandit instantanément pour atteindre environ mille pieds de haut et flotta dans les airs.
 
 Cette montagne était couverte de gravures de runes mystérieuses. À mesure que la montagne se déplaçait, les runes scintillaient, conférant à l'édifice une aura étrange.
 
@@ -100,11 +100,11 @@ Wang Lin prit une inspiration sifflante. S'il n'avait pas toujours conservé un 
 
 Grâce à l'appui de l'âme de la montagne, Tan Lang parvint enfin à échapper au siège des bêtes moustiques. Il éclata d'un rire tonitruant: « Petits juniors, connaissez-vous cette montagne? C'est une montagne du Royaume Céleste! Ce vieil homme l'a extraite et scellée il y a des dizaines de milliers d'années! »
 
-À cet instant précis, le brouillard violet qui se contractait sans cesse était sur le point de disparaître. Il s'était réduit de 330 mètres à 3,3 mètres, formant une sphère dense de brume violette.
+À cet instant précis, le brouillard violet qui se contractait sans cesse était sur le point de disparaître. Il s'était réduit de mille pieds à dix pieds, formant une sphère dense de brume violette.
 
 Aucun son ne s'échappait encore de la sphère, mais Wang Lin savait qu'une personne vivante s'y trouvait: un disciple de la Secte Da Luo Jian!
 
-Dans un bruit sourd, la sphère de 3,3 mètres se rétracta à nouveau pour n'atteindre plus que 2,3 mètres!
+Dans un bruit sourd, la sphère de dix pieds se rétracta à nouveau pour n'atteindre plus que sept pieds!
 
 Un jeton commença progressivement à apparaître au cœur de la brume. Ce jeton, façonné par le brouillard, se condensait rapidement.
 

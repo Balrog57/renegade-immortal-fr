@@ -44,11 +44,11 @@ Une voix basse s'éleva de la bouche de Chen Long: « Je suis Chen Long. Es-tu W
 
 Wang Lin garda une expression neutre en regardant Chen Long. Il ne répondit pas, attendant de voir si ces membres de la Secte Da Luo Jian étaient ici de leur plein gré ou s'ils y étaient piégés. C'était un point crucial: s'ils étaient là volontairement, son intuition précédente était erronée.
 
-« Quelle arrogance! Mon frère aîné te pose une question et tu oses ne pas répondre?! » L'impatience de l'un des disciples de la Secte Da Luo Jian, retenu ici depuis cent ans, avait atteint un point de rupture. Profitant de cette opportunité, il s'avança en criant. L'épée précieuse derrière lui vola et, lorsqu'il la mania, une monture équine noire apparut sur la lame!
+« Quelle arrogance! Mon Grand Senior frère te pose une question et tu oses ne pas répondre?! » L'impatience de l'un des disciples de la Secte Da Luo Jian, retenu ici depuis cent ans, avait atteint un point de rupture. Profitant de cette opportunité, il s'avança en criant. L'épée précieuse derrière lui vola et, lorsqu'il la mania, une monture équine noire apparut sur la lame!
 
 Le souffle du cheval était vert et dégageait une aura maléfique. Il se fondit dans l'épée, fusionnant avec l'énergie de l'arme qui chargeait Wang Lin.
 
-La culture de cet homme n'était qu'au stade avancé de la Transformation de l'Âme, mais il n'en avait cure. Non seulement plusieurs membres de sa secte étaient présents, mais son frère aîné l'était aussi; ils ne le laisseraient naturellement pas subir de défaite.
+La culture de cet homme n'était qu'au stade avancé de la Transformation de l'Âme, mais il n'en avait cure. Non seulement plusieurs membres de sa secte étaient présents, mais son Grand Senior frère l'était aussi; ils ne le laisseraient naturellement pas subir de défaite.
 
 « C'est ainsi que vous traitez vos invités? » Wang Lin ne daigna même pas regarder l'énergie de l'épée et fixa calmement Chen Long. Il était désormais certain que les disciples de la Secte Da Luo Jian étaient piégés. S'ils n'avaient pas été retenus ici depuis longtemps, auraient-ils été aussi impatients?
 
@@ -62,7 +62,7 @@ Les disciples de la Secte Da Luo Jian se levèrent, prêts à attaquer. Cependan
 
 Tout en parlant, le doigt de Chen Long prit la forme d'une épée. Cette lame perça l'énergie de massacre comme un éclair. Son doigt contenait un sortilège mystérieux qui, après avoir pénétré l'énergie, lui permit de donner un coup de pied à Wu Ma et de le projeter hors de l'encerclement.
 
-Il se retourna, ignorant totalement l'énergie de massacre qui l'entourait, et sourit à Wang Lin: « Camarade cultivateur Wang, mon frère cadet a été imprudent. Je vous prie d'excuser ce spectacle. »
+Il se retourna, ignorant totalement l'énergie de massacre qui l'entourait, et sourit à Wang Lin: « Camarade cultivateur Wang, mon Junior frère a été imprudent. Je vous prie d'excuser ce spectacle. »
 
 « Aucun problème! » La voix de Wang Lin était calme alors que l'énergie de massacre autour de Chen Long enveloppait l'épée de Wu Ma. Puis, cette énergie retourna vers Wang Lin avec l'arme.
 
@@ -70,7 +70,7 @@ Wang Lin s'empara de l'épée sous les yeux de Chen Long et des autres. Il frapp
 
 Après avoir été projeté par Chen Long, Wu Ma se retrouva dépossédé de son épée et privé de son sens divin. Son âme fut endommagée, le faisant cracher une large traînée de sang. Il fixa Wang Lin et hurla: « Toi! »
 
-L'expression de Wang Lin resta impassible lorsqu'il dit calmement: « Puisque tu es le frère cadet du camarade cultivateur Chen Long, je ne te tuerai pas pour cette offense. Je garderai cette épée en guise d'avertissement. »
+L'expression de Wang Lin resta impassible lorsqu'il dit calmement: « Puisque tu es le Junior frère du camarade cultivateur Chen Long, je ne te tuerai pas pour cette offense. Je garderai cette épée en guise d'avertissement. »
 
 Le regard de Chen Long ne vacilla pas et il esquissa un léger sourire. « C'est ainsi que cela doit être! » Il se retourna et lança froidement à Wu Ma: « Toi, tais-toi! Le camarade cultivateur Wang n'est pas quelqu'un que tu peux provoquer. Si tu continues, je détruirai ta culture en lieu et place de notre Maître! »
 
@@ -104,7 +104,7 @@ Tan Lang s'apprêtait à refuser, mais ses yeux se plissèrent soudainement. Il 
 
 Après avoir regardé Chen Long, Tan Lang hocha la tête: « Puisque tu t'inquiètes tant de voir ce vieil homme refuser encore, tu dois penser que je suis mal intentionné. Soit, tentons de percer! »
 
-Chen Long secoua rapidement la tête: « Le junior n'ose, mais c'est simplement que nous sommes ici depuis trop longtemps. Je m'inquiète pour mes frères cadets dans la Terre Yao Ling... »
+Chen Long secoua rapidement la tête: « Le junior n'ose, mais c'est simplement que nous sommes ici depuis trop longtemps. Je m'inquiète pour mes Juniors frères dans la Terre Yao Ling... »
 
 Tan Lang ricana et bondit du sol. Il prit la tête de la charge et s'élança directement dans le brouillard.
 

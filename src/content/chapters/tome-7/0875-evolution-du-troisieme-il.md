@@ -22,7 +22,7 @@ Cependant, comparée au sentiment ressenti autrefois, cette sensation était inf
 
 Il était évident que l'énergie originelle contenue dans le mot « bataille » ne pouvait même pas être comparée à celle de la perle défiant le ciel. Pour Wang Lin, la perle était trop mystérieuse, mais ce mot, « bataille », était une chose qu'il pouvait saisir.
 
-Ces événements semblèrent se dérouler sur une longue période, mais tout s'était produit au moment même où Wang Lin avait levé la tête. Cela n'avait duré qu'une seconde!
+Ces événements semblèrent se dérouler sur une longue période, mais tout s'était produit au moment même où Wang Lin avait levé la tête. Cela n'avait duré qu'une respiration!
 
 Lie Yunzi n'avait initialement pas une bonne opinion de Wang Lin. Bien que ce Xu Mu ait pu combattre Luo Su et possédât des sorts incroyables, sans l'intervention de Qing Shui, c'est Xu Mu qui aurait perdu!
 
@@ -30,7 +30,7 @@ Quant au deuxième essai, la raison pour laquelle Xu Mu avait pu dévorer l'espr
 
 Cependant, à cet instant, ses yeux brillaient d'un éclat inédit. Il fit trois pas en avant et fixa Wang Lin. C'était comme si quelque chose rugissait dans son cœur.
 
-« Une seconde! Ce Xu Mu a pu entrer dans cet état en seulement une seconde! » Même avec la force mentale de Lie Yunzi, il était excité. Dans toute l'histoire de la famille Zhan, personne n'avait été capable d'entrer dans cet état en une seconde. Même son ancêtre, doté d'un talent défiant le ciel, avait mis deux secondes!
+« Une respiration! Ce Xu Mu a pu entrer dans cet état en seulement une respiration! » Même avec la force mentale de Lie Yunzi, il était excité. Dans toute l'histoire de la famille Zhan, personne n'avait été capable d'entrer dans cet état en une respiration. Même son ancêtre, doté d'un talent défiant le ciel, avait mis deux respirations!
 
 À cet instant, Lie Yunzi avait déjà oublié Xu Ting. Toutes ses pensées étaient désormais occupées par Wang Lin!
 
@@ -38,7 +38,7 @@ Non seulement lui, mais tous les vieux monstres sur les tapis de prière furent 
 
 Les pupilles du Dieu de Sang se rétractèrent alors qu'il fixait Wang Lin. Tout en étant choqué, une intention meurtrière surgit de nouveau dans son cœur!
 
-« Cet enfant a pu entrer dans cet état en une seconde. On ne peut pas le laisser vivre! » Alors qu'il formulait cette pensée, il sentit une intention meurtrière se verrouiller sur lui. Il se retourna et vit Qing Shui le regarder froidement.
+« Cet enfant a pu entrer dans cet état en une respiration. On ne peut pas le laisser vivre! » Alors qu'il formulait cette pensée, il sentit une intention meurtrière se verrouiller sur lui. Il se retourna et vit Qing Shui le regarder froidement.
 
 Le Dieu de Sang laissa échapper un reniflement glacial. Il réprima son intention meurtrière et la cacha profondément au fond de son cœur.
 
@@ -48,13 +48,13 @@ L'admiration de l'ancêtre de la famille Xiang s'intensifia. Plus il regardait W
 
 Maître Yan Leizi sourit, et en voyant le choc de Lie Yunzi, son sourire s'élargit.
 
-Zhan Konglie connaissait les affaires de la famille. Lorsqu'il vit Wang Lin entrer dans cet état en une seule seconde, il inspira brusquement, totalement stupéfait. Quant à Xu Ting, il fronça les sourcils, le cœur lourd de sentiments complexes. Il était initialement un enfant favorisé par les cieux, mais lors de l'essai humain, Xu Mu lui avait volé la vedette. Puis, lors de l'essai terrestre, il s'était révélé bien inférieur à Xu Mu. Maintenant, lors de l'essai céleste, il était loué par Lie Yunzi, mais tout cela s'était instantanément envolé. C'était comme si son rival, Xu Mu, était devenu son ennemi juré!
+Zhan Konglie connaissait les affaires de la famille. Lorsqu'il vit Wang Lin entrer dans cet état en une seule respiration, il inspira brusquement, totalement stupéfait. Quant à Xu Ting, il fronça les sourcils, le cœur lourd de sentiments complexes. Il était initialement un enfant favorisé par les cieux, mais lors de l'essai humain, Xu Mu lui avait volé la vedette. Puis, lors de l'essai terrestre, il s'était révélé bien inférieur à Xu Mu. Maintenant, lors de l'essai céleste, il était loué par Lie Yunzi, mais tout cela s'était instantanément envolé. C'était comme si son rival, Xu Mu, était devenu son ennemi juré!
 
 Le Sens Divin de Wang Lin se divisa en deux et fusionna avec le mot « bataille ». Une trace d'énergie originelle émana du mot et circula lentement à travers son corps. Juste au moment où elle allait quitter le corps de Wang Lin, elle tressaillit et cette trace d'énergie originelle chargea vers le troisième œil avec frénésie.
 
 L'énergie originelle se précipita dans le troisième œil apparu entre ses sourcils. Une lumière rouge éclatante jaillit soudainement de celui-ci.
 
-À mesure que les éclats d'énergie originelle pénétraient, la lueur rouge devenait de plus en plus intense. Après dix secondes, Wang Lin se réveilla et la lumière rouge accumulée dans son troisième œil jaillit brusquement en éventail!
+À mesure que les éclats d'énergie originelle pénétraient, la lueur rouge devenait de plus en plus intense. Après dix respirations, Wang Lin se réveilla et la lumière rouge accumulée dans son troisième œil jaillit brusquement en éventail!
 
 L'éclat rouge fit s'exclamer tous les cultivateurs environnants. Cette lumière en forme d'éventail enveloppa complètement le Parchemin de la Bataille.
 

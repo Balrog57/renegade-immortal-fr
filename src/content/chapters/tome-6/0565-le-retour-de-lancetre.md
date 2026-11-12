@@ -104,9 +104,9 @@ Cette Prison des Ténèbres était souterraine, sous la Cité Gu Yao. Bien que d
 
 Vu le statut de Hu Pao, il ne pouvait pas être enfermé dans les profondeurs de la prison. Wang Lin déploya son Sens Divin mais ne trouva aucune trace de lui. Il poussa un soupir, puis disparut sans laisser de trace.
 
-Wang Lin se déplaçait à une vitesse fulgurante. Sa culture ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était plusieurs fois supérieure à auparavant. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu de l'Affinement de l'Âme.
+Wang Lin se déplaçait à une vitesse fulgurante. Sa culture ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était plusieurs fois supérieure à auparavant. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu Lian Hun.
 
-Wang Lin apparut dans un éclair de lumière à des dizaines de kilomètres de la tribu. Devant lui, la Tribu de l'Affinement de l'Âme se dessinait au loin!
+Wang Lin apparut dans un éclair de lumière à des dizaines de kilomètres de la tribu. Devant lui, la Tribu Lian Hun se dessinait au loin!
 
 Bien que la tribu n'ait pas étendu son territoire cette année, tous ses membres s'étaient consacrés avec acharnement à leur culture. Cette zone de 5 kilomètres était entièrement sous le contrôle de la tribu.
 
@@ -122,12 +122,12 @@ Il connaissait bien ces gens; leur devoir était d'assurer la garde extérieure!
 
 Le Sens Divin de Wang Lin s'étendit: sur un rayon de cinquante kilomètres, plusieurs centaines de sentinelles étaient en poste!
 
-Il ne fallut pas longtemps pour que Wang Lin arrive à environ 330 mètres de la tribu. C'est là qu'il s'arrêta net. À son arrêt, une puissante rafale de vent le suivit et déferla vers la tribu!
+Il ne fallut pas longtemps pour que Wang Lin arrive à environ mille pieds de la tribu. C'est là qu'il s'arrêta net. À son arrêt, une puissante rafale de vent le suivit et déferla vers la tribu!
 
 Dès qu'il s'immobilisa, quelqu'un l'aperçut immédiatement. Après un instant de stupeur, leurs yeux s'illuminèrent d'excitation.
 
 « Ancêtre! » Un cri de joie réveilla instantanément les cultivateurs. En un clin d'œil, tous les membres de la tribu se levèrent.
 
-Ouyang Hua se transforma en un nuage de brume noire et traversa la tribu. Il s'arrêta à une quarantaine de mètres de Wang Lin et, le visage rayonnant, dit respectueusement: « Bon retour, Ancêtre! »
+Ouyang Hua se transforma en un nuage de brume noire et traversa la tribu. Il s'arrêta à plus de cent pieds de Wang Lin et, le visage rayonnant, dit respectueusement: « Bon retour, Ancêtre! »
 
 Au même moment, tous les membres de la tribu s'agenouillèrent sur un genou et déclarèrent en chœur: « Bon retour, Ancêtre! »

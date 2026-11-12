@@ -94,7 +94,7 @@ La fillette nommée Mengyun répondit joyeusement: « Oncle Yun, est-ce que tu n
 
 Le regard de l'homme devint encore plus tourmenté. Il fixa les deux filles et serra le poing. Avec une détermination sans faille, il hocha la tête: « Votre oncle va vous emmener voir votre mère! » Sur ces mots, il agita ses manches et prit immédiatement les deux fillettes dans ses bras. Le nuage sous ses pieds fendit l'air comme un coup de tonnerre alors qu'il s'élançait vers le ciel.
 
-« Ancêtre, ces enfants sont innocentes. Même si moi, Yao Yun, je dois subir un châtiment, je sortirai ces deux enfants de la Planète du Sang! » L'homme serra les dents. Le nuage sous lui fila rapidement vers les cieux.
+« Ancêtre, ces enfants sont innocentes. Même si moi, Yao Yun, je dois subir un châtiment, je sortirai ces deux enfants de la planète Xue Shen! » L'homme serra les dents. Le nuage sous lui fila rapidement vers les cieux.
 
 Cependant, à cet instant précis, le ciel changea brusquement; une main démoniaque apparut et saisit le nuage rouge. En un éclair, le nuage se désintégra peu à peu, exposant l'homme au visage livide et les deux petites filles terrifiées.
 
@@ -104,7 +104,7 @@ Le visage de Yao Yun se décomposa de rage et il hurla: « Pourquoi, Ancêtre?! 
 
 « C'est précisément parce qu'elles sont des membres de la famille Yao que c'est leur destin! Elles ne peuvent s'échapper! Dès leur naissance, elles étaient vouées à devenir les âmes de ce trésor magique! » La voix antique était indiscutable. Une bourrasque balaya le ciel et emporta l'homme ainsi que les deux fillettes.
 
-À l'extérieur du hall ancestral de la famille Yao, le corps de Yao Yun fut expulsé du vide. Son visage était blême et il cracha une bouffée de sang. Après avoir atterri, il recula de plusieurs dizaines de mètres en laissant échapper un rire amer.
+À l'extérieur du hall ancestral de la famille Yao, le corps de Yao Yun fut expulsé du vide. Son visage était blême et il cracha une bouffée de sang. Après avoir atterri, il recula de plusieurs centaines de pieds en laissant échapper un rire amer.
 
 Il regarda les deux filles être emportées dans le hall ancestral, prises de panique et de confusion, comme si elles étaient dévorées par l'édifice lui-même.
 

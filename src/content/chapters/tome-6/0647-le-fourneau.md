@@ -112,7 +112,7 @@ Les yeux de Tan Lang s'illuminèrent. Il recula et frappa à nouveau son sac de 
 
 « Wang Lin, ce vieil homme doit remercier Situ Nan. Sans lui, comment aurais-je été contraint de rester sur la planète déserte de Suzaku pendant dix mille ans? Si ce n'était pour ces millénaires, je n'aurais jamais pu comprendre le fonctionnement de tant de trésors qui m'étaient autrefois inutilisables! » Alors que Tan Lang levait la main droite, un écran apparut.
 
-Une fois lancé, l'écran s'élargit jusqu'à atteindre trente-trois mètres de large. Il présentait une peinture à l'encre d'un paysage montagneux. La brume emplissait les cimes, conférant à l'image l'aura d'un monde céleste.
+Une fois lancé, l'écran s'élargit jusqu'à atteindre cent pieds de large. Il présentait une peinture à l'encre d'un paysage montagneux. La brume emplissait les cimes, conférant à l'image l'aura d'un monde céleste.
 
 « Ce vieil homme n'a pas pu trouver la Peinture des Montagnes et des Rivières du Royaume Céleste, mais j'ai trouvé son empreinte sur cet écran. Rassemble-toi pour moi! » Dans un cri de Tan Lang, une force d'aspiration massive émana de l'écran.
 

@@ -82,7 +82,7 @@ Ouyang Hua répondit promptement: « Céleste Suprême, ce vieil homme vous en e
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
-La demeure d'Ouyang Hua se trouvait à l'extrémité nord du village. Aucune autre maison ne se trouvait à moins d'une quarantaine de mètres, ce qui rendait l'endroit très inhabituel. Sa maison était circulaire, semblable à un petit pain à la vapeur, et posée à même le sol. La majeure partie de la structure était de couleur cyan.
+La demeure d'Ouyang Hua se trouvait à l'extrémité nord du village. Aucune autre maison ne se trouvait à moins d'une centaine de pieds, ce qui rendait l'endroit très inhabituel. Sa maison était circulaire, semblable à un petit pain à la vapeur, et posée à même le sol. La majeure partie de la structure était de couleur cyan.
 
 La demeure était d'une taille décente, meublée d'un lit, d'une table et de chaises en bois. Divers objets étaient dispersés dans la pièce. Quelques décorations ornaient les murs et, dans un coin discret, reposait une peinture.
 

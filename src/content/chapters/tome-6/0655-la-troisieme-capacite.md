@@ -12,7 +12,7 @@ L'aspiration était si intense que ses vêtements et ses cheveux étaient violem
 
 Wang Lin resta en position du lotus pendant sept jours. Durant cette période, il s'habitua à l'intensité de l'aspiration en ce lieu. Ce jour-là, il ouvrit les yeux et fit un pas de plus.
 
-Il s'avança directement dans la zone située à moins de 3,3 mètres de l'ouverture de la fissure.
+Il s'avança directement dans la zone située à moins de dix pieds de l'ouverture de la fissure.
 
 Soudain, la puissante aspiration l'enveloppa. Le corps de Wang Lin bascula légèrement, comme si une paire de mains invisibles tentait de l'entraîner.
 
@@ -32,7 +32,7 @@ L'âme originelle de Wang Lin avait déjà été saisie par la force de succion 
 
 Outre son âme originelle, même son intention de tuer semblait se condenser pour être progressivement aspirée. Cette intention de tuer, issue du Cœur du Massacre, se manifestait sous forme de lignes rouges visibles sous la peau de Wang Lin.
 
-Après un long moment, les yeux de Wang Lin s'illuminèrent et il avança d'environ un mètre. Les sept épées bougèrent avec lui. La force d'aspiration augmenta à nouveau, et une nouvelle ligne rouge apparut sous sa peau.
+Après un long moment, les yeux de Wang Lin s'illuminèrent et il avança de trois pieds. Les sept épées bougèrent avec lui. La force d'aspiration augmenta à nouveau, et une nouvelle ligne rouge apparut sous sa peau.
 
 La puissance du vide encerclait les sept épées, provoquant des explosions de chants d'épée. Les esprits contenus dans les lames en sortirent pour fusionner; ils ne gardèrent pas de forme fixe, changeant constamment de silhouette pour résister à la succion.
 
@@ -46,7 +46,7 @@ Exactement autant que le nombre d'empreintes de vie de l'énergie du massacre!
 
 Les lignes rouges sous la peau de Wang Lin vacillèrent, mais son esprit demeura calme alors qu'il prenait une profonde inspiration. À cet instant, il atteignit le bord de la fissure, mais cela ne suffisait pas encore à expulser l'intention de tuer de son corps; cela servait seulement à l'exposer.
 
-En contemplant le monde d'obscurité au-delà de la fissure, les yeux de Wang Lin s'illuminèrent. Cette lumière lui permit de distinguer, à soixante-six mètres de là, plus bas, un rocher qui émergeait de la paroi. L'ancien réseau de transfert se trouvait sur cette roche.
+En contemplant le monde d'obscurité au-delà de la fissure, les yeux de Wang Lin s'illuminèrent. Cette lumière lui permit de distinguer, à deux cents pieds de là, plus bas, un rocher qui émergeait de la paroi. L'ancien réseau de transfert se trouvait sur cette roche.
 
 Après quelques calculs silencieux, Wang Lin sauta hors de la fissure. Sa silhouette fendit l'air comme l'éclair alors qu'il chargeait droit vers le grand rocher.
 

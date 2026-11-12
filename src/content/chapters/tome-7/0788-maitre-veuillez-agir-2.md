@@ -56,7 +56,7 @@ Tout en tenant fermement le bras de Li Yuan, les yeux de Wang Lin restèrent aus
 
 Tous les sorts d'origine et les trésors magiques restaient sans effet sur l'écran de lumière; ils étaient incapables de le briser!
 
-L'épée volante de Shengong Hu percuta l'écran de lumière et se brisa instantanément, centimètre par centimètre. Le contrecoup fit cracher du sang à Shengong Hu, qui fut contraint de reculer immédiatement.
+L'épée volante de Shengong Hu percuta l'écran de lumière et se brisa instantanément, pouce par pouce. Le contrecoup fit cracher du sang à Shengong Hu, qui fut contraint de reculer immédiatement.
 
 Non seulement lui, mais Zhan Konglie, Tang Yanfeng et les deux autres cultivateurs du Yang Corporel crachèrent également du sang et furent repoussés violemment. Quant aux cultivateurs de l'Yin Illusoire, leurs âmes d'origine furent secouées et leurs corps projetés en arrière.
 
@@ -72,7 +72,7 @@ Alors que l'homme aux cheveux blancs riait, sa silhouette vacilla et il apparut 
 
 « Le Dao fusionné avec le monde! » Au moment où il se retourna, le cultivateur qui avait perdu son corps fit exploser son âme d'origine. Cependant, l'homme aux cheveux blancs n'en eut cure et fusionna lui aussi avec le monde. Des ondulations apparurent sous ses pieds et son corps disparut instantanément.
 
-« Même à l'époque du Royaume Céleste, rares étaient ceux qui parvenaient à la fusion du Dao avec le monde! Pourtant, cet individu ne la maîtrise pas encore totalement! » L'ancien aux cheveux blancs réapparut à 330 mètres de la porte céleste, ses yeux brillant d'une lueur étrange. Sa main droite s'élança impitoyablement vers le vide.
+« Même à l'époque du Royaume Céleste, rares étaient ceux qui parvenaient à la fusion du Dao avec le monde! Pourtant, cet individu ne la maîtrise pas encore totalement! » L'ancien aux cheveux blancs réapparut à mille pieds de la porte céleste, ses yeux brillant d'une lueur étrange. Sa main droite s'élança impitoyablement vers le vide.
 
 « Sors de là! »
 
@@ -82,7 +82,7 @@ Une puissance manifestement distincte de l'énergie spirituelle céleste et de l
 
 Le visage de Shengong Hu était livide, tout comme celui de Zhan Konglie à ses côtés. Tang Yanfeng serra les poings. Les trois hommes se regardèrent et virent la peur cachée au plus profond des yeux de chacun.
 
-Un gémissement étouffé émana du vide devant l'ancien. Puis, la silhouette de Wang Lin apparut à 165 mètres de la porte céleste. Il tenait Li Yuan, dont les orifices saignaient et dont les yeux étaient emplis de confusion.
+Un gémissement étouffé émana du vide devant l'ancien. Puis, la silhouette de Wang Lin apparut à cinq cents pieds de la porte céleste. Il tenait Li Yuan, dont les orifices saignaient et dont les yeux étaient emplis de confusion.
 
 Dès son apparition, Li Yuan cracha une grande quantité de sang. Il était évident qu'il ne pouvait supporter le sort de Wang Lin.
 

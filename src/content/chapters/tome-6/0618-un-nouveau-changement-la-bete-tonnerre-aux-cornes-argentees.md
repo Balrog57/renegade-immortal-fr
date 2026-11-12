@@ -8,7 +8,7 @@ slug: un-nouveau-changement-la-bete-tonnerre-aux-cornes-argentees
 ---
 Wang Lin fixait l'animal spirituel. Après que le troisième symbole sanguin eut été imprimé sur lui, l'aura qu'il dégageait terrifiait même Wang Lin.
 
-Le corps de la bête tremblait violemment et la lumière rouge dans ses yeux devenait de plus en plus intense. Cette lueur était si puissante qu'elle s'étendait sur près d'un mètre hors de ses orbites. Son corps, haut de 330 mètres et pareil à une petite montagne, se mit à rétrécir rapidement sous des grondements sourds et confus, tandis que des craquements s'échappaient sans cesse de l'intérieur.
+Le corps de la bête tremblait violemment et la lumière rouge dans ses yeux devenait de plus en plus intense. Cette lueur était si puissante qu'elle s'étendait sur trois pieds hors de ses orbites. Son corps, haut de mille pieds et pareil à une petite montagne, se mit à rétrécir rapidement sous des grondements sourds et confus, tandis que des craquements s'échappaient sans cesse de l'intérieur.
 
 Wang Lin observait la bête avec calme. Malgré sa sérénité apparente, son regard était perçant. Le jade contenant les instructions pour lever les sceaux de la bête en parlait précédemment.
 
@@ -30,7 +30,7 @@ D'innombrables grains de sable tremblaient sur le sol, comme secoués par une fo
 
 Les yeux de Wang Lin brillèrent comme des torches. L'aura de l'animal spirituel devant lui avait déjà surpassé la force d'un cultivateur Ascendant du stade initial. Elle atteignait progressivement le stade intermédiaire de l'Ascendance et continuait de croître.
 
-Après plusieurs respirations, le corps de la bête se réduisit, passant de 330 mètres à 33 mètres de hauteur. Cependant, la lumière rouge émanant de ses yeux s'étendait désormais sur près de deux mètres, et une brume soyeuse entourait son regard.
+Après plusieurs respirations, le corps de la bête se réduisit, passant de mille pieds à cent pieds de hauteur. Cependant, la lumière rouge émanant de ses yeux s'étendait désormais sur près de sept pieds, et une brume soyeuse entourait son regard.
 
 Les yeux de Wang Lin se plissèrent; sa main traça un sceau et une lueur noire apparut dans sa paume. Son regard fut aussi perçant que l'éclair tandis qu'il fixait la bête.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 696 - Separation
 slug: separation
 ---
-La famille Sun avait des racines très profondes dans la ville des Vastes Eaux et avait depuis longtemps localisé l'endroit où se trouvaient Wang Lin et son fils.
+La famille Sun avait des racines très profondes dans la Ville Qi Shui et avait depuis longtemps localisé l'endroit où se trouvaient Wang Lin et son fils.
 
 À cet instant, un guide conduisit rapidement Sun Qiming sur les lieux.
 
@@ -30,13 +30,13 @@ Après tout, la famille Yun était la première famille de la planète Mer Yun, 
 
 Yun Wufeng eut un ricanement intérieur de mépris. Bien qu'il n'ait aucune culture, tant qu'il se trouvait dans la partie nord du système stellaire Luotian, personne n'oserait le provoquer, car cela reviendrait à se faire un ennemi de la famille Yun.
 
-Arrivés dans la partie nord de la ville des Vastes Eaux, Sun Qiming et sa suite s'arrêtèrent à cent pieds du manoir Wang.
+Arrivés dans la partie nord de la Ville Qi Shui, Sun Qiming et sa suite s'arrêtèrent à mille pieds du manoir Wang.
 
 L'expression de Sun Qiming était sombre. En voyant les deux mots « Manoir Wang », il fronça les sourcils.
 
-« Nommé Wang... » Lorsqu'il était entré dans la ville des Vastes Eaux, il l'avait explorée avec son Sens Divin et n'avait rien remarqué d'anormal. Il venait de scanner à nouveau cet endroit, et le constat était le même.
+« Nommé Wang... » Lorsqu'il était entré dans la Ville Qi Shui, il l'avait explorée avec son Sens Divin et n'avait rien remarqué d'anormal. Il venait de scanner à nouveau cet endroit, et le constat était le même.
 
-Après une courte réflexion, Sun Qiming fit un pas en avant, à dix pieds du manoir, et déclara d'une voix forte: « Sun Qiming, de la famille Sun, salue ce cher cultivateur! »
+Après une courte réflexion, Sun Qiming fit un pas en avant, à cent pieds du manoir, et déclara d'une voix forte: « Sun Qiming, de la famille Sun, salue ce cher cultivateur! »
 
 Sa voix, chargée d'énergie spirituelle céleste, pénétra distinctement les oreilles de chaque personne à l'intérieur du manoir. Peu après, un jeune garçon sortit. Il regarda la famille Sun et dit: « Maître vous ordonne de partir. »
 
@@ -52,7 +52,7 @@ Sans la moindre hésitation, Sun Qiming saisit l'Ancien au visage rouge et le pr
 
 Sur ces mots, il agita ses manches et disparut soudainement avec tous les membres de la famille Sun. Lorsqu'ils réapparurent, ils se trouvaient dans le hall principal de la branche de la famille Sun à Ville Qi Shui.
 
-« Aucun membre de la famille Sun n'est autorisé à s'approcher à moins de mille pieds de ce manoir. Quiconque désobéira verra sa culture anéantie et sera banni de la famille Sun! » Même à cet instant, le cœur de Sun Qiming battait la chamade et son front était couvert de sueur froide.
+« Aucun membre de la famille Sun n'est autorisé à s'approcher à moins de dix mille pieds de ce manoir. Quiconque désobéira verra sa culture anéantie et sera banni de la famille Sun! » Même à cet instant, le cœur de Sun Qiming battait la chamade et son front était couvert de sueur froide.
 
 « Lui seul possède une culture capable de briser un noyau d'un simple regard. »
 
@@ -94,7 +94,7 @@ Qing Yi resta interdite en pensant à Wang Ping. Son visage s'empourpra et, apr�
 
 Trois jours plus tard, Wang Ping partit, et Qing Yi le suivit.
 
-Wang Ping quitta la ville des Vastes Eaux porté par ses idéaux. Il ne voulait pas d'une vie paisible; il convoitait l'aventure!
+Wang Ping quitta la Ville Qi Shui porté par ses idéaux. Il ne voulait pas d'une vie paisible; il convoitait l'aventure!
 
 Wang Lin resta seul. La nuit du départ de Wang Ping, il avait beaucoup bu. Normalement, grâce à sa culture, l'ivresse ne l'atteignait pas, mais cette nuit-là, il fut ivre.
 
@@ -104,34 +104,34 @@ La vie continua et le temps passa lentement. Le cycle irréversible des réincar
 
 Durant ces trois ans, Wang Lin n'avait reçu aucune nouvelle de Wang Ping, et il ne cherchait pas délibérément à le localiser avec son Sens Divin. Puisqu'il avait accordé à Wang Ping la liberté et le choix, il ne chercherait pas à l'entraver.
 
-Au cours de ces trois années, une secte apparut dans la partie nord de la planète Ran Yun. Elle se nommait l'École du Ciel. Cette secte n'était composée que de mortels et n'influençait pas les cultivateurs.
+Au cours de ces trois années, une secte apparut dans la partie nord de la planète Ran Yun. Elle se nommait la Secte Tian Xing. Cette secte n'était composée que de mortels et n'influençait pas les cultivateurs.
 
-Le développement de l'École du Ciel fut fulgurant. Elle se propagea progressivement depuis le nord de la planète Ran Yun comme un feu de brousse, gagnant en puissance chaque jour davantage.
+Le développement de la Secte Tian Xing fut fulgurant. Elle se propagea progressivement depuis le nord de la planète Ran Yun comme un feu de brousse, gagnant en puissance chaque jour davantage.
 
-Des rumeurs se répandirent comme des flocons de neige tombant au sol. On disait que le chef de l'École du Ciel était un immortel et qu'une femme l'accompagnait sans cesse.
+Des rumeurs se répandirent comme des flocons de neige tombant au sol. On disait que le chef de la Secte Tian Xing était un immortel et qu'une femme l'accompagnait sans cesse.
 
 Le temps passa et sept années supplémentaires s'écoulèrent.
 
 Wang Lin paraissait désormais encore plus âgé.
 
-L'expansion de l'École du Ciel était comparable à une boule de neige qui dévale une pente; elle ne cessait de croître. Il y avait même des fidèles de l'École du Ciel dans la ville des Vastes Eaux. Cet automne, alors que le vent frais soufflait, Wang Lin sortit de sa demeure comme à son habitude pour se rendre à l'auberge voisine et boire tranquillement. Ses yeux étaient embrumés, comme s'il ne voyait plus rien. Il fixait simplement la fenêtre, comme s'il attendait quelque chose.
+L'expansion de la Secte Tian Xing était comparable à une boule de neige qui dévale une pente; elle ne cessait de croître. Il y avait même des fidèles de la Secte Tian Xing dans la Ville Qi Shui. Cet automne, alors que le vent frais soufflait, Wang Lin sortit de sa demeure comme à son habitude pour se rendre à l'auberge voisine et boire tranquillement. Ses yeux étaient embrumés, comme s'il ne voyait plus rien. Il fixait simplement la fenêtre, comme s'il attendait quelque chose.
 
 Le serveur de l'auberge s'était depuis longtemps habitué à ce vieil homme. Après avoir apporté le vin et la nourriture, il alla servir les autres clients.
 
 À l'approche de midi, l'auberge commença à se remplir. Un brouhaha joyeux résonnait dans la salle; l'ambiance était animée.
 
-« Avez-vous entendu? L'École du Ciel occupe désormais la majeure partie de la planète Ran Yun et est devenue la première secte des trois empires! »
+« Avez-vous entendu? La Secte Tian Xing occupe désormais la majeure partie de la planète Ran Yun et est devenue la première secte des trois empires! »
 
-« Hé hé, même notre ville des Vastes Eaux possède une branche de l'École du Ciel. J'y suis allé il y a quelques jours. »
+« Hé hé, même notre Ville Qi Shui possède une branche de la Secte Tian Xing. J'y suis allé il y a quelques jours. »
 
 « Mon voisin, Zhang Er, en est membre. Ils distribuent même des grains chaque mois. »
 
-« Les trois grands empires sont Da Qin, Di Shan et Chen Yun. On dit que dans l'empire du Nord, Di Shan, presque tous les citoyens sont des fidèles de l'École du Ciel. »
+« Les trois grands empires sont Da Qin, Di Shan et Chen Yun. On dit que dans l'empire du Nord, Di Shan, presque tous les citoyens sont des fidèles de la Secte Tian Xing. »
 
-« Vu la vitesse à laquelle l'École du Ciel se développe, il ne faudra pas longtemps avant que les trois grands empires n'agissent pour la détruire. »
+« Vu la vitesse à laquelle la Secte Tian Xing se développe, il ne faudra pas longtemps avant que les trois grands empires n'agissent pour la détruire. »
 
-« Pas si vite. Cette École du Ciel existe depuis dix ans déjà. S'ils avaient voulu la détruire, ils l'auraient fait bien plus tôt. »
+« Pas si vite. Cette Secte Tian Xing existe depuis dix ans déjà. S'ils avaient voulu la détruire, ils l'auraient fait bien plus tôt. »
 
-« Ce qui m'intéresse davantage, c'est la relation entre le chef de l'École du Ciel et la femme qui l'accompagne toujours... »
+« Ce qui m'intéresse davantage, c'est la relation entre le chef de la Secte Tian Xing et la femme qui l'accompagne toujours... »
 
 Wang Lin buvait son vin calmement. C'était comme si tout ce qu'il entendait n'avait aucun lien avec lui. Son regard se perdit au loin. C'était comme s'il pouvait percer l'horizon pour apercevoir Wang Ping, qui était désormais un homme d'âge mûr, mais toujours animé par une telle vigueur...

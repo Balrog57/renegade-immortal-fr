@@ -88,11 +88,11 @@ Dans le pays de Suzaku, devant une secte, un vieux cultivateur ressemblant trait
 
 Wang Lin contempla la terre avant de faire un pas et de disparaître. Lorsqu'il réapparut, il se trouvait dans une vallée. Celle-ci était restée identique à son départ.
 
-« Le karma est réglé, il est temps de partir... Cependant, avant de m'en aller, je dois me rendre dans ce lieu au sein du Clan Xian Yi. Hélas, je ne trouve toujours pas de moyen d'augmenter l'énergie d'origine céleste des haricots célestes en mon corps... Sinon, je pourrais étudier l'Arsenal Magique. » Le regard de Wang Lin restait calme tandis qu'il contemplait l'horizon.
+« Le karma est réglé, il est temps de partir... Cependant, avant de m'en aller, je dois me rendre dans ce lieu au sein du Clan Xian Yi. Hélas, je ne trouve toujours pas de moyen d'augmenter l'énergie d'origine céleste des haricots célestes en mon corps... Sinon, je pourrais étudier la technique de transformer les haricots en soldats. » Le regard de Wang Lin restait calme tandis qu'il contemplait l'horizon.
 
 Dans le Système Stellaire de l'Alliance, il existait un système isolé où s'élevaient d'innombrables édifices noirs. Ces bâtiments, de styles variés, ressemblaient à de gigantesques épées plantées dans le vide.
 
-Au centre se dressait une tour, haute de dizaines de milliers de pieds. Des chaînes noires parcouraient toute la structure, la reliant aux bâtiments environnants.
+Au centre se dressait une tour, haute d'au moins dix mille pieds. Des chaînes noires parcouraient toute la structure, la reliant aux bâtiments environnants.
 
 L'Alliance Xiu Zhen était divisée en deux temples, quatre saints et huit domaines. Il s'agissait du domaine de la Boucherie!
 

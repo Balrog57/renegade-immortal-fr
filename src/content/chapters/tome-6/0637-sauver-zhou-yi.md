@@ -32,7 +32,7 @@ Au moment où il pénétra dans la brèche, le Sens Divin laissé par le Saint d
 
 Ce Sens Divin tyrannique était comme une épée acérée capable de percer les cieux, et elle fondit directement sur Wang Lin.
 
-La défense la plus externe de Wang Lin, le drapeau de l'âme, poussa un rugissement alors que cent millions de fragments d'âmes se rassemblaient pour former un bouclier afin de parer l'épée.
+La défense la plus externe de Wang Lin, l'Étendard de l'Âme, poussa un rugissement alors que cent millions de fragments d'âmes se rassemblaient pour former un bouclier afin de parer l'épée.
 
 Cependant, le Sens Divin de Ling Tianhou était trop puissant! Le bouclier formé par les cent millions de fragments fut transpercé par l'épée, qui continua sa course vers Wang Lin.
 
@@ -48,7 +48,7 @@ Plus de la moitié des insectes autour de lui se figèrent et tombèrent des sym
 
 Ce pas déclencha un Sens Divin plusieurs fois plus intense que le précédent. Une série de rugissements tonitruants résonna dans la brèche de la falaise. Les innombrables échos fusionnèrent pour sonner comme la colère des cieux qui voulait anéantir tout intrus!
 
-Les fragments d'âmes du drapeau de l'âme furent incapables de les bloquer. Ils furent brisés une fois de plus et l'attaque frappa directement l'armure démoniaque.
+Les fragments d'âmes de l'Étendard de l'Âme furent incapables de les bloquer. Ils furent brisés une fois de plus et l'attaque frappa directement l'armure démoniaque.
 
 À cet instant, l'énergie démoniaque de l'armure s'effondra et Wang Lin sentit une force inimaginable percuter son corps. Il eut la sensation que s'il ne reculait pas, il s'écroulerait et mourrait sur le coup!
 
@@ -62,13 +62,13 @@ Il dévora le Sens Divin de Ling Tianhou, puis une aura violente explosa en lui.
 
 À cet instant précis, l'esprit originel de Wang Lin trembla en percevant l'instabilité de l'âme démoniaque. Sans hésiter, il projeta un fragment de Sens Divin dans l'âme démoniaque pour activer l'empreinte. Bien que celle-ci ne fût pas stable, elle avait été gravée durant près d'un siècle.
 
-Une fois activée, l'âme démoniaque fut immédiatement aspirée dans le corps de Wang Lin. Même l'armure démoniaque entourant Wang Lin sembla affectée, se transformant en filaments noirs et perdant sa consistance solide. Wang Lin la remit rapidement dans son sac de rangement. Il fit aussitôt un autre pas, et cette fois, il avança de trente-trois mètres!
+Une fois activée, l'âme démoniaque fut immédiatement aspirée dans le corps de Wang Lin. Même l'armure démoniaque entourant Wang Lin sembla affectée, se transformant en filaments noirs et perdant sa consistance solide. Wang Lin la remit rapidement dans son sac de rangement. Il fit aussitôt un autre pas, et cette fois, il avança de cent pieds!
 
 Cependant, un troisième Sens Divin, encore plus intense que les précédents, jaillit des profondeurs de la brèche. Il gronda comme le tonnerre et semblait même porter la voix de Ling Tianhou.
 
 Cette voix, basse, était comme une incantation murmurée.
 
-Le drapeau de l'âme n'était pas assez puissant pour résister, et l'armure démoniaque avait disparu. Il ne restait que les cent mille sceaux de vie. Au moment où l'impact du troisième Sens Divin survint, les cent mille sceaux de vie se mirent à gonfler rapidement jusqu'à atteindre un million. Profitant de cette expansion soudaine, ils purent bloquer le Sens Divin de Ling Tianhou. Cependant, en un instant, le million de sceaux s'effondra.
+L'Étendard de l'Âme n'était pas assez puissant pour résister, et l'armure démoniaque avait disparu. Il ne restait que les cent mille sceaux de vie. Au moment où l'impact du troisième Sens Divin survint, les cent mille sceaux de vie se mirent à gonfler rapidement jusqu'à atteindre un million. Profitant de cette expansion soudaine, ils purent bloquer le Sens Divin de Ling Tianhou. Cependant, en un instant, le million de sceaux s'effondra.
 
 Les veines du visage de Wang Lin saillirent alors qu'il poussait un rugissement et frappait son sac de rangement. Le Char de Guerre Divin s'en échappa et se transforma en la Bête de Tonnerre!
 

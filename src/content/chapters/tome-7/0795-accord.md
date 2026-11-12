@@ -24,7 +24,7 @@ Wang Lin, bien qu'étant très loin, battit en retraite presque instantanément.
 
 Les 49 fragments qui se trouvaient devant Maître Yan Leizi apparurent soudainement derrière lui et entrèrent en collision avec la main droite de Qing Shui.
 
-Un fracas retentit. Malgré sa puissance, Qing Shui fut repoussé de 330 mètres. Ses yeux devinrent encore plus rouges et il entra dans un état étrange, avant de pousser un nouveau rugissement pour charger à nouveau.
+Un fracas retentit. Malgré sa puissance, Qing Shui fut repoussé de mille pieds. Ses yeux devinrent encore plus rouges et il entra dans un état étrange, avant de pousser un nouveau rugissement pour charger à nouveau.
 
 Maître Yan Leizi fronça les sourcils; il n'avait pas imaginé que ce jeune homme maléfique entrerait dans un tel état après avoir vu le jade céleste, et il fut pris au dépourvu. En voyant son état, son cœur sombra.
 
@@ -56,7 +56,7 @@ D'innombrables explosions déchirèrent le monde. Wang Lin continua de reculer, 
 
 « L'Appel du Vent! C'est donc cela, le pouvoir de l'Appel du Vent! »
 
-Après 49 explosions, Maître Yan Leizi recula de plusieurs mètres, le visage légèrement pâle. Manipuler cette formation représentait un fardeau colossal pour lui. Normalement, combattre quelqu'un comme Qing Shui ne devrait pas être aussi ardu, mais la difficulté résidait dans le fait que les sorts de Qing Shui étaient tout simplement trop puissants!
+Après 49 explosions, Maître Yan Leizi recula de plusieurs dizaines de pieds, le visage légèrement pâle. Manipuler cette formation représentait un fardeau colossal pour lui. Normalement, combattre quelqu'un comme Qing Shui ne devrait pas être aussi ardu, mais la difficulté résidait dans le fait que les sorts de Qing Shui étaient tout simplement trop puissants!
 
 « Ce n'est certainement pas un sort céleste ordinaire! » Lorsque Maître Yan Leizi contrôlait le corps de Wang Lin, il ne l'avait jamais vu utiliser une telle technique. C'était la première fois qu'il en était témoin, et il en fut profondément choqué.
 
@@ -64,9 +64,9 @@ Après 49 explosions, Maître Yan Leizi recula de plusieurs mètres, le visage l
 
 Les yeux de Qing Shui se remplirent d'intention meurtrière et il chargea. Simultanément, ses deux mains formèrent un sceau qu'il pressa contre sa poitrine. Son sceau changea instantanément alors qu'il pointait le ciel en criant: « Appel de la Pluie! »
 
-En un instant, des gouttes de pluie cristallines apparurent dans un rayon de 3,3 kilomètres. Cette pluie était rouge comme le sang.
+En un instant, des gouttes de pluie cristallines apparurent dans un rayon de dix mille pieds. Cette pluie était rouge comme le sang.
 
-Après avoir recouvert ces 3,3 kilomètres d'une lueur écarlate, Qing Shui forma un nouveau sceau, pointa en avant et hurla: « Appel de la Pluie, sceau de glace! »
+Après avoir recouvert ces dix mille pieds d'une lueur écarlate, Qing Shui forma un nouveau sceau, pointa en avant et hurla: « Appel de la Pluie, sceau de glace! »
 
 Des craquements stridents retentirent alors que toutes les gouttelettes se transformaient en cristaux de glace. La glace s'étendit rapidement pour se rejoindre presque instantanément, se propageant avec frénésie vers le centre où se trouvait Maître Yan Leizi.
 
@@ -74,7 +74,7 @@ Des craquements stridents retentirent alors que toutes les gouttelettes se trans
 
 Alors que Maître Yan Leizi hurlait, les 49 fragments tournèrent autour de lui pour créer un vortex gigantesque. Les fragments grossirent de plusieurs fois leur taille en un instant et continuaient de croître.
 
-« D'après mes recherches, au moment même où vous avez sombré dans la folie, d'autres personnes ont subi le même sort dans les trois autres Royaumes Célestes! La réponse se trouve peut-être au sein de l'Alliance Xiu Zhen du Royaume Céleste de la Pluie. Et si la réponse ne peut être trouvée, je promets de faire tout mon possible pour vous aider à rejoindre le Royaume Céleste du Vent et de la Foudre afin d'en découvrir la cause! »
+« D'après mes recherches, au moment même où vous avez sombré dans la folie, d'autres personnes ont subi le même sort dans les trois autres Royaumes Célestes! La réponse se trouve peut-être au sein de l'Alliance Xiu Zhen du Royaume Céleste de la Pluie. Et si la réponse ne peut être trouvée, je promets de faire tout mon possible pour vous aider à rejoindre les deux Royaumes Célestes du Vent et de la Foudre afin d'en découvrir la cause! »
 
 Les 49 fragments autour de Maître Yan Leizi tournaient frénétiquement, formant un immense vortex qui s'étendait pour résister à la glace convergeant de toutes les directions.
 

@@ -1,6 +1,6 @@
 ---
 n: 972
-title: Le Tout-Voyant à la Robe Grise
+title: Tian Yunzi à la Robe Grise
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 972 - Grey Robed Tian Yunzi

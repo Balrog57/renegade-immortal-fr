@@ -26,7 +26,7 @@ Le combat entre les deux fut d'une férocité extrême, et des explosions retent
 
 Tout sort ou trésor qui frappait Ta Shan restait sans effet sur lui. C'était comme s'il était insensible à la douleur et doté d'un corps d'acier; il continuait d'attaquer sans relâche!
 
-Au moment où Ta Shan chargeait, Wang Lin fit un pas en avant. Cette fois, il ne fusionna pas avec le monde, mais ouvrit la bouche pour laisser s'envoler le Sceau Céleste. L'objet s'étendit jusqu'à atteindre 33 mètres de large, puis s'abattit impitoyablement.
+Au moment où Ta Shan chargeait, Wang Lin fit un pas en avant. Cette fois, il ne fusionna pas avec le monde, mais ouvrit la bouche pour laisser s'envoler le Sceau Céleste. L'objet s'étendit jusqu'à atteindre cent pieds de large, puis s'abattit impitoyablement.
 
 Le Sceau Céleste poussa un rugissement assourdissant en s'écrasant. Les expressions des deux cultivateurs sous lui changèrent et ils tentèrent de s'échapper. Cependant, à cet instant, Wang Lin ordonna: « Scelle! », et une multitude de sceaux jaillirent du Sceau Céleste, bloquant immédiatement toutes les méthodes d'évasion des deux hommes.
 
@@ -62,11 +62,11 @@ Ils étaient rapides et se rapprochèrent en un instant. Une intention meurtriè
 
 Au moment précis où il disparut, le cultivateur Corporel Yang ouvrit grand les bras et hurla: « Téléportez-vous et perturbez les forces naturelles de la zone! »
 
-Dès cet ordre, tous les cultivateurs tentèrent une téléportation sur place. Leurs silhouettes commencèrent à vaciller entre l'existence et le néant. Simultanément, une puissante onde se propagea dans un rayon de 330 mètres, faisant tordre l'espace environnant.
+Dès cet ordre, tous les cultivateurs tentèrent une téléportation sur place. Leurs silhouettes commencèrent à vaciller entre l'existence et le néant. Simultanément, une puissante onde se propagea dans un rayon de mille pieds, faisant tordre l'espace environnant.
 
 « Très intelligent, mais insuffisant! » Wang Lin fit un pas. Il semblait que l'onde n'eût aucun effet sur lui. Lorsqu'il réapparut, il pressa son doigt sur un cultivateur qui avait résolument abandonné son corps pour s'enfuir avec son âme originelle.
 
-Le corps de ce dernier explosa dans un nuage de sang. Quant à son âme originelle, elle s'était déjà échappée à plus de 330 mètres de là sans se retourner.
+Le corps de ce dernier explosa dans un nuage de sang. Quant à son âme originelle, elle s'était déjà échappée à plus de mille pieds de là sans se retourner.
 
 Tandis qu'elle s'enfuyait, l'âme cria: « Camarade cultivateur Xu Mu, désormais, aucune famille de la planète Ling Ming ne s'ingérera dans votre conflit avec la famille Yao. Laissez-moi partir! »
 
@@ -100,7 +100,7 @@ Dès qu'il retira son doigt, il disparut à nouveau. Un instant plus tard, le Sc
 
 Le cultivateur Yin Illusoire affichait une expression extrêmement sombre. Il ne voulait pas s'enliser avec cet esprit d'épée. Voir ses compagnons mourir les uns après les autres fit atteindre à sa peur un paroxysme.
 
-Les injures de l'esprit d'épée l'agaçèrent profondément. Il activa l'énergie originelle de son corps, provoquant une onde de choc qui repoussa Xu Liguo. Refusant le combat, il s'enfuit à plus de 330 mètres et s'apprêta à se téléporter.
+Les injures de l'esprit d'épée l'agaçèrent profondément. Il activa l'énergie originelle de son corps, provoquant une onde de choc qui repoussa Xu Liguo. Refusant le combat, il s'enfuit à plus de mille pieds et s'apprêta à se téléporter.
 
 Cependant, au moment où il tenta la téléportation, ses pupilles se rétractèrent: les doigts de Wang Lin avaient déjà atteint l'espace entre ses sourcils.
 

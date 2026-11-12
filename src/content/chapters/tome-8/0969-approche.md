@@ -24,13 +24,13 @@ Un grondement tonitruant retentit à travers le monde lorsque le doigt percuta l
 
 Le doigt força l'ouverture d'une fissure. Cette brèche continuait de s'étendre, faisant tourner les courants d'air et provoquant un changement soudain et radical du climat.
 
-En levant les yeux vers le ciel, on aurait dit que le doigt avait percé un trou dans les cieux et descendait lentement pour s'y engouffrer! Il visait la vallée située à mille kilomètres de la Cité aux Yeux Fantômes!
+En levant les yeux vers le ciel, on aurait dit que le doigt avait percé un trou dans les cieux et descendait lentement pour s'y engouffrer! Il visait la vallée située à mille kilomètres de la Cité Gui Yan!
 
 Avant que le doigt ne frappe, une pression inimaginable descendit et la terre craquela. Les expressions de tous les cultivateurs qui s'estimaient dotés d'un certain niveau de culture changèrent radicalement; aucun d'eux n'osa s'approcher pour observer.
 
 Alors que cette puissance se propageait, leurs esprits tremblèrent. Un sentiment de fin des temps, comme si le ciel et la terre allaient être anéantis, naquit au plus profond de leurs cœurs.
 
-Initialement, la pluie couvrait le ciel au-dessus de la Cité aux Yeux Fantômes et les grondements de tonnerre résonnaient sans fin. Cependant, à cet instant précis, alors que le doigt géant descendait, tous les nuages furent balayés. C'était comme un rideau que l'on écarte brusquement devant une porte. Même la puissance des cieux semblait devoir s'effacer devant ce doigt.
+Initialement, la pluie couvrait le ciel au-dessus de la Cité Gui Yan et les grondements de tonnerre résonnaient sans fin. Cependant, à cet instant précis, alors que le doigt géant descendait, tous les nuages furent balayés. C'était comme un rideau que l'on écarte brusquement devant une porte. Même la puissance des cieux semblait devoir s'effacer devant ce doigt.
 
 Un épais nuage sombre n'eut pas le temps de s'écarter et fut frappé par les ondulations précédant le doigt. Il explosa instantanément, illuminant le ciel d'une multitude d'éclairs.
 
@@ -52,7 +52,7 @@ Ce doigt était colossal. Il dégageait une lueur aux sept couleurs et faisait t
 
 Cependant, le moment était venu de s'en servir!
 
-Le doigt géant descendait lentement et chargeait vers Wang Lin. Un grondement assourdissant retentit, et la pression de sa descente fit à nouveau éclater la terre! Même la Cité aux Yeux Fantômes fut affectée: de larges pans de ses murs s'effondrèrent et des cris de détresse s'élevèrent de la ville.
+Le doigt géant descendait lentement et chargeait vers Wang Lin. Un grondement assourdissant retentit, et la pression de sa descente fit à nouveau éclater la terre! Même la Cité Gui Yan fut affectée: de larges pans de ses murs s'effondrèrent et des cris de détresse s'élevèrent de la ville.
 
 À cet instant, il existait une planète éloignée de Tian Yun, mais qui restait sous l'influence de celle-ci. C'était une planète de culture nommée Da Luo! Il n'y avait qu'une seule secte sur cette planète: la Secte Da Luo Jian!
 
@@ -66,6 +66,6 @@ Au sommet de cette tour siégeait le Saint de l'Épée, Ling Tianhou. Les quatre
 
 « Intéressant! Très intéressant! » Ling Tianhou ouvrit soudainement les yeux, laissant apparaître une lueur de froideur. Un sourire étira ses lèvres.
 
-« Combien de fois maître et disciple se sont-ils retournés l'un contre l'autre? Ce vieil homme adore observer ces moments de Tian Yunzi... Cependant, ce Wang Lin est un membre de la Série Oiseau Vermillon. Même les Anciens de l'Alliance doivent réfléchir à deux fois avant d'agir contre un membre de cette série. Après tout, nul ne souhaite provoquer l'ancien souverain du Système Stellaire du Vide Brillant: les Quatre Sectes Divines! »
+« Combien de fois maître et disciple se sont-ils retournés l'un contre l'autre? Ce vieil homme adore observer ces moments de Tian Yunzi... Cependant, ce Wang Lin est un membre de la Série de Suzaku. Même les Anciens de l'Alliance doivent réfléchir à deux fois avant d'agir contre un membre de cette série. Après tout, nul ne souhaite provoquer l'ancien souverain du Système Stellaire de Kun Xu: les Quatre Sectes Divines! »
 
 « Peu importe. Wang Lin, si tu peux résister à un seul sort sans mourir, ce vieil homme viendra à ton aide! » Ling Tianhou sourit. Sa passion favorite consistait à causer des ennuis à Tian Yunzi.

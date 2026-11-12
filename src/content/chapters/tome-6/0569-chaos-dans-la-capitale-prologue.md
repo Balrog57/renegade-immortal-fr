@@ -28,7 +28,7 @@ L'expression de l'homme maléfique ne changea pas. Il leva la main droite et poi
 
 Un bruit sourd et étouffé retentit soudainement des deux côtés!
 
-Une onde de choc se propagea alors à partir d'eux. Cependant, cette onde ne parcourut que 9,9 mètres avant de se dissiper à la lisière de la route militaire, n'endommageant ainsi aucun bâtiment.
+Une onde de choc se propagea alors à partir d'eux. Cependant, cette onde ne parcourut que trente pieds avant de se dissiper à la lisière de la route militaire, n'endommageant ainsi aucun bâtiment.
 
 Les deux adversaires devaient maîtriser leur force avec une précision extrême pour s'assurer que l'onde de choc soit la plus réduite possible.
 
@@ -52,13 +52,13 @@ Les yeux de Mo Lihai se plissèrent en observant Wang Lin et l'homme svelte.
 
 L'homme maléfique demanda: « Oh? Vous vous connaissez? »
 
-L'homme mince regarda Wang Lin et dit lentement: « C'est mon frère cadet! »
+L'homme mince regarda Wang Lin et dit lentement: « C'est mon Junior frère! »
 
-« Cela fait longtemps, Frère Sun Tao. Il semble que tu doives te retirer en culture de porte fermée pendant plusieurs années pour guérir de ta grave blessure! » dit Wang Lin. Sa voix était si calme qu'il était impossible de deviner s'il éprouvait de la joie ou de la colère. En voyant Sun Tao, il réalisa immédiatement que sa blessure était profonde, affectant même son âme originelle. Bien que la blessure ait été artificiellement contenue, la culture de Sun Tao avait chuté du stade médian de l'Ascendant au sommet du stade tardif de la Transformation de l'Âme!
+« Cela fait longtemps, Senior frère Sun Tao. Il semble que tu doives te retirer en culture de porte fermée pendant plusieurs années pour guérir de ta grave blessure! » dit Wang Lin. Sa voix était si calme qu'il était impossible de deviner s'il éprouvait de la joie ou de la colère. En voyant Sun Tao, il réalisa immédiatement que sa blessure était profonde, affectant même son âme originelle. Bien que la blessure ait été artificiellement contenue, la culture de Sun Tao avait chuté du stade médian de l'Ascendant au sommet du stade tardif de la Transformation de l'Âme!
 
 Sun Tao observa attentivement Wang Lin, puis le choc dans son cœur s'apaisa lentement. En voyant Wang Lin, il découvrit naturellement que sa culture avait progressé de deux étapes, passant du stade médian de la Transformation de l'Âme au sommet du stade tardif.
 
-Sun Tao dit lentement: « Jeune frère Wang, il semble que tu aies fait une rencontre fortuite! Mais sois prudent dans la Cité Tian Yao à cause des membres de la Secte Da Luo Jian. Ce sont eux qui m'ont infligé ces blessures! » Une pointe de rage perçait dans sa voix. Cette colère n'était pas dirigée contre Wang Lin, mais contre la Secte Da Luo Jian.
+Sun Tao dit lentement: « Junior frère Wang, il semble que tu aies fait une rencontre fortuite! Mais sois prudent dans la Cité Tian Yao à cause des membres de la Secte Da Luo Jian. Ce sont eux qui m'ont infligé ces blessures! » Une pointe de rage perçait dans sa voix. Cette colère n'était pas dirigée contre Wang Lin, mais contre la Secte Da Luo Jian.
 
 Wang Lin réfléchit un instant avant de tapoter son sac de rangement et d'en sortir une fiole de pilules. Bien que ces pilules n'eussent qu'un effet limité sur Sun Tao, elles témoignaient de la bonne volonté de Wang Lin. Il lança les pilules à Sun Tao, puis reprit sa route sur son cheval sans dire un mot.
 
@@ -72,7 +72,7 @@ Sun Tao rangea les pilules, réfléchit un instant et répondit: « Si je n'éta
 
 Sun Tao songea un instant. Peu après, il ajouta: « Si je parviens à obtenir les matériaux nécessaires, je pourrai raffiner une Pilule de l'Origine Céleste, ce qui pourrait restaurer ma culture au stade initial de l'Ascendant pour une courte période! »
 
-L'homme maléfique hocha la tête: « Ne t'inquiète pas pour les matériaux, j'ai déjà envoyé des hommes pour les rassembler! » Puis il changea de sujet: « Et ton frère cadet, comment est-il? »
+L'homme maléfique hocha la tête: « Ne t'inquiète pas pour les matériaux, j'ai déjà envoyé des hommes pour les rassembler! » Puis il changea de sujet: « Et ton Junior frère, comment est-il? »
 
 Sun Tao afficha un regard complexe avant de soupirer: « Puissant! Très puissant! Même lorsque sa culture n'était qu'au stade médian de la Transformation de l'Âme, il valait mieux ne pas le provoquer! »
 
@@ -82,7 +82,7 @@ Sur la route militaire, Mo Lihai regarda Wang Lin en souriant: « Merci pour ton
 
 Wang Lin secoua la tête: « Ce n'est qu'une bagatelle; le Frère Mo n'a pas à me remercier. »
 
-Mo Lihai reprit d'un ton lent: « Cet homme s'appelle Shi Xiao, et le pouvoir de son sort, l'Épée Démoniaque aux Six Doigts, est imprévisible! Avec l'aide de ton frère aîné, il sera l'une de mes principales menaces cette fois-ci! »
+Mo Lihai reprit d'un ton lent: « Cet homme s'appelle Shi Xiao, et le pouvoir de son sort, l'Épée Démoniaque aux Six Doigts, est imprévisible! Avec l'aide de ton Senior frère, il sera l'une de mes principales menaces cette fois-ci! »
 
 Ils progressèrent rapidement sur la route militaire et, après le temps qu'il faut pour brûler un bâton d'encens, ils s'arrêtèrent devant un manoir. Bien que l'endroit ne fût pas vaste, il possédait tout le nécessaire; on y trouvait même des montagnes artificielles et des bassins d'eau. C'était fort élégant.
 

@@ -18,7 +18,7 @@ Un vieil homme était assis face aux deux fillettes. Il portait une robe rouge s
 
 « En tant que membres de la famille Yao, afin que notre lignée connaisse des générations de gloire, vous deux deviendrez l'âme du trésor! »
 
-Alors qu'il parlait, il leva sa main droite. Une fissure de 10 mètres de long apparut devant lui d'où s'engouffra un vent glacial. Puis, une lampe antique en sortit lentement.
+Alors qu'il parlait, il leva sa main droite. Une fissure de trente pieds de long apparut devant lui d'où s'engouffra un vent glacial. Puis, une lampe antique en sortit lentement.
 
 La lampe à huile dégageait une flamme bleue qui brûlait avec lenteur. Elle ne produisait aucune chaleur, mais était au contraire d'une froideur inimaginable.
 

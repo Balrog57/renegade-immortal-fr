@@ -76,7 +76,7 @@ Le regard de Wang Lin se glaça et il fit un pas en avant. Il leva la main droit
 
 Une rafale de vent noir apparut soudainement. Ce vent était infini et envahit toute la zone. L'énergie tranchante qui scellait l'espace fut incapable de lui résister; les lames s'effondrèrent en fragments et furent balayées par le courant!
 
-Le vent noir sifflait, créant un souffle glacial capable d'anéantir toute vie. Deux dragons noirs surgirent immédiatement de la tempête. Chacun mesurait 3 300 mètres de long et, au rythme de leurs mouvements, de puissants grondements faisaient écho dans l'arène. Les rugissements de ces dragons féroces étaient comme la colère des cieux!
+Le vent noir sifflait, créant un souffle glacial capable d'anéantir toute vie. Deux dragons noirs surgirent immédiatement de la tempête. Chacun mesurait dix mille pieds de long et, au rythme de leurs mouvements, de puissants grondements faisaient écho dans l'arène. Les rugissements de ces dragons féroces étaient comme la colère des cieux!
 
 Une intention meurtrière dense enveloppa les lieux, émanant directement de Wang Lin. Bien que ce sort se nommât « Invoque le Vent », il puisait dans l'énergie originelle de Wang Lin. Son intention meurtrière fusionnait avec le vent noir et son immense intention de bataille!
 
@@ -84,7 +84,7 @@ Une intention meurtrière dense enveloppa les lieux, émanant directement de Wan
 
 Un rugissement sauvage s'échappa des deux dragons noirs. Simultanément, une tempête se déchaîna, balayant les neuf rayons d'énergie et provoquant leur effondrement immédiat!
 
-Au centre de l'arène, Wang Lin se tenait debout dans sa robe blanche, entouré par le vent noir. Les deux dragons de 3 300 mètres s'enroulaient autour de lui en rugissant sans relâche. Wang Lin, imperturbable, marcha vers l'homme en noir!
+Au centre de l'arène, Wang Lin se tenait debout dans sa robe blanche, entouré par le vent noir. Les deux dragons de dix mille pieds s'enroulaient autour de lui en rugissant sans relâche. Wang Lin, imperturbable, marcha vers l'homme en noir!
 
 « Si tu veux combattre, alors combattons! » Une voix si calme qu'elle en était glaciale émana de Wang Lin.
 

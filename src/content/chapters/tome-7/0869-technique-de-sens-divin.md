@@ -8,13 +8,13 @@ slug: technique-de-sens-divin
 ---
 Les pupilles de Luo Su se rétractèrent et son sens divin s'étendit. Le sens divin d'un cultivateur du milieu du stade Scruteur du Nirvana était bien plus puissant que celui d'un cultivateur du début de ce même stade. À mesure que son sens divin se déployait, les sept géants dorés restants se mirent à briller intensément. Cela créa également une pression écrasante dans la zone!
 
-Les sept géants dorés se précipitèrent vers Wang Lin. Les yeux de Wang Lin s'illuminèrent et il ne ralentit pas; il chargea, le Fouet du Karma devant lui. Le fouet enveloppa Wang Lin et s'étira sur une longueur de 330 mètres. Puis, Wang Lin saisit immédiatement l'arme.
+Les sept géants dorés se précipitèrent vers Wang Lin. Les yeux de Wang Lin s'illuminèrent et il ne ralentit pas; il chargea, le Fouet Kunji devant lui. Le fouet enveloppa Wang Lin et s'étira sur une longueur de mille pieds. Puis, Wang Lin saisit immédiatement l'arme.
 
-D'un coup sec, le Fouet du Karma laissa échapper un sifflement aigu qui ressemblait au hurlement d'un fantôme. Il s'élança aussitôt en avant. L'un des géants dorés fut instantanément percuté et s'effondra dans un fracas retentissant!
+D'un coup sec, le Fouet Kunji laissa échapper un sifflement aigu qui ressemblait au hurlement d'un fantôme. Il s'élança aussitôt en avant. L'un des géants dorés fut instantanément percuté et s'effondra dans un fracas retentissant!
 
-Le Fouet du Karma était à l'origine noir, mais après avoir détruit quatre géants dorés, il semblait muer, comme si des écailles commençaient à se détacher de sa surface.
+Le Fouet Kunji était à l'origine noir, mais après avoir détruit quatre géants dorés, il semblait muer, comme si des écailles commençaient à se détacher de sa surface.
 
-Des éclats de lumière dorée s'échappèrent du fouet. C'était comme si l'arme avait absorbé la puissance du soleil et de la lune: le soleil est d'or, la lune d'argent! Le Fouet du Karma frappait en dégageant une lueur dorée semblable à celle d'un dragon. À chaque mouvement, une série de craquements retentissait, et les géants dorés restants s'effondrèrent tous!
+Des éclats de lumière dorée s'échappèrent du fouet. C'était comme si l'arme avait absorbé la puissance du soleil et de la lune: le soleil est d'or, la lune d'argent! Le Fouet Kunji frappait en dégageant une lueur dorée semblable à celle d'un dragon. À chaque mouvement, une série de craquements retentissait, et les géants dorés restants s'effondrèrent tous!
 
 Cette scène fit écarquiller les yeux de tous les spectateurs. Même les vieux monstres sur les tapis de prière devinrent intéressés.
 
@@ -38,7 +38,7 @@ Sur ces mots, le vortex formé par les dragons noirs s'élargit soudainement dan
 
 Bien que la culture et le sens divin de Wang Lin ne fussent pas à la hauteur de ceux de Luo Su, ses sorts étaient prodigieux et il possédait un trésor spécialisé pour contrer le sens divin!
 
-Dès qu'une ouverture se créa, le Fouet du Karma s'élança. Tandis que des grondements résonnaient, la suppression du sens divin de Luo Su s'effondra et fut repoussée.
+Dès qu'une ouverture se créa, le Fouet Kunji s'élança. Tandis que des grondements résonnaient, la suppression du sens divin de Luo Su s'effondra et fut repoussée.
 
 La silhouette de Wang Lin fendit l'air comme un éclair au moment même où la pression cédait. Les deux dragons noirs poussèrent des rugissements et projetèrent des rafales de vent glacial vers Luo Su.
 
@@ -70,7 +70,7 @@ L'expression de Wang Lin demeura calme. S'il avait affronté un véritable culti
 
 Si un autre avait été en face, le sens divin de Luo Su aurait été difficile à contrer. Car la différence de niveau de culture se traduit également par une différence de puissance du sens divin. Le cultivateur le plus fort écrase le plus faible!
 
-Cependant, Wang Lin ne considérait même pas cette attaque comme une menace. Dès que les aiguilles approchèrent, le Fouet du Karma frappa. Après une série de craquements, un grand nombre d'aiguilles furent annihilées. Toutefois, elles étaient trop nombreuses; certaines contournèrent le fouet et pénétrèrent dans le corps de Wang Lin.
+Cependant, Wang Lin ne considérait même pas cette attaque comme une menace. Dès que les aiguilles approchèrent, le Fouet Kunji frappa. Après une série de craquements, un grand nombre d'aiguilles furent annihilées. Toutefois, elles étaient trop nombreuses; certaines contournèrent le fouet et pénétrèrent dans le corps de Wang Lin.
 
 Elles se transformèrent en une force impétueuse et chargèrent l'âme originelle de Wang Lin. Cependant, au moment où elles approchèrent de son âme, elles percutèrent l'Armure de Cuir de l'Ancien Dieu et s'effondrèrent!
 
@@ -78,7 +78,7 @@ Avec l'Armure de Cuir de l'Ancien Dieu, ce genre d'attaque de sens divin était 
 
 À cet instant, les dragons noirs approchaient de Luo Su, dont le visage se crispa. Sa main traça un sceau et il pointa l'espace entre ses sourcils. Sans même regarder les dragons noirs, il fixa Wang Lin, et un rayon de lumière verte jaillit de son front. Cette lumière était éclatante et prit rapidement la forme d'un serpent vert!
 
-Ce serpent ouvrit une gueule malveillante, dévoilant des crocs acérés. Il poussa un sifflement et chargea. Au moment où le Fouet du Karma frappa le reptile, celui-ci se divisa en deux. Après avoir esquivé le fouet, il contourna l'attaque par la droite et la gauche pour s'abattre sur le corps de Wang Lin.
+Ce serpent ouvrit une gueule malveillante, dévoilant des crocs acérés. Il poussa un sifflement et chargea. Au moment où le Fouet Kunji frappa le reptile, celui-ci se divisa en deux. Après avoir esquivé le fouet, il contourna l'attaque par la droite et la gauche pour s'abattre sur le corps de Wang Lin.
 
 Les deux serpents verts pénétrèrent son corps, se transformant en deux flux d'une force inimaginable qui foncèrent vers son âme originelle. L'un des flux était légèrement plus rapide que l'autre. Lorsqu'il approcha de l'âme originelle de Wang Lin, il ouvrit la gueule pour tenter de la dévorer. Ses crocs percutèrent l'Armure de Cuir de l'Ancien Dieu et se brisèrent, mais la férocité du serpent ne faiblit pas; il s'écrasa contre l'armure.
 
@@ -116,7 +116,7 @@ Simultanément, des centaines de milliers de runes dorées volèrent et encercl�
 
 Le cœur de Luo Su était oppressé. Les sorts d'énergie originelle n'étaient pas sa spécialité; sa force résidait dans son sens divin. Or, celui-ci n'avait aucun effet sur Wang Lin, ce qui le remplissait d'amertume.
 
-Après s'être libéré du sort *Arrête*, Luo Su lança la foudre enflammée qu'il tenait en main. L'éclair grandit instantanément pour atteindre une quarantaine de mètres de large. Une gueule béante apparut au sein de la foudre, tentant d'engloutir le Sceau Céleste.
+Après s'être libéré du sort *Arrête*, Luo Su lança la foudre enflammée qu'il tenait en main. L'éclair grandit instantanément pour atteindre plus de cent pieds de large. Une gueule béante apparut au sein de la foudre, tentant d'engloutir le Sceau Céleste.
 
 Le tonnerre enflammé enveloppa entièrement le Sceau Céleste de flammes. Pourtant, le sceau resta intact et s'écrasa impitoyablement.
 
@@ -126,7 +126,7 @@ Un fracas assourdissant retentit lorsque le Sceau Céleste frappa. Luo Su, l'exp
 
 Le sort *Arrête* ayant été brisé, l'esprit de Wang Lin fut secoué et il subit un contrecoup. En mouvement, il frappa son sac de rangement puis tira de sa bannière une âme originelle, qu'il avala aussitôt pour restaurer son énergie. À ce moment précis, Luo Su ne recula pas; au contraire, il chargea tandis que les ondes se rapprochaient de Wang Lin.
 
-Le Fouet du Karma s'agita pour continuer à frapper devant Wang Lin. Les ondes furent immédiatement brisées, mais certaines réussirent à passer et frappèrent le corps de Wang Lin.
+Le Fouet Kunji s'agita pour continuer à frapper devant Wang Lin. Les ondes furent immédiatement brisées, mais certaines réussirent à passer et frappèrent le corps de Wang Lin.
 
 Le visage de Wang Lin pâlit. Bien que l'Armure de Cuir de l'Ancien Dieu fût robuste, des vibrations atteignirent son sens divin. Ses yeux brillèrent d'intention meurtrière et il fit un pas en avant. Ses deux mains formèrent un sceau, ses deux doigts une épée, et des *Coups Célestes* apparurent dans ses paumes, s'élançant une à une vers son adversaire.
 

@@ -82,13 +82,13 @@ Même son corps originel pourrait en bénéficier.
 
 À cet instant, une mer de flammes s'étendait dans la partie est lointaine du Système Stellaire de l'Alliance. Au cœur de cette mer brûlante se trouvait une planète entièrement rouge, recouverte de flammes comme s'il s'agissait d'une planète de culture en combustion constante.
 
-Cette planète était nommée la Planète du Saint Vermillon!
+Cette planète était nommée la Planète Sainte Suzaku!
 
 Les seules choses à proximité étaient les vestiges d'une étoile éparpillés aux quatre vents. On aurait dit que cet endroit brûlait depuis des éons.
 
 Un rayon de lumière rouge surgit des étoiles lointaines. C'était un jeune cultivateur chevauchant un oiseau de feu. Il plongea dans la mer de flammes et disparut.
 
-Sur cette planète, une statue imposante du Vermillon perçait les cieux. Cette statue dégageait une chaleur infinie, et trois Anciens étaient assis à son sommet.
+Sur cette planète, une statue imposante de Suzaku perçait les cieux. Cette statue dégageait une chaleur infinie, et trois Anciens étaient assis à son sommet.
 
 Soudain, la silhouette du jeune homme apparut à des milliers de pieds de là, comme s'il ne pouvait supporter la température. Dès son apparition, il se mit à transpirer abondamment.
 
@@ -100,4 +100,4 @@ Le jeune homme recula précipitamment de plusieurs centaines de pieds pour ne pa
 
 Un autre vieil homme sourit. « En moins de deux mois, ils n'ont réussi à prendre que 60 %. Les cultivateurs de Luotian sont bien rigoureux. »
 
-Le dernier vieil homme dit calmement: « Voyons comment le plan de l'Alliance Xiu Zhen va se dérouler. Il devrait donner une leçon profonde aux cultivateurs de Luotian. Malheureusement, l'Empereur Sacré n'est pas présent, sinon ma Planète du Saint Vermillon pourrait également en tirer de grands bénéfices. »
+Le dernier vieil homme dit calmement: « Voyons comment le plan de l'Alliance Xiu Zhen va se dérouler. Il devrait donner une leçon profonde aux cultivateurs de Luotian. Malheureusement, l'Empereur Sacré n'est pas présent, sinon ma Planète Sainte Suzaku pourrait également en tirer de grands bénéfices. »

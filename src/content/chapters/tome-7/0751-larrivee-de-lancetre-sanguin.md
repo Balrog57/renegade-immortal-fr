@@ -58,11 +58,11 @@ Le visage de Li Yuan était illuminé par ce brasier rouge, lui conférant un as
 
 Une fois jetée dans le feu, l'aiguille de la boussole se mit à tourner frénétiquement. Chaque rotation provoquait une onde de choc qui se propageait au cœur des flammes puis vers l'extérieur, permettant au brasier de s'étendre rapidement.
 
-En un clin d'œil, la flamme rouge émanant de l'épée atteignit une dizaine de mètres de hauteur. Elle semblait vouloir s'élancer vers le ciel, diffusant une lueur écarlate vacillante.
+En un clin d'œil, la flamme rouge émanant de l'épée atteignit plusieurs dizaines de pieds de hauteur. Elle semblait vouloir s'élancer vers le ciel, diffusant une lueur écarlate vacillante.
 
 La flamme vacilla violemment avant que la boussole ne se brise à l'intérieur. Au moment de sa destruction, l'incendie rouge devint encore plus intense.
 
-Ensuite, ce fut l'épée de fer qui céda. Elle se mua en fer fondu, absorbé par les flammes qui s'en trouvèrent décuplées. Le brasier dépassait désormais les trente mètres de haut et se jeta sur la statue de pierre.
+Ensuite, ce fut l'épée de fer qui céda. Elle se mua en fer fondu, absorbé par les flammes qui s'en trouvèrent décuplées. Le brasier dépassait désormais cent pieds de haut et se jeta sur la statue de pierre.
 
 Les flammes rouges enveloppèrent soudainement la statue, ainsi que les statues de l'épée et du serviteur.
 
@@ -84,7 +84,7 @@ Le retrait de Wang Lin força Li Yuan à tourner brusquement la tête vers lui. 
 
 Ce ressentiment et cette lumière agissaient comme des nutriments, donnant à la statue la force de se libérer. Cependant, un sceau empêchait la statue de se libérer, et ce sceau tendait à la faire s'effondrer avec elle.
 
-Wang Lin recula encore plus vite, parcourant trois cent trente mètres en un instant. Le regard de Li Yuan devint glacial et sa culture explosa avec une rage folle. Bien qu'il fût encore au sommet du stade avancé de l'Ascendant, une aura terrifiante émanait de lui.
+Wang Lin recula encore plus vite, parcourant mille pieds en un instant. Le regard de Li Yuan devint glacial et sa culture explosa avec une rage folle. Bien qu'il fût encore au sommet du stade avancé de l'Ascendant, une aura terrifiante émanait de lui.
 
 Sa charge fut semblable à une téléportation, lui permettant de rattraper directement Wang Lin, alors il hurla: « Confrère cultivateur Xu, pourquoi fuyez-vous ainsi!? »
 

@@ -130,6 +130,6 @@ Le niveau de culture de cet homme d'âge moyen avait déjà dépassé le premier
 
 « Il y a même des gens qui osent usurper l'identité d'un messager du Temple Céleste du Tonnerre. Une telle insolence ne s'était pas vue depuis bien longtemps! » ricana l'homme. En tant que messager du Temple Céleste du Tonnerre, son pouvoir était immense. Dans tout le Système Stellaire de Luotian, hormis quelques anciennes familles de culture, presque personne n'osait provoquer le Temple.
 
-« Laisse-moi, Daoïste du Tonnerre, véritable messager du Temple Céleste du Tonnerre, faire face à cet individu. Ne pensez pas que l'usage de quelques sorts de foudre suffit pour prétendre être un envoyé du Temple. Les véritables membres du Temple possèdent une Bête du Tonnerre! » Le Daoïste du Tonnerre tapota la tête de sa monture de la main droite.
+« Laisse-moi, Lei Daozi, véritable messager du Temple Céleste du Tonnerre, faire face à cet individu. Ne pensez pas que l'usage de quelques sorts de foudre suffit pour prétendre être un envoyé du Temple. Les véritables membres du Temple possèdent une Bête du Tonnerre! » Lei Daozi tapota la tête de sa monture de la main droite.
 
 La Bête du Tonnerre sembla percevoir la fierté de son maître et poussa un rugissement qui résonna parmi les étoiles. Ils se rapprochaient de plus en plus de la planète Ran Yun.

@@ -8,9 +8,9 @@ slug: raffinement-pourpre
 ---
 À l'extérieur de la vallée, Wang Lin leva la main droite et la masse terrestre gigantesque s'envola vers le ciel.
 
-Wang Lin resta assis devant la vallée, le regard glacial, et cracha le Drapeau des Âmes d'un Milliard. Alors que l'étendard de trente-trois mètres flottait dans les airs, des hurlements fantomatiques s'en échappèrent.
+Wang Lin resta assis devant la vallée, le regard glacial, et cracha le Drapeau des Âmes d'un Milliard. Alors que l'étendard de cent pieds flottait dans les airs, des hurlements fantomatiques s'en échappèrent.
 
-Bien que le Drapeau des Âmes d'un Milliard ne contienne plus un milliard d'âmes, il demeurait le trésor emblématique de la Secte Lian Hun des Âmes. Puisque tous les habitants de la vallée pratiquaient le sort d'affinement des âmes, dès qu'ils aperçurent le drapeau, ils ressentirent une irrésistible envie de le vénérer.
+Bien que le Drapeau des Âmes d'un Milliard ne contienne plus un milliard d'âmes, il demeurait le trésor emblématique de la Secte Lian Hun. Puisque tous les habitants de la vallée pratiquaient le sort d'affinement des âmes, dès qu'ils aperçurent le drapeau, ils ressentirent une irrésistible envie de le vénérer.
 
 Wang Lin saisit le drapeau et, d'un revers de main, libéra les âmes primaires. Les six âmes primaires restantes, dont le Qilin, apparurent immédiatement pour encercler la zone de cinq kilomètres de large.
 
@@ -22,7 +22,7 @@ Les regards des six âmes primaires projetèrent soudain une lueur spectrale et 
 
 Ces flammes étaient l'essence même de ces six âmes primaires de la Transformation de l'Âme, ce qui les rendait extrêmement puissantes. Tandis que les flammes rugissaient, des bruits de crépitements et de sifflements déchirèrent le silence sur cette étendue de terre.
 
-Des cris de terreur se mêlaient au grondement du brasier. Après la durée d'une demi-baguette d'encens, seule la moitié du terrain subsistait, la terre restante étant devenue totalement rouge incandescente.
+Des cris de terreur se mêlaient au grondement du brasier. Après la durée d'un demi-bâton d'encens, seule la moitié du terrain subsistait, la terre restante étant devenue totalement rouge incandescente.
 
 Cependant, sous la protection de la lumière verte, les flammes ne parvinrent pas à tout raffiner. Les éclats violents de lueur émeraude résistaient à l'invasion du feu, et un point d'équilibre fut atteint.
 
@@ -60,7 +60,7 @@ D'un mouvement de doigt aussi rapide que l'éclair, il pressa le front de Treize
 
 Wang Lin leva la main droite et ferma les yeux pour cultiver.
 
-Une demi-baguette d'encens plus tard, Treize ouvrit lentement les yeux. Il contempla le ciel au-dessus de la vallée dans un long silence. Puis, il se leva et s'agenouilla devant Wang Lin, le visage marqué par la douleur.
+Un demi-bâton d'encens plus tard, Treize ouvrit lentement les yeux. Il contempla le ciel au-dessus de la vallée dans un long silence. Puis, il se leva et s'agenouilla devant Wang Lin, le visage marqué par la douleur.
 
 Cette douleur ne venait pas de son corps, mais de son cœur.
 

@@ -33,7 +33,7 @@ Wang Lin n'aurait jamais imaginé que la perle défiant le ciel déclencherait i
 
 « La grande guerre entre les quatre Royaumes Célestes fut certainement infiniment plus féroce que la bataille entre Luotian et l'Alliance... » Wang Lin soupira en traversant la nébuleuse. À un moment donné, il se retourna et resta immobile.
 
-Un instant plus tard, des ondulations se propagèrent de l'endroit où il fixait le vide, et Qing Shui en sortit. Il regarda Wang Lin avec admiration dans les yeux. L'expression de Wang Lin était sereine lorsqu'il sourit: « Frère aîné est arrivé. »
+Un instant plus tard, des ondulations se propagèrent de l'endroit où il fixait le vide, et Qing Shui en sortit. Il regarda Wang Lin avec admiration dans les yeux. L'expression de Wang Lin était sereine lorsqu'il sourit: « Senior frère est arrivé. »
 
 « Le toi d'aujourd'hui est qualifié pour voyager parmi les étoiles, je peux donc me détendre », répondit Qing Shui en faisant un pas pour rejoindre Wang Lin.
 
@@ -43,7 +43,7 @@ Wang Lin remarqua immédiatement une puissante odeur de sang émanant du corps d
 
 La réalité était conforme à ses explications. Le Royaume Sha Yu de l'Alliance avait poursuivi sa traque du Céleste Xu Mu. Bien que Wang Lin se soit enfoncé dans le vide, ils n'avaient pas renoncé et étaient restés à proximité. Cependant, au lieu de se disperser, ils s'étaient divisés en deux équipes pour surveiller l'emplacement de Luotian.
 
-Hélas, ce Royaume Sha Lu avait une chance déplorable: l'un de ses groupes tomba nez à nez avec Qing Shui. Tous furent exécutés, et même leur chef fut dévoré par Qing Shui.
+Hélas, ce Royaume Sha Yu avait une chance déplorable: l'un de ses groupes tomba nez à nez avec Qing Shui. Tous furent exécutés, et même leur chef fut dévoré par Qing Shui.
 
 Wang Lin frappa son sac de rangement, et l'âme originelle de l'Illustre Xuan Bao s'en échappa. Il la lança vers Qing Shui. Ce dernier l'attrapa et plaça sa main droite sur le sommet du crâne de l'Illustre Xuan Bao. L'énergie d'origine céleste afflua dans sa main, et l'âme de l'illustre s'éveilla. Des hurlements de détresse résonnèrent tandis que son âme originelle se convulsait.
 
@@ -55,7 +55,7 @@ Wang Lin rangea cette âme dans son sac de rangement et regarda Qing Shui. L'exp
 
 Qing Shui fixa Wang Lin et dit lentement: « Xu Mu, je dois me rendre au Royaume Sha Yu de l'Alliance pour récupérer un objet. Es-tu prêt à m'accompagner? »
 
-Wang Lin réfléchit un instant avant de répondre: « Le Frère aîné peut-il m'attendre dix jours? »
+Wang Lin réfléchit un instant avant de répondre: « Senior frère peut-il m'attendre dix jours? »
 
 Qing Shui hocha la tête: « D'accord, je reviendrai te chercher dans dix jours! » Sans perdre de temps, il fit un pas et disparut dans le vide. Au moment même de sa disparition, une intention meurtrière monstrueuse s'évanouit instantanément!
 

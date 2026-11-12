@@ -48,7 +48,7 @@ L'homme en blanc hocha légèrement la tête et resta immobile, toujours silenci
 
 « La rumeur prétend que Lie Yunzi de la famille Zhan a un tempérament de feu. Une fois, dans une rage folle, il a anéanti treize familles de culture! Sa réputation l'a précédé! » Le Maître Yan Leizi détourna le regard pour scruter soudainement l'horizon.
 
-Une masse de lumière rouge surgit au loin, et une odeur de sang se propagea rapidement à travers l'espace. Cette lueur sanglante apparut à une quarantaine de mètres des cultivateurs avant de se condenser instantanément en une silhouette!
+Une masse de lumière rouge surgit au loin, et une odeur de sang se propagea rapidement à travers l'espace. Cette lueur sanglante apparut à plus de cent pieds des cultivateurs avant de se condenser instantanément en une silhouette!
 
 Il s'agissait d'un vieil homme aux sourcils rouges, vêtu d'une robe écarlate qui semblait imprégnée de sang frais. Son expression était lugubre et, dès son apparition, il ignora tout le monde pour fixer le Serpent aux yeux de lune avec une lueur mystérieuse dans les yeux.
 
@@ -76,7 +76,7 @@ Ce que Wang Lin découvrit fit violemment trembler son corps et ses pupilles se 
 
 Devant lui, plus d'une centaine de tentacules enlacèrent un bébé!
 
-Le corps de cet enfant était immense, s'élevant à une centaine de mètres. Ses yeux étaient clos et il restait recroquevillé. La vitalité foisonnante émanant de son corps était absorbée par le Serpent aux yeux de lune.
+Le corps de cet enfant était immense, s'élevant à plusieurs centaines de pieds. Ses yeux étaient clos et il restait recroquevillé. La vitalité foisonnante émanant de son corps était absorbée par le Serpent aux yeux de lune.
 
 Huit étoiles illusoires scintillaient sur le front du nourrisson, mais aucune n'était tangible. Elles tournaient, créant une force mystérieuse que le serpent s'empressait également d'absorber.
 
@@ -120,6 +120,6 @@ Simultanément, l'endroit commença à trembler violemment, comme si un événem
 
 Les plus petits serpents situés à l'extérieur du vortex s'élancèrent dans les airs, les traits féroces! Partout, à l'intérieur même du grand serpent, on entendait les hurlements de ses semblables.
 
-Ils étaient trop nombreux. Sous la conduite de huit grands spécimens de 33 kilomètres de long, ils se mirent en mouvement avec célérité.
+Ils étaient trop nombreux. Sous la conduite de huit grands spécimens de cent mille pieds de long, ils se mirent en mouvement avec célérité.
 
 Une bataille d'une ampleur inouïe, rarement vue même dans les quatre grands domaines stellaires relevant des Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de la Foudre, venait de s'engager à l'extérieur du Serpent aux yeux de lune!

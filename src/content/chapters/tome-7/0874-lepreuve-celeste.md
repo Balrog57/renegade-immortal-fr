@@ -56,15 +56,15 @@ Des vagues de bavardages résonnèrent. Les yeux de Lie Yunzi restèrent calmes 
 
 Une brise légère souffla. Des dizaines de personnes furent immédiatement emportées sans aucune résistance, projetées vers le réseau de transfert où elles disparurent. Les personnes ainsi renvoyées étaient toutes celles qui n'avaient pas réussi la deuxième épreuve. Il ne restait plus que 147 participants!
 
-« L'épreuve céleste consiste à comprendre le Parchemin de la Bataille de ce vieil homme pendant dix secondes. Après ces dix secondes, ne vous donnez pas la peine d'ouvrir la bouche, je saurai si vous êtes qualifiés! » Les paroles de Lie Yunzi plongèrent les cultivateurs dans la confusion. Cependant, compte tenu de son prestige, tout le monde se tut.
+« L'épreuve céleste consiste à comprendre le Parchemin de la Bataille de ce vieil homme pendant dix respirations. Après ces dix respirations, ne vous donnez pas la peine d'ouvrir la bouche, je saurai si vous êtes qualifiés! » Les paroles de Lie Yunzi plongèrent les cultivateurs dans la confusion. Cependant, compte tenu de son prestige, tout le monde se tut.
 
 Lie Yunzi regarda Zhan Konglie et dit lentement: « Zhan Konglie, tu passes en premier! »
 
 « Selon l'ordre de l'Ancêtre! » Zhan Konglie prit une profonde inspiration et fit un pas en avant sur la place nouvellement formée. Il leva les yeux vers le Parchemin de la Bataille immobile et entra dans un état étrange, comme s'il était totalement absorbé par lui!
 
-Wang Lin fixa Zhan Konglie et, après un instant, son expression devint sérieuse. Au bout de huit secondes, il sembla que le sens divin de Zhan Konglie se divisât en deux, une partie fusionnant avec le parchemin.
+Wang Lin fixa Zhan Konglie et, après un instant, son expression devint sérieuse. Au bout de huit respirations, il sembla que le sens divin de Zhan Konglie se divisât en deux, une partie fusionnant avec le parchemin.
 
-À cet instant précis, une trace d'énergie originelle source, environ cent fois plus faible que celle manifestée par Maître Yan Leizi, émana du Parchemin de la Bataille. Cependant, à la dixième seconde, elle s'effondra, comme si le corps de Zhan Konglie n'avait pas pu contenir cette infime trace d'énergie originelle source.
+À cet instant précis, une trace d'énergie originelle source, environ cent fois plus faible que celle manifestée par Maître Yan Leizi, émana du Parchemin de la Bataille. Cependant, à la dixième respiration, elle s'effondra, comme si le corps de Zhan Konglie n'avait pas pu contenir cette infime trace d'énergie originelle source.
 
 Il aurait été très difficile pour des cultivateurs ordinaires de remarquer cela. Si Wang Lin n'avait pas vu la troisième étape à l'intérieur de sa Perle Défiant le Ciel, il n'aurait jamais perçu ce secret. Pourtant, ce qu'il venait de voir provoqua une immense onde de choc dans son cœur!
 
@@ -82,17 +82,17 @@ Plus Wang Lin observait, plus il devenait sérieux. Tous les cultivateurs élimi
 
 Lie Yunzi utilisait ce phénomène pour déterminer la réussite. Tous ceux qui étaient qualifiés avaient agi comme Zhan Konglie: ils avaient divisé leur sens divin, laissant une partie pénétrer le parchemin, ce qui provoquait l'apparition de cette infime trace d'énergie originelle source. Cependant, personne ne parvenait à maintenir cette énergie à l'intérieur de son corps.
 
-Wang Lin remarqua un autre détail: les cultivateurs qualifiés parvenaient tout juste à fusionner avec le parchemin à la neuvième ou dixième seconde. Peu étaient capables de fusionner dès la huitième seconde, comme Zhan Konglie.
+Wang Lin remarqua un autre détail: les cultivateurs qualifiés parvenaient tout juste à fusionner avec le parchemin à la neuvième ou dixième respiration. Peu étaient capables de fusionner dès la huitième respiration, comme Zhan Konglie.
 
 Les yeux de Xu Ting s'illuminèrent. Il semblait avoir saisi quelques indices, sans toutefois en être certain. Après réflexion, il s'avança immédiatement après le dernier candidat. Il pénétra sur la place et leva les yeux vers le parchemin.
 
 Lie Yunzi regarda Xu Ting. Il avait une certaine impression de ce junior. À cet instant, il hocha la tête sans dire un mot.
 
-L'expression de Xu Ting devint grave alors qu'il fixait le Parchemin de la Bataille d'un regard mystérieux. Une brume noire apparut entre ses sourcils et commença à tourbillonner. À la cinquième seconde, une partie de son sens divin se divisa et fut absorbée par le parchemin.
+L'expression de Xu Ting devint grave alors qu'il fixait le Parchemin de la Bataille d'un regard mystérieux. Une brume noire apparut entre ses sourcils et commença à tourbillonner. À la cinquième respiration, une partie de son sens divin se divisa et fut absorbée par le parchemin.
 
-Les pupilles de Wang Lin se rétractèrent. Il pensa: « Cinq secondes! Cet homme n'a pas bénéficié des mêmes opportunités que moi, et pourtant il parvient à entrer dans cet état en cinq secondes. Son talent est tout simplement prodigieux! »
+Les pupilles de Wang Lin se rétractèrent. Il pensa: « Cinq respirations! Cet homme n'a pas bénéficié des mêmes opportunités que moi, et pourtant il parvient à entrer dans cet état en cinq respirations. Son talent est tout simplement prodigieux! »
 
-Les yeux de Lie Yunzi brillèrent intensément. À ce moment, il devint solennel en fixant Xu Ting et hocha la tête secrètement. Au sein de la famille Zhan, il n'y avait pas plus de dix personnes capables d'atteindre cet état en cinq secondes. Beaucoup d'entre elles avaient cultivé sous l'influence du Parchemin pendant longtemps pour y parvenir. Quant au nombre de personnes capables d'atteindre un tel état si rapidement dès leur première tentative, seules trois personnes dans toute la famille Zhan l'avaient fait!
+Les yeux de Lie Yunzi brillèrent intensément. À ce moment, il devint solennel en fixant Xu Ting et hocha la tête secrètement. Au sein de la famille Zhan, il n'y avait pas plus de dix personnes capables d'atteindre cet état en cinq respirations. Beaucoup d'entre elles avaient cultivé sous l'influence du Parchemin pendant longtemps pour y parvenir. Quant au nombre de personnes capables d'atteindre un tel état si rapidement dès leur première tentative, seules trois personnes dans toute la famille Zhan l'avaient fait!
 
 « Cet enfant n'est pas ordinaire! » murmura Lie Yunzi, une trace d'admiration s'affichant dans ses yeux, chose rare.
 
@@ -100,7 +100,7 @@ Non seulement Lie Yunzi, mais les vieux monstres sur les tapis de prière perçu
 
 Les yeux de Maître Yan Leizi reflétèrent une lueur mystérieuse. Il ne regardait pas le parchemin, mais fixait Xu Ting en pensant: « Cet homme possède ce talent... »
 
-Après dix secondes, Xu Ting s'éveilla soudainement. À cet instant, les yeux de Wang Lin brillèrent d'une intensité indécelable. Il vit l'infime trace d'énergie originelle source du parchemin pénétrer le corps de Xu Ting... et une très petite portion resta réellement à l'intérieur de lui.
+Après dix respirations, Xu Ting s'éveilla soudainement. À cet instant, les yeux de Wang Lin brillèrent d'une intensité indécelable. Il vit l'infime trace d'énergie originelle source du parchemin pénétrer le corps de Xu Ting... et une très petite portion resta réellement à l'intérieur de lui.
 
 Cette découverte fit trembler l'esprit de Wang Lin. Il savait trop bien quel rôle jouait cette infime trace d'énergie originelle source. Xu Ting ne s'en rendrait pas compte pour l'instant, mais une fois qu'il aurait atteint le sommet de la deuxième étape, cela aurait un impact inimaginable sur lui!
 

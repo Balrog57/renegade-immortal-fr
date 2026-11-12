@@ -18,7 +18,7 @@ En un instant, la restriction commença à clignoter frénétiquement et s'éten
 
 Boum!
 
-Un bruit assourdissant résonna soudainement, déclenchant une immense onde de choc qui rendit instable la force comprimant la zone sur 330 mètres de rayon. La restriction n'était pas détruite, elle s'était brisée en des milliers de fines lignes noires formant divers motifs étranges qui se propageaient rapidement.
+Un bruit assourdissant résonna soudainement, déclenchant une immense onde de choc qui rendit instable la force comprimant la zone sur un rayon de mille pieds. La restriction n'était pas détruite, elle s'était brisée en des milliers de fines lignes noires formant divers motifs étranges qui se propageaient rapidement.
 
 Ces restrictions entretenaient un lien mystérieux entre elles et, à mesure qu'elles s'étendaient, le visage de Li Yuan devenait de plus en plus pâle. Il était évident que l'usage de la véritable Restriction d'Annihilation représentait un fardeau colossal pour son corps.
 
@@ -32,7 +32,7 @@ Profitant du relâchement de la force qui les maintenait, Wang Lin saisit Li Yua
 
 Le réseau de transfert brilla et Wang Lin et Li Yuan disparurent instantanément. Au moment même où ils s'évanouissaient, la main gauche de Wang Lin frappa impitoyablement le réseau, provoquant sa dissipation immédiate.
 
-Dans un rayon de 330 mètres, les environs furent plongés dans un silence total. La silhouette rouge sang s'avança lentement. Il se tint devant l'endroit où se trouvait le réseau de transfert et réfléchit en silence.
+Dans un rayon de mille pieds, les environs furent plongés dans un silence total. La silhouette rouge sang s'avança lentement. Il se tint devant l'endroit où se trouvait le réseau de transfert et réfléchit en silence.
 
 Après un long moment, il leva son pied droit et frappa le sol avec une violence inouïe!
 
@@ -70,7 +70,7 @@ Des déchirures spatiales apparaissaient occasionnellement dans le ciel, s'ouvra
 
 C'était le seul son qui régnait ici.
 
-Un autel brun d'environ 33 mètres de haut se dressait là, avec de nombreuses marches menant au sommet. L'autel était endommagé et parsemé de fissures, dont certaines remontaient jusqu'au sommet.
+Un autel brun d'environ cent pieds de haut se dressait là, avec de nombreuses marches menant au sommet. L'autel était endommagé et parsemé de fissures, dont certaines remontaient jusqu'au sommet.
 
 À cet instant, un éclat de lumière apparut sur la plateforme sommitale de l'autel et deux silhouettes en émergèrent.
 

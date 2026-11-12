@@ -96,7 +96,7 @@ Alors qu'il s'apprêtait à partir, trois rayons de lumière jaillirent de la pl
 
 Le rugissement s'interrompit soudainement et trois personnes sortirent des faisceaux de lumière. C'étaient les trois frères Chen!
 
-Ils revenaient tout juste. En raison de l'incident, le Marché de l'Œil Fantôme avait été interrompu avant même d'avoir commencé, ce qui les avait contraints à partir.
+Ils revenaient tout juste. En raison de l'incident, le Marché Gui Yan avait été interrompu avant même d'avoir commencé, ce qui les avait contraints à partir.
 
 Alors qu'ils cultivaient sur leur propre planète, ils avaient ressenti les auras de plusieurs cultivateurs du second niveau à l'extérieur et s'étaient envolés sans hésiter.
 

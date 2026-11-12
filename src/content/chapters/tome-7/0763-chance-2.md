@@ -80,11 +80,11 @@ Le sort d'Arrêt apparut instantanément, mais l'âme originelle contenue dans l
 
 L'énergie spirituelle céleste de son corps déferla avec une telle violence qu'elle lui infligea une douleur aiguë dans les méridiens. Son âme originelle était également blessée, faute d'avoir pu se rétablir en chemin. Sous la pression, il cracha un flot de sang et cria férocement: « Arrêtez-vous! »
 
-Les sphères de sang ne firent que marquer une brève pause sous l'effet du sort de Wang Lin. À cet instant précis, le Fouet du Karma apparut et fouetta impitoyablement les sphères.
+Les sphères de sang ne firent que marquer une brève pause sous l'effet du sort de Wang Lin. À cet instant précis, le Fouet Kunji apparut et fouetta impitoyablement les sphères.
 
 Au même moment, la dernière trace de l'énergie d'épée de Ling Tianhou s'échappa du corps de Wang Lin pour fondre sur les sphères de sang.
 
-Le Fouet du Karma, l'énergie d'épée de Ling Tianhou et les innombrables éclairs de l'âme originelle de Wang Lin semblèrent ne faire qu'un. Ils s'engouffrèrent dans les sphères en pleine condensation, juste avant le réveil de Xue Zu.
+Le Fouet Kunji, l'énergie d'épée de Ling Tianhou et les innombrables éclairs de l'âme originelle de Wang Lin semblèrent ne faire qu'un. Ils s'engouffrèrent dans les sphères en pleine condensation, juste avant le réveil de Xue Zu.
 
 Effondrement!
 

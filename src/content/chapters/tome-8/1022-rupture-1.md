@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1022 - Break (1)
 slug: rupture-1
 ---
-Tian Yunzi n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Maître du Vide, le jeune frère apprenti de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon d'innombrables kilomètres.
+Tian Yunzi n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Maître du Vide, le Junior frère de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon d'innombrables kilomètres.
 
 Même en étant très loin, on pouvait clairement distinguer cette lumière pourpre et verte.
 
@@ -26,7 +26,7 @@ Au même moment, un cri résonna de toutes parts. C'était comme si ce cri avait
 
 Le cri de l'Oiseau Vermillon retentit à travers le monde!
 
-Dès que la belle femme entendit le cri de l'Oiseau Vermillon, son expression changea radicalement. Non seulement elle, mais aussi la jeune fille en rose, soupçonnée d'être la Sainte du Vide Brillant, afficha un visage glacial.
+Dès que la belle femme entendit le cri de l'Oiseau Vermillon, son expression changea radicalement. Non seulement elle, mais aussi la jeune fille en rose, soupçonnée d'être la Sainte de Kun Xu, afficha un visage glacial.
 
 Les pupilles du Maître du Vide se rétractèrent soudainement!
 
@@ -34,7 +34,7 @@ Les pupilles du Maître du Vide se rétractèrent soudainement!
 
 Le visage de la belle femme était empreint de choc, et une trace d'anxiété apparut sur ses traits lorsqu'elle répondit rapidement: « Lorsque je l'ai vu auparavant, il ne possédait que le marquage de l'Oiseau Vermillon, et il était complètement scellé. Il est impossible qu'il s'éveille en un laps de temps aussi court! »
 
-« L'éveil de l'Oiseau Vermillon... C'est un événement qui ébranle les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard du Maître du Vide. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Vide Brillant. Si l'Alliance n'avait pas obtenu la plus grande part des héritages et reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte du Vide Brillant, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
+« L'éveil de l'Oiseau Vermillon... C'est un événement qui ébranle les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard du Maître du Vide. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Domaine Kun Xu. Si l'Alliance n'avait pas obtenu la plus grande part des héritages et reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte de Kun Xu, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
 
 Malgré une force aussi puissante, l'Alliance ne pouvait toujours pas anéantir complètement les Quatre Sectes Divines. En songeant à la terreur que représentaient les Quatre Saints, l'intention meurtrière dans les yeux du Maître du Vide s'intensifia.
 

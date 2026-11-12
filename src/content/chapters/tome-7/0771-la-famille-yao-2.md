@@ -25,7 +25,7 @@ Il y avait également cette figure humaine formée par la dernière âme primair
 
 Le visage de Xue Zu affichait une expression féroce et une lumière rouge jaillit de son corps tandis qu'il récitait un chant complexe. La lueur rouge brilla avec frénésie, remplissant progressivement les nuages noirs jusqu'à ce qu'ils paraissent violets!
 
-Un rugissement sortit de la bouche de Xue Zu: « Effondrement de Xue Shenzi! » La lumière rouge autour de son corps était presque démoniaque et son âme originelle libéra soudainement un pouvoir inimaginable. Le Qilin laissa immédiatement échapper un gémissement misérable et l'impact de cette force le fit se dissiper rapidement. Terrifié, il lâcha prise instantanément et recula.
+Un rugissement sortit de la bouche de Xue Zu: « Effondrement du Dieu de Sang! » La lumière rouge autour de son corps était presque démoniaque et son âme originelle libéra soudainement un pouvoir inimaginable. Le Qilin laissa immédiatement échapper un gémissement misérable et l'impact de cette force le fit se dissiper rapidement. Terrifié, il lâcha prise instantanément et recula.
 
 Les âmes primaires autour de Xue Zu s'effondrèrent et reculèrent promptement. Même la quatrième âme qui avait pénétré l'âme originelle de Xue Zu fut capturée par ce dernier. Dans une pression impitoyable, des fissures apparurent sur elle avant qu'elle ne se dissipe en battant en retraite.
 
@@ -35,7 +35,7 @@ Du début à la fin, le regard de Wang Lin resta calme. Alors que Xue Zu était 
 
 Dès que le sable apparut, une pression puissante enveloppa immédiatement la zone. En un instant, ce grain de sable grandit jusqu'à atteindre plus de 1 000 pieds de large. C'était comme une montagne, mais cela ressemblait davantage à un sceau!
 
-Cet objet avait utilisé un fragment céleste comme matériau et avait été affiné dans une fournaise formée par les cieux avec la rétribution divine!
+Cet objet avait utilisé un fragment céleste comme matériau et avait été affiné dans une fournaise formée par les cieux par la tribulation céleste!
 
 Dès son apparition, il s'abattit sur Xue Zu avec une quantité énorme d'énergie spirituelle céleste!
 
@@ -43,7 +43,7 @@ Des craquements retentirent immédiatement à l'intérieur du corps de Xue Zu et
 
 Le sceau formé par le fragment de 1 000 pieds descendit du ciel. Xue Zu bondit en poussant un cri strident, mais après une série de grondements, il fut écrasé sous l'objet.
 
-Lorsque le sceau se retira, Xue Zu paraissait affaibli, mais il restait féroce et une lumière rouge brillait intensément autour de lui. À cet instant, le Fouet du Karma apparut soudainement et s'abattit sur lui.
+Lorsque le sceau se retira, Xue Zu paraissait affaibli, mais il restait féroce et une lumière rouge brillait intensément autour de lui. À cet instant, le Fouet Kunji apparut soudainement et s'abattit sur lui.
 
 Dans un fracas, l'âme originelle de Xue Zu devint encore plus instable. Juste au moment où il allait riposter, le sceau s'écrasa à nouveau. L'âme originelle de Xue Zu était sur le point de s'effondrer.
 
@@ -53,13 +53,13 @@ Il laissa échapper un sourire amer et ses yeux furent remplis de folie. C'est p
 
 Xue Zu réfléchit silencieusement et la folie dans ses yeux disparut lentement. Les yeux de Wang Lin s'illuminèrent alors que sa main forma un sceau et qu'il cria: « Rassemblement! »
 
-Les nuages noirs environnants entourèrent immédiatement Xue Zu. Le Fouet du Karma apparut également et s'enroula autour de lui. Les trois âmes primaires endommagées réapparurent et commencèrent à dévorer frénétiquement.
+Les nuages noirs environnants entourèrent immédiatement Xue Zu. Le Fouet Kunji apparut également et s'enroula autour de lui. Les trois âmes primaires endommagées réapparurent et commencèrent à dévorer frénétiquement.
 
 Le sceau flottait au-dessus; bien qu'il ne se soit pas abattu à nouveau, la pression demeurait. Cette pression fit contracter les nuages noirs encore plus rapidement. Ils se compressèrent en une sphère presque instantanément avant de redevenir un drapeau de 30 pieds de long dans la main de Wang Lin.
 
 Le drapeau de 100 pieds de large s'étala et subit un changement radical. Auparavant, ce n'était qu'un drapeau noir sans rien dessus, mais désormais une image y figurait.
 
-La silhouette de Xue Zu était saisissante, avec le Fouet du Karma autour de lui comme un verrou et les trois âmes primaires l'encerclant férocement. L'expression de Xue Zu révélait son indignation et son amertume.
+La silhouette de Xue Zu était saisissante, avec le Fouet Kunji autour de lui comme un verrou et les trois âmes primaires l'encerclant férocement. L'expression de Xue Zu révélait son indignation et son amertume.
 
 C'est ainsi que l'image sur le drapeau prit forme.
 

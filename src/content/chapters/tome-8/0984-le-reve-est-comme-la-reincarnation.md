@@ -10,9 +10,9 @@ slug: le-reve-est-comme-la-reincarnation
 
 La femme, refusant de se laisser faire, s'apprêtait à résister quand Situ Nan la tira brusquement contre son torse. Il éclata de rire et s'élança directement vers la planète Tian Yun.
 
-« Petite fille, ne sois pas si pressée. Combien de fois t'ai-je déjà nourrie? Tu disais avoir de nombreuses sœurs au Palais Rose; allons voir si tes sœurs sont aussi magnifiques que tu le prétends. »
+« Petite fille, ne sois pas si pressée. Combien de fois t'ai-je déjà nourrie? Tu disais avoir de nombreuses sœurs au Palais Hong Fen; allons voir si tes sœurs sont aussi magnifiques que tu le prétends. »
 
-La femme sourit et regarda Situ Nan d'un regard séducteur: « Senior sera certainement satisfait. Ne nous oubliez pas, nous, les sœurs du Palais Rose. »
+La femme sourit et regarda Situ Nan d'un regard séducteur: « Senior sera certainement satisfait. Ne nous oubliez pas, nous, les sœurs du Palais Hong Fen. »
 
 En entendant ces mots, le cœur de Situ Nan s'anima d'une pointe d'envie; il ne put s'empêcher de songer aux quelques beautés époustouflantes de la planète Feng Luan. S'il pouvait un jour régner sur Feng Luan, lui et son frère, Wang Lin, pourraient chacun tenir une beauté dans leurs bras. Ce serait là la plus grande joie de l'existence.
 

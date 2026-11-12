@@ -62,7 +62,7 @@ Les familles Ran et Zhao sortirent également, bien qu'elles ne fussent pas auss
 
 Il ne jeta qu'un bref coup d'œil avant de baisser la tête pour boire une gorgée de vin.
 
-Une bête gigantesque couverte d'éclairs fendait le ciel. Deux dragons d'éclairs serpentaient devant ses narines, lui conférant un aspect extrêmement féroce, et un homme d'âge moyen siégeait sur son dos. C'était le Daoïste du Tonnerre du Temple Céleste du Tonnerre!
+Une bête gigantesque couverte d'éclairs fendait le ciel. Deux dragons d'éclairs serpentaient devant ses narines, lui conférant un aspect extrêmement féroce, et un homme d'âge moyen siégeait sur son dos. C'était le Lei Daozi du Temple Céleste du Tonnerre!
 
 Ses yeux, semblables à des éclairs, fixaient froidement la terre. Son Sens Divin balaya instantanément la planète sans aucune retenue, incluant la Ville Qi Shui.
 
@@ -74,11 +74,11 @@ Les mortels ressentirent le même effet, sans toutefois en comprendre la cause; 
 
 À cet instant, la planète entière plongea dans un silence inédit...
 
-Peu après, le Daoïste du Tonnerre retira son Sens Divin et fronça les sourcils. Il avait sondé toute la planète sans trouver personne répondant à ses critères.
+Peu après, le Lei Daozi retira son Sens Divin et fronça les sourcils. Il avait sondé toute la planète sans trouver personne répondant à ses critères.
 
 Une fois son Sens Divin retiré, la neige recommença à tomber et le vent reprit sa course.
 
-« Cela fait trop longtemps; il est peut-être déjà parti. Cet homme est vraiment chanceux! » Le Daoïste du Tonnerre se détourna pour partir, mais ses yeux se contractèrent soudainement. Son Sens Divin jaillit comme la foudre et se verrouilla sur un petit village de montagne de la planète Ran Yun.
+« Cela fait trop longtemps; il est peut-être déjà parti. Cet homme est vraiment chanceux! » Le Lei Daozi se détourna pour partir, mais ses yeux se contractèrent soudainement. Son Sens Divin jaillit comme la foudre et se verrouilla sur un petit village de montagne de la planète Ran Yun.
 
 Lorsque le Sens Divin balaya les lieux, Qing Yi pâlit instantanément et son corps fut pris de tremblements. L'énergie spirituelle en elle faillit s'effondrer, et il lui fallut un long moment pour reprendre quelque peu ses esprits.
 

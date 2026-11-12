@@ -100,7 +100,7 @@ Dès leur apparition, ces ondes furent attirées par la force mystérieuse produ
 
 À cet instant, la lumière verte commença à se mouvoir de manière étrange. Elle s'éparpilla comme des flammes émeraude et, en un instant, forma une gigantesque illusion verte.
 
-Cette illusion avait une forme humaine mais mesurait une dizaine de mètres de haut. Seule sa silhouette était visible, ses traits demeurant indistincts. La figure était entièrement composée de lumière verte.
+Cette illusion avait une forme humaine mais mesurait plusieurs dizaines de pieds de haut. Seule sa silhouette était visible, ses traits demeurant indistincts. La figure était entièrement composée de lumière verte.
 
 Dès que l'illusion apparut, la voix d'Ouyang Hua retentit aussitôt: « Étranger, vous avez attiré cela sur vous! Illusion verte, tuez-le et rapportez son âme en sacrifice pour le Jour des Esprits Démoniaques de cette nuit! »
 
@@ -112,7 +112,7 @@ La main droite de Wang Lin s'étira et des filaments de brouillard noir de restr
 
 Au milieu des hurlements émanant du brouillard, on aurait dit qu'un seigneur démon sortait des enfers pour descendre sur terre. Le gaz noir environnant poussa un cri perçant en se rassemblant rapidement autour du bras de Wang Lin.
 
-Enfin, une lance d'une dizaine de mètres de long et aussi épaisse que son bras apparut dans sa main!
+Enfin, une lance de trente pieds de long et aussi épaisse que son bras apparut dans sa main!
 
 Des éclairs noirs parcouraient la lance et le tonnerre grondait de l'intérieur, la rendant encore plus redoutable. Une lueur spectrale brillait à la pointe de l'arme; sous le soleil de midi, elle était particulièrement frappante.
 

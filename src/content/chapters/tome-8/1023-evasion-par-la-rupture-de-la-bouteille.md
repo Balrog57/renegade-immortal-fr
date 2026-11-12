@@ -96,11 +96,11 @@ Ses cheveux pâles flottaient au-dessus d'une armure noir pourpre. Dès que les 
 
 À cet instant, un homme sortit soudainement de l'entrée de la bouteille en suivant la mer de flammes. Il avait une allure audacieuse et tenait un parchemin vert. C'était l'Ancien Démon Bei Luo.
 
-Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Lame Brisée, n'est plus aujourd'hui qu'un diable dispersé raffiné par l'Ancien Diable. Pitoyable! »
+Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Can Dao, n'est plus aujourd'hui qu'un diable dispersé raffiné par l'Ancien Diable. Pitoyable! »
 
 Tian Yunzi, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Luo!
 
-Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Blaireau Marqué d'Étoiles.
+Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Zibeline Marquée d'Étoiles.
 
 Tous ceux qui étaient entrés dans la grotte céleste, à l'exception de Wang Lin et du Couple de Culture du Nuage Céleste, étaient apparus!
 

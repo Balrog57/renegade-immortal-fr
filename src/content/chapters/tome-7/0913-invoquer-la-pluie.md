@@ -68,9 +68,9 @@ Dans son esprit, il ne pouvait oublier ce qui s'était passé quelques jours aup
 
 Lei Ji regardait également la pluie, cherchant à comprendre son aptitude sanguine. Dans ce calme relatif, il ne put s'empêcher de remuer son passé.
 
-Il avait été contraint de quitter la Planète du Géant Démon, le cœur rempli de haine. Accompagné des siens, ils avaient fui pour errer parmi les étoiles. À l'époque, il était perdu; son cœur était une Mer de Sang, mais il était impuissant à renverser le ciel.
+Il avait été contraint de quitter la Planète Ju Mo, le cœur rempli de haine. Accompagné des siens, ils avaient fui pour errer parmi les étoiles. À l'époque, il était perdu; son cœur était une Mer de Sang, mais il était impuissant à renverser le ciel.
 
-Il n'avait eu d'autre choix que de quitter sa patrie. S'il avait été d'un instant plus lent, il n'aurait peut-être jamais pu échapper à la Planète du Géant Démon. Dans sa confusion, il avait mené son clan sur la planète Suzaku. À cette époque, le Zhu Quezi de la planète Suzaku s'appelait Ye Wuyou. Sous ses ordres, de nombreux cultivateurs s'étaient rassemblés pour déclencher une guerre contre les habitants natifs: le Clan Xian Yi, experts en runes.
+Il n'avait eu d'autre choix que de quitter sa patrie. S'il avait été d'un instant plus lent, il n'aurait peut-être jamais pu échapper à la Planète Ju Mo. Dans sa confusion, il avait mené son clan sur la planète Suzaku. À cette époque, le Zhu Quezi de la planète Suzaku s'appelait Ye Wuyou. Sous ses ordres, de nombreux cultivateurs s'étaient rassemblés pour déclencher une guerre contre les habitants natifs: le Clan Xian Yi, experts en runes.
 
 Une planète autrefois riche en énergie spirituelle fut à moitié réduite à l'abandon par ce conflit. Il y avait, aux côtés de Ye Wuyou, un homme que Lei Ji détestait profondément. Il semblait se souvenir qu'il s'appelait Situ Nan. Cet homme était d'une arrogance telle que ses actes frôlaient la démoniaque. Il préférait nettement Ye Wuyou, qui avait accueilli le Clan Ju Mo avec une grande hospitalité, allant jusqu'à leur céder un vaste territoire pour qu'ils y fondent leur propre nation.
 
@@ -78,7 +78,7 @@ Ce territoire était situé loin du Clan Xian Yi, ce qui garantissait leur sécu
 
 En contemplant son passé, Lei Ji fut saisi d'émotion. Il n'était pas aussi dénué de calcul qu'il en avait l'air; au contraire, il était extrêmement rusé. Ses dizaines de milliers d'années d'existence lui avaient appris bien des choses. C'était simplement que son emprisonnement par la Secte Shi Yin avait duré trop longtemps, embrumant son esprit.
 
-C'est précisément cette ruse qui avait poussé Lei Ji à accepter sans hésiter de devenir la monture de Wang Lin. Après l'avoir observé, il s'était dit que s'il suivait cet homme, il pourrait peut-être un jour retourner sur la Planète du Géant Démon pour accomplir sa vengeance!
+C'est précisément cette ruse qui avait poussé Lei Ji à accepter sans hésiter de devenir la monture de Wang Lin. Après l'avoir observé, il s'était dit que s'il suivait cet homme, il pourrait peut-être un jour retourner sur la Planète Ju Mo pour accomplir sa vengeance!
 
 En particulier, lors de la bataille précédente, le rugissement du Dieu Ancien de Wang Lin avait ébranlé son âme. À cet instant, tous ses stratagèmes s'étaient effondrés, et une volonté ancestrale, enfouie au plus profond de son être, l'avait fait succomber à ce cri. C'est à ce moment précis que sa décision de suivre Wang Lin était devenue inébranlable.
 

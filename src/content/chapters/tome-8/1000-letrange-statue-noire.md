@@ -15,7 +15,7 @@ Wang Lin leva les yeux vers le ciel et murmura: « Maître Dun Tian, ce disciple
 
 Bien que la méthode de culture pratiquée par les millions de disciples de la Secte ne fût pas complète, il n'hésita pas à leur transmettre les méthodes intégrales dès son retour. Bien entendu, Wang Lin avait laissé une faille lui permettant de reprendre les fragments d'âme à tout moment, et il n'avait nullement l'intention de la combler.
 
-Une fois les méthodes de culture de la Secte transmises aux disciples, tous entrèrent dans une phase de culture effrénée. De plus, après avoir hésité un instant, Wang Lin laissa une copie de la Tactique de Raffinement Céleste en Neuf Cycles qu'il avait obtenue auprès de sa quatrième sœur aînée de la Division Pourpre de la Secte Tianyun. Celle-ci devint le premier sort interdit de la Secte Lian Hun!
+Une fois les méthodes de culture de la Secte transmises aux disciples, tous entrèrent dans une phase de culture effrénée. De plus, après avoir hésité un instant, Wang Lin laissa une copie de la Tactique de Raffinement Céleste en Neuf Cycles qu'il avait obtenue auprès de sa quatrième Senior sœur de la Division Pourpre de la Secte Tianyun. Celle-ci devint le premier sort interdit de la Secte Lian Hun!
 
 Si la Tactique de Raffinement Céleste en Neuf Cycles était cultivée à son paroxysme, l'énergie en spirale qu'elle produisait s'avérait extrêmement puissante. Bien qu'elle fût inutile pour Wang Lin, elle représentait un véritable sort céleste pour les disciples de la Secte!
 
@@ -43,7 +43,7 @@ Lors de cette ouverture, Wang Lin avait choisi un sort céleste de qualité moye
 
 Quant à Ouyang Hua, Wang Lin ne se montra pas avare. Il sortit un sort céleste complet de basse qualité, l'Ascension du Raffinement des Âmes, pour le lui offrir en récompense de ses centaines d'années de labeur acharné. Ce n'était pas que Wang Lin refusait de lui donner un sort de qualité moyenne, mais la culture d'Ouyang Hua était trop singulière: s'il utilisait ses 99 drapeaux d'âme, il pouvait combattre un cultivateur Ascendant, mais sans eux, son niveau de culture s'effondrait. L'Ascension du Raffinement des Âmes était déjà une tâche ardue pour lui; après tout, c'était un sort céleste complet.
 
-Pour ce qui était de Treize, Wang Lin ne lésina sur rien. Il avait utilisé le jeton de la grotte céleste pour s'y rendre instantanément, avait trouvé Lei Ji parmi ceux qui brisaient les restrictions, et n'était revenu qu'après avoir obtenu suffisamment de sang. Treize fut imprégné du sang royal du Clan Lei Ji Ju Mo, permettant à son corps de subir une transformation radicale en peu de temps. Bien que la douleur fût au-delà de ce qu'un mortel ordinaire pouvait supporter, Treize l'endura sans faillir.
+Pour ce qui était de Treize, Wang Lin ne lésina sur rien. Il avait utilisé le jeton de la grotte céleste pour s'y rendre instantanément, avait trouvé Lei Ji parmi ceux qui brisaient les restrictions, et n'était revenu qu'après avoir obtenu suffisamment de sang. Treize fut imprégné du sang royal du Clan Ju Mo de Lei Ji, permettant à son corps de subir une transformation radicale en peu de temps. Bien que la douleur fût au-delà de ce qu'un mortel ordinaire pouvait supporter, Treize l'endura sans faillir.
 
 Finalement, après une brève hésitation, les yeux de Wang Lin s'illuminèrent et il déposa quelques gouttes de son propre sang de Dieu Ancien Royal entre les sourcils de Treize. À cet instant, le corps de Treize trembla violemment. Malgré sa force mentale, il ne put contenir la douleur; c'était comme si quelque chose dévorait son être même.
 

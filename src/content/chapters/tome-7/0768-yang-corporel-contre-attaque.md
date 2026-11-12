@@ -42,7 +42,7 @@ La puissance des cieux est irréductible. À ce moment précis, tous les nuages 
 
 Seul le fracas du tonnerre subsistait. C'était comme si Wang Lin se trouvait en plein enfer de foudre, car les éclairs multicolores étaient partout.
 
-Le fragment se brisa davantage jusqu'à ne plus mesurer que moins de 3,3 kilomètres! Wang Lin semblait être dans la forge des cieux, tandis que les décharges de tonnerre continuaient de s'abattre sur lui.
+Le fragment se brisa davantage jusqu'à ne plus mesurer que moins de dix mille pieds! Wang Lin semblait être dans la forge des cieux, tandis que les décharges de tonnerre continuaient de s'abattre sur lui.
 
 De nombreuses fissures apparurent sur le corps de Wang Lin et se propagèrent rapidement. Simultanément, la moitié du corps de sang en lui s'était totalement effondrée, libérant une quantité incalculable d'énergie originelle au sein de l'âme originelle de Wang Lin.
 
@@ -92,7 +92,7 @@ Il s'apprêtait à utiliser un autre sort lorsqu'il vit Wang Lin se retirer une 
 
 À cet instant, Wang Lin disposait d'une réserve d'énergie originelle trop vaste pour être contenue. Les Coups Célestes étaient comme des lames de loi qui fendaient les nuages vers Xue Zu.
 
-Xue Zu laissa échapper un grognement froid et forma un nouveau sceau. Un éclat de lumière sanguine créa des runes qui s'effondrèrent en un éclair. Cela força même les nuages environnants à reculer de 3,3 mètres.
+Xue Zu laissa échapper un grognement froid et forma un nouveau sceau. Un éclat de lumière sanguine créa des runes qui s'effondrèrent en un éclair. Cela força même les nuages environnants à reculer de dix pieds.
 
 Les yeux de Wang Lin restaient calmes tandis qu'il se cachait et reculait rapidement dans la brume. Simultanément, il dévorait d'immenses quantités de nuages, forçant d'innombrables éclairs à pénétrer son corps. L'énergie du vieil homme se dissipait rapidement.
 
@@ -120,6 +120,6 @@ Un sentiment encore plus puissant qu'auparavant envahit Wang Lin. Ses yeux brill
 
 Son corps tomba des nuages mais fut guidé par un sortilège. Une fois au sol, il s'assit immédiatement pour cultiver.
 
-Jaillissant de son enveloppe charnelle, l'âme originelle de Wang Lin se mua en un ancien dragon de tonnerre d'environ 330 mètres de long. Sa présence était terrifiante au milieu des nuages de la rétribution divine!
+Jaillissant de son enveloppe charnelle, l'âme originelle de Wang Lin se mua en un ancien dragon de tonnerre d'environ mille pieds de long. Sa présence était terrifiante au milieu des nuages de la rétribution divine!
 
 « Xue Zu, puisque tu t'es livré à moi, autant exaucer mon vœu! »

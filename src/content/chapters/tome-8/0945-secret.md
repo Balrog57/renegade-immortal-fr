@@ -46,13 +46,13 @@ En contemplant la Perle Défiant le Ciel, Wang Lin était tout aussi stupéfait 
 
 « Cependant, bien que le Royaume Céleste ait disparu, Maître Bai Fan et quelques-uns de ses pairs ont ouvert leur propre monde. Ils ont emprunté les quatre grands passages menant au Royaume Céleste Antique pour créer leur propre terre, la nommant... le Royaume Céleste!
 
-« Les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair divisèrent la galaxie en quatre systèmes. Sous le Royaume Céleste du Vent se trouvait la Mer Yun; sous le Royaume Céleste de la Pluie se trouvait le Vide Brillant; sous le Royaume Céleste du Tonnerre se trouvait Luotian; et sous le Royaume Céleste de l'Éclair se trouvait Rivière Invoquée... Le système situé sous le Royaume Céleste de la Pluie s'est vu attribuer par d'autres le nom d'« Alliance ». Qui sait encore que cet endroit s'appelait autrefois le « Vide Brillant »... »
+« Les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair divisèrent la galaxie en quatre systèmes. Sous le Royaume Céleste du Vent se trouvait la Mer Yun; sous le Royaume Céleste de la Pluie se trouvait Kun Xu; sous le Royaume Céleste du Tonnerre se trouvait Luo Tian; et sous le Royaume Céleste de l'Éclair se trouvait Zhao He... Le système situé sous le Royaume Céleste de la Pluie s'est vu attribuer par d'autres le nom d'« Alliance ». Qui sait encore que cet endroit s'appelait autrefois « Kun Xu »... »
 
 Qing Shui poussa un soupir en contemplant le vide. C'était comme s'il regardait le Royaume Céleste du Tonnerre d'autrefois, la nostalgie embrumant son regard.
 
 « Au Royaume Céleste du Tonnerre, je l'ai rencontrée... »
 
-Tandis que Wang Lin méditait, son corps commença à rétrécir progressivement. Des bruits de craquements résonnèrent alors que son corps de plus de 1 000 mètres retrouvait peu à peu sa taille normale.
+Tandis que Wang Lin méditait, son corps commença à rétrécir progressivement. Des bruits de craquements résonnèrent alors que son corps de plus de trois mille pieds retrouvait peu à peu sa taille normale.
 
 Cinq étoiles d'Ancien Dieu tournaient entre ses sourcils, dégageant une aura d'Ancien Dieu féroce! À cet instant, le corps originel de Wang Lin possédait la puissance d'un Ancien Dieu à cinq étoiles; il était désormais considéré comme l'un des grands puissants!
 
@@ -90,7 +90,7 @@ En pensant au vieil homme et au jeune homme, une idée jaillit soudainement dans
 
 « Ce vide n'entoure pas seulement l'Alliance, il entoure les quatre systèmes situés sous les quatre Royaumes Célestes! » Qing Shui soupira et marmonna: « Après la guerre contre le clan du Tatouage, je commençai à montrer des signes de folie, mais à l'époque, je n'y prêtai aucune attention... Par la suite, vous avez dû apprendre ce qui s'est passé par Maître Yan Leizi. »
 
-Wang Lin réfléchit un instant en observant Qing Shui. Après un long moment, il dit lentement: « Frère aîné, ce vieil homme a affirmé qu'il était du clan ancestral des Dévoreurs de Lune du Clan Céleste Immémorial... »
+Wang Lin réfléchit un instant en observant Qing Shui. Après un long moment, il dit lentement: « Senior frère, ce vieil homme a affirmé qu'il était du clan ancestral des Dévoreurs de Lune du Clan Céleste Immémorial... »
 
 Les yeux de Qing Shui se remplirent de confusion alors qu'il disait doucement: « C'est aussi ce qui me trouble. Je n'ai jamais entendu parler de ce Clan Céleste Immémorial. Le clan du Tatouage d'autrefois pouvait-il venir du même endroit? Étaient-ils aussi membres du Clan Céleste Immémorial... » La confusion dans le regard de Qing Shui s'intensifia.
 

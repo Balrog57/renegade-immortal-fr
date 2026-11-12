@@ -40,7 +40,7 @@ Le sceau de vie se détacha immédiatement de ses yeux pour recouvrir son corps.
 
 Alors que la statue rugissait, elle se lança à la poursuite de Wang Lin.
 
-L'expression de Wang Lin resta imperturbable tandis que sa main traçait des mouvements dans l'air, libérant une déflagration de lumière verte: une simple restriction apparut entre ses doigts. En mouvement, il projeta la restriction vers l'arrière. Celle-ci s'étira instantanément pour atteindre une dizaine de mètres de large, bloquant la statue sur sa trajectoire.
+L'expression de Wang Lin resta imperturbable tandis que sa main traçait des mouvements dans l'air, libérant une déflagration de lumière verte: une simple restriction apparut entre ses doigts. En mouvement, il projeta la restriction vers l'arrière. Celle-ci s'étira instantanément pour atteindre plusieurs dizaines de pieds de large, bloquant la statue sur sa trajectoire.
 
 Le corps de la statue ne ralentit nullement et percuta de plein fouet la restriction. Cette dernière se brisa comme un miroir avant de se disperser dans toutes les directions.
 
@@ -52,7 +52,7 @@ La statue poussa un rugissement, bondit en avant et porta un coup de poing. Les 
 
 Wang Lin effleura son sac de rangement et en sortit le drapeau de restriction. Il secoua l'étendard, et la force qui fonçait sur lui fut instantanément aspirée par le drapeau avant de disparaître.
 
-Au cours des centaines d'années passées à y ajouter des restrictions, le drapeau de Wang Lin avait déjà atteint 999 ensembles. Cependant, ce qui l'intriguait, c'était que la rétribution divine ne s'était jamais manifestée!
+Au cours des centaines d'années passées à y ajouter des restrictions, le drapeau de Wang Lin avait déjà atteint 999 ensembles. Cependant, ce qui l'intriguait, c'était que la tribulation céleste ne s'était jamais manifestée!
 
 Ces 999 ensembles de restrictions étaient tous de type offensif et se révélaient extrêmement puissants lors de leur usage.
 

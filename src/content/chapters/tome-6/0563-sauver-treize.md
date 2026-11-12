@@ -67,7 +67,7 @@ Il y avait six portes entre le camp militaire et le palais du général démon. 
 
 L'intérieur comme l'extérieur de chacune des six portes étaient étroitement gardés, et le palais entier était entouré d'une formation empêchant toute téléportation.
 
-Wang Lin apparut devant la sixième porte. Celle-ci mesurait environ 33 mètres de haut et était reliée au mur extérieur, parcouru par des restrictions scintillantes.
+Wang Lin apparut devant la sixième porte. Celle-ci mesurait environ cent pieds de haut et était reliée au mur extérieur, parcouru par des restrictions scintillantes.
 
 Dès l'apparition de Wang Lin, un garde près de la porte poussa un cri.
 
@@ -81,7 +81,7 @@ Wang Lin fit un pas, provoquant la charge immédiate des gardes. Tous projetère
 
 Face à cette légion de soldats démons, Wang Lin ne s'interrompit pas et avança pas à pas. L'épée céleste fendait l'air autour de lui; quiconque tentait de l'entraver devait d'abord surmonter la lame.
 
-Une série de gémissements plaintifs résonna dans la zone alors que Wang Lin bondissait sur l'épée céleste pour charger la porte. Il n'avait pas encore stabilisé sa position qu'un rayon d'énergie d'épée long de 33 mètres jaillit et frappa la sixième porte.
+Une série de gémissements plaintifs résonna dans la zone alors que Wang Lin bondissait sur l'épée céleste pour charger la porte. Il n'avait pas encore stabilisé sa position qu'un rayon d'énergie d'épée long de cent pieds jaillit et frappa la sixième porte.
 
 Boum!
 
@@ -125,7 +125,7 @@ Mais le temps passa, et le général démon ne montra aucune réaction.
 
 Wang Lin était désormais encerclé de toutes parts par les soldats démons. Jusqu'ici, il avait tenté de ne pas tuer, mais il était maintenant contraint de le faire!
 
-Face à ce siège, Wang Lin leva son pouce et le Doigt de la Mort déploya toute sa puissance. Le ciel et la terre changèrent de couleur, et chaque soldat démon dans un rayon de 330 mètres trembla avant que son corps ne se flétrisse. Toute la chair, le sang et l'énergie spirituelle démoniaque furent aspirés dans le pouce de Wang Lin!
+Face à ce siège, Wang Lin leva son pouce et le Doigt de la Mort déploya toute sa puissance. Le ciel et la terre changèrent de couleur, et chaque soldat démon dans un rayon de mille pieds trembla avant que son corps ne se flétrisse. Toute la chair, le sang et l'énergie spirituelle démoniaque furent aspirés dans le pouce de Wang Lin!
 
 Le corps de Wang Lin fendit l'air comme un éclair vers la quatrième porte. À cet instant, rien ne pouvait le faire hésiter, pas même une demi-seconde.
 
@@ -135,7 +135,7 @@ La quatrième porte s'effondra dans un fracas, et à ce moment précis, une viei
 
 Simultanément, une voix âgée hurla: « Reculez! »
 
-Le pouce de Wang Lin percuta le python d'énergie spirituelle démoniaque. Wang Lin fut contraint de reculer d'un pas, mais le python poussa un cri misérable et son corps s'effrita centimètre par centimètre. Une fois le python anéanti, la vieille silhouette trembla, poussa un gémissement et fut repoussée de plusieurs mètres avant de se stabiliser.
+Le pouce de Wang Lin percuta le python d'énergie spirituelle démoniaque. Wang Lin fut contraint de reculer d'un pas, mais le python poussa un cri misérable et son corps s'effrita centimètre par centimètre. Une fois le python anéanti, la vieille silhouette trembla, poussa un gémissement et fut repoussée de plusieurs dizaines de pieds avant de se stabiliser.
 
 Wang Lin fit un pas et franchit directement la quatrième porte. Outre les innombrables soldats démons devant lui, il y avait aussi un vieil homme aux cheveux blancs!
 
@@ -169,7 +169,7 @@ Toutefois, les soldats démons étaient trop nombreux et, en fusionnant leur én
 
 Wang Lin frappa sa sacoche de rangement et une grande quantité de jades célestes s'en échappa pour graviter autour de lui. Il aspira rapidement toute l'énergie des jades pour restaurer sa propre énergie spirituelle céleste; ce cycle se répéta, consommant une quantité massive de ressources.
 
-« Doigt Démoniaque! » Wang Lin n'activa pas l'idéal démoniaque mais utilisa sa culture au sommet de la Transformation de l'Âme pour déclencher le second sort meurtrier! L'énergie spirituelle démoniaque ambiante fut balayée par la puissance du doigt démoniaque. Le doigt de Wang Lin s'abattit tel le roi des enfers venu réclamer des vies, et, dans un rayon de 330 mètres, l'énergie perça les soldats démons, faisant exploser leurs corps.
+« Doigt Démoniaque! » Wang Lin n'activa pas l'idéal démoniaque mais utilisa sa culture au sommet de la Transformation de l'Âme pour déclencher le second sort meurtrier! L'énergie spirituelle démoniaque ambiante fut balayée par la puissance du doigt démoniaque. Le doigt de Wang Lin s'abattit tel le roi des enfers venu réclamer des vies, et, dans un rayon de mille pieds, l'énergie perça les soldats démons, faisant exploser leurs corps.
 
 Des éclats de lumière rouge sang couvrent le ciel et la terre. Wang Lin s'élança, ouvrant une voie à travers des dizaines de milliers de soldats pour charger directement vers la troisième porte.
 
@@ -227,13 +227,13 @@ Avant même que Wang Lin n'atteigne la porte, celle-ci fut pulvérisée par la p
 
 Cette silhouette était petite, mais ses yeux brillaient comme des éclairs. Au moment où la deuxième porte s'effondra et que le Doigt de l'Inframonde de Wang Lin se rapprocha, elle poussa un rugissement. Ses mains formèrent des sceaux comme celles d'un cultivateur; les sceaux s'accumulèrent avant qu'elle ne les projette en avant.
 
-Un son semblable à une tempête balaya la zone alors que le Doigt de l'Inframonde de Wang Lin s'arrêta à 9,9 centimètres de sa main. Une petite sphère se forma entre l'attaque de Wang Lin et la main de cet individu. Cette sphère était d'un blanc pur, parcourue d'éclairs noirs.
+Un son semblable à une tempête balaya la zone alors que le Doigt de l'Inframonde de Wang Lin s'arrêta à trois pouces de sa main. Une petite sphère se forma entre l'attaque de Wang Lin et la main de cet individu. Cette sphère était d'un blanc pur, parcourue d'éclairs noirs.
 
 La petite silhouette résista pendant trois respirations avant d'être repoussée, laissant deux empreintes profondes dans le sol. Elle ne recula pas par choix, mais fut littéralement expulsée par la force du Doigt de Wang Lin!
 
 Elle dut battre en retraite, car elle savait que si elle continuait à résister, elle ne pourrait pas tenir. Tenter de bloquer l'attaque de force n'aurait pour seul résultat que l'explosion de son propre corps!
 
-Repoussée de plus de trois cents mètres, elle finit par s'arrêter dans un rugissement. Le Doigt de l'Inframonde de Wang Lin se trouvait à quelques centimètres d'elle et continuait d'aspirer sa vitalité tel un vortex.
+Repoussée de mille pieds, elle finit par s'arrêter dans un rugissement. Le Doigt de l'Inframonde de Wang Lin se trouvait à trois pouces d'elle et continuait d'aspirer sa vitalité tel un vortex.
 
 « Commandant Wang! Je suis le premier commandant en chef sous les ordres du général démon. Que voulez-vous exactement?! »
 

@@ -94,7 +94,7 @@ Pourtant, le rayon argenté était trop rapide. À l'instant même où il disper
 
 Le messager cracha une large traînée de sang et fit quelques pas titubants vers l'avant. Les yeux de Wang Lin restèrent froids. Ignorant totalement la main formée par le brouillard, il pointa sa main droite vers l'avant et un éclair de tonnerre violet jaillit. Il frappa entre les sourcils du messager en un instant. Le corps du messager trembla, puis son âme originelle fut anéantie avec lui!
 
-À cet instant, la lumière argentée s'estompa pour révéler un homme d'âge moyen au corps émacié. C'était l'un des deux cultivateurs Yang Corporel qui avaient dissimulé leur niveau de culture et étaient restés sur le fragment de 330 mètres. Il joignit les mains en signe de respect envers Wang Lin, puis s'élança pour aider les autres.
+À cet instant, la lumière argentée s'estompa pour révéler un homme d'âge moyen au corps émacié. C'était l'un des deux cultivateurs Yang Corporel qui avaient dissimulé leur niveau de culture et étaient restés sur le fragment de mille pieds. Il joignit les mains en signe de respect envers Wang Lin, puis s'élança pour aider les autres.
 
 Wang Lin hocha légèrement la tête. Il avait déjà percé à jour le niveau de culture des deux Yang Corporel plus tôt; cependant, puisqu'ils avaient payé en jades, il n'avait rien dit et les avait laissés rester.
 

@@ -70,7 +70,7 @@ Il réfléchit un instant. Dans le silence des profondeurs, Wang Lin se remémor
 
 « Il y avait aussi cette belle femme d'âge mûr. Elle n'est qu'au stade de Purificateur du Nirvana. Bien qu'elle ait parfaitement dissimulé son regard, j'ai tout de même perçu une trace d'hostilité. »
 
-« De même pour la jeune fille soupçonnée d'être la Sainte du Vide Brillant. »
+« De même pour la jeune fille soupçonnée d'être la Sainte Kun Xu. »
 
 Il devait désormais redoubler de prudence dans la Grotte Xian Di. Autrement, il risquait d'attirer sur lui une catastrophe mortelle à cause de l'Éveil de l'Oiseau Vermillon. Wang Lin toucha le tatouage de l'Oiseau Vermillon, l'expression sombre.
 
@@ -102,7 +102,7 @@ Un instant plus tard, le talisman s'agita soudainement et un tourbillon noir app
 
 La silhouette vague d'un grand oiseau semblable à un roc se dessina au sein du tourbillon. Cet oiseau était d'un noir absolu, ses yeux semblables à des éclairs. Il traversa le tourbillon une fois et disparut avec lui.
 
-« C'est un Tatou Flétri de type évasion, déjà activé par le Clan Fu Wen! » Les yeux de Wang Lin se plissèrent et il frappa son sac de rangement. Une grande épée en jaillit. C'était l'une des quatre-vingt-dix-neuf épées qu'il avait obtenues du Royaume Sha Lu.
+« C'est un Tatou Flétri de type évasion, déjà activé par le Clan Fu Wen! » Les yeux de Wang Lin se plissèrent et il frappa son sac de rangement. Une grande épée en jaillit. C'était l'une des quatre-vingt-dix-neuf épées qu'il avait obtenues du Royaume Sha Yu.
 
 Bien qu'il en eût fait exploser plus d'une dizaine, Wang Lin en possédait encore une grande quantité.
 

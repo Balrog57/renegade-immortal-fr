@@ -36,7 +36,7 @@ Cette traque dura dix jours. Wang Lin finit par réaliser que quelque chose n'al
 
 Durant ces dix jours, Yao Bingyun le suivit de près. En temps normal, avec son tempérament, elle ne se serait jamais mêlée des querelles familiales. Si elle en avait eu le choix, elle aurait préféré passer son temps en culture isolée pour contempler les cieux.
 
-Cependant, l'Ancêtre de la famille Yao, le Dieu de Sang, avait prononcé une parole lors de la libération de l'Ordre Céleste: quiconque tuerait personnellement Xu Mu pourrait exiger que toute la puissance de la famille Yao soit mise à sa disposition pour accomplir un seul souhait!
+Cependant, l'Ancêtre de la famille Yao, Xue Shenzi, avait prononcé une parole lors de la libération de l'Ordre Céleste: quiconque tuerait personnellement Xu Mu pourrait exiger que toute la puissance de la famille Yao soit mise à sa disposition pour accomplir un seul souhait!
 
 C'était là la raison fondamentale qui avait poussé Yao Bingyun à agir!
 

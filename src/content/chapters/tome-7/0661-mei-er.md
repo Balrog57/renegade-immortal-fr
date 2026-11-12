@@ -94,7 +94,7 @@ Un vieil homme se trouvait au cœur de ce rayon noir. Son visage émacié, empre
 
 Il n'était pas seul. Une femme l'accompagnait, d'une beauté incomparable. Ses lèvres étaient rouges, ses sourcils fins, paraissant froncés sans l'être, et ses yeux de phénix, d'un noir profond, possédaient un éclat capable de couper le souffle à quiconque.
 
-Ses longs cheveux, longs d'environ un mètre, étaient coiffés en trois mèches: l'une relevée par une épingle en jade blanc en forme de deux papillons, les deux autres retombant avec élégance sur ses épaules. Elle portait une magnifique tunique impériale fleurie et légère, associée à une robe vert émeraude. À chacun de ses mouvements, elle irradiait une grâce éclatante.
+Ses cheveux de trois pieds de long étaient coiffés en trois mèches: l'une relevée par une épingle en jade blanc en forme de deux papillons, les deux autres retombant avec élégance sur ses épaules. Elle portait une magnifique tunique impériale fleurie et légère, associée à une robe vert émeraude. À chacun de ses mouvements, elle irradiait une grâce éclatante.
 
 Cette femme n'était en rien moins belle que Hongdie; on pourrait sans exagération la qualifier de beauté nationale. Outre son apparence, elle dégageait un charme si envoûtant qu'il en devenait magnétique.
 

@@ -22,9 +22,9 @@ Wang Lin ne perdit plus de temps. Il saisit Ta Shan et s'élança dans le vide. 
 
 Le vieil homme fixa l'endroit où Wang Lin avait disparu avec une expression complexe. Finalement, il serra les dents, se tourna vers l'assemblée et ordonna: « Dans trois mois, quoi qu'il advienne de Ta Shan, nous attaquerons le Fourneau Yin Mystérieux et quitterons ces lieux! »
 
-Wang Lin retourna là où il raffinait des trésors avec Ta Shan et le déposa au sol. Il cracha alors une bouffée d'énergie de l'âme originelle qui enveloppa l'homme. Enfin, il sortit le drapeau d'âme du milliard d'âmes et en fit jaillir une entité.
+Wang Lin retourna là où il raffinait des trésors avec Ta Shan et le déposa au sol. Il cracha alors une bouffée d'énergie de l'âme originelle qui enveloppa l'homme. Enfin, il sortit l'Étendard de l'Âme et en fit jaillir une entité.
 
-Cet objet était le fantôme céleste que Wang Lin avait obtenu dans le Royaume Céleste du Tonnerre. Dès son apparition, il poussa un rugissement et se débattit. Wang Lin le pointa du doigt et le Fouet du Karma apparut instantanément. Le fouet frappa le fantôme céleste à plusieurs reprises, provoquant ses gémissements de douleur.
+Cet objet était le fantôme céleste que Wang Lin avait obtenu dans le Royaume Céleste du Tonnerre. Dès son apparition, il poussa un rugissement et se débattit. Wang Lin le pointa du doigt et le Fouet Kunji apparut instantanément. Le fouet frappa le fantôme céleste à plusieurs reprises, provoquant ses gémissements de douleur.
 
 Simultanément, les yeux de Wang Lin s'illuminèrent et il sortit un autre sac. Une quantité massive de jades célestes emplit l'espace.
 

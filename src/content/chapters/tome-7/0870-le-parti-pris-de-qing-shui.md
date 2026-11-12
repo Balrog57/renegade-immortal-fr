@@ -8,7 +8,7 @@ slug: le-parti-pris-de-qing-shui
 ---
 Le visage de Wang Lin était d'une pâleur mortelle lorsqu'il sentit soudainement une force inimaginable surgir au milieu du combat. Cela fit trembler son corps, le contraignant à battre en retraite tout en crachant une bouchée de sang. Après avoir atterri, il recula de plusieurs pas.
 
-Quant à Luo Su, il cracha lui aussi un flot de sang et fut forcé de reculer de plusieurs mètres. Une fois stabilisé, il fixa Wang Lin d'un regard meurtrier.
+Quant à Luo Su, il cracha lui aussi un flot de sang et fut forcé de reculer de plusieurs dizaines de pieds. Une fois stabilisé, il fixa Wang Lin d'un regard meurtrier.
 
 Le Maître Yan Leizi n'avait pris parti pour aucun des deux camps lorsqu'il les sépara de force. Cependant, le sang versé par Wang Lin avait provoqué l'irruption du Royaume Ji de Qing Shui!
 
@@ -40,17 +40,17 @@ Le Maître Yan Leizi fixa Qing Shui et tonna: « Je n'avais aucun parti pris aup
 
 « Ce n'était qu'un accident. Si tu veux te battre, alors battons-nous! » L'œil droit de Qing Shui brilla d'un éclat rouge. Ayant absorbé la tribulation céleste, son Royaume Ji s'était quelque peu restauré. Ses vieilles habitudes commençaient déjà à refaire surface.
 
-Tuer ne demandait aucune raison; s'il fallait en trouver une, c'était que Qing Shui protégeait les siens! Il ne pouvait rendre la pareille à la bonté de son maître. Même si celui-ci n'avait fait qu'une plaisanterie à l'époque, il était désormais d'un sérieux absolu et tenait chaque parole de son maître pour sacrée. Dans son cœur, Xu Mu était son frère cadet, et tant qu'il serait là, personne n'aurait le droit de s'en prendre à lui! De plus, Qing Shui avait clairement décelé l'intention meurtrière dans les yeux de Luo Su. Il se devait d'éliminer un tel individu!
+Tuer ne demandait aucune raison; s'il fallait en trouver une, c'était que Qing Shui protégeait les siens! Il ne pouvait rendre la pareille à la bonté de son maître. Même si celui-ci n'avait fait qu'une plaisanterie à l'époque, il était désormais d'un sérieux absolu et tenait chaque parole de son maître pour sacrée. Dans son cœur, Xu Mu était son Junior frère, et tant qu'il serait là, personne n'aurait le droit de s'en prendre à lui! De plus, Qing Shui avait clairement décelé l'intention meurtrière dans les yeux de Luo Su. Il se devait d'éliminer un tel individu!
 
-Wang Lin réfléchit en silence. Il regarda Qing Shui et dit respectueusement: « Merci... Grand Frère de Discipline! »
+Wang Lin réfléchit en silence. Il regarda Qing Shui et dit respectueusement: « Merci... Senior frère! »
 
 Cette déclaration déclencha immédiatement une onde de choc parmi la foule!
 
-« Grand frère de discipline? C'est... ce Xu Mu est le frère cadet de discipline du Senior Qing Shui? »
+« Senior frère? C'est... ce Xu Mu est le Junior frère du Senior Qing Shui? »
 
 « Cette affaire est inconcevable. Je n'aurais jamais cru que Qing Shui et Xu Mu partageaient le même maître. La rumeur prétend que le maître du Seigneur Céleste Qing Shui était l'Empereur Céleste Bai Fan... Ce Xu Mu... est-il lui aussi un disciple de Bai Fan? »
 
-« Pas étonnant que Xu Mu se soit montré si arrogant ces dernières années. Il s'avère donc que son frère de discipline est le Seigneur Céleste Qing Shui. Humph, sans l'appui du Seigneur Céleste, ce Xu Mu ne serait rien! »
+« Pas étonnant que Xu Mu se soit montré si arrogant ces dernières années. Il s'avère donc que son Senior frère est le Seigneur Céleste Qing Shui. Humph, sans l'appui du Seigneur Céleste, ce Xu Mu ne serait rien! »
 
 L'expression de Xu Ting était sombre; il se lécha les lèvres en fixant Wang Lin. Son esprit tournait à toute vitesse, mais finalement, il regarda Qing Shui avec effroi et prit une décision.
 
@@ -60,7 +60,7 @@ Xi Zifeng avait la bouche grande ouverte. Elle peinait à croire à la relation 
 
 « Avec mon statut, je crains que rien ne puisse jamais se passer entre lui et moi de mon vivant... »
 
-« Mon seigneur est en fait le disciple de l'Empereur Céleste Bai Fan! Le disciple cadet du Seigneur Céleste Qing Shui! » Shengong Hu retint son souffle et la vénération dans ses yeux redevint fanatique, plus intense encore qu'autrefois. À mesure qu'il comprenait mieux Wang Lin, ce fanatisme semblait devenu éternel.
+« Mon seigneur est en fait le disciple de l'Empereur Céleste Bai Fan! Le Junior frère du Seigneur Céleste Qing Shui! » Shengong Hu retint son souffle et la vénération dans ses yeux redevint fanatique, plus intense encore qu'autrefois. À mesure qu'il comprenait mieux Wang Lin, ce fanatisme semblait devenu éternel.
 
 Zhan Konglie fixait la scène, abasourdi. Sa décision était prise!
 
@@ -86,7 +86,7 @@ Puisque Luo Su était mort, le Maître Yan Leizi chargea quelqu'un d'autre d'agi
 
 Une empreinte illusoire se condensa dans sa main et s'abattit rapidement sur la place. À l'instant où l'empreinte toucha le sol, toute la zone commença à trembler. D'innombrables grondements de tonnerre résonnèrent et des arcs électriques jaillirent partout sur la place. C'était comme si elle s'était transformée en un véritable lac de foudre.
 
-Ces éclairs ressemblaient à des serpents d'argent scintillant sans cesse. Ils étaient si denses qu'ils semblaient se presser les uns contre les autres avant de se disperser soudainement dans toutes les directions, laissant apparaître un espace vide de dix mètres de côté au centre de la place.
+Ces éclairs ressemblaient à des serpents d'argent scintillant sans cesse. Ils étaient si denses qu'ils semblaient se presser les uns contre les autres avant de se disperser soudainement dans toutes les directions, laissant apparaître un espace vide de trente pieds de côté au centre de la place.
 
 « Tenez bon pendant 15 respirations pour réussir. Les autres seront disqualifiés! »
 

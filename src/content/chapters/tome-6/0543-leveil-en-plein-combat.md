@@ -50,7 +50,7 @@ L'index droit de Wang Lin tremblait encore. La puissance du Doigt Démoniaque n'
 
 « Ce n'est absolument pas un sort qu'un cultivateur de la Transformation de l'Âme peut utiliser! Même parmi les Ascendants, seul un ou deux sur dix peut maîtriser une telle technique! » Un éclat mystérieux brilla dans les yeux de Wang Lin.
 
-La puissance du second effondrement était dix fois plus grande que celle du premier. À cet instant, le ciel dans un rayon de 3,3 kilomètres s'obscurcit comme lors d'une tempête de sable. Même le tourbillon éternel au-dessus du palais fut affecté.
+La puissance du second effondrement était dix fois plus grande que celle du premier. À cet instant, le ciel dans un rayon de dix mille pieds s'obscurcit comme lors d'une tempête de sable. Même le tourbillon éternel au-dessus du palais fut affecté.
 
 Wang Lin poussa un rugissement sourd; deux filaments de gaz gris apparurent sur sa main et ondulaient comme deux dragons. À cet instant, il utilisa l'Art du Massacre Céleste sans la moindre hésitation!
 
@@ -66,7 +66,7 @@ En utilisant son intention de tuer capable de faire trembler les cieux, elle for
 
 Au même moment, Wang Lin fit un pas et chargea tel une météorite. Tandis qu'il tendait sa main droite, le vortex gris se dissipa soudainement pour redevenir deux filaments de gaz dans sa paume.
 
-« Condense! » Dans un rugissement, les deux brins de gaz se condensèrent rapidement en une épée de 2,3 mètres de long dans la main de Wang Lin. Armé de cette lame, son corps dégageait une intention meurtrière effrayante.
+« Condense! » Dans un rugissement, les deux brins de gaz se condensèrent rapidement en une épée de sept pieds de long dans la main de Wang Lin. Armé de cette lame, son corps dégageait une intention meurtrière effrayante.
 
 À cet instant, Wang Lin semblait être devenu une autre personne. L'aura céleste qui l'entourait avait disparu, remplacée par une soif de sang pure!
 
@@ -86,7 +86,7 @@ Cependant, huit effondrements le séparaient encore du général. Le troisième 
 
 Les yeux de Wang Lin devinrent rouges et son intention meurtrière s'intensifia. Face à ce troisième effondrement, il n'éprouvait aucun désir de reculer, mais une soif de combat dévorante. L'épée de massacre en main, il hurla: « Brise-toi, troisième effondrement! »
 
-L'épée de massacre émit une lueur grise inédite. Cette lumière s'étendit sur plus de 33 mètres pour envelopper Wang Lin, qui chargea alors comme une météorite.
+L'épée de massacre émit une lueur grise inédite. Cette lumière s'étendit sur plus de cent pieds pour envelopper Wang Lin, qui chargea alors comme une météorite.
 
 La puissance d'un seul coup d'épée pouvait faire trembler les cieux et faire pleurer les esprits!
 

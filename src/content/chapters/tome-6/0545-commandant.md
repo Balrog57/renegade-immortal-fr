@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 545 - Commander
 slug: commandant
 ---
-Alors que Wang Lin s'avançait dans les airs vers le général, ses longs cheveux flottaient derrière lui. Il ressemblait à un dieu démon, une pointe de cruauté perçant son expression froide. Après avoir brisé le septième effondrement, il ne se trouvait plus qu'à 16,5 mètres du général démon.
+Alors que Wang Lin s'avançait dans les airs vers le général, ses longs cheveux flottaient derrière lui. Il ressemblait à un dieu démon, une pointe de cruauté perçant son expression froide. Après avoir brisé le septième effondrement, il ne se trouvait plus qu'à cinquante pieds du général démon.
 
 L'expression du général de l'aile gauche était extrêmement grave tandis qu'il fixait Wang Lin.
 
@@ -22,9 +22,9 @@ Wang Lin fronça légèrement les sourcils. Bien qu'il s'était transformé en d
 
 Wang Lin connaissait trop bien les écueils de la voie démoniaque.
 
-À cet instant, les huitième et neuvième effondrements arrivèrent presque simultanément. Wang Lin pesa rapidement ses options et prit une décision immédiate. Il tourna son regard vers le général démon, qui n'était plus qu'à dix mètres!
+À cet instant, les huitième et neuvième effondrements arrivèrent presque simultanément. Wang Lin pesa rapidement ses options et prit une décision immédiate. Il tourna son regard vers le général démon, qui n'était plus qu'à trente pieds!
 
-Après avoir laissé échapper un soupir, plutôt que de charger, il recula. Son retrait fut si fulgurant que son corps disparut complètement; lorsqu'il réapparut, il se trouvait déjà à plus de trois mille mètres de là.
+Après avoir laissé échapper un soupir, plutôt que de charger, il recula. Son retrait fut si fulgurant que son corps disparut complètement; lorsqu'il réapparut, il se trouvait déjà à dix mille pieds de là.
 
 Le général de l'aile gauche fut surpris. Ses yeux brillèrent d'une lueur furtive avant qu'il n'éclate d'un rire tonitruant: « Tu sais quand te retirer et tu comprends quand prendre la bonne décision. Bien! » Sur ces mots, il tendit la main droite et, dans une série de grondements sourds, les poings des dix effondrements disparurent. À cet instant, le ciel et la terre semblèrent retrouver leur calme naturel.
 
@@ -82,7 +82,7 @@ Wang Lin n'éprouvait aucun intérêt pour la Cité Gu Yao. Après quatre heures
 
 Depuis qu'il était devenu cultivateur, Wang Lin avait perdu tout intérêt pour la nourriture mortelle; désormais, il était parvenu au stade où la seule respiration suffisait à combler les besoins de son corps.
 
-Si la nourriture seule ne suffisait pas à captiver son attention, une immense jarre de vin attirait pourtant son regard devant l'établissement. Cette jarre mesurait dix mètres de large et 6,6 mètres de haut. Des échelles étaient disposées autour pour permettre au personnel de puiser le breuvage.
+Si la nourriture seule ne suffisait pas à captiver son attention, une immense jarre de vin attirait pourtant son regard devant l'établissement. Cette jarre mesurait trente pieds de large et vingt pieds de haut. Des échelles étaient disposées autour pour permettre au personnel de puiser le breuvage.
 
 En voyant cette jarre, Wang Lin s'arrêta pour lire l'enseigne du restaurant.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 676 - Huan Mei Approaches
 slug: lapproche-de-huan-mei
 ---
-La partie sud de la planète Qianhuan appartenait à la famille Huan. Un bassin profond, nommé le Bassin Lunaire des Illusions, s'y trouvait, et c’est ici que le rituel du lignage allait se dérouler.
+La partie sud de la planète Qianhuan appartenait à la famille Huan. Un bassin profond, nommé le Bassin Huan Yue, s'y trouvait, et c’est ici que le rituel du lignage allait se dérouler.
 
 L'eau du bassin avait déjà été retirée par l'ancêtre de la famille Huan, ne laissant derrière lui qu'une profonde fosse dans le sol. Ce dernier flottait actuellement au-dessus du bassin, l'expression empreinte d'une grande gravité.
 
@@ -86,7 +86,7 @@ Elle n'emmena aucun serviteur et partit seule.
 
 À l'intérieur de la fissure terrestre, Wang Lin détourna son regard du Serpent aux yeux de lune qui s'éloignait sur son nuage rouge. La stupeur ne quittait pas ses yeux.
 
-« Ce serpent mesure environ 3,3 kilomètres de long, et sa puissance n'est pas inférieure à celle d'un cultivateur Scruteur du Nirvana. En l'absence de Dieux Anciens, ses capacités offensives ne sont pas exceptionnelles. Tant que je ne prends pas l'initiative de le provoquer, il devrait conserver sa première forme. »
+« Ce serpent mesure environ dix mille pieds de long, et sa puissance n'est pas inférieure à celle d'un cultivateur Scruteur du Nirvana. En l'absence de Dieux Anciens, ses capacités offensives ne sont pas exceptionnelles. Tant que je ne prends pas l'initiative de le provoquer, il devrait conserver sa première forme. »
 
 Wang Lin réfléchit un instant. Selon la mémoire de l'Ancien Dieu Tu Si, ces parasites qui vivaient en lui possédaient trois formes. La première était celle qu'il venait de voir; elle n'avait aucune capacité offensive.
 

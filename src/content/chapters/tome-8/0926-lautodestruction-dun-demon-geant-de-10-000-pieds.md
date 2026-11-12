@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 926 - Self-collapse of a 10,000 Foot Giant Demon
 slug: lautodestruction-dun-demon-geant-de-10-000-pieds
 ---
-Après avoir parlé, le vieil homme en robe noire et le jeune homme en robe blanche s'élancèrent vers les Lou Fu. Bien que ces derniers exercent une grande influence sur les cultivateurs de l'Alliance, ils n'affectèrent pas ces deux individus; au contraire, ils leur apportèrent une aide précieuse en se précipitant pour les protéger à l'aide de leurs sorts.
+Après avoir parlé, le vieil homme en robe noire et le jeune homme en robe blanche s'élancèrent vers les Luo Fu. Bien que ces derniers exercent une grande influence sur les cultivateurs de l'Alliance, ils n'affectèrent pas ces deux individus; au contraire, ils leur apportèrent une aide précieuse en se précipitant pour les protéger à l'aide de leurs sorts.
 
-Lie Yunzi serra les dents et pointa un autre parchemin de bataille. Dès que son Sens Divin y pénétra, l'un des quinze Lou Fu s'effondra pour se transformer en une silhouette de sang afin de combattre le vieil homme sur la planète de culture.
+Lie Yunzi serra les dents et pointa un autre parchemin de bataille. Dès que son Sens Divin y pénétra, l'un des quinze Luo Fu s'effondra pour se transformer en une silhouette de sang afin de combattre le vieil homme sur la planète de culture.
 
-À cet instant, un membre du clan des Démons Géants de 10 000 pieds approcha à grands pas dans un grondement. S’il avait rencontré n’importe quel cultivateur de Luotian plus faible que lui, il l'aurait saisi et écrasé dans un rugissement avant de l'engloutir.
+À cet instant, un membre du Clan Ju Mo de 10 000 pieds approcha à grands pas dans un grondement. S’il avait rencontré n’importe quel cultivateur de Luotian plus faible que lui, il l'aurait saisi et écrasé dans un rugissement avant de l'engloutir.
 
-Ce membre du clan des Démons Géants était au sommet du stade Corporel Yang; son corps, exceptionnellement puissant, pouvait absorber bien plus d'énergie originelle que les cultivateurs ordinaires. Bien qu'il ne fût qu'au sommet du stade Corporel Yang, il pouvait rivaliser avec n'importe quel cultivateur ordinaire du début du stade Scruteur du Nirvana.
+Ce membre du Clan Ju Mo était au sommet du stade Corporel Yang; son corps, exceptionnellement puissant, pouvait absorber bien plus d'énergie originelle que les cultivateurs ordinaires. Bien qu'il ne fût qu'au sommet du stade Corporel Yang, il pouvait rivaliser avec n'importe quel cultivateur ordinaire du début du stade Scruteur du Nirvana.
 
 Grâce à la robustesse de son corps, il ne craignait guère la plupart des trésors magiques. En ce moment même, le géant chargeait droit sur Lie Yunzi, qui se trouvait sur le bois géant. Les yeux du colosse étaient voilés et une lueur de folie y brillait.
 
@@ -20,13 +20,13 @@ Grâce à la robustesse de son corps, il ne craignait guère la plupart des tré
 
 Wang Lin hocha la tête et observa l'âme originelle de Lie Yunzi. Celle-ci était en pleine récupération pour invoquer une autre silhouette de sang. Lie Yunzi ne pouvait être dérangé pour l'instant.
 
-Toutefois, Wang Lin ne croyait pas que Lie Yunzi n'ait pas de plan de secours, mais ce n'était pas le moment de le tester. Alors que le membre du clan des Démons Géants se rapprochait, les yeux de Wang Lin s'illuminèrent et il dit calmement: « Laisse-moi faire! »
+Toutefois, Wang Lin ne croyait pas que Lie Yunzi n'ait pas de plan de secours, mais ce n'était pas le moment de le tester. Alors que le membre du Clan Ju Mo se rapprochait, les yeux de Wang Lin s'illuminèrent et il dit calmement: « Laisse-moi faire! »
 
 Sur ces mots, il fit un pas et chargea droit vers le géant.
 
 La femme en robe de palais esquissa un sourire gracieux. Malgré l'imminence du combat, elle restait d'un calme olympien. Elle écarta une mèche de cheveux derrière son oreille et sourit à Wang Lin: « Cher compagnon de culture Xu, soyez prudent. »
 
-Lorsque Wang Lin quitta le bois géant et sortit de sa zone d'influence, il fut assailli par le chaos des batailles environnantes. À mesure que le membre du clan des Démons Géants approchait, il pouvait entendre les détonations soniques provoquées par sa charge.
+Lorsque Wang Lin quitta le bois géant et sortit de sa zone d'influence, il fut assailli par le chaos des batailles environnantes. À mesure que le membre du Clan Ju Mo approchait, il pouvait entendre les détonations soniques provoquées par sa charge.
 
 Le démon chargeait, gagnant en vitesse à chaque instant. Une aura destructrice émanait de son corps et, en un éclair, le géant fut sur lui. Sa main droite se serra en un poing et, tout en lançant son coup, il hurla: « Reculez! »
 
@@ -48,11 +48,11 @@ Le corps du colosse trembla violemment sous la force inimaginable émanant du mi
 
 Après avoir poussé un cri déchirant, le géant ne put résister à la puissance de l'autre et fut repoussé.
 
-L'effondrement de son corps ne s'arrêta pas là. Bien qu'il fût issu du clan des Démons Géants, il ne pouvait supporter le pouvoir de l'Ancien Dieu de Wang Lin. Non seulement son bras droit se désintégra, mais une grande partie de son corps fut également pulvérisée.
+L'effondrement de son corps ne s'arrêta pas là. Bien qu'il fût issu du Clan Ju Mo, il ne pouvait supporter le pouvoir de l'Ancien Dieu de Wang Lin. Non seulement son bras droit se désintégra, mais une grande partie de son corps fut également pulvérisée.
 
 La folie dans les yeux du démon s'intensifia. Il poussa un rugissement, une aura destructrice déferla de l'intérieur de son corps et, à cet instant précis, il explosa!
 
-L'autodestruction d'un cultivateur Corporel Yang au sommet était extrêmement puissante, d'autant plus que l'individu possédait le corps d'un Démon Géant. Cette puissance fut suffisante pour faire froncer les sourcils de Wang Lin.
+L'autodestruction d'un cultivateur Corporel Yang au sommet était extrêmement puissante, d'autant plus que l'individu possédait le corps du Clan Ju Mo. Cette puissance fut suffisante pour faire froncer les sourcils de Wang Lin.
 
 Le visage de Wang Lin devint légèrement rouge et son regard se fit plus glacial encore. Il cracha délibérément un peu de sang pour ne pas éveiller trop de soupçons, puis sa main droite traça un sceau en criant: « Invoquez le Vent! »
 
@@ -62,19 +62,19 @@ L'invocation « Invoquez le Vent » était d'une force redoutable; sous l'impact
 
 Boum!
 
-Après une explosion fracassante, le membre du clan des Démons Géants vola en éclats, provoquant un impact incommensurable. Cela attira l'attention des cultivateurs environnants; même les vieux monstres engagés dans les combats ne purent s'empêcher de jeter un regard.
+Après une explosion fracassante, le membre du Clan Ju Mo vola en éclats, provoquant un impact incommensurable. Cela attira l'attention des cultivateurs environnants; même les vieux monstres engagés dans les combats ne purent s'empêcher de jeter un regard.
 
-Le visage de Wang Lin devint légèrement pâle et il recula vers le bois géant comme s'il était blessé. En réalité, terrasser un membre du clan des Démons Géants de 10 000 pieds n'était absolument pas difficile pour Wang Lin, qui possédait le corps d'un Ancien Dieu!
+Le visage de Wang Lin devint légèrement pâle et il recula vers le bois géant comme s'il était blessé. En réalité, terrasser un membre du Clan Ju Mo de 10 000 pieds n'était absolument pas difficile pour Wang Lin, qui possédait le corps d'un Ancien Dieu!
 
 La femme en robe de palais sur le bois géant sourit: « J'admire les sorts du compagnon de culture Xu. Ce sort qui vous permet de raffermir instantanément votre corps est particulièrement impressionnant. »
 
 Lie Yunzi ouvrit les yeux, laissant transparaître son admiration sans toutefois parler. Il pointa le second Parchemin de Bataille et y injecta son Sens Divin.
 
-Une seconde plus tard, un autre des quatorze Lou Fu se rétracta rapidement. Sans s'effondrer, il se condensa en une nouvelle silhouette de sang. Cette entité portait un sort qui donnait l'impression que tout le sang du corps allait s'inverser. Elle chargea directement vers le vieil homme sur la planète de culture qui combattait déjà une autre silhouette de sang et le jeune homme en blanc.
+Une seconde plus tard, un autre des quatorze Luo Fu se rétracta rapidement. Sans s'effondrer, il se condensa en une nouvelle silhouette de sang. Cette entité portait un sort qui donnait l'impression que tout le sang du corps allait s'inverser. Elle chargea directement vers le vieil homme sur la planète de culture qui combattait déjà une autre silhouette de sang et le jeune homme en blanc.
 
-Au loin, la femme en robe bleue fronça davantage les sourcils. De sa main semblable au jade, elle désigna deux autres géants de 10 000 pieds qui s'élancèrent. L'un d'eux se dirigea droit vers le Lou Fu.
+Au loin, la femme en robe bleue fronça davantage les sourcils. De sa main semblable au jade, elle désigna deux autres géants de 10 000 pieds qui s'élancèrent. L'un d'eux se dirigea droit vers le Luo Fu.
 
-L'autre chargea directement vers le bois géant! Alors que ce membre du clan des Démons Géants approchait, le vieil homme sur la planète de culture s'éleva dans les airs. Ses mains formèrent un sceau et il pressa la paume vers le bas!
+L'autre chargea directement vers le bois géant! Alors que ce membre du Clan Ju Mo approchait, le vieil homme sur la planète de culture s'éleva dans les airs. Ses mains formèrent un sceau et il pressa la paume vers le bas!
 
 La planète de culture située entre le vieil homme et le démon commença soudainement à pivoter en émettant des ondulations. Le vieillard entama une incantation, ses yeux brillant d'une lueur intense. Puis, d'un geste sec, il cria: « Fluctuation planétaire! »
 

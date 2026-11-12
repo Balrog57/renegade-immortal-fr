@@ -70,13 +70,13 @@ Certains commerces, peut-être par coutume locale, exposaient d'incroyablement g
 
 Les yeux de Wang Lin pétillèrent d'intérêt. Ce genre d'étalage témoignait parfaitement de la puissance de ces boutiques. Il faut dire que des cultivateurs ordinaires ne pourraient jamais extraire de tels cristaux des veines spirituelles.
 
-La taille des cristaux était liée au prestige des enseignes. Certains mesuraient près de 6,6 mètres de haut, et leur simple présence imposait une sensation de pression.
+La taille des cristaux était liée au prestige des enseignes. Certains mesuraient près de vingt pieds de haut, et leur simple présence imposait une sensation de pression.
 
 Il y avait même une boutique dont l'extérieur était orné de cristaux de haute qualité. Cette découverte attira immédiatement l'attention de Wang Lin.
 
 Il examina attentivement l'établissement. La boutique n'était pas grande et ne comptait que deux étages. Bien qu'elle ne fût pas aussi majestueuse que ses voisines, elle était très élégante. Une plaque géante portait des caractères calligraphiés avec finesse: « Pavillon Qing Zhu ».
 
-Wang Lin ne rentra pas; il détourna le regard et continua sa route. À l'extrémité est de la ville se dressait un immense pavillon. Il n'y avait pas un, mais huit cristaux spirituels devant cet édifice. Ces huit pierres de haute qualité, hautes de près de 10 mètres, semblaient disposées selon une formation, dégageant d'incessantes vagues de pression spirituelle.
+Wang Lin ne rentra pas; il détourna le regard et continua sa route. À l'extrémité est de la ville se dressait un immense pavillon. Il n'y avait pas un, mais huit cristaux spirituels devant cet édifice. Ces huit pierres de haute qualité, hautes de trente pieds, semblaient disposées selon une formation, dégageant d'incessantes vagues de pression spirituelle.
 
 Le pavillon semblait fusionner avec son environnement, offrant un aspect presque illusoire au regard. De longues bandes de cristal spirituel portaient trois mots gravés: « Pavillon Bao He ».
 

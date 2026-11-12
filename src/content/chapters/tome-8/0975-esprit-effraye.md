@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 975 - Frightened Spirit
 slug: esprit-effraye
 ---
-« L'implication de Ling Tianhou en me révélant autant de secrets et en m'aidant est d'établir une bonne relation avec moi... Je crains que la raison principale ne soit le fait que je fasse partie de la Série de l'Oiseau Vermillon... Et qu'une partie de tout cela n'ait pour but que de me rassurer! » L'expression de Wang Lin était calme, mais dans son cœur, il réfléchissait lentement à tout cela.
+« L'implication de Ling Tianhou en me révélant autant de secrets et en m'aidant est d'établir une bonne relation avec moi... Je crains que la raison principale ne soit le fait que je fasse partie de la Série de Suzaku... Et qu'une partie de tout cela n'ait pour but que de me rassurer! » L'expression de Wang Lin était calme, mais dans son cœur, il réfléchissait lentement à tout cela.
 
 Après que Ling Tianhou eut pénétré dans la tour, les dizaines de milliers de disciples de la Secte Da Luo Jian se tournèrent vers Wang Lin. Ce dernier était habitué à ce genre d'attention. Son sens divin se propagea calmement dans toutes les directions telle une tempête.
 
@@ -14,7 +14,7 @@ Le sens divin d'un cultivateur au stade initial du Scruteur du Nirvana n'était 
 
 Wang Lin demanda calmement: « Où ce vieil homme peut-il séjourner? »
 
-Une belle cultivatrice s'avança rapidement et s'arrêta à 33 mètres de lui. Elle dit respectueusement: « La disciple Zhou Xiu salue l'Ancien. L'Ancien est arrivé soudainement, alors... Généralement, les Anciens choisissent leurs propres résidences... » La voix de Zhou Xiu était un peu hésitante.
+Une belle cultivatrice s'avança rapidement et s'arrêta à cent pieds de lui. Elle dit respectueusement: « La disciple Zhou Xiu salue l'Ancien. L'Ancien est arrivé soudainement, alors... Généralement, les Anciens choisissent leurs propres résidences... » La voix de Zhou Xiu était un peu hésitante.
 
 Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il se tenait près d'une tour située à 500 kilomètres de là. Après avoir jeté un coup d'œil, Wang Lin ne pénétra pas à l'intérieur, mais s'assit devant la tour.
 
@@ -98,7 +98,7 @@ Au moment où la lumière jaillit de la Perle Défiant le Ciel, Ling Tianhou s'e
 
 À cet instant, il vit les flammes disparaître du corps de Wang Lin. Puis, il fut soudainement frappé par le sentiment qu'une catastrophe approchait.
 
-Il n'avait jamais ressenti cela, même face à Tian Yunzi. Seul son passage à la Secte de la Culture du Vide Brillant lui avait procuré une sensation similaire. Maintenant, des dizaines de milliers d'années plus tard, il ressentait à nouveau ce pressentiment, comme si son âme allait se dissiper s'il ne se retirait pas immédiatement.
+Il n'avait jamais ressenti cela, même face à Tian Yunzi. Seul son passage à la Secte Kun Xu lui avait procuré une sensation similaire. Maintenant, des dizaines de milliers d'années plus tard, il ressentait à nouveau ce pressentiment, comme si son âme allait se dissiper s'il ne se retirait pas immédiatement.
 
 « Quelle est cette lumière?! » La panique envahit ses yeux alors que Ling Tianhou reculait rapidement, son expression changeant radicalement. Il avait la vague impression que cette lumière invisible approchait à toute vitesse. Terrifié, il frappa son front de sa main droite et une lueur jaillit de ses sourcils. L'ombre d'épée qu'il avait utilisée contre Tian Yunzi s'élança en avant sans aucune hésitation.
 
@@ -118,7 +118,7 @@ En tant que membre du groupe des Anciens de l'Alliance et seigneur de la planèt
 
 Il inspira brusquement, l'incrédulité marquant son visage. Ses deux mains bougèrent rapidement devant lui et un nuage aux sept couleurs apparut. Le nuage s'élança comme s'il tentait de résister à quelque chose.
 
-Cependant, lorsque le nuage aux sept couleurs flotta à moins de 1,65 mètre de lui, une force invisible sembla se refermer sur lui et le nuage s'effondra!
+Cependant, lorsque le nuage aux sept couleurs flotta à moins de cinq pieds de lui, une force invisible sembla se refermer sur lui et le nuage s'effondra!
 
 Après l'effondrement du nuage, une main apparut dans le vide et tenta sans pitié de saisir Tian Yunzi!
 
@@ -183,7 +183,7 @@ Comparée à cette boussole, la planète Tian Yun faisait moins d'un dixième de
 
 À mesure que la boussole s'étendait, le grondement de sa rotation devenait assourdissant! Les cheveux de Tian Yunzi s'agitaient sans aucun vent, et ses mains bougeaient si vite qu'elles créaient des images rémanentes. Tandis qu'il poursuivait sa divination, une pointe d'anxiété perçait dans son regard, et ses yeux devinrent injectés de sang.
 
-La main géante se rapprochait inexorablement de Tian Yunzi. Elle se trouvait à moins de cent mètres de lui quand ses yeux brillèrent intensément et que sa main droite s'arrêta net!
+La main géante se rapprochait inexorablement de Tian Yunzi. Elle se trouvait à moins de trois cents pieds de lui quand ses yeux brillèrent intensément et que sa main droite s'arrêta net!
 
 « Je ne peux pas diviner toute l'histoire, mais j'ai trouvé un moyen de résister! » Tian Yunzi hésita un instant avant de laisser échapper un soupir. Sans tarder, sa main droite pointa entre ses sourcils. Bien que le mouvement semblât lent, il formait plusieurs sceaux en chemin. Finalement, son doigt parut devenir une entité éternelle et se posa entre ses sourcils!
 
@@ -217,7 +217,7 @@ Le séisme atteignit son paroxysme et, alors qu'il se propageait, d'innombrables
 
 Ces trois rayons de lumière se révélèrent de plus en plus à mesure que les montagnes s'écroulaient. Finalement, alors que Tian Yunzi tendait la main, ces lumières argentées et éclatantes s'élevèrent du sol!
 
-La lueur argentée vacilla dans son ascension, révélant un trident de trente-trois mètres de long! Ce trident, entièrement argenté, dégageait une aura sauvage.
+La lueur argentée vacilla dans son ascension, révélant un trident de cent pieds de long! Ce trident, entièrement argenté, dégageait une aura sauvage.
 
 Armé de l'arme, les yeux de Tian Yunzi brillèrent et il la lança avec une force impitoyable. Le trident fut si rapide qu'il siffla dans l'air en direction de la main géante qui s'était presque totalement dissipée!
 

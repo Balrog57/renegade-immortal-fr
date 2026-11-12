@@ -8,7 +8,7 @@ slug: troisieme-etape
 ---
 L'expression de Qing Shui demeurait indifférente. Il ne daignait pas regarder le Dieu de Sang, ses yeux fixant la silhouette démoniaque qui émergeait du corps de ce dernier avec une froideur glaciale.
 
-Son œil droit scintillait d'un éclat écarlate, exhalant une intention meurtrière. D'un seul pas, Qing Shui s'élança. Le brouillard noir dans sa main s'étendit soudainement sur plus de dix mètres et vola vers le Dieu de Sang.
+Son œil droit scintillait d'un éclat écarlate, exhalant une intention meurtrière. D'un seul pas, Qing Shui s'élança. Le brouillard noir dans sa main s'étendit soudainement sur plus de trente pieds et vola vers le Dieu de Sang.
 
 Le visage du Dieu de Sang était empreint de férocité alors qu'il pointait la lampe antique du doigt. Il n'était pas le seul à bouger: le démon ancien pointa également la lampe antique.
 

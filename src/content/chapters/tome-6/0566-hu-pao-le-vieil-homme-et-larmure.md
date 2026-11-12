@@ -34,7 +34,7 @@ Parmi ces jades figurait l'enregistrement d'une méthode de culture corporelle n
 
 Wang Lin le scruta avec son Sens Divin et pensa: « C'est bien ça! » Les Neuf Cultivations du Titan comprenaient un total de neuf niveaux et constituaient une technique de raffinement corporel. Après avoir mémorisé les neuf incantations, il effaça les trois derniers niveaux, ne gardant que les six premiers, et les remit à Treize!
 
-Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déjà indescriptible. Il se prosterna au sol, effectua plusieurs kowtows et s'exclama: « Ancêtre, Treize n'obéira qu'à vous pour le reste de sa vie! »
+Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déjà indescriptible. Il se prosterna au sol, frappa plusieurs fois le sol du front et s'exclama: « Ancêtre, Treize n'obéira qu'à vous pour le reste de sa vie! »
 
 « Garde bien la Tribu de l'Affinement de l'Âme. Maintenant, va! » Wang Lin agita sa main droite et une brise légère envoya Treize hors de la vallée.
 
@@ -56,7 +56,7 @@ Une brume noire peu épaisse enveloppait son corps, et sa seule présence provoq
 
 Chaque fois qu'un fragment d'âme s'éveillait, un violent jet de gaz noir jaillissait du sol. Il tournait avec la brume noire pendant quelques tours avant de pénétrer dans l'un des petits drapeaux.
 
-À 330 mètres du jeune homme se tenait un vieil homme vêtu de noir. Ce dernier observait froidement le jeune homme et, après le temps d'un bâton d'encens, déclara: « Bien, termine! »
+À mille pieds du jeune homme se tenait un vieil homme vêtu de noir. Ce dernier observait froidement le jeune homme et, après le temps d'un bâton d'encens, déclara: « Bien, termine! »
 
 Le jeune homme hocha la tête, forma un sceau de sa main, et tous les petits drapeaux libérèrent une lueur noire avant de converger dans sa paume. À cet instant, le jeune homme ouvrit les yeux!
 
@@ -86,7 +86,7 @@ Hu Pao serra les poings en regardant au loin et marmonna pour lui-même: « Trei
 
 Les yeux de Hu Pao étaient empreints d'une intense intention meurtrière.
 
-Au plus profond de ce champ de bataille antique se dressait une tour d'un noir abyssal. Cette tour mesurait une centaine de mètres de haut et était entourée d'anneaux de lumière qui semblaient absorber toute clarté environnante. De loin, elle dégageait une aura de majesté imposante.
+Au plus profond de ce champ de bataille antique se dressait une tour d'un noir abyssal. Cette tour mesurait plusieurs centaines de pieds de haut et était entourée d'anneaux de lumière qui semblaient absorber toute clarté environnante. De loin, elle dégageait une aura de majesté imposante.
 
 La silhouette de l'homme en robe noire apparut devant la tour. Il prit une profonde inspiration et pénétra à l'intérieur. Au sommet de la structure, il s'agenouilla sur les deux genoux.
 

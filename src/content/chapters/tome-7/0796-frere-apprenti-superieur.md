@@ -1,6 +1,6 @@
 ---
 n: 796
-title: Frère Apprenti Supérieur?
+title: "Senior frère ?"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 796 - Senior Apprentice Brother
@@ -42,7 +42,7 @@ Qing Shui n'hésita pas et fit un pas en avant lui aussi.
 
 Le Maître Yan Leizi marqua une pause avant de se tourner vers Wang Lin avec un sourire. « Je dois encore utiliser ta Bête du Tonnerre pour un certain temps. Une fois le passage ouvert et notre entrée dans le Système Stellaire de l'Alliance effectuée, je te la rendrai. Tu es un être dont le destin est lié à ce vieil homme. Si tu parviens à quitter le Royaume Céleste du Tonnerre par tes propres forces et que tu atteins le Temple Céleste du Tonnerre en moins d'un an grâce à mon jeton, alors je t'offrirai une autre opportunité: je t'emmènerai avec moi dans le Système Stellaire de l'Alliance! »
 
-Tout en parlant, il frappa son sac de stockage et une corne de 9,9 centimètres, de couleur or et pourpre, s'envola immédiatement vers Wang Lin.
+Tout en parlant, il frappa son sac de stockage et une corne de trois pouces, de couleur or et pourpre, s'envola immédiatement vers Wang Lin.
 
 Le Maître Yan Leizi se retourna et pénétra dans le vortex. Qing Shui fit de même, mais juste avant de disparaître, il lança un regard chargé d'une lumière mystérieuse vers Wang Lin. Après lui avoir transmis un message par Sens Divin, il s'évanouit dans le vortex.
 

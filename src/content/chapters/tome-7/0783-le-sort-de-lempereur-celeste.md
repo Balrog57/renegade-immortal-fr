@@ -10,7 +10,7 @@ La silhouette disparut et la brume se mua en marches devant Wang Lin. Ces marche
 
 Wang Lin prit une profonde inspiration, le regard résolu. À mesure qu'il gravissait les marches une à une, celles qu'il venait de fouler disparaissaient lentement derrière lui.
 
-À cet instant, les trois vieillards postés devant le pavillon discutaient entre eux. Une lumière vive jaillit soudainement du Pavillon Cang Jue, devenant de plus en plus éblouissante.
+À cet instant, les trois vieillards postés devant le pavillon discutaient entre eux. Une lumière vive jaillit soudainement du Pavillon Cang Pin, devenant de plus en plus éblouissante.
 
 L'ancien de la famille Chen fixa la lueur et déclara calmement: « La chance du compagnon cultivateur Xu est sur le point de se manifester. Je me demande quel genre de sort céleste il parviendra à obtenir au quatrième étage! »
 
@@ -18,7 +18,7 @@ Le cultivateur nommé Lu, dont le corps avait disparu, hocha la tête: « La cul
 
 Le dernier cultivateur, nommé Song, resta silencieux. Il fixait le pavillon, les yeux brillants d'une lueur soudaine, et murmura d'une voix basse: « Quelque chose ne va pas! »
 
-Les deux autres furent surpris; en tournant leur regard vers le Pavillon Cang Jue, leurs expressions changèrent instantanément.
+Les deux autres furent surpris; en tournant leur regard vers le Pavillon Cang Pin, leurs expressions changèrent instantanément.
 
 Au sommet du pavillon, après le premier éclat, quatre autres rayons de lumière jaillirent vers le ciel, créant des ondulations qui se propagèrent dans l'air. Depuis le sol, la scène paraissait d'une grandeur absolue.
 
@@ -28,7 +28,7 @@ Au sommet du pavillon, après le premier éclat, quatre autres rayons de lumièr
 
 Le cultivateur Chen reprit lentement: « S'il était au stade Scruteur du Nirvana, il lui serait impossible d'entrer dans le Royaume Céleste du Tonnerre, à moins que... »
 
-Avant qu'il n'ait pu achever sa phrase, de nouveaux éclats surgirent du Pavillon Cang Jue. Cette fois, deux rayons de lumière apparurent, s'alignant avec les cinq précédents.
+Avant qu'il n'ait pu achever sa phrase, de nouveaux éclats surgirent du Pavillon Cang Pin. Cette fois, deux rayons de lumière apparurent, s'alignant avec les cinq précédents.
 
 Sept rayons de lumière d'une magnificence extrême jaillirent vers le ciel. Ce spectacle laissa les trois hommes totalement stupéfaits.
 
@@ -58,11 +58,11 @@ Sur le mur, juste devant lui, était suspendue une peinture. Elle représentait 
 
 Dans le coin supérieur gauche de la toile, une ligne était tracée à l'encre:
 
-« Invoquer le Vent, Appeler la Pluie, Arsenal Magique, Effondrement des Terres, Ruine des Montagnes, Lune Noire, Cieux Clairs. »
+« Invoquer le Vent, Appeler la Pluie, Semer les Haricots en Soldats, Effondrement des Terres, Ruine des Montagnes, Lune Noire, Cieux Clairs. »
 
 Wang Lin médita silencieusement en contemplant l'œuvre. Il ne vit rien de particulier dans le paysage, mais cette inscription attira son attention.
 
-« "Invoquer le Vent" et "Appeler la Pluie" doivent être deux sorts distincts. "Arsenal Magique" doit également être un sort. Quant à la seconde partie, "Effondrement des Terres" et "Ruine des Montagnes" semblent suivre la même logique, mais que signifie "Lune Noire, Cieux Clairs"... »
+« "Invoquer le Vent" et "Appeler la Pluie" doivent être deux sorts distincts. "Semer les Haricots en Soldats" doit également être un sort. Quant à la seconde partie, "Effondrement des Terres" et "Ruine des Montagnes" semblent suivre la même logique, mais que signifie "Lune Noire, Cieux Clairs"... »
 
 Ne parvenant pas à en percer le mystère, il détourna le regard pour inspecter la pièce. Elle était très simple, dépourvue même de table. Cependant, sur le sol, un tapis de pierre semblait s'être enfoncé sous le poids de quelque chose; il était évident que quelqu'un avait pratiqué la culture ici pendant une période prolongée.
 
@@ -114,7 +114,7 @@ Wang Lin baissa les yeux et constata qu'il portait une robe de daoïste. Il éta
 
 La scène était d'une étrangeté absolue. Wang Lin se redressa et leva les yeux vers le ciel. Dans le coin supérieur droit, des traces d'encre noire marquaient l'azur. Ces marques étaient les mots qu'il avait lus de l'extérieur:
 
-« Invoquer le Vent, Appeler la Pluie, Arsenal Magique, Effondrement des Terres, Ruine des Montagnes, Lune Noire, Cieux Clairs. »
+« Invoquer le Vent, Appeler la Pluie, Semer les Haricots en Soldats, Effondrement des Terres, Ruine des Montagnes, Lune Noire, Cieux Clairs. »
 
 Alors que Wang Lin contemplait cette ligne, elle se mua instantanément en gouttes d'encre qui tombèrent comme une pluie fine sur le sol. Le vide environnant disparut brusquement, remplacé par un tumulte de bruits.
 
@@ -126,7 +126,7 @@ Soudain, tout le vacarme cessa lorsqu'une silhouette s'avança. Cette figure ét
 
 L'être flotta dans les airs et prit place. Un sourire sembla éclairer son visage tandis qu'une voix claire résonnait:
 
-« Aujourd'hui, Maître Xiaoyaozi peindra la première ouverture du Pavillon Cang Jue. Le seigneur céleste m'a commandé cette peinture et m'a invité à assister à l'œuvre; j'ai donc pris la liberté d'inviter mes chers compagnons célestes pour écouter mon prêche sur le Dao pendant que la peinture s'accomplit. Voici le Dao que je connais! »
+« Aujourd'hui, Maître Xiaoyaozi peindra la première ouverture du Pavillon Cang Pin. Le seigneur céleste m'a commandé cette peinture et m'a invité à assister à l'œuvre; j'ai donc pris la liberté d'inviter mes chers compagnons célestes pour écouter mon prêche sur le Dao pendant que la peinture s'accomplit. Voici le Dao que je connais! »
 
 Tandis qu'il parlait, l'être leva la main droite et un vent rugissant surgit. Ce vent devint noir et recouvrit le firmament. En balayant le ciel, il se mua en neuf dragons noirs. Les rugissements de ces créatures et leur aura colossale firent changer la couleur du ciel. Alors que le vent noir déferlait, les neuf dragons crachèrent des rafales glaciales. Cette puissance inimaginable donnait l'impression que la vie humaine n'était qu'une flamme vacillante; quiconque serait touché par ce vent mourrait instantanément!
 
@@ -136,7 +136,7 @@ C'était comme si toute créature vivante s'éteignait au contact de cette bourr
 
 L'esprit de Wang Lin fut secoué par une douleur indicible, comme si on cherchait à le déchirer en lambeaux. Son âme originelle s'effondra aussitôt, ses fragments se dispersant dans le vide.
 
-C'est à cet instant qu'une force douce émana du néant pour envelopper l'âme originelle de Wang Lin. Une voix claire éclata d'un rire: « Le sort de l'Empereur Céleste est extraordinaire. Ce sort nommé "Invoquer le Vent", ce seigneur va l'inscrire sur la peinture de Maître Xiaoyaozi. Cette œuvre sera conservée au neuvième étage du Pavillon Cang Jue. Quant à savoir si quelqu'un pourra en comprendre le secret, cela dépendra de sa chance! »
+C'est à cet instant qu'une force douce émana du néant pour envelopper l'âme originelle de Wang Lin. Une voix claire éclata d'un rire: « Le sort de l'Empereur Céleste est extraordinaire. Ce sort nommé "Invoquer le Vent", ce seigneur va l'inscrire sur la peinture de Maître Xiaoyaozi. Cette œuvre sera conservée au neuvième étage du Pavillon Cang Pin. Quant à savoir si quelqu'un pourra en comprendre le secret, cela dépendra de sa chance! »
 
 Sous l'effet de cette voix, l'âme originelle de Wang Lin sembla se transformer en encre pour écrire deux caractères:
 
@@ -162,7 +162,7 @@ La jalousie s'installa en eux, une émotion si puissante qu'elle finit par occul
 
 Après tout, ils ne pouvaient même pas imaginer la nature du sort qui se trouvait au neuvième étage; et plus ce mystère restait entier, plus leur désir de s'en emparer grandissait.
 
-À cet instant, la porte du Pavillon Cang Jue s'illumina et Wang Lin en sortit. Il semblait encore absent, errant dans ses pensées tandis qu'il passait devant les trois hommes pour s'éloigner.
+À cet instant, la porte du Pavillon Cang Pin s'illumina et Wang Lin en sortit. Il semblait encore absent, errant dans ses pensées tandis qu'il passait devant les trois hommes pour s'éloigner.
 
 Ils remarquèrent immédiatement que l'état de Wang Lin était anormal. Ils échangèrent un regard où se lisaient la cruauté et la détermination.
 

@@ -8,7 +8,7 @@ slug: combustion
 ---
 En un instant, la vision de Wang Lin se brouilla et son corps se posa au sol.
 
-Li Yuan affichait un visage pâle lorsqu'il atterrit à trente-trois mètres de Wang Lin. Quant à la femme nommée Ge, elle était livide et commença immédiatement à vomir; la vitesse avait été si grande que son corps avait failli ne pas la supporter.
+Li Yuan affichait un visage pâle lorsqu'il atterrit à cent pieds de Wang Lin. Quant à la femme nommée Ge, elle était livide et commença immédiatement à vomir; la vitesse avait été si grande que son corps avait failli ne pas la supporter.
 
 Dès qu'il toucha terre, Wang Lin ressentit une douleur fulgurante émanant de la sphère de lumière logée dans sa poitrine. Cette souffrance était si intense qu'elle manqua de le submerger totalement.
 

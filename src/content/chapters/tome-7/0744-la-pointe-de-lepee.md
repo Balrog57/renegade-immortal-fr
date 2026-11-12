@@ -22,7 +22,7 @@ Le visage de Wang Lin ne changea pas et il garda le silence.
 
 La femme à côté de Li Yuan ouvrit la bouche pour parler, mais finit par choisir le silence.
 
-Wang Lin fixa Li Yuan. Après un long moment, il sourit et hocha la tête. « D'accord, mais… » Alors qu'il parlait, Wang Lin leva soudainement sa main droite et tendit le bras. Le corps de la femme trembla instantanément, et une ombre fantomatique, semblable à la moitié d'une âme, fut arrachée de son corps sur une distance d'environ dix centimètres.
+Wang Lin fixa Li Yuan. Après un long moment, il sourit et hocha la tête. « D'accord, mais… » Alors qu'il parlait, Wang Lin leva soudainement sa main droite et tendit le bras. Le corps de la femme trembla instantanément, et une ombre fantomatique, semblable à la moitié d'une âme, fut arrachée de son corps sur une distance de trois pouces.
 
 Tout cela se produisit en un laps de temps extrêmement court. Le visage de la femme devint livide, comme si elle venait de perdre une immense quantité d'énergie.
 

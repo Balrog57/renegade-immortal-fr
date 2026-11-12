@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 961 - Wang Lins Embarrassment
 slug: lembarras-de-wang-lin
 ---
-Wang Lin dit calmement: « Quatrième Sœur, je vous en prie, entrez. »
+Wang Lin dit calmement: « Quatrième Senior sœur, je vous en prie, entrez. »
 
 Une respiration lourde se faisait entendre à l'extérieur du pavillon et, après un long moment, la porte fut poussée. Une belle femme vêtue de violet entra, mordant sa lèvre inférieure.
 
@@ -27,13 +27,13 @@ Wang Lin fixa la femme en violet et relâcha sa prise sur son sens divin, lui pe
 Si c'était le Wang Lin d'autrefois, il n'aurait pas pu percer ce mystère. Mais désormais, un seul regard lui suffisait pour voir clair en elle.
 
 Wang Lin fronça légèrement les sourcils et dit:
-« Que désire la Quatrième Sœur? »
+« Que désire la Quatrième Senior sœur? »
 
 La femme en violet ouvrit la bouche comme pour parler, mais finit par garder le silence.
 
-« Puisque la Quatrième Sœur n'a rien à dire, je ne vous raccompagnerai pas. » Sur ces mots, Wang Lin agita sa manche. Une brise légère surgit, faisant trembler le corps de la femme et la poussant rapidement vers la porte. Au moment où elle atteignit le seuil, son regard devint résolu et elle murmura: « Wang Lin, maintenant que tu as atteint la deuxième étape, n'as-tu pas peur de la crise qui pourrait s'abattre sur toi au sein de la Secte Tian Yun? »
+« Puisque la Quatrième Senior sœur n'a rien à dire, je ne vous raccompagnerai pas. » Sur ces mots, Wang Lin agita sa manche. Une brise légère surgit, faisant trembler le corps de la femme et la poussant rapidement vers la porte. Au moment où elle atteignit le seuil, son regard devint résolu et elle murmura: « Wang Lin, maintenant que tu as atteint la deuxième étape, n'as-tu pas peur de la crise qui pourrait s'abattre sur toi au sein de la Secte Tian Yun? »
 
-Les yeux de Wang Lin s'illuminèrent et sa main droite se tendit. Il tira la femme en violet vers lui et dit calmement: « Que veut dire Senior Sœur par là? »
+Les yeux de Wang Lin s'illuminèrent et sa main droite se tendit. Il tira la femme en violet vers lui et dit calmement: « Que veut dire Senior sœur par là? »
 
 La femme en violet serra les dents, leva les yeux vers lui et dit doucement: « Tu as fui à temps à l'époque. Si tu n'avais pas quitté la secte ces cent dernières années, tu aurais déjà disparu mystérieusement! »
 
@@ -109,7 +109,7 @@ Bai Wei haussa les sourcils et le fixa de son regard aquatique.
 
 Malgré sa culture au stade initial du Scruteur du Nirvana et son corps de Dieu Antique, Wang Lin fut presque incapable de soutenir ce regard. Il sourit amèrement: « Bai... Junior Sœur Bai, que me voulez-vous? »
 
-L'expression de Bai Wei se détendit et elle murmura: « Wang Lin, tu n'aurais pas dû revenir! C'est difficile à dire ici, mais es-tu libre? Sur la planète Tian Yun, il existe un marché appelé l'Œil Fantôme, qui doit ouvrir prochainement. Si tu es disponible, j'ai quelque chose à t'informer en chemin. »
+L'expression de Bai Wei se détendit et elle murmura: « Wang Lin, tu n'aurais pas dû revenir! C'est difficile à dire ici, mais es-tu libre? Sur la planète Tian Yun, il existe un marché appelé Gui Yan, qui doit ouvrir prochainement. Si tu es disponible, j'ai quelque chose à t'informer en chemin. »
 
 Wang Lin réfléchit. Cela faisait longtemps qu'il n'était pas revenu; ce serait donc une excellente occasion d'apprendre de la bouche de Bai Wei ce qui s'était passé durant ces siècles. De plus, sa relation avec elle était bonne, il n'y avait aucune raison de refuser.
 

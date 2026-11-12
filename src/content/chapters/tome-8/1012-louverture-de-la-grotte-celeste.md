@@ -58,17 +58,17 @@ Ces neuf dragons se croisèrent et, dans un éclat de lumière violette, formèr
 
 La Formation des Neuf Dragons flottait dans les airs, brillant d'un éclat violet si intense qu'elle était visible de très loin.
 
-Le ciel à l'extérieur de la formation se tordit, et trois personnes en sortirent: Ling Tianhou, un homme vêtu de pourpre de la famille Zhao, et entre eux, le Maître du Vide. Ce dernier ouvrit les yeux, qui brillèrent intensément.
+Le ciel à l'extérieur de la formation se tordit, et trois personnes en sortirent: Ling Tianhou, un homme vêtu de pourpre de la famille Zhao, et entre eux, Xu Kongzi. Ce dernier ouvrit les yeux, qui brillèrent intensément.
 
 Peu après leur apparition, l'espace devant eux se distordit et une autre personne en émergea.
 
-À la vue de cet arrivant, le regard de Ling Tianhou devint féroce. Le Maître du Vide leva également la tête pour observer Tian Yunzi.
+À la vue de cet arrivant, le regard de Ling Tianhou devint féroce. Xu Kongzi leva également la tête pour observer Tian Yunzi.
 
-L'expression de Tian Yunzi resta sereine alors qu'il regardait le Maître du Vide et dit calmement: « Tian Yunzi salue le Collègue Cultivateur Vide. »
+L'expression de Tian Yunzi resta sereine alors qu'il regardait Xu Kongzi et dit calmement: « Tian Yunzi salue le Daoïste Xu Kongzi. »
 
-Le Maître du Vide esquissa un mince sourire et hocha la tête. « Ling Tianhou m'a invité, alors ce vieil homme est venu voir. »
+Xu Kongzi esquissa un mince sourire et hocha la tête. « Ling Tianhou m'a invité, alors ce vieil homme est venu voir. »
 
-Tian Yunzi observa la Formation des Neuf Dragons et déclara d'un ton calme: « Je n'étais pas confiant en mes seules forces, mais puisque le Collègue Cultivateur Vide est ici, ce voyage ne devrait poser aucun problème! »
+Tian Yunzi observa la Formation des Neuf Dragons et déclara d'un ton calme: « Je n'étais pas confiant en mes seules forces, mais puisque le Daoïste Xu Kongzi est ici, ce voyage ne devrait poser aucun problème! »
 
 Tandis qu'ils discutaient, deux autres distorsions spatiales apparurent de part et d'autre de la formation. Il s'agissait du Couple de Cultivateurs du Nuage Céleste et de Wang Lin.
 
@@ -98,9 +98,9 @@ Dès que Wang Lin vit l'herbe, il reconnut l'interdiction qu'il avait lui-même 
 
 Au passage du regard de Wang Lin, les yeux de Zhou Yi brillèrent furtivement. Wang Lin comprit immédiatement.
 
-À ce moment précis, plusieurs rayons de lumière surgirent du lointain. En tête marchait une belle femme d'âge mûr, à l'allure de villageoise. Derrière elle se trouvaient ses quatre disciples, parmi lesquels Qian Qin et celle qui pourrait devenir la prochaine Sainte du Vide Brillant.
+À ce moment précis, plusieurs rayons de lumière surgirent du lointain. En tête marchait une belle femme d'âge mûr, à l'allure de villageoise. Derrière elle se trouvaient ses quatre disciples, parmi lesquels Qian Qin et celle qui pourrait devenir la prochaine Sainte de Kun Xu.
 
-La femme arriva et inspecta les lieux. Elle salua d'abord Tian Yunzi, observa attentivement le Couple de Cultivateurs du Nuage Céleste, puis adressa un signe de tête amical à Wang Lin. Enfin, elle rejoignit le Maître du Vide.
+La femme arriva et inspecta les lieux. Elle salua d'abord Tian Yunzi, observa attentivement le Couple de Cultivateurs du Nuage Céleste, puis adressa un signe de tête amical à Wang Lin. Enfin, elle rejoignit Xu Kongzi.
 
 L'expression de Tian Yunzi demeura imperturbable, bien qu'il fronçât les sourcils.
 
@@ -130,7 +130,7 @@ Son crâne était parfaitement lisse, sans un seul cheveu, et l'énergie spiritu
 
 « Bei Luo... » L'expression de Wang Lin resta calme tandis qu'il hochait la tête. « Tu n'es pas en retard, tu tombes à point nommé. »
 
-L'apparition du jeune homme chauve fit se rétracter les pupilles du Maître du Vide. Une lueur de froideur passa dans les yeux du Couple de Cultivateurs du Nuage Céleste.
+L'apparition du jeune homme chauve fit se rétracter les pupilles de Xu Kongzi. Une lueur de froideur passa dans les yeux du Couple de Cultivateurs du Nuage Céleste.
 
 Seul Tian Yunzi laissa poindre un sourire.
 

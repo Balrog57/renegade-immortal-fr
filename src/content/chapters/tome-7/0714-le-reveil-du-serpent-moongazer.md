@@ -54,7 +54,7 @@ Le bruit de friction était suffisant pour ébranler l'âme. Wang Lin commença 
 
 Le visage de Wang Lin était féroce et l'énergie spirituelle céleste dans son corps déferlait avec frénésie. S'il n'avait pas atteint le stade avancé de l'Ascendant, son corps n'aurait sans doute pu supporter une telle utilisation de l'énergie spirituelle céleste.
 
-À chaque cycle de son énergie spirituelle céleste, la force de Wang Lin augmentait légèrement. Le temps pressait et le danger doublait à chaque seconde passée sur place. Les yeux de Wang Lin devinrent rouges sang lorsqu'il lâcha un nouveau rugissement.
+À chaque cycle de son énergie spirituelle céleste, la force de Wang Lin augmentait légèrement. Le temps pressait et le danger doublait à chaque respiration passée sur place. Les yeux de Wang Lin devinrent rouges sang lorsqu'il lâcha un nouveau rugissement.
 
 « Un souffle jaillit comme une montagne! »
 

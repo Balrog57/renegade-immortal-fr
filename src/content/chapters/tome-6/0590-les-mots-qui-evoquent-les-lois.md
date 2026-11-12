@@ -38,7 +38,7 @@ Cette scène choqua tout le monde!
 
 Certains soupçonnèrent même que le tambour démoniaque soit brisé. Cependant, ils réalisèrent leur erreur en voyant que certains de leurs voisins étaient gravement blessés ou inconscients, et que l'énergie spirituelle démoniaque dans leurs propres corps devenait incontrôlable. La sensation que leur énergie spirituelle démoniaque allait être expulsée de leur corps balaya immédiatement l'idée d'un tambour défectueux.
 
-De plus, la place, fissurée en un large cercle de plus d'un kilomètre autour du tambour, démontrait l'ampleur de l'impact précédent!
+De plus, la place, fissurée en un large cercle de plusieurs milliers de pieds autour du tambour, démontrait l'ampleur de l'impact précédent!
 
 Être capable de provoquer une telle destruction sur une place renforcée par d'innombrables restrictions ne pouvait être décrit que comme incroyable.
 
@@ -106,7 +106,7 @@ Wang Lin secoua la tête et répondit calmement: « Je veux une de tes mains! »
 
 « Je veux une de tes mains! » À cet instant, c'était comme si ce fut le seul son restant au monde.
 
-C'était parce que Wang Lin avait utilisé la puissance du huitième coup du tambour démoniaque pour affecter les cieux. Des rugissements tonitruants résonnèrent dans l'éther, comme si la voûte céleste était sur le point de s'effondrer. Parmi ces grondements assourdissants, cette phrase ne semblait pas avoir été prononcée par Wang Lin, mais par les cieux eux-mêmes! Par la Terre! C'était un rugissement du monde! Comme si Dieu avait ouvert ses yeux pour contempler la terre!
+C'était parce que Wang Lin avait utilisé la puissance du huitième coup du tambour démoniaque pour affecter les cieux. Des rugissements tonitruants résonnèrent dans l'éther, comme si la voûte céleste était sur le point de s'effondrer. Parmi ces grondements assourdissants, cette phrase ne semblait pas avoir été prononcée par Wang Lin, mais par les cieux eux-mêmes! Par la Terre! C'était un rugissement du monde! Comme si le Ciel avait ouvert ses yeux pour contempler la terre!
 
 Ce son représentait le ciel et la terre!
 

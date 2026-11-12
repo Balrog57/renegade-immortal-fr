@@ -158,7 +158,7 @@ Bien qu'il ne s'agisse que d'un esprit d'épée et donc d'une illusion, tous les
 
 L'âme du bélier poussa un cri déchirant alors que son essence était détruite par l'intention de meurtre. Les particules de vie issues du bélier effondré retournèrent rapidement vers la grande épée, et à cet instant précis, l'arme cessa de lutter.
 
-Ce que Wang Lin venait de faire ressemblait étrangement à ce que Tian Yunzi avait accompli en faisant s'effondrer le Char de Destruction des Dieux d'un simple pointage du doigt!
+Ce que Wang Lin venait de faire ressemblait étrangement à ce que Tian Yunzi avait accompli en faisant s'effondrer le Char de Guerre Divin d'un simple pointage du doigt!
 
 Mo Lihai ne put s'empêcher d'aspirer une bouffée d'air froid devant un tel spectacle. Son expression devint complexe en observant Wang Lin.
 

@@ -22,7 +22,7 @@ Les deux femmes, Zhao Yixuan et Xu Fei, s'arrêtèrent à leur tour pour observe
 
 Murong Zhuo hésita un instant avant de voler vers une autre fissure.
 
-Zhao Yixuan laissa échapper un léger rire. « Pourquoi le Frère Aîné Wang ne regarde-t-il pas autour de lui? Peut-être ferait-il une récolte inattendue. »
+Zhao Yixuan laissa échapper un léger rire. « Pourquoi le Senior frère Wang ne regarde-t-il pas autour de lui? Peut-être ferait-il une récolte inattendue. »
 
 Wang Lin secoua la tête. Son regard était calme. Il ne chercha pas dans les environs, mais continua sa descente.
 
@@ -44,11 +44,11 @@ Après avoir confirmé ses soupçons, Wang Lin s'arrêta en plein air et inspect
 
 « Tant de personnes ont dû venir à l'Abîme Chao Xi au fil des âges. Même si ces fissures contenaient autrefois des trésors, je crains qu'elles ne soient plus que vides aujourd'hui. »
 
-« À 330 mètres plus bas se trouve l'un des passages difficiles que j'avais découvert grâce au cristal. »
+« À mille pieds plus bas se trouve l'un des passages difficiles que j'avais découvert grâce au cristal. »
 
 Wang Lin flottait dans les airs, le visage impassible. Peu de temps après, Murong Zhuo descendit et vint se placer à ses côtés en lui adressant un signe de tête. Après un moment de silence, il demanda soudainement: « Camarade Cultivateur Wang, connaîtriez-vous cet endroit? »
 
-Wang Lin regarda Murong Zhuo et répondit: « Un arbre ancien pousse sur la falaise, 330 mètres plus bas. Cet arbre est extrêmement étrange; le Camarade Murong devrait donc être prudent. »
+Wang Lin regarda Murong Zhuo et répondit: « Un arbre ancien pousse sur la falaise, mille pieds plus bas. Cet arbre est extrêmement étrange; le Camarade Murong devrait donc être prudent. »
 
 Murong Zhuo fut surpris. Il hocha la tête et ne dit plus un mot.
 
@@ -58,7 +58,7 @@ Lorsque les cinq se retrouvèrent, il était évident qu'aucun d'eux n'avait fai
 
 Désormais, c'était Du Jian qui menait la marche.
 
-En un instant, les cinq parcoururent 330 mètres. Les yeux de Wang Lin étaient vifs alors qu'il regardait vers le bas, sur la droite. Grâce au cristal, il avait repéré l'arbre ancien. L'arbre paraissait tout à fait ordinaire et n'était pas grand du tout. Pourtant, lors de sa première observation via le cristal, Wang Lin avait ressenti un soudain sentiment de péril.
+En un instant, les cinq parcoururent mille pieds. Les yeux de Wang Lin étaient vifs alors qu'il regardait vers le bas, sur la droite. Grâce au cristal, il avait repéré l'arbre ancien. L'arbre paraissait tout à fait ordinaire et n'était pas grand du tout. Pourtant, lors de sa première observation via le cristal, Wang Lin avait ressenti un soudain sentiment de péril.
 
 En s'approchant, ses yeux se plissèrent: il vit un arbre desséché, épais comme un homme, poussant sur la paroi en bas à droite. Ses racines denses s'étalaient dans toutes les directions; la moitié pendait dans le vide tandis que l'autre s'enfonçait profondément dans la roche.
 
@@ -68,7 +68,7 @@ Une lueur violette scintillait dans la crevasse, comme si un trésor s'y cachait
 
 Cette lumière semblait simple, mais elle dégageait une aura tranchante. Il était évident au premier coup d'œil qu'il ne s'agissait pas d'un objet ordinaire. Nul besoin de recourir au Sens Divin; la vue seule suffisait pour comprendre que cette lueur violette était une épée volante fichée dans la falaise.
 
-Dès que Du Jian aperçut la lumière, ses yeux brillèrent et il s'immobilisa instantanément. Il examina attentivement l'épée et s'exclama: « L'Épée du Destin Céleste! »
+Dès que Du Jian aperçut la lumière, ses yeux brillèrent et il s'immobilisa instantanément. Il examina attentivement l'épée et s'exclama: « L'Épée de Tian Yun! »
 
 À ces mots, même les deux femmes, Zhao Yixuan et Xu Fei, furent saisies de stupeur et tournèrent leurs regards vers la crevasse.
 
@@ -76,7 +76,7 @@ Wang Lin observa la scène avec froideur et remarqua immédiatement que la femme
 
 Du Jian prit une profonde inspiration en contemplant l'épée dans la faille et dit d'un ton solennel: « Je connais cette épée; elle appartient à mon Maître, Tian Yunzi. Maître avait distribué sept épées au total, une pour chacun de ses sept véritables disciples, en guise de trésors magiques. Cependant, au fil des éons, trois d'entre elles ont disparu avec leurs propriétaires. »
 
-Il se tourna alors vers Wang Lin, le visage empreint d'hésitation: « Jeune Frère Wang, vous avez dû entendre parler de Sun Yun, n'est-ce pas? »
+Il se tourna alors vers Wang Lin, le visage empreint d'hésitation: « Junior frère Wang, vous avez dû entendre parler de Sun Yun, n'est-ce pas? »
 
 Wang Lin garda un visage neutre et acquiesça.
 
@@ -84,11 +84,11 @@ Du Jian soupira: « Lorsque Sun Yun était dans la force de l'âge, je n'étais 
 
 Le regard de Wang Lin se fixa sur l'épée volante dans la crevasse, sans dire un mot.
 
-Un éclair de froideur passa dans les yeux de Du Jian alors qu'il joignait les mains en signe de respect vers Murong Zhuo et les deux femmes. « Frère Murong, Sœurs Cadettes Zhao et Xu, cette épée appartient à ma Secte Tian Yun, et c'est même une arme de la Division Pourpre. Pourriez-vous me faire l'honneur de la remettre à mon Jeune Frère Wang? Il est un disciple de la Division Pourpre de notre secte; lui donner cette épée revient donc à la restituer à son véritable propriétaire. De plus, une fois qu'il l'aura obtenue, son rang au sein de la Division Pourpre en sera grandement transformé. » La voix de Du Jian était empreinte d'une sincérité manifeste.
+Un éclair de froideur passa dans les yeux de Du Jian alors qu'il joignait les mains en signe de respect vers Murong Zhuo et les deux femmes. « Frère Murong, Junior sœurs Zhao et Xu, cette épée appartient à ma Secte Tian Yun, et c'est même une arme de la Division Pourpre. Pourriez-vous me faire l'honneur de la remettre à mon Junior frère Wang? Il est un disciple de la Division Pourpre de notre secte; lui donner cette épée revient donc à la restituer à son véritable propriétaire. De plus, une fois qu'il l'aura obtenue, son rang au sein de la Division Pourpre en sera grandement transformé. » La voix de Du Jian était empreinte d'une sincérité manifeste.
 
 Bien que le regard de Murong Zhuo fût glacial, une étrange lueur y brillait. Sa réponse fut brève: « Aucun problème! »
 
-Les deux femmes n'eurent naturellement aucune objection. Du Jian se tourna vers Wang Lin, les yeux empreints d'une bienveillance feinte: « Jeune Frère Wang, bien que mon niveau de culture soit inférieur au vôtre, je suis entré dans la secte avant vous. J'espère que vous ne m'en voudrez pas de vous appeler ainsi. Cette épée appartient à votre Division Pourpre; votre Frère Aîné ne vous la volera pas et ne permettra à personne d'autre de le faire! J'espère seulement qu'elle brillera aussi intensément qu'au temps de Sun Yun. »
+Les deux femmes n'eurent naturellement aucune objection. Du Jian se tourna vers Wang Lin, les yeux empreints d'une bienveillance feinte: « Junior frère Wang, bien que mon niveau de culture soit inférieur au vôtre, je suis entré dans la secte avant vous. J'espère que vous ne m'en voudrez pas de vous appeler ainsi. Cette épée appartient à votre Division Pourpre; votre Senior frère ne vous la volera pas et ne permettra à personne d'autre de le faire! J'espère seulement qu'elle brillera aussi intensément qu'au temps de Sun Yun. »
 
 Wang Lin regarda calmement Du Jian. L'expression de ce dernier ne trahissait rien d'anormal, affichant un sourire empreint de douceur.
 
@@ -106,11 +106,11 @@ Tout cela se produisit avec une célérité extrême, si rapide que l'arbre anci
 
 L'épée en main, le regard de Wang Lin devint glacial. D'une simple pression, il brisa l'arme en mille morceaux. Même la lueur violette s'évanouit totalement.
 
-Comment pouvait-on parler de l'Épée du Destin Céleste? Ce n'était qu'une lame de fer grossière, fabriquée pour ressembler à un trésor magique et servir d'appât à un piège.
+Comment pouvait-on parler de l'Épée de Tian Yun? Ce n'était qu'une lame de fer grossière, fabriquée pour ressembler à un trésor magique et servir d'appât à un piège.
 
 Wang Lin fixa Du Jian, le regard toujours calme.
 
-Le visage de Du Jian se décomposa; il recula de quelques pas en s'excusant maladroitement: « Jeune Frère Wang, j'ai mal jugé cette épée... »
+Le visage de Du Jian se décomposa; il recula de quelques pas en s'excusant maladroitement: « Junior frère Wang, j'ai mal jugé cette épée... »
 
 Un éclat de froideur traversa les yeux de Wang Lin. Il provoquait rarement autrui, mais si l'on le provoquait, il se montrait impitoyable! Tel était le monde cruel de la culture: la faiblesse menait à la mort.
 

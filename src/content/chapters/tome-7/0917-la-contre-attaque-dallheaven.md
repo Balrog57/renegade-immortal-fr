@@ -18,27 +18,27 @@ Ces dix-huit sphères de sang étaient composées d'un sang recueilli par les de
 
 Cet objet était extrêmement célèbre dans l'ancien monde de la culture!
 
-Il portait le nom des Dix-huit Lou Fu!
+Il portait le nom des Dix-huit Luo Fu!
 
-Le Lou Fu était, à l'époque antique, une montagne de culture. Cependant, une nuit, la montagne s'effondra mystérieusement et tous les cultivateurs qui s'y trouvaient périrent d'une mort violente, leur sang ayant été intégralement drainé.
+Le Luo Fu était, à l'époque antique, une montagne de culture. Cependant, une nuit, la montagne s'effondra mystérieusement et tous les cultivateurs qui s'y trouvaient périrent d'une mort violente, leur sang ayant été intégralement drainé.
 
-Leur sang s'était rassemblé au Mont Lou Fu pour former une sphère de sang de cent pieds de large!
+Leur sang s'était rassemblé au Mont Luo Fu pour former une sphère de sang de cent pieds de large!
 
-C'était là l'origine du Lou Fu. Par la suite, de nombreux anciens cultivateurs vinrent l'étudier. Bien qu'ils n'eussent pu en comprendre la cause, ils parvinrent à en saisir les principes. C'est ainsi que fut créé le sort de la sphère de sang Lou Fu.
+C'était là l'origine du Luo Fu. Par la suite, de nombreux anciens cultivateurs vinrent l'étudier. Bien qu'ils n'eussent pu en comprendre la cause, ils parvinrent à en saisir les principes. C'est ainsi que fut créé le sort de la sphère de sang Luo Fu.
 
 Toutefois, cette sphère de sang était trop maléfique et son taux de réussite à la fabrication était faible. Bien qu'elle possédât des pouvoirs mystérieux, elle ne pouvait être raffinée en masse.
 
-Le pouvoir des dix-huit Lou Fu résidait dans leur pression. Un seul Lou Fu exerçait une strate de pression; ainsi, dix-huit Lou Fu créaient un degré de compression inimaginable.
+Le pouvoir des dix-huit Luo Fu résidait dans leur pression. Un seul Luo Fu exerçait une strate de pression; ainsi, dix-huit Luo Fu créaient un degré de compression inimaginable.
 
 De plus, si un cultivateur y fusionnait une partie de son propre sang, non seulement il ne subirait pas la pression, mais son niveau de culture augmenterait également pour une courte période.
 
-L'expression du Saint Démon Noir était sombre; il s'apprêtait à charger pour détruire les dix-huit Lou Fu. Cependant, à cet instant précis, Xue Shenzi surgit du vide et bloqua le Saint Démon Noir dans un éclat de rire.
+L'expression du Saint Démon Noir était sombre; il s'apprêtait à charger pour détruire les dix-huit Luo Fu. Cependant, à cet instant précis, Xue Shenzi surgit du vide et bloqua le Saint Démon Noir dans un éclat de rire.
 
 Le visage de Maître Yan Leizi demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il traversa, depuis la région nord, les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire de Luotian.
 
 Dans le Système Stellaire de Luotian, plus de dix mille cultivateurs avaient activé leur culture. Un objet se dressait parmi eux!
 
-Cet objet était un morceau de bois. Cependant, ce bois mesurait cent mille pieds de long et dix mille pieds de large!
+Cet objet était un morceau de bois. Cependant, ce bois mesurait plusieurs centaines de milliers de pieds de long et près de dix mille pieds de large!
 
 Le Bois Perçant le Ciel! Il avait été découvert par le Temple Céleste du Tonnerre il y a trente mille ans. La rumeur prétendait qu'il s'agissait d'un arbre céleste qui soutenait l'Ancien Royaume Céleste. Seul Luotian avait pu préserver le sien relativement intact; les trois autres royaumes avaient perdu le leur lors de l'effondrement des Royaumes Célestes.
 
@@ -56,7 +56,7 @@ Hors de la barrière, les ombres illusoires qui s'y étaient formées ainsi que 
 
 Certains cultivateurs furent frappés de plein fouet par le bois. Leurs corps et leurs âmes originelles furent pulvérisés, ne laissant derrière eux qu'une brume de sang. Cependant, comparée à la taille du bois, cette quantité de sang était insignifiante.
 
-Les dix-huit Lou Fu étaient le premier grand trésor préparé par les cultivateurs de Luotian, et ce bois géant était le second, mais ce n'était pas encore la fin!
+Les dix-huit Luo Fu étaient le premier grand trésor préparé par les cultivateurs de Luotian, et ce bois géant était le second, mais ce n'était pas encore la fin!
 
 Le bois géant avait ouvert la voie à travers la barrière des fissures spatiales. Des ondes se propagèrent sur la barrière et un rugissement qui secoua toute la région ouest jaillit du tunnel menant au Système Stellaire de Luotian.
 

@@ -70,7 +70,7 @@ Da Tou acquiesça: « Cet endroit n'est effectivement pas adapté à la pratique
 
 Wang Lin cessa de perdre son temps en paroles et agita ses manches. Il emmena Da Tou et Lei Ji hors de cette planète délaissée pour s'élancer parmi les étoiles.
 
-Parmi les astres, Lei Ji étira ses membres et se prosterna. Dans un rugissement, son corps grandit jusqu'à atteindre trois cent trente mètres de hauteur.
+Parmi les astres, Lei Ji étira ses membres et se prosterna. Dans un rugissement, son corps grandit jusqu'à atteindre mille pieds de hauteur.
 
 Wang Lin atterrit sur le dos de Lei Ji et s'assit. Da Tou suivit Wang Lin et se tint à ses côtés comme une sentinelle. Une ombre vacilla derrière lui, et Ta Shan apparut avec une expression indifférente.
 
@@ -90,7 +90,7 @@ Ses yeux s'illuminèrent et il pensa: « Autrefois, ma culture était au début 
 
 « À l'époque, Xue Zu était au stade intermédiaire du Purificateur du Nirvana. Si je me trouvais à cette époque, je devrais pouvoir l'affronter! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Purificateur du Nirvana voulait me tuer, ce ne serait pas aussi facile! »
 
-À cet instant, à environ 5 000 kilomètres de Wang Lin, un objet semblable à un navire avançait lentement. Ce bateau était entièrement noir, mesurait près de cent mètres de long et émettait des ondes de fluctuations de trésor magique.
+À cet instant, à environ 5 000 kilomètres de Wang Lin, un objet semblable à un navire avançait lentement. Ce bateau était entièrement noir, mesurait environ trois cents pieds de long et émettait des ondes de fluctuations de trésor magique.
 
 Une énergie spirituelle dense s'en dégageait, faisant comprendre à quiconque le voyait qu'il ne s'agissait pas d'un objet ordinaire.
 

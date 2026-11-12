@@ -58,9 +58,9 @@ Sun Xi afficha sa majesté devant la foule. Sans dire un mot, il se contenta d'u
 
 Sun Qiming était arrivé au Pavillon Bao He plus tôt. Bien que ce pavillon appartienne à la famille Ran, Sun Qiming étant le chef de la famille Sun dans cette ville, son statut était naturellement supérieur à celui des autres. Il conduisit personnellement Wang Lin et Sun Xi au quatrième étage, sans laisser un employé s'en charger.
 
-Le jeune homme nommé Lou, qui avait bloqué l'entrée de Wang Lin auparavant, discutait avec quelques clients. En voyant Wang Lin, il leva la tête et fut instantanément saisi d'un sursaut, avant d'être frappé de stupeur en apercevant Sun Qiming. Quant à Sun Xi, Lou ignorait qui il était, mais face au respect que lui témoignait Sun Qiming, il présuma qu'il s'agissait d'une figure de haut rang au sein de la famille Sun.
+Le jeune homme nommé Lu, qui avait bloqué l'entrée de Wang Lin auparavant, discutait avec quelques clients. En voyant Wang Lin, il leva la tête et fut instantanément saisi d'un sursaut, avant d'être frappé de stupeur en apercevant Sun Qiming. Quant à Sun Xi, Lu ignorait qui il était, mais face au respect que lui témoignait Sun Qiming, il présuma qu'il s'agissait d'une figure de haut rang au sein de la famille Sun.
 
-En regardant Wang Lin, le jeune Lou eut l'impression d'avoir manqué quelque chose d'essentiel...
+En regardant Wang Lin, le jeune Lu eut l'impression d'avoir manqué quelque chose d'essentiel...
 
 Le Pavillon Bao He était divisé en quatre étages, le quatrième étant composé de salons privés.
 

@@ -96,7 +96,7 @@ Wang Lin saisit la bouteille et, sans même y regarder, en but une gorgée. En a
 
 « La culture, la culture... Sais-tu que j'ai autrefois envoyé les ossements d'un vieil ami dans sa ville natale? Sais-tu ce que j'ai entendu, Situ? » Wang Lin reprit la bouteille et but de nouveau. L'amertume emplissait ses yeux.
 
-« L'arbre à abricots fleurit en blanc. La fille ne sera pas prise par une famille de taoïstes. Avant le Nouvel An, le second Lang monta à la montagne, et après le Nouvel An, le premier Lang n'était plus qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à abricots fleurit en blanc et les enfants ne devraient pas être pris par les taoïstes. Si l'on m'interroge sur mon âge, je n'ai toujours pas trouvé mon Dao. Le chien aboie, le chat griffe, effrayant le taoïste qui rentre chez lui. »
+« L'arbre à abricots fleurit en blanc. La fille ne sera pas prise par une famille de daoïstes. Avant le Nouvel An, le second Lang monta à la montagne, et après le Nouvel An, le premier Lang n'était plus qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à abricots fleurit en blanc et les enfants ne devraient pas être pris par les daoïstes. Si l'on m'interroge sur mon âge, je n'ai toujours pas trouvé mon Dao. Le chien aboie, le chat griffe, effrayant le daoïste qui rentre chez lui. »
 
 Cette comptine qui s'échappait de la bouche de Wang Lin portait une trace de tristesse. Une trace de son impuissance et de l'illumination acquise après plus de 1 300 ans de culture. En entendant cela, la main de Situ Nan trembla.
 

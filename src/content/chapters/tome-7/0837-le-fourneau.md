@@ -58,7 +58,7 @@ Yao Bingyun avait déjà atteint le stade de la pensée scellée du sort célest
 
 Après s'être complètement scellée, des craquements résonnèrent dans son corps. Une fine couche de glace apparut en elle et se propagea rapidement.
 
-Le cristal de glace scella également le tentacule qui l'enroulait. L'énergie glaciale émanant de son corps devint de plus en plus intense à mesure que la glace s'épaississait. Finalement, une couche de glace d'un mètre d'épaisseur l'enveloppa.
+Le cristal de glace scella également le tentacule qui l'enroulait. L'énergie glaciale émanant de son corps devint de plus en plus intense à mesure que la glace s'épaississait. Finalement, une couche de glace de trois pieds d'épaisseur l'enveloppa.
 
 À moitié nue et emprisonnée dans la glace, son expression restait parfaitement paisible, et à la voir, on ne pouvait s'empêcher d'être troublé.
 
@@ -68,7 +68,7 @@ Un jour, le Serpent aux yeux de lune s'arrêta. Il se trouvait alors dans les pr
 
 Une fois immobile, son corps se replia lentement pour redevenir une planète de culture. Les innombrables tentacules qui l'entouraient se rétractèrent et une vaste quantité de brume noire s'en échappa, enveloppant la planète.
 
-Les tentacules raccourcirent jusqu'à ne plus mesurer que moins de 330 mètres. Ils ondulaient à la surface de la planète et les environs retrouvèrent leur tranquillité...
+Les tentacules raccourcirent jusqu'à ne plus mesurer que moins de mille pieds. Ils ondulaient à la surface de la planète et les environs retrouvèrent leur tranquillité...
 
 Dans l'espace mystérieux et étroit situé au sein du corps du Serpent aux yeux de lune, Wang Lin ouvrit les yeux. Les blessures infligées à l'âme originelle n'étaient pas faciles à guérir; après tout ce temps de culture, il n'avait récupéré que 80 % de ses capacités.
 
@@ -86,7 +86,7 @@ Wang Lin s'y était préparé. Cette force provenait clairement des tentacules e
 
 Tout en résistant à la succion, le sens divin de Wang Lin se répandit progressivement à travers le fourneau, y laissant son empreinte. Cependant, il ne ressentit aucun signe qu'il puisse désormais le contrôler.
 
-Wang Lin fronça les sourcils mais ne renonça pas. Son sens divin s'étendit à nouveau sur toute la surface du fourneau, laissant ses traces centimètre par centimètre.
+Wang Lin fronça les sourcils mais ne renonça pas. Son sens divin s'étendit à nouveau sur toute la surface du fourneau, laissant ses traces pouce par pouce.
 
 Le processus était extrêmement lent. Il devait lutter contre la force de succion tout en effectuant cette tâche, ce qui était une épreuve ardue compte tenu de son niveau de culture. Le temps s'écoulait, mais Wang Lin ne s'arrêta pas. En continuant d'imprimer sa marque sur le fourneau, il sembla découvrir des indices.
 

@@ -8,7 +8,7 @@ slug: jeu-dacteur
 ---
 À cet instant, Wang Lin était sous les feux de la rampe. Non seulement Shengong Hu, Zhan Konglie, Tang Yanfeng et les deux derniers cultivateurs du Yang Corporel le scrutaient, mais tous les cultivateurs des familles des quatre domaines (est, ouest, nord et sud) du système stellaire de Luotian avaient également les yeux rivés sur lui.
 
-Tout cela parce que Wang Lin était apparu à 165 mètres de la porte céleste et, plus important encore, avait projeté Li Yuan vers l'extérieur. Li Yuan était devenu le premier et unique cultivateur à réussir à quitter le Royaume Céleste du Tonnerre!
+Tout cela parce que Wang Lin était apparu à cinq cents pieds de la porte céleste et, plus important encore, avait projeté Li Yuan vers l'extérieur. Li Yuan était devenu le premier et unique cultivateur à réussir à quitter le Royaume Céleste du Tonnerre!
 
 En un instant, Wang Lin était devenu le centre de toutes les attentions.
 

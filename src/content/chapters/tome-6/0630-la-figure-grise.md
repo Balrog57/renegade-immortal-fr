@@ -18,13 +18,13 @@ Une série d'explosions retentit, comme si le tonnerre résonnait entre Wang Lin
 
 Le doigt de Wang Lin s'avança une fois de plus et frappa la lance alors qu'elle se refermait sur lui.
 
-Ce cycle se poursuivit jusqu'à ce que Wang Lin ait reculé de plus de 330 mètres. Finalement, la puissance de la lance faiblit et fut finalement annihilée par un fil d'énergie démoniaque émanant de Wang Lin.
+Ce cycle se poursuivit jusqu'à ce que Wang Lin ait reculé de plus de mille pieds. Finalement, la puissance de la lance faiblit et fut finalement annihilée par un fil d'énergie démoniaque émanant de Wang Lin.
 
 Le visage de Wang Lin était extrêmement pâle et, en raison de sa perte de sang massive, sa respiration était courte. Cependant, au lieu de s'arrêter pour se reposer, il se précipita rapidement.
 
 Il fonçait vers la Vallée Démoniaque, au centre de la capitale!
 
-La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de 165 mètres de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Luo. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet où était logé le Sens Divin de ce dernier!
+La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de cinq cents pieds de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Luo. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet où était logé le Sens Divin de ce dernier!
 
 Wang Lin n'avait pas le loisir de regarder le combat entre les deux anciens démons dans l'écran démoniaque du ciel. Il se déplaça tel un éclair et pénétra dans la terre sacrée du Pays Huo Yao: la Vallée Démoniaque!
 

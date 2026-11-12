@@ -32,7 +32,7 @@ Maître Yi Chen répondit d'un ton jovial: « Si elle vous plaît, Frère Wang, 
 
 Alors qu'ils parlaient, plusieurs grues célestes fendaient les nuages dans un mouvement d'une grâce infinie. Sur l'une d'elles siégeait une jeune fille vêtue de bleu. Elle était d'une beauté saisissante, et ses éclats de rire cristallins parvinrent à leurs oreilles avant même que les grues ne soient proches.
 
-« Aînée, vous aviez dit avoir trouvé une source souterraine. Où se cache-t-elle? »
+« Senior sœur, vous aviez dit avoir trouvé une source souterraine. Où se cache-t-elle? »
 
 Une femme en violet était assise sur une grue derrière la jeune fille en bleu. Son visage était empreint de froideur, mais elle possédait une beauté époustouflante et un teint de jade. Ses yeux étincelaient et ses traits exquis auraient captivé quiconque croiserait son regard.
 

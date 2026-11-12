@@ -77,13 +77,13 @@ Alors que les quatre Anciens en robe rouge s'élevaient dans les airs, les escla
 
 Dans l'espace, les quatre Anciens en robe rouge se regardèrent. Sans un mot, ils comprirent la décision des autres. Ils joignirent leurs mains en signe de salut et s'apprêtèrent à se séparer quand, soudain, leur regard fut attiré par le lointain.
 
-Un fleuve de pierres sifflait à travers l'espace vers la Planète du Sang. Un géant de plus de 300 mètres de haut trônait au-dessus de ce long courant. Ses yeux étaient froids et chargés d'une intention meurtrière. Les quatre Anciens écarquillèrent les yeux et se regardèrent précipitamment. Ils s'envolèrent immédiatement dans quatre directions différentes, ignorant totalement le géant qui approchait.
+Un fleuve de pierres sifflait à travers l'espace vers la Planète du Sang. Un géant d'environ mille pieds de haut trônait au-dessus de ce long courant. Ses yeux étaient froids et chargés d'une intention meurtrière. Les quatre Anciens écarquillèrent les yeux et se regardèrent précipitamment. Ils s'envolèrent immédiatement dans quatre directions différentes, ignorant totalement le géant qui approchait.
 
 « Xue Zu, même toi, tu peux connaître un tel jour! » Ces mêmes mots traversèrent presque simultanément l'esprit des quatre vieillards.
 
 Derrière eux, une multitude d'esclaves du sang s'étaient lancés dans l'espace, stupéfaits par le géant. Mais ils s'éloignaient tous, un rictus satisfait aux lèvres, sans regarder derrière eux. Aucun ne resta pour défendre la Planète du Sang; au contraire, beaucoup affichaient des sourires moqueurs. Certains ne s'éloignèrent même pas tant que cela, restant à proximité de la planète pour assister personnellement à sa chute.
 
-Grâce à sa sagesse, Wang Lin comprit immédiatement le comportement de ces esclaves. Il ne tenta pas de les arrêter et chargea la Planète du Sang avec son immense fleuve de pierres. Lorsqu'il fut tout près, il s'éleva au-dessus du courant rocheux. Chaque main saisit une pierre de 330 mètres de large qu'il projeta vers la planète.
+Grâce à sa sagesse, Wang Lin comprit immédiatement le comportement de ces esclaves. Il ne tenta pas de les arrêter et chargea la Planète du Sang avec son immense fleuve de pierres. Lorsqu'il fut tout près, il s'éleva au-dessus du courant rocheux. Chaque main saisit une pierre de mille pieds de large qu'il projeta vers la planète.
 
 Un grondement fracassant retentit alors que ces deux blocs percutèrent la Planète du Sang comme deux météores. Au moment de l'impact, un écran de lumière sanguine apparut, faisant éclater les pierres. Le regard de Wang Lin se fit plus glacial encore. D'un geste de la main, il lança une pierre après l'autre, sans relâche.
 
@@ -95,13 +95,13 @@ Les pierres tombèrent en masse sur la Planète du Sang. À chaque impact, la pl
 
 Mais maintenant que Xue Zu était mourant, que la planète était en plein chaos et qu'une force étrangère l'envahissait, elle n'avait plus rien à craindre. Ses mains bougèrent de plus en plus vite jusqu'à ce qu'un éclat rouge émane du pavillon. Un passage rougeâtre et flou apparut, et les yeux de Zi Xin s'illuminèrent d'excitation.
 
-C'est alors que le ciel s'obscurcit une nouvelle fois et qu'une ombre gigantesque se projeta sur elle. Prise de surprise, Zi Xin leva inconsciemment les yeux, avant d'être totalement pétrifiée. Dans le ciel, un géant de 300 mètres de haut fendait le vide vers elle. Son regard glacial se posa directement sur elle.
+C'est alors que le ciel s'obscurcit une nouvelle fois et qu'une ombre gigantesque se projeta sur elle. Prise de surprise, Zi Xin leva inconsciemment les yeux, avant d'être totalement pétrifiée. Dans le ciel, un géant de mille pieds de haut fendait le vide vers elle. Son regard glacial se posa directement sur elle.
 
 Le corps de Zi Xin trembla. Elle voyait derrière le géant les énormes rochers s'écraser sur la terre. Un sentiment de terreur profonde l'étouffa. Elle baissa immédiatement la tête vers le pavillon et se précipita vers le passage sans hésiter. Pourtant, au moment où elle fit un pas à l'intérieur, un cri aigu et déchirant s'échappa de sa bouche.
 
 La lumière rouge du tunnel l'atteignit et son corps commença à se décomposer à vue d'œil. Une fumée verte s'échappa de ses pores et même son âme originelle s'effondra. Sous le regard de Wang Lin, le corps de la femme se changea en une brume verdâtre qui fut absorbée par le passage rouge sang.
 
-Wang Lin regarda froidement le pavillon. Il tendit la main et saisit l'édifice ainsi que les 330 mètres de terre qui l'entouraient. Tandis que les pierres continuaient de pleuvoir, transformant la Planète du Sang en un champ de ruines, Wang Lin tint le pavillon d'une main et, de l'autre, frappa le sol de son poing.
+Wang Lin regarda froidement le pavillon. Il tendit la main et saisit l'édifice ainsi que les mille pieds de terre qui l'entouraient. Tandis que les pierres continuaient de pleuvoir, transformant la Planète du Sang en un champ de ruines, Wang Lin tint le pavillon d'une main et, de l'autre, frappa le sol de son poing.
 
 Parmi les grondements assourdissants, la Planète du Sang devint encore plus instable. Des ondes de choc se propagèrent et la poussière vola partout. Un instant plus tard, Wang Lin s'éleva et disparut au loin, laissant derrière lui une planète en lambeaux. Aucun esclave ou gardien ne tenta de l'arrêter. En réalité, la plupart d'entre eux joignirent les mains vers la direction où il avait disparu.
 

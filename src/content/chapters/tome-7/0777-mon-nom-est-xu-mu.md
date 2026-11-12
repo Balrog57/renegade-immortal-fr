@@ -14,9 +14,9 @@ Ainsi, il parvint à ouvrir une voie de retraite pour Wang Lin.
 
 Le regard que Wang Lin porta sur l'homme n'était pas celui qu'il avait adressé jadis à Shengong Hu, lorsqu'il avait entrevu pour la première fois le troisième niveau. Mais à présent, son niveau de culture supérieur à celui de l'adversaire, le scellement de Xue Zu et la mort de deux cultivateurs Yin Illusoire lui donnaient une confiance absolue en sa culture et une claire compréhension de son propre Dao. C'était un regard qui semblait contenir toute chose.
 
-L'homme d'âge moyen ricana. Lorsque Wang Lin tourna les yeux vers lui, ce dernier ne s'arrêta pas; au contraire, il fit un pas de plus. Ce pas franchit une centaine de mètres et il se dirigea droit sur Wang Lin.
+L'homme d'âge moyen ricana. Lorsque Wang Lin tourna les yeux vers lui, ce dernier ne s'arrêta pas; au contraire, il fit un pas de plus. Ce pas franchit plusieurs centaines de pieds et il se dirigea droit sur Wang Lin.
 
-« Quelle plaisanterie! Il existe donc quelqu'un dans le Royaume Céleste du Tonnerre qui ose menacer les gens avec une zone interdite de 3,3 kilomètres! » Pourtant, alors qu'il parlait, il s'interrompit brusquement en croisant le regard de Wang Lin.
+« Quelle plaisanterie! Il existe donc quelqu'un dans le Royaume Céleste du Tonnerre qui ose menacer les gens avec une zone interdite de dix mille pieds! » Pourtant, alors qu'il parlait, il s'interrompit brusquement en croisant le regard de Wang Lin.
 
 Ce regard était empreint d'un calme glacial. C'était comme si ces yeux fixaient un cadavre.
 
@@ -50,7 +50,7 @@ Il sentait même ses battements de cœur devenir plus rapides et plus violents �
 
 Après dix pas, Wang Lin s'interrompit, leva le pied et se stabilisa en fixant froidement l'homme d'âge moyen. Lorsque ce pas final retomba, l'homme cracha une immense quantité de sang et recula avec frénésie, comme s'il avait perdu la raison.
 
-Il ne réalisa même pas qu'il était déjà sorti de la zone interdite de 3,3 kilomètres établie par Wang Lin. Lorsque le dernier pas de Wang Lin eut résonné, son rythme cardiaque avait atteint son point de rupture.
+Il ne réalisa même pas qu'il était déjà sorti de la zone interdite de dix mille pieds établie par Wang Lin. Lorsque le dernier pas de Wang Lin eut résonné, son rythme cardiaque avait atteint son point de rupture.
 
 *Boum, boum, boum... Bang!*
 
@@ -62,7 +62,7 @@ Au-delà de la prudence, il était profondément choqué. Bien qu'il eût pu tue
 
 Grâce à sa clairvoyance, il avait naturellement compris que la mort de l'homme était liée à la manipulation de l'énergie originelle. La maîtrise de l'autre partie était ingénieuse: il avait utilisé l'énergie originelle environnante pour créer une pression écrasante, finissant par broyer le cœur de sa victime.
 
-La femme à ses côtés affichait également une expression sombre. La zone interdite de 3,3 kilomètres se trouvait juste devant elle, mais elle n'osait pas faire un pas de plus.
+La femme à ses côtés affichait également une expression sombre. La zone interdite de dix mille pieds se trouvait juste devant elle, mais elle n'osait pas faire un pas de plus.
 
 C'était comme si cette zone était un véritable territoire de la mort!
 

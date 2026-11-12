@@ -6,15 +6,15 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 560 - Deep Sleep
 slug: sommeil-profond
 ---
-Après avoir parcouru 19,8 mètres, les yeux de Wang Lin se plissèrent. Il ne poursuivit pas sa progression, mais recula de trois pas. Puis, il fit neuf pas de côté, recula à nouveau de trois pas, et reprit enfin sa marche en ligne droite!
+Après avoir parcouru soixante pieds, les yeux de Wang Lin se plissèrent. Il ne poursuivit pas sa progression, mais recula de trois pas. Puis, il fit neuf pas de côté, recula à nouveau de trois pas, et reprit enfin sa marche en ligne droite!
 
-Il décrivit ainsi une sorte de petit cercle avant d'arriver à 9,9 mètres du pavillon!
+Il décrivit ainsi une sorte de petit cercle avant d'arriver à trente pieds du pavillon!
 
 Son expression demeurait calme, car tout ceci faisait partie de ses déductions; toutes les variations étaient gravées dans son esprit. Chaque pas était le fruit de calculs effectués d'innombrables fois jusqu'à ce qu'il en soit enfin certain.
 
 S'il pouvait marcher avec une telle désinvolture, c'était grâce à sa grande confiance. Wang Lin savait que le moindre faux pas l'exposerait à un terrible contrecoup.
 
-Les 19,8 premiers mètres n'étaient pas si redoutables, mais les 13,2 derniers seraient désastreux pour lui avec son niveau de culture actuel!
+Les soixante premiers pieds n'étaient pas si redoutables, mais les quarante derniers pieds seraient désastreux pour lui avec son niveau de culture actuel!
 
 Cependant, rien n'est absolu, et il existe toujours une voie de salut au sein d'une restriction. Si l'on parvient à emprunter ce chemin en un instant de crise, on peut sauver sa vie.
 
@@ -22,23 +22,23 @@ C’était là aussi une particularité des restrictions célestes!
 
 Toutefois, ce chemin de sécurité n'était jamais fixe; il se déplaçait constamment au sein de la restriction. Durant les deux mois passés, outre l'apprentissage des changements de la restriction elle-même, Wang Lin s'était concentré sur la déduction de la position de cette voie sûre.
 
-S'il avait décrit un cercle entre 19,8 et 23,1 mètres, c'était en raison du changement de trajectoire du chemin de sécurité. Il s'était toujours maintenu à seulement un pas de celui-ci.
+S'il avait décrit un cercle entre soixante et soixante-dix pieds, c'était en raison du changement de trajectoire du chemin de sécurité. Il s'était toujours maintenu à seulement un pas de celui-ci.
 
-À cet instant, il se tint à 23,1 mètres et se concentra un moment pour calculer. Puis, son corps s'élança et il franchit directement 3,3 mètres en une seule enjambée.
+À cet instant, il se tint à soixante-dix pieds et se concentra un moment pour calculer. Puis, son corps s'élança et il franchit directement dix pieds en une seule enjambée.
 
-Après avoir atterri, Wang Lin franchit immédiatement 3,3 autres mètres, mais au moment où ses pieds touchèrent le sol, son expression changea. Sans la moindre hésitation, il fit un demi-pas vers la gauche; à cet instant précis, un tourbillon noir surgit soudainement dans un rayon de 33 mètres autour du pavillon!
+Après avoir atterri, Wang Lin franchit immédiatement dix autres pieds, mais au moment où ses pieds touchèrent le sol, son expression changea. Sans la moindre hésitation, il fit un demi-pas vers la gauche; à cet instant précis, un tourbillon noir surgit soudainement dans un rayon de cent pieds autour du pavillon!
 
-Ce tourbillon apparut de nulle part et déchaîna une force violente. Des filaments d'éclairs noirs s'agitaient en son sein. En un instant, cette zone de 33 mètres fut enveloppée par une puissance destructrice. Des vents impétueux balayaient l'espace tandis que la foudre frappait sans merci. Cette force était telle que même des cultivateurs Ascendants y périraient au-delà de trois respirations, et encore moins Wang Lin!
+Ce tourbillon apparut de nulle part et déchaîna une force violente. Des filaments d'éclairs noirs s'agitaient en son sein. En un instant, cette zone de cent pieds fut enveloppée par une puissance destructrice. Des vents impétueux balayaient l'espace tandis que la foudre frappait sans merci. Cette force était telle que même des cultivateurs Ascendants y périraient au-delà de trois respirations, et encore moins Wang Lin!
 
 En particulier les éclairs, qui se mouvaient tels des dragons capables de tout anéantir!
 
-La silhouette de Wang Lin continua d'évoluer au cœur de l'ouragan, traversant la zone de 33 mètres tout en zigzaguant avec précaution entre les décharges électriques. Chaque pas qu'il posait suivait le chemin de sécurité, car un seul faux pas et son âme originelle serait définitivement éteinte!
+La silhouette de Wang Lin continua d'évoluer au cœur de l'ouragan, traversant la zone de cent pieds tout en zigzaguant avec précaution entre les décharges électriques. Chaque pas qu'il posait suivait le chemin de sécurité, car un seul faux pas et son âme originelle serait définitivement éteinte!
 
 Son mouvement précédent n'était pas une erreur de calcul, mais pour une raison inconnue, la restriction s'était mise à fonctionner à l'envers!
 
-Après dix respirations, le tourbillon disparut comme s'il n'avait jamais existé, emportant les éclairs noirs avec lui. Le corps de Wang Lin fendit l'air et franchit ces 33 mètres pour atterrir dans le pavillon. Bien qu'il ait enfin surmonté cette ultime étape, son front était perlé de sueur.
+Après dix respirations, le tourbillon disparut comme s'il n'avait jamais existé, emportant les éclairs noirs avec lui. Le corps de Wang Lin fendit l'air et franchit ces cent pieds pour atterrir dans le pavillon. Bien qu'il ait enfin surmonté cette ultime étape, son front était perlé de sueur.
 
-Au moment où il pénétra dans le pavillon, une zone de 33 mètres autour de lui s'illumina d'une lueur éclatante qui modifia instantanément le paysage environnant.
+Au moment où il pénétra dans le pavillon, une zone de cent pieds autour de lui s'illumina d'une lueur éclatante qui modifia instantanément le paysage environnant.
 
 Lorsque Wang Lin regarda à l'intérieur du pavillon, ce fut comme si les nuages s'étaient écartés pour révéler un domaine parsemé d'une montagne factice. L'herbe recouvrait tout le sol et un bosquet de bambous rejoignait celui qui existait déjà plus loin.
 
@@ -54,11 +54,11 @@ C'était un jeton de cristal de la taille d'un doigt, qui flottait dans les airs
 
 Wang Lin prit une profonde inspiration, saisit le petit jeton et observa le pavillon. Chaque table et chaque chaise étaient protégées par des restrictions et ne pouvaient être touchées sans précaution.
 
-Cependant, comparées à la restriction couvrant les 33 mètres entourant le pavillon, celles-ci étaient bien plus faibles.
+Cependant, comparées à la restriction couvrant les cent pieds entourant le pavillon, celles-ci étaient bien plus faibles.
 
 Wang Lin ne prêta aucune attention aux meubles; ses yeux se fixèrent sur la cruche de vin posée sur la table ronde.
 
-Bien que la restriction sur la cruche fût exquise, elle n'était pas difficile à briser pour lui. Après quelques déductions, sa main droite pointa vers le récipient et une ondulation semblable à de l'eau apparut à 9,9 centimètres de celui-ci.
+Bien que la restriction sur la cruche fût exquise, elle n'était pas difficile à briser pour lui. Après quelques déductions, sa main droite pointa vers le récipient et une ondulation semblable à de l'eau apparut à trois pouces de celui-ci.
 
 Le doigt de Wang Lin pressa l'ondulation, créant une série de rides concentriques. Simultanément, il leva prestement son index et projeta une restriction illusoire qui vint frapper la surface de l'eau.
 
@@ -90,7 +90,7 @@ Bien qu'il dormît, l'énergie spirituelle céleste en lui augmentait sans relâ
 
 Lorsque l'énergie spirituelle céleste atteignit un certain seuil, le cristal démoniaque dans son dantian se brisa et fondit silencieusement. Une énergie spirituelle démoniaque envahit soudainement son corps, mais elle fut aussitôt absorbée par l'énergie céleste, devenant une partie intégrante de lui.
 
-Des filaments d'énergie spirituelle céleste s'échappèrent de son corps pour se diffuser dans un rayon de 33 mètres. Durant cette année de sommeil, la concentration d'énergie céleste dans la zone était devenue extrêmement dense.
+Des filaments d'énergie spirituelle céleste s'échappèrent de son corps pour se diffuser dans un rayon de cent pieds. Durant cette année de sommeil, la concentration d'énergie céleste dans la zone était devenue extrêmement dense.
 
 Pendant que Wang Lin dormait, sa main droite serrait toujours la cruche.
 

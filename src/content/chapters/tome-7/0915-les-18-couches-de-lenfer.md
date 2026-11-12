@@ -32,7 +32,7 @@ Au début, la rotation était lente, mais à mesure que le noyau d'origine céle
 
 Alors que le vortex rugissait, il commença à s'étendre. En un clin d'œil, un tourbillon de plusieurs dizaines de pieds de haut apparut devant Wang Lin. Il tournait si rapidement qu'il semblait immobile; en réalité, la rotation du vortex avait atteint son apogée.
 
-Si Wang Lin n'avait pas obtenu l'énergie originelle céleste de la 17e couche du Cimetière des Immortels, son noyau céleste se serait épuisé et effondré alors que le vortex n'était qu'à moitié formé.
+Si Wang Lin n'avait pas traversé les 17 couches du Clan Xian Yi, son noyau céleste se serait épuisé et effondré alors que le vortex n'était qu'à moitié formé.
 
 Même après avoir absorbé toute cette énergie et que son noyau céleste ait atteint la taille d'un poing de bébé, Wang Lin sentait son énergie originelle céleste s'épuiser rapidement. Il savait qu'il ne pourrait maintenir le vortex plus de trois jours!
 
@@ -104,7 +104,7 @@ Le Sceau Céleste servait de terre, les sceaux dorés, la rivière des enfers de
 
 Plus on descendait dans ces 18 couches, plus les âmes à l'intérieur étaient puissantes. Il n'y avait pas de fragments d'âme entre la 15e et la 18e couche, mais il y en avait un dans la 14e! Ce fragment était enveloppé d'un brouillard sanglant et d'une rancœur monstrueuse: c'était Xue Zu, tué par Wang Lin!
 
-Plus de 100 fragments d'âme d'êtres célestes massacrés par Wang Lin dans le Cimetière des Immortels étaient scellés dans la 13e couche. Ils poussaient des hurlements démoniaques, cherchant à s'échapper, mais ils restaient totalement emprisonnés.
+Plus de 100 fragments d'âme d'êtres célestes massacrés par Wang Lin chez le Clan Xian Yi étaient scellés dans la 13e couche. Ils poussaient des hurlements démoniaques, cherchant à s'échapper, mais ils restaient totalement emprisonnés.
 
 On y trouvait également les fragments d'âme des cultivateurs de la famille Yao que Wang Lin avait éliminés, ainsi que ceux de tous les cultivateurs du niveau Corporel Yang et au-delà qu'il avait tués!
 

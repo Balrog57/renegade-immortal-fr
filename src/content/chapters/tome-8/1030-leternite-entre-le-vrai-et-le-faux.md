@@ -36,9 +36,9 @@ L'homme mystérieux était celui qui lui avait offert le cristal jaune!
 
 « Vingt-trois bougies se sont éteintes... Il n'en reste plus que douze. Qiu Yao, même dans la mort, tu as tenu à me faire souffrir ainsi... T'ai-je vraiment poussée à me haïr à ce point? » L'amertume sur le visage de l'homme était profonde.
 
-« Lorsque ton clan du Tatouage est arrivé du royaume extérieur, vous vouliez forger une alliance avec nous. J'ai ouvert un royaume pour que votre clan puisse y vivre... Cependant, dès votre arrivée, de nombreux êtres célestes disparurent. Tous les indices pointaient vers le clan du Tatouage comme étant responsable de ces disparitions.
+« Lorsque ton Clan Fu Wen est arrivé du royaume extérieur, vous vouliez forger une alliance avec nous. J'ai ouvert un royaume pour que votre clan puisse y vivre... Cependant, dès votre arrivée, de nombreux êtres célestes disparurent. Tous les indices pointaient vers le Clan Fu Wen comme étant responsable de ces disparitions.
 
-« Je ne l'ai pas cru au premier abord, mais lorsque je me suis rendu dans le royaume du clan du Tatouage, j'ai vu votre clan s'emparer des âmes d'êtres célestes pour activer le Saint Tatouage de votre lignée...
+« Je ne l'ai pas cru au premier abord, mais lorsque je me suis rendu dans le royaume du Clan Fu Wen, j'ai vu votre clan s'emparer des âmes d'êtres célestes pour activer le Saint Tatouage de votre lignée...
 
 « Puisque vous avez agi de la sorte, comment aurions-nous pu ne pas faire la guerre? Comment moi, Qing Lin, aurais-je pu ne pas être en colère? Si cela ne s'était pas produit, la guerre la plus tragique depuis mon accession au trône d'Empereur Céleste aurait-elle pu avoir lieu? Et sans cela, comment le Royaume Céleste aurait-il pu perdre une telle vitalité, nous laissant incapables de résister à la catastrophe qui provoqua son effondrement?
 
@@ -56,7 +56,7 @@ L'homme mystérieux était celui qui lui avait offert le cristal jaune!
 
 « Qiu Yao, de quel droit me hais-tu? Aujourd'hui encore, tu n'as pas hésité à détruire ton avatar pour semer la confusion parmi les gens que j'ai attirés ici. Tu as même utilisé la destruction de ton avatar pour éteindre vingt-trois de mes Bougies de Vie! » Le visage de l'homme était marqué par la souffrance, tandis qu'une vapeur noire l'entourait, se transformant en une ombre démoniaque qui semblait vouloir le dévorer.
 
-« Tu n'as aucun droit de me haïr. Les vestiges de ton clan du Tatouage sont un danger pour le royaume scellé; comment aurais-je pu les ignorer et laisser planer une menace éternelle sur les générations futures de mon peuple?! Ils peuvent exister, mais seulement comme esclaves éternels de mes êtres célestes! Je les ai maintenus en vie comme un rappel. Pour ne jamais oublier la terrible intention meurtrière venue du royaume extérieur. »
+« Tu n'as aucun droit de me haïr. Les vestiges de ton Clan Fu Wen sont un danger pour le royaume scellé; comment aurais-je pu les ignorer et laisser planer une menace éternelle sur les générations futures de mon peuple?! Ils peuvent exister, mais seulement comme esclaves éternels de mes êtres célestes! Je les ai maintenus en vie comme un rappel. Pour ne jamais oublier la terrible intention meurtrière venue du royaume extérieur. »
 
 La vapeur noire autour du visage de l'homme s'intensifia. Elle s'accumula entre ses sourcils, comme prête à irrompre. Cependant, juste avant de percer, douze points de lumière apparurent, bloquant l'intrusion de cette force obscure.
 

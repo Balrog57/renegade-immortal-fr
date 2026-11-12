@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 529 - Erased
 slug: efface
 ---
-Alors que la silhouette fantomatique se précipitait, le visage de Wang Lin s'assombrit et, sans un mot, il cracha un rayon de lumière noire. Dans un éclat de lueur sombre, un drapeau d'une dizaine de mètres apparut dans sa main. Après avoir agité le drapeau, les quelques âmes primaires restantes, dont le fragment d'âme du qilin, s'envolèrent.
+Alors que la silhouette fantomatique se précipitait, le visage de Wang Lin s'assombrit et, sans un mot, il cracha un rayon de lumière noire. Dans un éclat de lueur sombre, un drapeau de trente pieds apparut dans sa main. Après avoir agité le drapeau, les quelques âmes primaires restantes, dont le fragment d'âme du qilin, s'envolèrent.
 
 La silhouette fantomatique fut surprise et ses yeux spectraux s'illuminèrent. Au lieu de foncer sur Wang Lin, elle changea de cible pour viser les âmes primaires en pleine Transformation de l'Âme.
 
@@ -44,9 +44,9 @@ Doigt Démoniaque!
 
 L'expression de l'homme en robe noire changea radicalement. Incapable de l'esquiver à temps, il leva précipitamment sa main gauche pour former un sceau. Il pressa ensuite ce sceau vers le doigt de Wang Lin afin d'en atténuer la force.
 
-Leurs doigts se touchèrent en un instant. Pourtant, ils ne se rencontrèrent pas directement; un espace de dix centimètres les séparait!
+Leurs doigts se touchèrent en un instant. Pourtant, ils ne se rencontrèrent pas directement; un espace de trois pouces les séparait!
 
-Quelque chose d'étrange se jouait dans ces quelques centimètres!
+Quelque chose d'étrange se jouait dans ces trois pouces!
 
 L'énergie spirituelle démoniaque de Wang Lin jaillit du bout de son doigt et entra en collision avec l'énergie noire émanant du doigt de l'homme en robe noire. À cet instant, une sphère d'un noir abyssal apparut entre leurs deux doigts.
 

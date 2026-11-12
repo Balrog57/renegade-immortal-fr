@@ -10,7 +10,7 @@ Une âme originelle de dragon antique était absolument prodigieuse aux yeux de 
 
 Lorsque l'ancêtre posa le regard sur l'âme originelle de Wang Lin, ses yeux trahirent une expression complexe. Il poussa un soupir, s'avança et joignit les mains. « Haut... Haut Céleste, cet humble serviteur souhaiterait vous demander... »
 
-Wang Lin ne prêta aucune attention au vieil homme. Son corps de dragon de tonnerre, long d'une dizaine de mètres, se jeta jusqu'au char de guerre. Après avoir fixé la sixième rune un instant, Wang Lin la dévora sans la moindre hésitation. Puis, il dévora directement la septième rune également.
+Wang Lin ne prêta aucune attention au vieil homme. Son corps de dragon de tonnerre, long de plusieurs dizaines de pieds, se jeta jusqu'au char de guerre. Après avoir fixé la sixième rune un instant, Wang Lin la dévora sans la moindre hésitation. Puis, il dévora directement la septième rune également.
 
 Cette scène fit plisser les yeux de l'assistance qui observa la scène avec une attention accrue.
 
@@ -18,7 +18,7 @@ Cette scène fit plisser les yeux de l'assistance qui observa la scène avec une
 
 Ses paroles étaient empreintes de force, d'autant plus que l'expression de Xu Liguo suggérait qu'il préférait mourir plutôt que de laisser quiconque troubler son maître. Il dégageait une aura puissante qui se propageait comme une tempête.
 
-L'ancêtre recula rapidement de quelques pas et dit respectueusement: « Nous ne nous approcherons pas à moins de 330 mètres. Nous avons simplement quelques questions... »
+L'ancêtre recula rapidement de quelques pas et dit respectueusement: « Nous ne nous approcherons pas à moins de mille pieds. Nous avons simplement quelques questions... »
 
 Avant que le vieil homme n'ait pu achever sa phrase, Xu Liguo hurla: « Silence! À moins que vous ne passiez sur mon corps, vous ne perturberez pas mon maître, pas même un peu! Ma vie entière m'a été donnée par mon maître. C'est lui qui m'a sauvé de l'abîme. C'est lui qui m'a enseigné les sorts et m'a permis d'obtenir mon héritage. C'est mon maître qui m'a donné ma puissance actuelle. Si vous voulez troubler mon maître, moi, Xu Liguo, je ne vous le permettrai jamais!!! »
 
@@ -60,7 +60,7 @@ Les yeux de l'âme originelle de Wang Lin brillèrent d'un éclat vif et les deu
 
 « Char de Guerre Divin, libération du sceau! » Ce message transmis par Sens Divin se propagea comme un coup de tonnerre et toute la lumière noire sembla s'engouffrer dans le corps de Wang Lin. Soudain, d'innombrables épines se mirent à briller et une ombre illusoire prit rapidement forme.
 
-C'était une bête spirituelle haute de près de 330 mètres. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan Xian Xuan. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une culture puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
+C'était une bête spirituelle haute d'environ mille pieds. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan Xian Xuan. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une culture puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
 
 Les poils de la bête moustique se hérissèrent et elle poussa des rugissements. De même, le ventre du crapaud tonnerre se gonfla alors qu'il préparait son sortilège le plus puissant.
 

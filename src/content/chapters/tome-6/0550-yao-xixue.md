@@ -24,7 +24,7 @@ Leurs regards se croisèrent et le cœur de Wang Lin trembla un instant avant de
 
 Le corps du vieil homme tressaillit à son tour et ses yeux brillèrent intensément; il fut profondément stupéfait qu'un simple regard de Wang Lin ait failli provoquer l'effondrement des sceaux qui le scellaient.
 
-Une fois l'intendant apparu, celui-ci fit un pas et se téléporta instantanément à plusieurs dizaines de mètres de Wang Lin. Le vieil homme fit de même.
+Une fois l'intendant apparu, celui-ci fit un pas et se téléporta instantanément à plusieurs centaines de pieds de Wang Lin. Le vieil homme fit de même.
 
 Le visage émacié de l'intendant ne trahit aucune émotion face aux cadavres jonchant le sol.
 
@@ -52,7 +52,7 @@ Lorsque ce nouveau commandant décidait d'agir, il frappait comme la foudre. Si 
 
 De plus, à en juger par le niveau de culture du nouveau commandant, même Sima Yan n'aurait pas été de taille s'il avait tenté de s'opposer à lui. Fort de ce constat, beaucoup commencèrent à envisager la voie de la conciliation.
 
-Wang Lin se leva et pressa le sol de sa main droite. Une série de grondements sourds émana soudainement de la terre sous le camp, comme si des dragons en furie s'agitaient dans les profondeurs. À cet instant, le sol de l'ensemble du camp militaire s'affaissa de 3,3 centimètres!
+Wang Lin se leva et pressa le sol de sa main droite. Une série de grondements sourds émana soudainement de la terre sous le camp, comme si des dragons en furie s'agitaient dans les profondeurs. À cet instant, le sol de l'ensemble du camp militaire s'affaissa d'un pouce!
 
 La terre en surplus se souleva brusquement sous les pieds de Wang Lin!
 
@@ -62,7 +62,7 @@ En un instant, une pagode de terre apparut au milieu du camp militaire.
 
 C'était une construction à deux étages qui, bien que d'une couleur uniforme, dégageait une aura de majesté.
 
-D'un simple mouvement de la main, Wang Lin avait été capable de prélever une couche de terre de 3,3 centimètres sur tout le camp pour ériger cette pagode. Cela ne choqua pas seulement Sima Yan et les chefs de régiment, mais aussi les 9 000 soldats démons.
+D'un simple mouvement de la main, Wang Lin avait été capable de prélever une couche de terre d'un pouce sur tout le camp pour ériger cette pagode. Cela ne choqua pas seulement Sima Yan et les chefs de régiment, mais aussi les 9 000 soldats démons.
 
 « Vous pouvez tous partir! » Après avoir lancé cet ordre, Wang Lin se détourna et pénétra dans la pagode.
 

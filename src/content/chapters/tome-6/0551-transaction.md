@@ -46,7 +46,7 @@ Yao Xixue ne daigna même pas regarder Treize lorsqu'elle pointa l'air du doigt.
 
 Juste au moment où Yao Xixue s'apprêtait à pénétrer dans la pagode, les 9 000 soldats démons accoururent. L'un des chefs de régiment cria rapidement: « Commandante Yao, arrêtez-vous! »
 
-Le visage de Yao Xixue était empreint d'une intention meurtrière; elle agita sa main semblable à du jade derrière elle et un rayon de lumière couleur sang apparut. Dans un rayon d'environ 330 mètres, tout fut immédiatement encerclé par cette lueur sanglante, bloquant les soldats démons qui accouraient.
+Le visage de Yao Xixue était empreint d'une intention meurtrière; elle agita sa main semblable à du jade derrière elle et un rayon de lumière couleur sang apparut. Dans un rayon d'environ mille pieds, tout fut immédiatement encerclé par cette lueur sanglante, bloquant les soldats démons qui accouraient.
 
 « J'ai des affaires privées avec votre commandant Wang, ne nous dérangez pas! » Après avoir lancé cela, Yao Xixue entra dans la pagode.
 

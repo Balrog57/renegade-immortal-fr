@@ -78,7 +78,7 @@ Le corps du messager s'immobilisa instantanément. Bien que ce ne fût que pour 
 
 Un bruit de craquement retentit aussitôt, puis le corps du messager se fragmenta en morceaux de pierre qui tombèrent au sol. Cependant, les petits drapeaux autour de lui emportèrent son âme originelle et s'enfuirent.
 
-« Je vous en prie, ne me tuez pas, je vous offrirai en échange un trésor précieux... » Avant que l'homme n'ait pu achever sa phrase, les yeux de Wang Lin brillèrent et il s'élança. Il pointa la main droite et le Fouet du Karma jaillit, faisant pousser un gémissement misérable à l'âme originelle emprisonnée dans la brume violette. Wang Lin saisit l'âme originelle et les trois drapeaux. Il cracha ensuite un souffle de son âme originelle pour former d'innombrables restrictions afin de sceller les drapeaux ainsi que l'âme originelle, avant de les ranger dans son sac.
+« Je vous en prie, ne me tuez pas, je vous offrirai en échange un trésor précieux... » Avant que l'homme n'ait pu achever sa phrase, les yeux de Wang Lin brillèrent et il s'élança. Il pointa la main droite et le Fouet Kunji jaillit, faisant pousser un gémissement misérable à l'âme originelle emprisonnée dans la brume violette. Wang Lin saisit l'âme originelle et les trois drapeaux. Il cracha ensuite un souffle de son âme originelle pour former d'innombrables restrictions afin de sceller les drapeaux ainsi que l'âme originelle, avant de les ranger dans son sac.
 
 À ce moment-là, les deux autres messagers qui avaient chargé furent encerclés par les autres cultivateurs. Sous l'assaut conjoint des deux cultivateurs Yang Corporel — soutenus par certains cultivateurs de l'Yin Illusoire — et de nombreux cultivateurs Ascendants, les deux messagers furent contraints de reculer.
 

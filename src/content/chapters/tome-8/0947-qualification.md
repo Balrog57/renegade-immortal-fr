@@ -44,11 +44,11 @@ Lie Yunzi était assis au sommet d'une montagne sur la planète. À ses côtés 
 
 Si Wang Lin avait été présent, il aurait reconnu ce jeune homme comme étant Xu Ting, qui avait failli périr lors de la grande bataille.
 
-Treize sphères de sang flottaient autour de Lie Yunzi. Ces treize sphères étaient les restes des Lou Fu.
+Treize sphères de sang flottaient autour de Lie Yunzi. Ces treize sphères étaient les restes des Luo Fu.
 
-Il n'y avait que peu de cultivateurs de Luotian ici, seulement quelques individus sous la direction de Lie Yunzi. Il était présent précisément parce que ces treize Lou Fu empêcheraient l'Alliance de lancer une nouvelle attaque!
+Il n'y avait que peu de cultivateurs de Luotian ici, seulement quelques individus sous la direction de Lie Yunzi. Il était présent précisément parce que ces treize Luo Fu empêcheraient l'Alliance de lancer une nouvelle attaque!
 
-Son sens divin était projeté à travers les treize Lou Fu, ce qui lui permettait de couvrir une zone bien plus vaste qu'à la normale. Par conséquent, rien dans le secteur ne pouvait échapper à son sens divin.
+Son sens divin était projeté à travers les treize Luo Fu, ce qui lui permettait de couvrir une zone bien plus vaste qu'à la normale. Par conséquent, rien dans le secteur ne pouvait échapper à son sens divin.
 
 La silhouette de Wang Lin apparut au milieu des ondulations de l'espace. Il était venu sur cette planète de culture pour chercher Lie Yunzi. C'était la seconde affaire qu'il devait traiter. Après son retour du vide, juste avant de partir, Wang Lin avait reçu un message par sens divin, et l'expéditeur était Lie Yunzi.
 
@@ -92,11 +92,11 @@ La main droite de Wang Lin saisit le parchemin de la famille Zhan, mais il ne l'
 
 En regardant Wang Lin, l'expression de Lie Yunzi s'assombrit. Cependant, il se remémora le rugissement de Wang Lin et, un instant plus tard, il éclata de rire. « Xu Mu, tu as du cran! Que veux-tu? Parle! »
 
-Wang Lin pointa les treize Lou Fu du doigt et dit calmement: « Le Cadet veut un Lou Fu en échange de la lecture du second parchemin! »
+Wang Lin pointa les treize Luo Fu du doigt et dit calmement: « Le Cadet veut un Luo Fu en échange de la lecture du second parchemin! »
 
 Lie Yunzi réfléchit silencieusement avant d'esquisser un sourire qui n'en était guère un, et dit: « Est-ce là un trésor que tu crois pouvoir obtenir? »
 
-Wang Lin eut un sourire fugace mais ne répondit pas. Il ajouta plutôt: « Le Cadet a rendez-vous avec son frère aîné. Dans quelques jours, il viendra me chercher pour se rendre dans un certain lieu. »
+Wang Lin eut un sourire fugace mais ne répondit pas. Il ajouta plutôt: « Le Cadet a rendez-vous avec son Senior frère. Dans quelques jours, il viendra me chercher pour se rendre dans un certain lieu. »
 
 Lie Yunzi regarda Wang Lin d'un air entendu et rit: « Je t'en offrirai un! » Sur ces mots, sa main droite plongea dans le vide et l'une des sphères de sang en descendit. Elle se condensa rapidement pour atteindre la taille d'un poing et flotta vers Wang Lin.
 

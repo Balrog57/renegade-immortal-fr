@@ -10,7 +10,7 @@ La ruse de Wang Lin dépassait largement celle des gens ordinaires. Il ne croyai
 
 « Être capable d'affecter l'énergie du massacre... cet endroit m'aidera certainement à maîtriser l'Art Céleste du Massacre! » Wang Lin ne se retourna pas et disparut dans les profondeurs de la prison.
 
-« Certaines choses dans ce monde exigent que nous fassions un choix. Certaines choses seront perdues, mais c’est une voie que je dois suivre! » Wang Lin descendit les escaliers et, après le temps d'une combustion d'encens, la lumière rouge sang devant lui s'intensifia.
+« Certaines choses dans ce monde exigent que nous fassions un choix. Certaines choses seront perdues, mais c’est une voie que je dois suivre! » Wang Lin descendit les escaliers et, après environ un bâton d'encens, la lumière rouge sang devant lui s'intensifia.
 
 Au bas de l'escalier se révélait un monde écarlate! L'endroit était vaste, et l'épaisse couche de traces de sang sur le sol était saisissante.
 
@@ -68,11 +68,11 @@ L'énergie générée par leurs meurtres était absorbée par le ciel et dispara
 
 Ce carnage dura longtemps avant de s'interrompre enfin. Ces individus possédaient tous une aura meurtrière monstrueuse et les yeux totalement rouges. Toute raison avait quitté leur esprit. Il ne restait plus qu'une centaine de survivants, dont Wang Lin.
 
-Le massacre cessa silencieusement. Chacun d'eux était entouré d'une intense aura meurtrière se manifestant sous la forme d'une brume de sang s'étendant sur 10 mètres.
+Le massacre cessa silencieusement. Chacun d'eux était entouré d'une intense aura meurtrière se manifestant sous la forme d'une brume de sang s'étendant sur trente pieds.
 
 Sans même se regarder, ils se dispersèrent pour chercher un bassin de sang. Ceux qui venaient de ressusciter s'écartaient immédiatement, permettant aux autres de disposer d'un bassin pour eux seuls.
 
-Les yeux de Wang Lin étaient rouge sang tandis qu'il dirigeait sa brume de dix mètres vers un bassin. La douzaine de personnes présentes à l'intérieur se levèrent et partirent précipitamment, une pointe de révérence perçant dans leurs regards injectés de sang.
+Les yeux de Wang Lin étaient rouge sang tandis qu'il dirigeait sa brume de trente pieds vers un bassin. La douzaine de personnes présentes à l'intérieur se levèrent et partirent précipitamment, une pointe de révérence perçant dans leurs regards injectés de sang.
 
 Wang Lin s'assit seul dans le bassin et ferma les yeux. Après un long moment, il les rouvrit. Le rouge qui embrasait son regard disparut peu à peu pour laisser place à la clarté.
 
@@ -82,7 +82,7 @@ Après un long moment, le carnage reprit dans ce monde écarlate. Tous s'envolè
 
 Ce cycle de violence se produisait plusieurs fois par jour. Lors de ces massacres, beaucoup mouraient, tandis que quelques rares individus voyaient la brume de sang autour d'eux gagner en puissance.
 
-Une journée passa rapidement; il y eut au total quatre cycles de massacre ce jour-là. Wang Lin tint jusqu'à la fin, mais la brume de sang autour de lui ne mesurait qu'une centaine de mètres de large. Comparé aux autres, c'était considérable, mais un homme aux cheveux noirs possédait une brume de plus de 330 mètres de large!
+Une journée passa rapidement; il y eut au total quatre cycles de massacre ce jour-là. Wang Lin tint jusqu'à la fin, mais la brume de sang autour de lui ne mesurait que plusieurs centaines de pieds de large. Comparé aux autres, c'était considérable, mais un homme aux cheveux noirs possédait une brume de plus de mille pieds de large!
 
 Il flottait dans les airs tel un roi.
 
@@ -92,4 +92,4 @@ Une fois le dernier massacre terminé, ce jeune homme royal leva soudainement la
 
 Cela força la brume de sang de chacun à quitter son corps pour être aspirée par le dragon argenté.
 
-Le jeune homme semblable à un roi poussa un rugissement et chargea directement le dragon. Cependant, alors qu'il n'avait parcouru que 3,3 kilomètres, le dragon argenté se retourna. D'un seul regard du dragon, le corps du jeune homme s'effondra, réduit à une bouillie sanglante. Sa brume de sang fut aspirée par la créature, puis le dragon argenté disparut.
+Le jeune homme semblable à un roi poussa un rugissement et chargea directement le dragon. Cependant, alors qu'il n'avait parcouru que dix mille pieds, le dragon argenté se retourna. D'un seul regard du dragon, le corps du jeune homme s'effondra, réduit à une bouillie sanglante. Sa brume de sang fut aspirée par la créature, puis le dragon argenté disparut.

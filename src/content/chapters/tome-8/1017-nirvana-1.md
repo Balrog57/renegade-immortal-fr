@@ -54,7 +54,7 @@ D'une simple pensée, Wang Lin les lança à l'assaut. Parmi elles, l'âme de Xu
 
 Les nombreuses âmes célestes semblaient également avoir perdu la raison, se précipitant sur tout ce qui les entourait.
 
-Parmi ces âmes se trouvaient des guerriers du Royaume Sha Lu. C'étaient de nouvelles recrues, et leur apparition emplit la zone d'une intention meurtrière!
+Parmi ces âmes se trouvaient des guerriers du Royaume Sha Yu. C'étaient de nouvelles recrues, et leur apparition emplit la zone d'une intention meurtrière!
 
 Alors que les grains de sable volaient vers Wang Lin, ils entrèrent en collision avec les âmes. Un grondement infini résonna alors à travers le monde.
 

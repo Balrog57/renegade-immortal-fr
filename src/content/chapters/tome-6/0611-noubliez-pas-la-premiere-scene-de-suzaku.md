@@ -10,7 +10,7 @@ Aux confins de la planète de culture de rang 7, Tian Yun.
 
 L’Étoile Sanguine.
 
-Une femme vêtue de pourpre chevauchait une épée de 10 mètres de long, fendant avec célérité l'immensité de l'espace. Trois autres femmes, parées de robes colorées, la poursuivaient de près.
+Une femme vêtue de pourpre chevauchait une épée d'environ trente pieds de long, fendant avec célérité l'immensité de l'espace. Trois autres femmes, parées de robes colorées, la poursuivaient de près.
 
 L'une des poursuivantes ricana: « Misérable! Tu as trahi le Palais Tian Shui et dérobé le trésor sacré de la jeune maîtresse de la secte. Crois-tu vraiment pouvoir t’échapper? Même si cet endroit est sous l'influence de la planète Tian Yun, ma Planète des Cinq Éléments est également une planète de culture de rang 7. Tu ne pourras pas fuir! »
 
@@ -28,7 +28,7 @@ Les trois femmes derrière elle poussèrent des grognements froids et accélér�
 
 La femme en pourpre atteignit la planète rouge sang et perça son atmosphère. En approchant de la surface, elle aperçut immédiatement un pavillon écarlate.
 
-Un homme sortit du pavillon. Il avait les cheveux et les sourcils rouges, et portait une robe pourpre. Bien qu'il ne dégageât aucune trace d'énergie spirituelle céleste, il émanait de sa présence une majesté étouffante.
+Un homme sortit du pavillon. Il avait les cheveux et les sourcils rouges, et portait une robe rouge. Bien qu'il ne dégageât aucune trace d'énergie spirituelle céleste, il émanait de sa présence une majesté étouffante.
 
 Il lança un regard glacial à la femme en pourpre ainsi qu'aux trois poursuivantes. Fronçant les sourcils, il dit calmement: « Disparaissez! »
 

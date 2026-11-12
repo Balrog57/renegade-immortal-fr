@@ -24,7 +24,7 @@ Les disciples de la Secte Da Luo Jian battirent également en retraite précipit
 
 « Je m'en veux d'avoir tant hésité. Si j'avais décidé plus tôt de me rebeller contre Tan Lang, en affrontant Tan Lang avec l'énergie d'épée offerte par notre Maître, nous n'en serions pas là! » Les yeux de Chen Long étaient empreints de regret.
 
-Cependant, Tan Lang était après tout un Senior de la génération de son maître, et il n'ignorait pas l'existence de leur énergie d'épée. Même s'ils l'utilisaient, Tan Lang serait sans doute déjà préparé. La victoire n'était donc pas garantie. De plus, il était fort probable que tous ses frères apprentis y laisseraient la vie.
+Cependant, Tan Lang était après tout un Senior de la génération de son maître, et il n'ignorait pas l'existence de leur énergie d'épée. Même s'ils l'utilisaient, Tan Lang serait sans doute déjà préparé. La victoire n'était donc pas garantie. De plus, il était fort probable que tous ses Juniors frères y laisseraient la vie.
 
 Il ne voulait pas payer un tel prix pour une simple suspicion; c'est pourquoi il n'avait pu se montrer décisif et avait attendu un siècle!
 
@@ -36,9 +36,9 @@ Il ne voulait pas payer un tel prix pour une simple suspicion; c'est pourquoi il
 
 « Cinq personnes... Quatre rayons d'énergie d'épée de Ling Tianhou, cinq épées précieuses... » Le regard de Wang Lin se fit plus froid encore.
 
-Une tristesse profonde envahit les yeux de Chen Long alors qu'il contemplait ses frères apprentis à ses côtés. Il ferma les yeux, puis les rouvrit brusquement, laissant poindre une rare lueur de détermination!
+Une tristesse profonde envahit les yeux de Chen Long alors qu'il contemplait ses Juniors frères à ses côtés. Il ferma les yeux, puis les rouvrit brusquement, laissant poindre une rare lueur de détermination!
 
-« Mes frères apprentis... Je vous demande pardon! Je suis vraiment impuissant... » Chen Long serra les dents et pointa rapidement l'espace entre ses sourcils. Un rayon de lumière rouge y apparut instantanément, se transformant en énergie d'épée.
+« Mes Juniors frères... Je vous demande pardon! Je suis vraiment impuissant... » Chen Long serra les dents et pointa rapidement l'espace entre ses sourcils. Un rayon de lumière rouge y apparut instantanément, se transformant en énergie d'épée.
 
 C'était l'énergie d'épée de Ling Tianhou, mais elle était plusieurs fois plus puissante que celles que Wang Lin avait vues auparavant. Elle appartenait à un tout autre ordre de grandeur.
 
@@ -50,11 +50,11 @@ Dès que l'énergie d'épée apparut, la contraction du brouillard violet ralent
 
 Chen Long poussa un soupir, puis l'énergie d'épée enveloppa son corps. Il fonça droit vers le gaz pourpre et, au moment de la collision, un fracas retentit comme une friction intense. Un feu semblait entourer le corps de Chen Long!
 
-Finalement, une petite brèche s'ouvrit dans le brouillard et Chen Long s'en échappa porté par l'énergie d'épée. Ce n'était pas qu'il ne voulait pas emmener ses frères apprentis, mais il avait calculé que s'il en prenait ne serait-ce qu'un seul, il ne pourrait pas percer la barrière!
+Finalement, une petite brèche s'ouvrit dans le brouillard et Chen Long s'en échappa porté par l'énergie d'épée. Ce n'était pas qu'il ne voulait pas emmener ses Juniors frères, mais il avait calculé que s'il en prenait ne serait-ce qu'un seul, il ne pourrait pas percer la barrière!
 
 Au moment où Chen Long s'échappa, le brouillard violet se condensa davantage. Il devint si dense qu'on ne pouvait plus rien voir à l'intérieur; même le son ne parvenait plus à s'en échapper.
 
-Les yeux des quatre disciples de la Secte Da Luo Jian étaient remplis de désespoir. Wu Ma poussa un rugissement de rage: « Mes trois frères, puisque nous sommes dans cette situation, pourquoi désespérer? Je sais que Wang Lin est encore là! Aidez-moi à tuer cet homme pour que je n'aie aucun regret! »
+Les yeux des quatre disciples de la Secte Da Luo Jian étaient remplis de désespoir. Wu Ma poussa un rugissement de rage: « Mes trois Juniors frères, puisque nous sommes dans cette situation, pourquoi désespérer? Je sais que Wang Lin est encore là! Aidez-moi à tuer cet homme pour que je n'aie aucun regret! »
 
 Sur ces mots, les trois autres disciples manifestèrent une intention meurtrière. En effet, s'ils devaient mourir, autant emporter cette personne de la Secte Tian Yun avec eux. Sans son apparition, ils auraient peut-être eu une chance de survivre.
 
@@ -70,7 +70,7 @@ Au moment où Wang Lin se rapprocha, l'homme ne sentit qu'une brise. Mais cette 
 
 Wang Lin retint la tête, l'âme originelle de l'homme enfermée à l'intérieur. Après avoir rangé l'épée précieuse, il chargea vers sa cible suivante.
 
-Si She contrôlait son épée précieuse, mais il était frustré et le désespoir se lisait dans ses yeux. Il ouvrit grand les paupières, mais ne pouvait voir qu'à 2,3 mètres devant lui. Au-delà, ce n'était que brouillard violet.
+Si She contrôlait son épée précieuse, mais il était frustré et le désespoir se lisait dans ses yeux. Il ouvrit grand les paupières, mais ne pouvait voir qu'à sept pieds devant lui. Au-delà, ce n'était que brouillard violet.
 
 Soudain, sa vue se troubla, comme si une silhouette venait de passer devant lui.
 
@@ -82,9 +82,9 @@ Les yeux de Wu Ma étaient injectés de sang. Après avoir perdu son épée pré
 
 À cet instant, le brouillard devant lui tourbillonna comme si quelqu'un accélérait vers lui. Les yeux de Wu Ma devinrent féroces et il hurla: « Wang Lin, meurs! »
 
-Il était sur le point de relâcher l'énergie d'épée dans sa main quand la voix de son frère apprenti, Xu Gou, surgit soudainement:
+Il était sur le point de relâcher l'énergie d'épée dans sa main quand la voix de son Junior frère, Xu Gou, surgit soudainement:
 
-« Frère aîné, c'est moi! »
+« Senior frère, c'est moi! »
 
 Wu Ma fut surpris et retira sa main droite. Mais juste au moment où il allait parler, une main apparut silencieusement du brouillard, sur le côté. Un index pressa l'espace entre les sourcils de Wu Ma.
 
@@ -104,7 +104,7 @@ Zhou Yi, témoin de la scène, vit son admiration pour Wang Lin croître. Ce der
 
 Il ignorait que comparé à l'époque où Wang Lin était dans la Mer Xiu Mo, lorsqu'il avait saisi la chance de s'emparer du corps du dragon avant qu'il ne tombe dans le gouffre, cette prouesse n'était rien.
 
-Le brouillard se contractait toujours plus vite; il ne mesurait plus même 330 mètres de large.
+Le brouillard se contractait toujours plus vite; il ne mesurait plus même mille pieds de large.
 
 À l'extérieur du brouillard violet, l'expression de Chen Long était extrêmement sombre. L'énergie d'épée de Ling Tianhou brillait intensément dans sa main. D'innombrables bêtes moustiques l'entouraient et l'assaillaient.
 

@@ -126,7 +126,7 @@ La main gauche de Wang Lin effleura son sac de rangement et une immense quantit�
 
 Wang Lin se tenait au sommet de cette colline, le tambour démoniaque dans le dos. Alors qu'il levait les yeux vers le ciel, une grande quantité d'énergie spirituelle céleste pénétra son corps par ses pieds.
 
-Les cent Doigts de la Mort fusionnèrent en un seul, se transformant en un rayon de lumière noire de plus de dix mètres de diamètre, et chargèrent directement l'éclair rouge!
+Les cent Doigts de la Mort fusionnèrent en un seul, se transformant en un rayon de lumière noire d'environ trente pieds de diamètre, et chargèrent directement l'éclair rouge!
 
 « J'ose défier les cieux pour continuer ma culture; garder mes sentiments persistants signifie que je souhaite lutter contre le destin. Rétribution divine, même si tu peux détruire mon corps, tu ne pourras jamais détruire mon cœur Dao! » Les yeux de Wang Lin s'illuminèrent et, à cet instant, la lumière de son regard perça l'éclair rouge pour pénétrer directement dans les nuages écarlates.
 

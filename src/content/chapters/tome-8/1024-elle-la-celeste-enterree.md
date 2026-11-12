@@ -34,7 +34,7 @@ Da Tou lutta un instant, mais fut lui aussi emporté.
 
 Quant aux quatre disciples de la belle femme d'âge moyen, elles possédaient les niveaux de culture les plus bas. Wang Lin s'était demandé pourquoi cette femme les avait traînées ici.
 
-Hormis la jeune fille en rose, soupçonnée d'être la Sainte du Vide Brillant, l'expression des trois autres changea radicalement. Elles ne purent offrir aucune résistance en étant aspirées.
+Hormis la jeune fille en rose, soupçonnée d'être la Sainte de Kun Xu, l'expression des trois autres changea radicalement. Elles ne purent offrir aucune résistance en étant aspirées.
 
 Le corps de l'une d'elles se brisa sous la violence de la force d'aspiration, se transformant en une brume de sang.
 

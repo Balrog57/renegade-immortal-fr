@@ -72,7 +72,7 @@ Simultanément, diverses silhouettes jaillirent du manoir des Sun, certaines s'�
 
 À cet instant précis, Wang Lin arriva calmement.
 
-« Oses-tu nuire aux membres de ma famille Sun?! » Les membres de la famille Sun qui s'étaient envolés levèrent leurs épées volantes et chargèrent Wang Lin. Ce dernier agita ses manches, créant une bourrasque puissante qui se mua instantanément en tempête. La rafale balaya tous les membres de la famille Sun dans un rayon d'environ 330 mètres et les projeta au loin.
+« Oses-tu nuire aux membres de ma famille Sun?! » Les membres de la famille Sun qui s'étaient envolés levèrent leurs épées volantes et chargèrent Wang Lin. Ce dernier agita ses manches, créant une bourrasque puissante qui se mua instantanément en tempête. La rafale balaya tous les membres de la famille Sun dans un rayon de mille pieds et les projeta au loin.
 
 « Reculez, tous! » Un cri retentit depuis l'intérieur de la demeure, et trois vieillards en sortirent. Parmi eux se trouvait l'Ancien Sun, celui qui avait commercé avec Wang Lin.
 

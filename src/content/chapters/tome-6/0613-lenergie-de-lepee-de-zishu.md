@@ -10,23 +10,23 @@ La réaction de Teng Yun fut d'une rapidité fulgurante; il afficha même une ex
 
 Si c'était une personne ordinaire, elle aurait été plus ou moins dupe de ses manœuvres.
 
-Wang Lin lança un regard glacial à Teng Yun avant de détourner les yeux et d'avancer. L'expression de Teng Yun changea légèrement alors qu'il reculait en fixant Wang Lin, pensant: « L'armure que porte cet homme est tout simplement terrifiante. Je ne parviens pas non plus à percer son niveau de culture. J'ignore s'il s'agit d'un cultivateur ou d'un indigène de cette Terre Yao Ling... Cependant, peu importe la puissance de sa culture, dès qu'il franchira la limite des trente-trois mètres autour de ce cadavre, il mourra sans aucun doute! Je ne ferai pas de vagues et je le laisserai se faire tuer par la lumière dorée émise par ce trésor. Ensuite, j'utiliserai mes propres méthodes pour m'en emparer. À ce moment-là, même cette armure sera mienne! »
+Wang Lin lança un regard glacial à Teng Yun avant de détourner les yeux et d'avancer. L'expression de Teng Yun changea légèrement alors qu'il reculait en fixant Wang Lin, pensant: « L'armure que porte cet homme est tout simplement terrifiante. Je ne parviens pas non plus à percer son niveau de culture. J'ignore s'il s'agit d'un cultivateur ou d'un indigène de cette Terre Yao Ling... Cependant, peu importe la puissance de sa culture, dès qu'il franchira la limite des cent pieds autour de ce cadavre, il mourra sans aucun doute! Je ne ferai pas de vagues et je le laisserai se faire tuer par la lumière dorée émise par ce trésor. Ensuite, j'utiliserai mes propres méthodes pour m'en emparer. À ce moment-là, même cette armure sera mienne! »
 
 Teng Yun ricana intérieurement, mais en surface, il feignit la colère. Il n'osa toutefois pas s'interposer devant Wang Lin.
 
-Wang Lin fit un pas et pénétra dans le périmètre de trente-trois mètres entourant Zi Shu. À l'instant même où il franchit cette limite, une décharge dorée jaillit du corps de Zi Shu. Cette lumière d'or se projeta vers Wang Lin telle une pluie de dix mille aiguilles dorées.
+Wang Lin fit un pas et pénétra dans le périmètre de cent pieds entourant Zi Shu. À l'instant même où il franchit cette limite, une décharge dorée jaillit du corps de Zi Shu. Cette lumière d'or se projeta vers Wang Lin telle une pluie de dix mille aiguilles dorées.
 
 Un éclat de joie mêlé d'une pointe de fierté traversa le regard de Teng Yun. Cependant, il aspira brusquement une bouffée d'air froid et la satisfaction dans ses yeux disparut instantanément.
 
 Les yeux de Wang Lin, dissimulés derrière son casque, lancèrent un regard glacial. D'un revers de main, il balaya la lumière dorée. Ayant déjà expérimenté la récupération de l'énergie de l'épée de Ling Tianhou, il avança d'un pas nonchalant et atteignit Zi Shu.
 
-Ce pas décontracté était d'une terreur absolue aux yeux de Teng Yun, qui se tenait à trente-trois mètres de là. Réalisant que la situation tournait au désastre, il fit volte-face pour s'enfuir. Mais à cet instant précis, un reniflement froid atteignit ses oreilles.
+Ce pas décontracté était d'une terreur absolue aux yeux de Teng Yun, qui se tenait à cent pieds de là. Réalisant que la situation tournait au désastre, il fit volte-face pour s'enfuir. Mais à cet instant précis, un reniflement froid atteignit ses oreilles.
 
 Le corps de Teng Yun trembla et se figea. Il eut le pressentiment que s'il tentait de fuir, il mourrait sans aucun doute. L'ombre de la mort s'abattit sur son cœur.
 
-« Tu ne souhaites donc pas récupérer le cadavre de ton frère de discipline? » Wang Lin s'accroupit sans pour autant se retourner.
+« Tu ne souhaites donc pas récupérer le cadavre de ton Junior frère? » Wang Lin s'accroupit sans pour autant se retourner.
 
-Le visage de Teng Yun se contracta et il répondit précipitamment: « Si Senior le désire, alors je vous en prie, prenez-le. Je n'en ferai aucun cas. Mon frère de discipline a eu une vie difficile; s'il peut servir quelqu'un comme Senior après sa mort, ce sera sa bénédiction. Je suis convaincu que même s'il était encore en vie, s'il savait que Senior était intéressé, il se donnerait la mort sans la moindre hésitation. Mon frère était une personne d'une telle bienveillance. »
+Le visage de Teng Yun se contracta et il répondit précipitamment: « Si Senior le désire, alors je vous en prie, prenez-le. Je n'en ferai aucun cas. Mon Junior frère a eu une vie difficile; s'il peut servir quelqu'un comme Senior après sa mort, ce sera sa bénédiction. Je suis convaincu que même s'il était encore en vie, s'il savait que Senior était intéressé, il se donnerait la mort sans la moindre hésitation. Mon frère était une personne d'une telle bienveillance. »
 
 Terrifié, il déversait un flot de mensonges.
 
@@ -42,15 +42,15 @@ Wang Lin contemplait la tête de Zi Shu en cours de raffinage. Ses yeux s'illumi
 
 Wang Lin prit une profonde inspiration et saisit cette lumière. Il la porta à sa bouche et l'avala.
 
-Puis, d'un coup de pied, il projeta le corps de Zi Shu vers Teng Yun. Il dit: « Voici le corps de votre frère de discipline! Donnez-lui une sépulture digne. »
+Puis, d'un coup de pied, il projeta le corps de Zi Shu vers Teng Yun. Il dit: « Voici le corps de votre Junior frère! Donnez-lui une sépulture digne. »
 
 Le visage de Teng Yun était d'une pâleur extrême. Encore sous le choc d'avoir échappé au désastre, il rattrapa précipitamment le cadavre et s'exclama: « Oui, merci Senior! Merci, Senior! » Il partit rapidement, le corps serré contre lui.
 
 Ce n'est que lorsqu'il fut à des dizaines de kilomètres de là qu'il poussa un soupir de soulagement, découvrant qu'il était trempé de sueur froide. Une haine profonde l'envahit tandis qu'il regardait le cadavre décapité; il le jeta brutalement sur le côté. D'un geste de la main droite, il fit apparaître un immense nuage noir qui enveloppa la dépouille et, en un clin d'œil, dévora entièrement le corps, jusqu'aux os.
 
-« C'est la faute de ce cadavre! J'ai failli y laisser ma vie! Bien que le niveau de culture de ce Senior soit élevé, son esprit est quelque peu lent. Il a vraiment cru que cet homme était mon frère de discipline! » Teng Yun cracha au sol, encore secoué par la peur en repensant à ce qui venait de se passer. Il jeta un dernier regard en arrière avant de quitter précipitamment les lieux.
+« C'est la faute de ce cadavre! J'ai failli y laisser ma vie! Bien que le niveau de culture de ce Senior soit élevé, son esprit est quelque peu lent. Il a vraiment cru que cet homme était mon Junior frère! » Teng Yun cracha au sol, encore secoué par la peur en repensant à ce qui venait de se passer. Il jeta un dernier regard en arrière avant de quitter précipitamment les lieux.
 
-Il ignorait quel sort l'aurait frappé si Wang Lin avait réellement cru qu'il était le frère aîné de Zi Shu.
+Il ignorait quel sort l'aurait frappé si Wang Lin avait réellement cru qu'il était le Senior frère de Zi Shu.
 
 Après avoir absorbé l'énergie de l'épée de Ling Tianhou, le corps de Wang Lin s'enfonça lentement dans le sol. Il s'assit en position du lotus sous terre et commença un raffinage silencieux.
 

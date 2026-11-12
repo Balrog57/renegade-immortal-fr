@@ -12,15 +12,15 @@ De nouvelles brèches apparurent et, en un instant, la vallée s'effondra totale
 
 En conséquence, les environs de Wang Lin ne devinrent qu'une ruine aplatie. La poussière issue de l'effondrement ne pouvait même pas s'élever à cause de la pression du doigt descendant; elle fut repoussée, prenant Wang Lin pour centre. Cette poussière se mouvait telle un python maintenu au sol.
 
-À ce moment précis, sept personnes surgirent de la Cité aux Yeux Fantômes, dont les frères Chen. L'effroi se lisait dans leurs yeux et leurs esprits tremblèrent face à la vision du doigt gigantesque.
+À ce moment précis, sept personnes surgirent de la Cité Gui Yan, dont les frères Chen. L'effroi se lisait dans leurs yeux et leurs esprits tremblèrent face à la vision du doigt gigantesque.
 
 La lumière aux sept couleurs émanant du doigt illumina la nuit!
 
-Sans hésiter, les sept se précipitèrent vers sept points distincts de la Cité aux Yeux Fantômes. Tandis qu'ils rugissaient, un pilier de lumière jaillit du centre de la ville. Dans un fracas retentissant, la cité s'éleva littéralement dans le ciel!
+Sans hésiter, les sept se précipitèrent vers sept points distincts de la Cité Gui Yan. Tandis qu'ils rugissaient, un pilier de lumière jaillit du centre de la ville. Dans un fracas retentissant, la cité s'éleva littéralement dans le ciel!
 
 Elle s'éleva tel un disque et vola vers le sud. Cependant, sous la pression du doigt colossal, sa progression ralentit et d'innombrables fissures parcoururent l'ensemble de la cité.
 
-La Cité aux Yeux Fantômes luttait pour sa survie. Les quelques vieux monstres de la cité se sentaient accablés d'être pris dans une telle calamité sans raison, mais aucun n'osait réagir.
+La Cité Gui Yan luttait pour sa survie. Les quelques vieux monstres de la cité se sentaient accablés d'être pris dans une telle calamité sans raison, mais aucun n'osait réagir.
 
 Tout le monde pouvait le voir: ce doigt géant appartenait au véritable souverain de la planète Tian Yun, Tian Yunzi!
 
@@ -34,7 +34,7 @@ Un autre homme partageait cette même pensée: un jeune homme vêtu de noir. Bie
 
 Quant aux autres, ils n'en avaient pas le courage!
 
-En avançant, Maître Yi Chen perçut le jeune homme en noir. Choqué, il pensa: « Le seigneur de la Cité aux Yeux Fantômes a du cran! »
+En avançant, Maître Yi Chen perçut le jeune homme en noir. Choqué, il pensa: « Le seigneur de la Cité Gui Yan a du cran! »
 
 Wang Lin ouvrit les bras et se tint au centre de la vallée. Le corps de Bai Wei, enveloppé dans le cristal de glace, n'était pas loin. Bien qu'il fût déjà mort, son corps n'avait subi aucun dommage du sort de Tian Yunzi.
 
@@ -52,7 +52,7 @@ Malgré son corps de Dieu Ancien, Wang Lin ressentit une douleur oculaire face �
 
 Cependant, Maître Yi Chen, qui observait au loin, ne fut pas aussi chanceux. Il ne ressentit pas seulement une douleur aux yeux, mais eut l'impression que d'innombrables aiguilles d'argent le transperçaient. Terrifié, il fit circuler précipitamment l'énergie originelle dans son corps et ne retrouva ses esprits qu'après un long moment.
 
-Quant au seigneur de la Cité aux Yeux Fantômes, le jeune homme en noir, sa culture était inférieure à celle de Maître Yi Chen, se situant seulement au stade Corporel Yang. Il laissa échapper un gémissement de douleur et recula rapidement, les yeux clos. Des larmes coulèrent sur ses joues, mais il ne paniqua pas. Au lieu de cela, il frappa son sac de stockage d'où jaillirent de nombreux flacons de pilules. Il en avala plusieurs et ferma les yeux pour cultiver.
+Quant au seigneur de la Cité Gui Yan, le jeune homme en noir, sa culture était inférieure à celle de Maître Yi Chen, se situant seulement au stade Corporel Yang. Il laissa échapper un gémissement de douleur et recula rapidement, les yeux clos. Des larmes coulèrent sur ses joues, mais il ne paniqua pas. Au lieu de cela, il frappa son sac de stockage d'où jaillirent de nombreux flacons de pilules. Il en avala plusieurs et ferma les yeux pour cultiver.
 
 Mais son Sens Divin continuait de se déployer pour observer attentivement ce combat!
 

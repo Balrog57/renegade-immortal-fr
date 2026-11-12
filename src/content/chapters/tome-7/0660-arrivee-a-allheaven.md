@@ -1,6 +1,6 @@
 ---
 n: 660
-title: Arrivée à Luotian
+title: Arrivée à Luoyun
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 660 - Arriving in Allheaven

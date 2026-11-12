@@ -14,13 +14,13 @@ Au-dessus de la place de la Secte Tian Yun, Bai Wei contemplait le ciel avec un 
 
 « Wang Lin… Même si tu n'es pas mort durant toutes ces années, tu n'as sûrement pas beaucoup progressé. Je me demande seulement à quel point tu seras plus faible que moi, Zhao Xingsha! »
 
-Bai Wei jeta un regard prudent vers l'homme d'âge moyen, éprouvant une profonde crainte envers ce frère aîné. La culture de Zhao Xingsha avait considérablement progressé durant sa retraite méditative. Il avait franchi le stade Ascendant et n'était plus qu'à un pas de l'Yin Illusoire!
+Bai Wei jeta un regard prudent vers l'homme d'âge moyen, éprouvant une profonde crainte envers ce Senior frère. La culture de Zhao Xingsha avait considérablement progressé durant sa retraite méditative. Il avait franchi le stade Ascendant et n'était plus qu'à un pas de l'Yin Illusoire!
 
 « Zhao Xingsha est devenu l'un des sept véritables disciples de Tian Yunzi il y a trente ans. Il entretient une querelle avec Wang Lin; lorsqu'ils se rencontreront, il lui sera difficile de contenir son intention meurtrière. »
 
-Une femme se tenait également aux côtés des deux hommes. Son expression était abattue. Bien qu'elle regardât le ciel, elle semblait n'avoir aucun intérêt pour ce qui l'entourait. Cette femme était la quatrième disciple de la Division Pourpre, la quatrième sœur apprentie de Wang Lin. Autrefois, elle avait été contrainte par Zhao Xingsha à piéger Wang Lin au moyen d'un sortilège. Plus tard, après que Wang Lin eut réussi à s'échapper, elle lui avait enseigné une technique de téléportation supérieure afin de dissiper leur inimitié.
+Une femme se tenait également aux côtés des deux hommes. Son expression était abattue. Bien qu'elle regardât le ciel, elle semblait n'avoir aucun intérêt pour ce qui l'entourait. Cette femme était la quatrième disciple de la Division Pourpre, la quatrième Senior sœur de Wang Lin. Autrefois, elle avait été contrainte par Zhao Xingsha à piéger Wang Lin au moyen d'un sortilège. Plus tard, après que Wang Lin eut réussi à s'échapper, elle lui avait enseigné une technique de téléportation supérieure afin de dissiper leur inimitié.
 
-Au loin, un jeune homme d'environ trente ans se tenait là. Il portait une chemise bleue brodée de trois dragons. Ces derniers étaient d'une férocité et d'un réalisme extrêmes, particulièrement leurs yeux qui dégageaient un regard impétueux et à couper le souffle. Si Wang Lin l'avait vu, il ne l'aurait pas trouvé inconnu: c'était l'homme qui avait collaboré avec sa quatrième sœur apprentie pour le piéger. Sima Rufeng, de la Division Bleue!
+Au loin, un jeune homme d'environ trente ans se tenait là. Il portait une chemise bleue brodée de trois dragons. Ces derniers étaient d'une férocité et d'un réalisme extrêmes, particulièrement leurs yeux qui dégageaient un regard impétueux et à couper le souffle. Si Wang Lin l'avait vu, il ne l'aurait pas trouvé inconnu: c'était l'homme qui avait collaboré avec sa quatrième Senior sœur pour le piéger. Sima Rufeng, de la Division Bleue!
 
 Au sein de la Secte Tian Yun, tous ceux qui connaissaient Wang Lin étaient plongés dans leurs pensées. Cependant, nul ne croyait qu'il puisse repartir vivant s'il se présentait ici aujourd'hui.
 

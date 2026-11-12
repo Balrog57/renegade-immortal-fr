@@ -162,9 +162,9 @@ Le visage de l'homme changea radicalement alors qu'il reculait à nouveau; il fi
 
 Avec sa culture, s'il s'était préparé, il n'en serait pas réduit à un tel état, mais il avait trop sous-estimé Wang Lin. Ce sort était d'une telle puissance qu'il aurait pu être incapable de le supporter, même en étant prêt. Il était désormais trop tard pour les regrets.
 
-Un écran de lumière bleue, issu de son armure démoniaque, apparut à vingt-trois centimètres de son corps, mais dès sa manifestation, il fut percuté par les deux mille filaments et repoussé violemment.
+Un écran de lumière bleue, issu de son armure démoniaque, apparut à sept pouces de son corps, mais dès sa manifestation, il fut percuté par les deux mille filaments et repoussé violemment.
 
-Voyant que l'armure allait être repoussée jusqu'à dix centimètres de lui, l'homme en pourpre poussa un rugissement. Une veine battait sur son front tandis qu'il reculait encore, foulant du pied d'innombrables fleurs autrefois précieuses.
+Voyant que l'armure allait être repoussée jusqu'à trois pouces de lui, l'homme en pourpre poussa un rugissement. Une veine battait sur son front tandis qu'il reculait encore, foulant du pied d'innombrables fleurs autrefois précieuses.
 
 Mais l'armure démoniaque ne put absolument résister aux deux mille filaments de carnage et finit par s'effondrer brutalement!
 

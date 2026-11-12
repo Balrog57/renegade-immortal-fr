@@ -128,4 +128,4 @@ Plusieurs niveaux d'escaliers descendaient dans l'entrée. À mesure qu'ils prog
 
 Au moment où ils touchèrent le fond, les yeux de Wang Lin se rétrécirent.
 
-Un autre monde s'étendait au bas de l'entrée. Cette zone mesurait environ 330 mètres de large et un fourneau de 33 mètres de haut trônait en son centre. La surface du fourneau était couverte d'innombrables runes gravées dans la matière.
+Un autre monde s'étendait au bas de l'entrée. Cette zone mesurait environ mille pieds de large et un fourneau de cent pieds de haut trônait en son centre. La surface du fourneau était couverte d'innombrables runes gravées dans la matière.

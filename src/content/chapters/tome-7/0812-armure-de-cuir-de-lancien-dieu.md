@@ -94,7 +94,7 @@ Les yeux de Wang Lin brillèrent intensément alors qu'il prenait une profonde i
 
 Après avoir affiné l'armure, il ne s'arrêta pas là. Il ouvrit la bouche et expulsa un rayon de lumière dorée qui, en scintillant dans l'air, se mua en un cadenas d'or. Ce cadenas était d'un éclat pur; Wang Lin se souvenait l'avoir dérobé à l'un des messagers du Temple Céleste du Tonnerre lors de son assaut contre le réseau de transfert.
 
-L'âme originelle de ce messager résidait toujours dans le drapeau d'âmes. Ce dernier avait promis de sacrifier un trésor précieux en échange de sa vie.
+L'âme originelle de ce messager résidait toujours dans l'Étendard de l'Âme. Ce dernier avait promis de sacrifier un trésor précieux en échange de sa vie.
 
 En observant le cadenas, Wang Lin projeta son sens divin sur l'objet. Après tout le temps passé à affiner ses nouveaux trésors, il parvint aisément à effacer l'empreinte laissée par l'ancien propriétaire. Le cadenas devint instantanément terne et tomba du ciel, que Wang Lin rattrapa de volée.
 

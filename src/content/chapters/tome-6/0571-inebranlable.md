@@ -50,7 +50,7 @@ Les lambeaux de gaz gris se reformèrent en cinq dragons, et une épaisse aura d
 
 Simultanément, ces cinq filaments d'énergie de massacre foncèrent sur Mo Lihai. Ses yeux brillèrent et il décocha un autre coup de poing. Les filaments esquivèrent l'attaque et visèrent sa poitrine.
 
-L'énergie de massacre fondit soudainement sur lui, mais fut stoppée par une force invisible à vingt-trois centimètres de son corps, avant d'être repoussée.
+L'énergie de massacre fondit soudainement sur lui, mais fut stoppée par une force invisible à sept pouces de son corps, avant d'être repoussée.
 
 Pourtant, même ainsi, le voile d'énergie spirituelle démoniaque protégeant Mo Lihai trembla violemment.
 

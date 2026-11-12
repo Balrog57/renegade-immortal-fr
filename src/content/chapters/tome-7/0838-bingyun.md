@@ -30,13 +30,13 @@ Des cris étouffés mais perçants émanèrent de l'intérieur du vieillard. Wan
 
 Les innombrables tentacules se mirent toutes à osciller, comme pour saluer la naissance de leur propre espèce!
 
-L'instant d'après, un objet svelte de 6,6 mètres de long jaillit de la fissure dans le corps du vieil homme. Il tordait sans cesse son corps jusqu'à ce que l'enveloppe charnelle finisse par exploser. Il n'y eut ni chair ni sang, seulement une déflagration d'énergie glaciale.
+L'instant d'après, un objet svelte de vingt pieds de long jaillit de la fissure dans le corps du vieil homme. Il tordait sans cesse son corps jusqu'à ce que l'enveloppe charnelle finisse par exploser. Il n'y eut ni chair ni sang, seulement une déflagration d'énergie glaciale.
 
-Puis, l'objet de 6,6 mètres s'élança. Wang Lin fut stupéfait: c'était un petit Serpent aux yeux de lune!
+Puis, l'objet s'élança. Wang Lin fut stupéfait: c'était un petit Serpent aux yeux de lune!
 
 Ce serpent était manifestement nouveau-né, et tous les tentacules sur son corps étaient transparents. Dès son apparition, il fit brusquement demi-tour pour engloutir le cadavre effondré du vieil homme.
 
-Le corps de l'homme sembla fondre pour être dévoré par le petit serpent. Ce dernier continua d'onduler tout en absorbant l'énergie glaciale environnante. Sa taille passa rapidement de 6,6 à 33 mètres!
+Le corps de l'homme sembla fondre pour être dévoré par le petit serpent. Ce dernier continua d'onduler tout en absorbant l'énergie glaciale environnante. Sa taille passa rapidement de vingt à cent pieds!
 
 Les tentacules autour de son corps virèrent lentement au rouge sombre et il devint soudainement féroce.
 
@@ -100,11 +100,11 @@ Cependant, rien de tout cela n'influa sur Wang Lin, dont le regard resta aussi c
 
 Une immense quantité d'énergie originelle jaillit de son corps par le bout de son doigt pour pénétrer la glace. Un craquement fracassant retentit et une multitude de fissures commencèrent à se propager depuis son doigt vers l'extérieur.
 
-Les fissures s'arrêtèrent à 3,3 centimètres du corps de Yao Bingyun, incapables de progresser davantage.
+Les fissures s'arrêtèrent à un pouce du corps de Yao Bingyun, incapables de progresser davantage.
 
 Alors que Wang Lin fixait Yao Bingyun derrière sa prison de glace, ses yeux se glacèrent. Encore plus d'énergie originelle afflua vers son doigt pour forcer l'entrée dans la glace.
 
-Tandis que les craquements résonnaient, Wang Lin ne s'interrompit pas. Il continua de circuler autour de Yao Bingyun, pointant différents endroits. Des morceaux de glace tombèrent en masse jusqu'à ce qu'il ne reste plus qu'une fine couche de 3,3 centimètres autour d'elle.
+Tandis que les craquements résonnaient, Wang Lin ne s'interrompit pas. Il continua de circuler autour de Yao Bingyun, pointant différents endroits. Des morceaux de glace tombèrent en masse jusqu'à ce qu'il ne reste plus qu'une fine couche d'un pouce autour d'elle.
 
 « Cette femme doit faire partie des meilleures de la troisième génération de la famille Yao. Puisque la famille Yao veut ma mort, je la transformerai en Garde Céleste. Même si cela échoue, peu importe! » La détermination de Wang Lin était absolue. Face à un ennemi, il ne connaissait aucune pitié. Même face à une beauté extrême, il n'éprouvait aucune compassion.
 

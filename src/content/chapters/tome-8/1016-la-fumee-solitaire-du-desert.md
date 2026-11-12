@@ -16,7 +16,7 @@ Wang Lin avait déjà vu une tour noire semblable par le passé. Dans le Pays Ti
 
 Même dans sa grotte, il n'avait pas pu échapper aux sorts de ce qui se trouvait dans la tour. Sans la stimulation du Fruit de l'Ascension Céleste, il aurait totalement perdu sa nature face à la tour du démon dispersé!
 
-« Un démon dispersé! À l'époque, Bei Luo avait dit qu'il y avait neuf démons dispersés sous les anciens démons. J'en avais rencontré un seul dans les Terres des Esprits Démoniaques. Je ne pensais pas tomber sur la tour d'un démon dispersé ici! » Les yeux de Wang Lin s'illuminèrent et il s'arrêta net.
+« Un démon dispersé! À l'époque, Bei Luo avait dit qu'il y avait neuf démons dispersés sous les anciens démons. J'en avais rencontré un seul dans la Terre Yao Ling. Je ne pensais pas tomber sur la tour d'un démon dispersé ici! » Les yeux de Wang Lin s'illuminèrent et il s'arrêta net.
 
 Son visage devint légèrement rouge. C'était le contrecoup de l'utilisation de l'Évasion Sanguine. L'énergie démoniaque résiduelle dans l'air se dissipa également.
 
@@ -26,7 +26,7 @@ Son visage devint légèrement rouge. C'était le contrecoup de l'utilisation de
 
 Diverses pensées lui traversèrent l'esprit. Les yeux de Wang Lin brillèrent alors qu'il semblait enfin saisir la situation.
 
-« L'Ancien Démon Bei Luo a été divisé en neuf parties, puis scellé dans les Terres des Esprits Démoniaques. Après d'innombrables années, ce qui était autrefois une terre céleste est devenu une terre démoniaque... Qui a donc scellé l'Ancien Démon Bei Luo, et pourquoi n'y avait-il que des démons dispersés et non des anciens démons dans les Terres des Esprits Démoniaques? »
+« L'Ancien Démon Bei Luo a été divisé en neuf parties, puis scellé dans la Terre Yao Ling. Après d'innombrables années, ce qui était autrefois une terre céleste est devenu une terre démoniaque... Qui a donc scellé l'Ancien Démon Bei Luo, et pourquoi n'y avait-il que des démons dispersés et non des anciens démons dans la Terre Yao Ling? »
 
 « Où se cache l'Ancien Diable? En suivant cette analyse, cet Ancien Diable doit se trouver ici, dans la cinquième grotte, là où réside l'Empereur Céleste Qing Lin! »
 

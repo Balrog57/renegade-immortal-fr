@@ -24,11 +24,11 @@ Pendant ces centaines d'années, la Secte Tian Yun est restée calme; il ne s'es
 
 Souriant, Bai Wei racontait à Wang Lin chaque incident survenu à la Secte Tian Yun. Au début, Wang Lin écoutait avec attention, mais il finit par froncer les sourcils. Rien de ce que Bai Wei narrait n'était important; il ne s'agissait que de banalités insignifiantes.
 
-Bai Wei reprit avec un sourire: « Il y a aussi la Cité aux Yeux Fantômes. Cette ville est devenue célèbre il y a de nombreuses années après avoir réussi à mettre aux enchères un sortilège céleste complet. Chaque fois qu'elle s'ouvre, elle attire une multitude de cultivateurs. Elle reste ouverte pendant un mois et, en dehors de la salle des ventes, les gens sont libres de commercer. Cependant, la Cité aux Yeux Fantômes n'est pas très vaste et le nombre de logements est limité. Si nous arrivons tard, je crains que nous ne devions camper. »
+Bai Wei reprit avec un sourire: « Il y a aussi la Ville Gui Yan. Cette ville est devenue célèbre il y a de nombreuses années après avoir réussi à mettre aux enchères un sortilège céleste complet. Chaque fois qu'elle s'ouvre, elle attire une multitude de cultivateurs. Elle reste ouverte pendant un mois et, en dehors de la salle des ventes, les gens sont libres de commercer. Cependant, la Ville Gui Yan n'est pas très vaste et le nombre de logements est limité. Si nous arrivons tard, je crains que nous ne devions camper. »
 
 Wang Lin réfléchit un instant et laissa Bai Wei parler tout en ouvrant la voie, mais son esprit était ailleurs.
 
-Après quinze minutes, Wang Lin demanda soudain: « Junior Frère Bai, quelle méthode de culture pratiquez-vous? »
+Après un bâton d'encens, Wang Lin demanda soudain: « Junior Frère Bai, quelle méthode de culture pratiquez-vous? »
 
 Bai Wei sursauta et son expression changea brusquement. Elle s'arrêta et recula de quelques pas, fixant Wang Lin d'un regard altéré: « Le frère Wang me méprise-t-il? Si je vous ennuie, alors je partirai et ne vous dérangerai plus jamais! »
 
@@ -58,7 +58,7 @@ La restriction de la ville n'opposa aucune résistance au sens divin de Wang Lin
 
 Cependant, alors que le sens divin de Wang Lin traversait la restriction et s'apprêtait à se retirer après avoir balayé la cité, trois sens divins, parfaitement dissimulés, jaillirent. Ils s'élancèrent comme trois dragons vers celui de Wang Lin.
 
-« Quel cultivateur ose s'aventurer dans ma Cité aux Yeux Fantômes? Je suis l'un des trois frères Chen, Maître Yi Chen! » Une voix antique émana du sens divin lorsqu'il entra en collision avec celui de Wang Lin.
+« Quel cultivateur ose s'aventurer dans ma Ville Gui Yan? Je suis l'un des trois frères Chen, Maître Yi Chen! » Une voix antique émana du sens divin lorsqu'il entra en collision avec celui de Wang Lin.
 
 Simultanément, le dragon illusoire formé par les trois sens divins tourbillonna pour créer une tempête, tentant d'emprisonner le sens divin de Wang Lin pour l'empêcher de s'échapper.
 
@@ -68,15 +68,15 @@ Les sorts de Wang Lin étaient tous contenus dans son corps, et son sens divin n
 
 « Je suis Wang Lin, de la Secte Tian Yun. J'espère que vous me pardonnerez. » Wang Lin, ayant été le premier à manquer de politesse, ne ressentit aucune colère.
 
-« Votre sens divin a fait preuve d'imprudence et s'est fait piéger par moi, et pourtant vous demandez pardon? Quelle étrange logique! Aujourd'hui, nous trois ne serons pas cruels envers vous. Venez personnellement présenter vos excuses et partez immédiatement. Si vous osez remettre les pieds dans la Cité aux Yeux Fantômes, ne nous reprochez pas de manquer de clémence! » À côté de Maître Yi Chen, un sens divin lugubre apparut.
+« Votre sens divin a fait preuve d'imprudence et s'est fait piéger par moi, et pourtant vous demandez pardon? Quelle étrange logique! Aujourd'hui, nous trois ne serons pas cruels envers vous. Venez personnellement présenter vos excuses et partez immédiatement. Si vous osez remettre les pieds dans la Ville Gui Yan, ne nous reprochez pas de manquer de clémence! » À côté de Maître Yi Chen, un sens divin lugubre apparut.
 
 Wang Lin et Bai Wei se tenaient à l'extérieur de la ville, attendant leur tour pour entrer. Quant à l'échange entre Wang Lin et les trois autres, à moins d'une culture extrêmement élevée, personne ne pouvait rien remarquer.
 
 Bai Wei n'était manifestement pas au courant, mais Wang Lin fronça les sourcils.
 
-« J'espère que ce camarade ne sera pas offensé, mais nous sommes tous les trois chargés de la sécurité de la Cité aux Yeux Fantômes, nous devons donc être vigilants. Si vous n'êtes pas d'accord, ne me blâmez pas si je détruis ce sens divin! » Maître Yi Chen laissa échapper un soupir. Il savait que son attitude était excessive; après tout, cet homme n'avait pas outrepassé les limites et il ne s'agissait que d'une vérification naturelle.
+« J'espère que ce camarade ne sera pas offensé, mais nous sommes tous les trois chargés de la sécurité de la Ville Gui Yan, nous devons donc être vigilants. Si vous n'êtes pas d'accord, ne me blâmez pas si je détruis ce sens divin! » Maître Yi Chen laissa échapper un soupir. Il savait que son attitude était excessive; après tout, cet homme n'avait pas outrepassé les limites et il ne s'agissait que d'une vérification naturelle.
 
-Les trois frères Chen avaient déjà agi ainsi par le passé. Mais désormais que la Cité aux Yeux Fantômes leur témoignait de grands égards, ils se devaient d'être rigoureux. De plus, il était quelque peu irrité.
+Les trois frères Chen avaient déjà agi ainsi par le passé. Mais désormais que la Ville Gui Yan leur témoignait de grands égards, ils se devaient d'être rigoureux. De plus, il était quelque peu irrité.
 
 En substance, tous les vieux monstres du stade Scruteur du Nirvana de la planète comprenaient que les trois frères assuraient la sécurité de la cité. La plupart d'entre eux évitaient de sonder avec leur sens divin par respect pour eux.
 
@@ -94,10 +94,10 @@ Trois respirations passèrent en un instant. Maître Yi Chen poussa un renifleme
 
 « Vous trois, vous allez trop loin! » Wang Lin ne prêta aucune attention à Bai Wei ou Xu Liguo, qui flottait derrière lui depuis le début. Il fronça les sourcils et disparut d'un pas.
 
-La restriction de la Cité aux Yeux Fantômes ne put rien faire contre le sens divin de Wang Lin, et encore moins contre son corps physique. Au moment où Wang Lin disparut, la restriction n'eut le temps de clignoter que trois fois avant de s'effondrer totalement.
+La restriction de la Ville Gui Yan ne put rien faire contre le sens divin de Wang Lin, et encore moins contre son corps physique. Au moment où Wang Lin disparut, la restriction n'eut le temps de clignoter que trois fois avant de s'effondrer totalement.
 
 Dès l'effondrement de la restriction, la silhouette de Wang Lin apparut au-dessus de la cité. Sa vitesse dépassait l'entendement. À l'instant où il se manifesta, il saisit directement de la main gauche le dragon de sens divin. La créature tenta de se débattre, en vain. Wang Lin projeta le dragon en arrière et, dans un fracas retentissant, le dragon de sens divin se désintégra.
 
-À l'intérieur de la Cité aux Yeux Fantômes, dans un bâtiment magnifique, un vieil homme était assis dans la troisième pièce à partir de l'est. Il portait une robe verte et affichait une expression digne. Cependant, à cet instant précis, ses yeux s'ouvrirent brusquement; il cracha du sang et son visage se décomposa!
+À l'intérieur de la Ville Gui Yan, dans un bâtiment magnifique, un vieil homme était assis dans la troisième pièce à partir de l'est. Il portait une robe verte et affichait une expression digne. Cependant, à cet instant précis, ses yeux s'ouvrirent brusquement; il cracha du sang et son visage se décomposa!
 
 « Le vieux monstre du Purificateur du Nirvana! » Le corps du vieil homme vacilla et disparut.

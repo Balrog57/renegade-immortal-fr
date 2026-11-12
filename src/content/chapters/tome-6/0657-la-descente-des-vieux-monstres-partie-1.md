@@ -66,7 +66,7 @@ Il atterrit sur la roche et examina attentivement le réseau de transfert. Son �
 
 Des craquements immédiats retentirent alors que la foudre parcourait la roche. Puis, dans un fracas, elle s'effondra en gravats et fut aspirée par la force de succion.
 
-Sans cette grande roche, l'endroit devint semblable au reste du gouffre. Wang Lin saisit le parchemin et pénétra dans la fissure située à soixante-six mètres de là.
+Sans cette grande roche, l'endroit devint semblable au reste du gouffre. Wang Lin saisit le parchemin et pénétra dans la fissure située à deux cents pieds de là.
 
 Une fois à l'intérieur, Wang Lin fit un geste de la main et le parchemin fut inséré profondément dans la paroi. Ses yeux devinrent glacials; ses mains tracèrent de nombreux sceaux, et d'innombrables restrictions se déposèrent autour du parchemin.
 
@@ -82,7 +82,7 @@ L'expression de Wang Lin était sombre et ses mains s'agitaient encore plus rapi
 
 Ce processus de scellement dura plusieurs mois. Durant cette période, Wang Lin ne marqua aucun temps mort. Les innombrables sceaux finirent par former une barrière terrifiante.
 
-Après ces longs mois, Wang Lin recula d'un pas et s'envola vers le haut. Un éclat de froideur brilla dans ses yeux lorsqu'il frappa la fissure de sa main droite. La faille, large d'environ 3,3 mètres, s'effondra instantanément, ensevelissant profondément le parchemin dans la grotte.
+Après ces longs mois, Wang Lin recula d'un pas et s'envola vers le haut. Un éclat de froideur brilla dans ses yeux lorsqu'il frappa la fissure de sa main droite. La faille, large d'environ dix pieds, s'effondra instantanément, ensevelissant profondément le parchemin dans la grotte.
 
 De l'extérieur, rien n'était anormal. Personne ne saurait qu'une femme était enfermée ici dans un parchemin scellé.
 

@@ -72,7 +72,7 @@ D'innombrables éclairs pénétrèrent l'âme originelle de Wang Lin. Son âme o
 
 Précédemment, la fusion entre Wang Lin et le dragon de tonnerre antique ne représentait que 1/5ème de l'ensemble. Cependant, après avoir dévoré l'esprit du tonnerre et absorbé le lac de tonnerre, ce fut comme si une tempête éclatait à l'intérieur de son âme originelle. Des grondements incessants résonnèrent alors que la fusion entre l'âme originelle de Wang Lin et le dragon de tonnerre antique atteignait près de 50 %!
 
-Son âme originelle du dragon de tonnerre s'étendit immédiatement sur plus de 300 mètres, dégageant une pression colossale. Son regard glacial balaya la zone avant de se retirer entre les sourcils de Wang Lin. Puis, tout le tonnerre subsistant sur la place convergea rapidement vers lui. Wang Lin ouvrit les yeux sous les grondements infinis tandis que le tonnerre entourait son corps. Un sentiment de contrôle absolu sur la foudre envahit son cœur.
+Son âme originelle du dragon de tonnerre s'étendit immédiatement sur mille pieds, dégageant une pression colossale. Son regard glacial balaya la zone avant de se retirer entre les sourcils de Wang Lin. Puis, tout le tonnerre subsistant sur la place convergea rapidement vers lui. Wang Lin ouvrit les yeux sous les grondements infinis tandis que le tonnerre entourait son corps. Un sentiment de contrôle absolu sur la foudre envahit son cœur.
 
 Lorsqu'il se redressa, la zone entourant Wang Lin était en ruines et il ne restait plus aucune trace de tonnerre!
 

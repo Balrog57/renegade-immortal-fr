@@ -62,7 +62,7 @@ Des brins d'énergie de la boucherie surgirent du vide pour encercler la zone. D
 
 Sous le commandement du doigt pointé de Tian Yunzi en robe grise, les innombrables filaments d'énergie de la boucherie convergèrent de toutes les directions. Ils se condensèrent en un seul brin massif qui chargea la main droite de la silhouette vague.
 
-À l'apparition de Tian Yunzi en robe grise, les pupilles du Maître du Vide, qui portait la belle femme d'âge moyen et la présumée Sainte du Vide Brillant, se rétractèrent. Il murmura: « Robe grise... »
+À l'apparition de Tian Yunzi en robe grise, les pupilles du Maître du Vide, qui portait la belle femme d'âge moyen et la présumée Sainte de Kun Xu, se rétractèrent. Il murmura: « Robe grise... »
 
 Le visage de Tian Yunzi en robe grise était sombre et glacial. Pointant sa main droite, il déclara calmement:
 
@@ -124,13 +124,13 @@ Tian Yunzi en robe grise lança un regard froid vers son corps originel. Cependa
 
 Puis Tian Yunzi s'éleva du vortex et flotta dans les airs. Hormis ceux qui avaient été aspirés plus tôt, tous étaient encore là. Pourtant, le silence régnait; tous les regards étaient rivés sur la femme qui émergeait lentement du vortex!
 
-À mesure qu'elle approchait, Wang Lin vit clairement que ses pieds étaient fermement retenus par une sorte de tendon écarlate. Tandis qu'elle s'élevait vers le ciel, ce tendon se tendait droit. Le Blaireau Marqué d'Étoiles, qui avait disparu, surgit du vortex et atterrit sur le tendon entourant les pieds de la femme. Elle renifla quelques fois avant de s'allonger par-dessus sans bouger, ses yeux brillant d'une lueur vive.
+À mesure qu'elle approchait, Wang Lin vit clairement que ses pieds étaient fermement retenus par une sorte de tendon écarlate. Tandis qu'elle s'élevait vers le ciel, ce tendon se tendait droit. La Zibeline Marquée d'Étoiles, qui avait disparu, surgit du vortex et atterrit sur le tendon entourant les pieds de la femme. Elle renifla quelques fois avant de s'allonger par-dessus sans bouger, ses yeux brillant d'une lueur vive.
 
 La femme s'arrêta à 2 000 pieds de tout le monde. Elle leva ses orbites vides comme pour sonder l'assemblée. Du sang noir s'écoulait encore de ses yeux et coulait le long de son menton.
 
-« Existe-t-il encore des descendants du clan du Tatouage? » Une voix rauque sortit de sa bouche, empreinte d'un pouvoir mystérieux. Bien que rauque, elle était mélodieuse et semblait résonner longuement à l'oreille.
+« Existe-t-il encore des descendants du Clan Fu Wen? » Une voix rauque sortit de sa bouche, empreinte d'un pouvoir mystérieux. Bien que rauque, elle était mélodieuse et semblait résonner longuement à l'oreille.
 
-Face à cette question soudaine, personne n'osa parler. Après un long silence, Maître du Vide prit une expression respectueuse et déclara: « Il reste encore de nombreux membres du clan du Tatouage en vie. »
+Face à cette question soudaine, personne n'osa parler. Après un long silence, Maître du Vide prit une expression respectueuse et déclara: « Il reste encore de nombreux membres du Clan Fu Wen en vie. »
 
 La femme resta pensive et poussa un soupir. Elle avait lutté pour sortir des profondeurs du Bassin Funéraire Céleste pour rien d'autre que poser cette question et voir une seule personne. Ses orbites vides semblèrent libérer un regard invisible qui se posa sur Wang Lin.
 

@@ -86,7 +86,7 @@ Un instant plus tard, le corps de l'un des combattants fut secoué par l'impact 
 
 Un rire jaillit de l'assaillant qui cessa immédiatement sa poursuite.
 
-Une ombre apparut au milieu de l'arène; c'était l'un des messagers en robe verte du Temple Céleste du Tonnerre. Il surgit dans un éclair de tonnerre, balaya la zone d'un regard et déclara calmement: « Li Ye est vainqueur! »
+Une ombre apparut au milieu de l'arène; c'était l'un des messagers en robe verte du Temple Céleste du Tonnerre. Il surgit dans un éclair de tonnerre, balaya la zone d'un regard et déclara calmement: « Li Yesheng est vainqueur! »
 
 Alors que le combat se déroulait aux abords de la Planète Diyan, la silhouette de Wang Lin apparut dans le vide, à des centaines de milliers de kilomètres de là.
 
@@ -104,7 +104,7 @@ En pensant à la façon dont ses pairs se réjouiraient de son malheur lorsqu'il
 
 « Si seulement je pouvais observer les divers sorts célestes utilisés lors de ce tournoi, particulièrement ceux des Trois Héros du Domaine Sud, cela favoriserait grandement ma progression. Hélas! » Meng Lin laissa échapper un sombre soupir. Il n'était qu'au stade avancé de la Transformation de l'Âme et ne parvenait pas encore à franchir l'ultime étape vers le stade Ascendant. Soudain, ses pupilles se rétractèrent alors qu'il fixait l'espace devant lui.
 
-Une ondulation apparut brusquement à 330 mètres de Meng Lin. Tandis que les rides se propageaient, une silhouette en émergea.
+Une ondulation apparut brusquement à mille pieds de Meng Lin. Tandis que les rides se propageaient, une silhouette en émergea.
 
 Cet homme était vêtu de blanc et ses cheveux noirs flottaient sans qu'aucun vent ne soufflât. Ses yeux, en particulier, étaient d'une brillance exceptionnelle. Dès l'instant où Meng Lin croisa ce regard, il eut l'impression que d'innombrables éclairs explosaient dans son esprit. Son âme originelle faillit s'effondrer et son énergie spirituelle se déversa violemment hors de son corps.
 

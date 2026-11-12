@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 852 - Blood God
 slug: dieu-du-sang
 ---
-Yao Yun ne daigna même pas un regard au miroir de bronze. À cet instant, il avait depuis longtemps oublié l'ordre de son ancêtre. Il se tenait la tête et rugissait de douleur sans relâche. L'ombre démoniaque mesurait plus de trente mètres de haut. Elle détourna son regard du nuage de rétribution divine pour fixer froidement Wang Lin.
+Yao Yun ne daigna même pas un regard au miroir de bronze. À cet instant, il avait depuis longtemps oublié l'ordre de son ancêtre. Il se tenait la tête et rugissait de douleur sans relâche. L'ombre démoniaque mesurait plus de cent pieds de haut. Elle détourna son regard du nuage de rétribution divine pour fixer froidement Wang Lin.
 
 « Un ancien démon! » Les yeux de Wang Lin s'illuminèrent.
 
@@ -28,7 +28,7 @@ Pourtant, Wang Lin ne montra aucun signe de panique. Bien que la rétribution di
 
 Quant à l'ancien démon, alors qu'il reculait avec acharnement, le nuage de rétribution divine s'étendit frénétiquement. Bien qu'il eût dévoré les deux éclairs, il devint encore plus flou et laissa échapper des rugissements silencieux tout en continuant sa retraite. Sa vitesse était telle que même le nuage de rétribution divine ne pouvait le suivre. Il semblait prêt à emporter Yao Yun pour quitter la zone d'influence du nuage.
 
-Les yeux de Wang Lin s'illuminèrent et il cria: « Yao Yun, te souviens-tu des deux sœurs, Yao Bingyun et Yao Mengyun?! Te souviens-tu, sur la Planète du Sang, de la scène où la lampe antique dévorait cette âme! »
+Les yeux de Wang Lin s'illuminèrent et il cria: « Yao Yun, te souviens-tu des deux sœurs, Yao Bingyun et Yao Mengyun?! Te souviens-tu, sur la Planète Xue Shen, de la scène où la lampe antique dévorait cette âme! »
 
 La voix de Wang Lin était imprégnée de son sens divin. Elle se propagea avec puissance pour atteindre les oreilles de Yao Yun en pleine retraite.
 
@@ -42,7 +42,7 @@ L'expression de l'ancien démon devint plus sombre encore. Il fixa Wang Lin d'un
 
 Les yeux de Wang Lin brillèrent et il cracha un gaz blanc. Un objet se trouvait dissimulé dans ce gaz: le Sceau Céleste. Il s'élargit soudainement devant lui et, alors que sa main traçait un sceau, des centaines de milliers de runes furent projetées vers l'ancien démon.
 
-À cet instant précis, le nuage de rétribution divine se condensa à nouveau, formant plusieurs dizaines d'éclairs rouges, d'une épaisseur proche de dix mètres. L'espace lui-même semblait sur le point de s'effondrer lors de leur descente.
+À cet instant précis, le nuage de rétribution divine se condensa à nouveau, formant plusieurs dizaines d'éclairs rouges, d'une épaisseur de plusieurs dizaines de pieds. L'espace lui-même semblait sur le point de s'effondrer lors de leur descente.
 
 Face à ces centaines de milliers de sceaux et aux éclairs de la rétribution divine, les yeux de l'ancien démon s'illuminèrent. Il murmura quelques mots silencieux et, en un instant, son corps déjà flou devint presque évanescent.
 
@@ -72,6 +72,6 @@ Cependant, à ce moment précis, le visage de Wang Lin changea radicalement. Une
 
 « Il est temps d'en finir! » Une voix antique émana de la brume. Au même moment, un bras desséché surgit derrière Yao Yun et saisit le sceau démoniaque. La main ignora l'énergie originelle de Yao Yun pour presser le sceau directement entre ses sourcils.
 
-« Le Dieu de Sang! » Les pupilles de Wang Lin se rétractèrent brusquement!
+« Xue Shenzi! » Les pupilles de Wang Lin se rétractèrent brusquement!
 
 À cet instant, à l'intérieur du Temple Céleste du Tonnerre, dans le Système Stellaire de Luotian, le Seigneur Qing Shui ouvrit soudainement les yeux. Après un moment de réflexion silencieuse, il laissa échapper un reniflement froid et disparut.

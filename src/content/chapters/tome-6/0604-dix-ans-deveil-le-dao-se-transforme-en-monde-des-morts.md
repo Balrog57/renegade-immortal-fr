@@ -90,7 +90,7 @@ La mort d'un vice-commandant en chef était un événement majeur pour n'importe
 
 « Fouillez tout! Trouvez ce cultivateur et tuez-le. Peu importe son identité, je veux sa mort! »
 
-Alors que Wang Lin quittait la ville, à la frontière entre le Pays Huo Yao et celui du Démon Céleste, il emportait avec lui cent mille filaments d'énergie de massacre.
+Alors que Wang Lin quittait la ville, à la frontière entre le Pays Huo Yao et le Pays Tian Yao, il emportait avec lui cent mille filaments d'énergie de massacre.
 
 La puissance du Fruit de l'Ascension Céleste en lui était toujours aussi intense. Loin de diminuer son intention de combat, les tueries ne faisaient que l'accroître! Son intention meurtrière s'intensifiait de plus en plus.
 
@@ -120,11 +120,11 @@ Le vieil homme ne dit plus mot. Il se leva et sortit de la tour. Puis, regardant
 
 Ce vent démoniaque tourbillonna autour du vieil homme avant de prendre la forme d'une femme en armure. Un tatouage lui barrait le visage et couvrait tout son corps, bien que certaines parties fussent dissimulées par l'armure.
 
-Une fois apparue, elle s'agenouilla et dit doucement: « Gardienne démoniaque Chanson du Vent, présente! » Si Wang Lin avait été là, il aurait remarqué que cette femme ressemblait énormément au Général Démon Xie Lian.
+Une fois apparue, elle s'agenouilla et dit doucement: « Gardienne démoniaque Feng Yin, présente! » Si Wang Lin avait été là, il aurait remarqué que cette femme ressemblait énormément au Général Démon Xie Lian.
 
-Peu de temps après, la terre trembla dans une série d'explosions. Le sol, à une trentaine de mètres devant le vieil homme, explosa soudainement et un bras totalement noir en surgit.
+Peu de temps après, la terre trembla dans une série d'explosions. Le sol, à cent pieds devant le vieil homme, explosa soudainement et un bras totalement noir en surgit.
 
-Un vieillard très maigre grimpa hors du sol à quatre pattes, tel une bête sauvage. Il tourna la tête vers le vieil homme et sourit: « Gardien démoniaque Démon de la Terre, présent! »
+Un vieillard très maigre grimpa hors du sol à quatre pattes, tel une bête sauvage. Il tourna la tête vers le vieil homme et sourit: « Gardien démoniaque Di Mo, présent! »
 
 À cet instant, des fragments d'âmes emplirent l'horizon tandis que des ondes de gémissements fantomatiques résonnaient. Ces fragments formèrent un gigantesque nuage noir couvrant le ciel. On comptait pas moins de cent millions de fragments d'âmes au sein de ce nuage!
 

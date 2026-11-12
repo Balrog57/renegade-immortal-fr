@@ -36,7 +36,7 @@ Xue Zu fuyait rapidement, parcourant d'innombrables kilomètres depuis le point 
 
 « Wang Lin, une fois que je me serai rétabli, je jure que je te tuerai! » Xue Zu se déplaçait à une vitesse extrême, telle une ombre fendant le vide. Après un long moment, il finit par se détendre et murmura: « Ce petit morveux de Wang Lin ne devrait plus être capable de me rattraper maintenant. Je dois vite trouver quelqu'un à posséder, puis utiliser une méthode secrète afin de restaurer ma culture au stade du Scruteur du Nirvana le plus vite possible. »
 
-Après avoir réfléchi un instant, Xue Zu prit sa décision. Cependant, à cet instant, son expression changea radicalement et il recommença à fuir sans la moindre hésitation. Une ondulation se forma à environ 330 mètres derrière lui et la silhouette de Wang Lin en émergea.
+Après avoir réfléchi un instant, Xue Zu prit sa décision. Cependant, à cet instant, son expression changea radicalement et il recommença à fuir sans la moindre hésitation. Une ondulation se forma à environ mille pieds derrière lui et la silhouette de Wang Lin en émergea.
 
 Lorsque le pied droit de Wang Lin se posa, ses yeux s'ouvrirent. Au loin, Xue Zu avait failli perdre son âme, totalement terrassé par le choc.
 
@@ -58,7 +58,7 @@ Pourtant, durant ce processus, c'était comme s'il avait pénétré dans les mé
 
 Wang Lin ne poursuivit pas la silhouette déclinante de Xue Zu. Il médita silencieusement sur le sentiment éprouvé plus tôt. Comparé à la traque de Xue Zu, Wang Lin savait que la compréhension de ce phénomène était bien plus précieuse.
 
-Le temps semblait s'écouler extrêmement lentement, tout en paraissant soudainement s'accélérer. Après le temps d'écoulement d'un demi-encens, une lueur d'illumination apparut dans les yeux de Wang Lin. Il baissa le regard vers le vide, leva son pied droit et fit un pas en avant.
+Le temps semblait s'écouler extrêmement lentement, tout en paraissant soudainement s'accélérer. Après un demi-bâton d'encens, une lueur d'illumination apparut dans les yeux de Wang Lin. Il baissa le regard vers le vide, leva son pied droit et fit un pas en avant.
 
 En un seul pas, l'ondulation réapparut, mais son corps resta là où il était. La sensation de fusionner avec le monde ne revint pas.
 
@@ -112,8 +112,8 @@ La rivière des enfers commença à s'effondrer sous l'assaut de Xue Zu et la br
 
 « Wang Lin, toi et moi ne pouvons pas coexister!!! » Bien qu'il fût féroce en sortant, son cœur était épuisé. Les cris déchirants de Yao Xixue résonnaient sans cesse dans son esprit, comme s'ils ne devaient jamais se dissiper.
 
-Au moment où il émergea, Wang Lin se dressa devant lui, le drapeau des âmes à la main. Des nuages noirs jaillirent du drapeau et encerclèrent immédiatement Xue Zu en pleine course.
+Au moment où il émergea, Wang Lin se dressa devant lui, l'Étendard de l'Âme à la main. Des nuages noirs jaillirent de l'étendard et encerclèrent immédiatement Xue Zu en pleine course.
 
-Le Fouet du Karma pénétra dans les nuages noirs, et les bruits de déchirement résonnèrent continuellement.
+Le Fouet Kunji pénétra dans les nuages noirs, et les bruits de déchirement résonnèrent continuellement.
 
 Wang Lin hurla: « Rassemblement! » Tous les nuages noirs se contractèrent avec frénésie, mais Xue Zu résistait encore au cœur du tourbillon. Même dans cet état, il demeurait le fier Xue Zu!

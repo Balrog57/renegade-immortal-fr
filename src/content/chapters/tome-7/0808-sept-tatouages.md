@@ -48,7 +48,7 @@ Le crapaud émergea de la sacoche et atterrit au sol. Ses yeux exprimaient une n
 
 Une fois les deux bêtes libérées, Wang Lin réfléchit un instant avant de sortir l'épée céleste. D'un coup sec, il la fit vibrer et Xu Liguo fut éjecté de la lame. Ce dernier s'apprêtait à flatter Wang Lin, mais le regard sévère de ce dernier le coupa net.
 
-Wang Lin déclara calmement: « Je vais affiner un trésor. Que personne ne s'approche à moins de 330 mètres! »
+Wang Lin déclara calmement: « Je vais affiner un trésor. Que personne ne s'approche à moins de mille pieds! »
 
 Xu Liguo hocha la tête avec empressement en se tapotant la poitrine, l'air d'un subordonné dévoué: « Maître, soyez tranquille! À moins que l'on ne marche sur mon cadavre, personne ne pourra vous approcher. Moi, Xu Liguo, j'ai consacré ma vie à la loyauté, je vis pour la loyauté. Personne ne peut égaler le grand Xu Liguo... »
 
@@ -100,7 +100,7 @@ L'âme originelle de Wang Lin étant quelque peu affaiblie, il réintégra son c
 
 Le temps s'écoula. En un clin d'œil, cinq jours passèrent. Le corps de Wang Lin était resté immobile tandis que son âme originelle se rétablissait progressivement. Durant ces cinq jours, Ta Shan et l'Ancêtre s'étaient déplacés deux fois sur les lieux avec un grand groupe de membres du clan.
 
-Les hurlements de la bête moustique, le tonnerre du crapaud et l'expression diabolique de Xu Liguo les avaient dissuadés de s'approcher à moins de 330 mètres; ils restaient donc à l'écart, errant dans les environs.
+Les hurlements de la bête moustique, le tonnerre du crapaud et l'expression diabolique de Xu Liguo les avaient dissuadés de s'approcher à moins de mille pieds; ils restaient donc à l'écart, errant dans les environs.
 
 Xu Liguo regarda le Clan Xian Xuan en se léchant les lèvres, se remémorant avec nostalgie les jours heureux passés sur la planète Qing Ling.
 
@@ -110,4 +110,4 @@ Tous étaient stupéfaits devant le Char de Guerre Divin et discutaient entre eu
 
 Néanmoins, la pression émanant du char faisait trembler leurs esprits.
 
-Ce jour-là, Wang Lin ouvrit les yeux et pointa sa main droite vers ses sourcils. Son âme originelle s'élança une nouvelle fois vers le Char de Guerre Divin. Alors qu'elle apparaissait à peine, un cri retentit à plus de 330 mètres, depuis l'extérieur de la zone.
+Ce jour-là, Wang Lin ouvrit les yeux et pointa sa main droite vers ses sourcils. Son âme originelle s'élança une nouvelle fois vers le Char de Guerre Divin. Alors qu'elle apparaissait à peine, un cri retentit à plus de mille pieds, depuis l'extérieur de la zone.

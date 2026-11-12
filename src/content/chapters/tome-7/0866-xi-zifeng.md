@@ -36,7 +36,7 @@ Wang Lin pesait ses mots et finit par hocher la tête. « Puisque le Senior Maî
 
 « Très bien. Garde précieusement le jeton que je t'ai donné. Il pourrait te servir grandement à l'avenir! Considère-le aussi comme la fortune que je t'avais initialement promise! » Maître Yan Leizi agita sa manche et une bourrasque de vent surgit soudainement devant Wang Lin. Dans un éclat de lumière, un réseau de transfert apparut.
 
-« Utilise ce réseau pour partir. Dans trois jours, ce vieil homme se rendra personnellement pour observer la compétition avec quelques amis. Ton frère aîné, Qing Shui, y sera également! » Sur ces mots, Maître Yan Leizi se détourna et pénétra dans la salle.
+« Utilise ce réseau pour partir. Dans trois jours, ce vieil homme se rendra personnellement pour observer la compétition avec quelques amis. Ton Senior frère, Qing Shui, y sera également! » Sur ces mots, Maître Yan Leizi se détourna et pénétra dans la salle.
 
 Wang Lin regarda Maître Yan Leizi et demanda calmement: « Senior Maître Yan Leizi, pourriez-vous rendre la Bête du Tonnerre du Junior? »
 
@@ -66,7 +66,7 @@ Venaient ensuite les familles de culture situées au-dessus de celles des planè
 
 Enfin, apparurent les membres des deux familles ancestrales qui organisaient cette compétition aux côtés du Temple Céleste du Tonnerre. Bien que le nombre de spectateurs fût relativement restreint par rapport à l'importance de l'événement, ils s'élevaient tout de même à des dizaines de milliers. Le Temple Céleste du Tonnerre avait disposé de nombreuses plateformes flottantes pour permettre aux cultivateurs de s'installer.
 
-Le champ de bataille pour le titre céleste fut fixé sur la place du lac de tonnerre, une étendue de 3,3 kilomètres de large!
+Le champ de bataille pour le titre céleste fut fixé sur la place du lac de tonnerre, une étendue de dix mille pieds de large!
 
 À l'extérieur de la place, plus de dix tapis de prière en jade blanc émettaient des ondes d'énergie spirituelle céleste. Maître Yan Leizi était assis sur l'un d'entre eux. À ses côtés siégeait le Seigneur Céleste Qing Shui, les yeux clos, comme s'il était totalement indifférent à ce qui l'entourait.
 

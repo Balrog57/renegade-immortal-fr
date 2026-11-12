@@ -22,11 +22,11 @@ Quelques respirations après que Tian Yunzi eut remarqué quelque chose, l'homme
 
 « Quelqu'un capable de tenir tête à Tian Yunzi aussi longtemps n'est certainement pas un faible! »
 
-Après l'homme en pourpre vinrent le tour de Ling Tianhou, du vieil homme sur la gourde, de la belle femme d'âge moyen et de l'homme en noir que personne n'osait approcher à moins de 330 mètres. Ils fixèrent tous l'horizon presque au même instant. Derrière eux, suivirent les autres vieux monstres et quelques cultivateurs.
+Après l'homme en pourpre vinrent le tour de Ling Tianhou, du vieil homme sur la gourde, de la belle femme d'âge moyen et de l'homme en noir que personne n'osait approcher à moins de mille pieds. Ils fixèrent tous l'horizon presque au même instant. Derrière eux, suivirent les autres vieux monstres et quelques cultivateurs.
 
 Un étrange sifflement retentit au loin, captant progressivement l'attention de tous. Un instant plus tard, les cultivateurs poussèrent un cri de stupeur devant la scène ahurissante qui se déroulait sous leurs yeux.
 
-Un géant d'environ 330 mètres de haut, galopant sur ses quatre membres, fonçait vers eux!
+Un géant d'environ mille pieds de haut, galopant sur ses quatre membres, fonçait vers eux!
 
 « Une monture du Clan Ju Mo! » s'exclama quelqu'un dans la foule, reconnaissant immédiatement la créature.
 
@@ -34,7 +34,7 @@ Un géant d'environ 330 mètres de haut, galopant sur ses quatre membres, fonça
 
 « Il doit être un cultivateur extrêmement puissant pour posséder une telle monture. J'ignore seulement qui il est! »
 
-« Ce démon géant de 330 mètres peut clairement déjà utiliser ses capacités de lignée. Cela rend la monture elle-même redoutable. Celui qui peut la chevaucher n'est pas un être ordinaire! »
+« Ce démon géant de mille pieds peut clairement déjà utiliser ses capacités de lignée. Cela rend la monture elle-même redoutable. Celui qui peut la chevaucher n'est pas un être ordinaire! »
 
 « Pas forcément. Peut-être entretient-il de bonnes relations avec le Clan Ju Mo... et sa propre culture n'est pas si élevée. »
 

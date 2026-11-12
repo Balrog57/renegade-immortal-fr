@@ -101,7 +101,7 @@ Mo Lihai expliqua: « La Cité Tian Yao compte huit villes périphériques, divi
 
 Wang Lin réfléchit un instant et acquiesça: « Je suivrai tes conseils, Frère Mo! »
 
-Mo Lihai eut un léger sourire et hocha la tête en signe d'accord. Il avança, et à 330 mètres devant eux se trouvait une bifurcation: le chemin de gauche menait à la Ville Xuan, celui de droite à la Ville Hong.
+Mo Lihai eut un léger sourire et hocha la tête en signe d'accord. Il avança, et à mille pieds devant eux se trouvait une bifurcation: le chemin de gauche menait à la Ville Xuan, celui de droite à la Ville Hong.
 
 Wang Lin suivit l'itinéraire de Mo Lihai à travers la cité. Cette Ville Hong était très prospère, foisonnant de boutiques et de passants. Les rues étaient animées par un flux incessant de personnes.
 
@@ -115,7 +115,7 @@ Une énergie spirituelle démoniaque tourbillonnait dans le ciel au-dessus d'eux
 
 Les dix-neuf cavaliers chargèrent directement vers Wang Lin et Mo Lihai. Wang Lin regarda Mo Lihai et nota que, malgré son air sérieux, un sourire caché brillait sur son visage.
 
-Ils s'arrêtèrent à une centaine de mètres d'eux. Puis, tous descendirent de cheval, firent un pas en avant, s'agenouillèrent et déclarèrent d'une voix forte: « Salutations, Général Mo! »
+Ils s'arrêtèrent à plusieurs centaines de pieds d'eux. Puis, tous descendirent de cheval, firent un pas en avant, s'agenouillèrent et déclarèrent d'une voix forte: « Salutations, Général Mo! »
 
 Mo Lihai rit, puis d'un geste de la main, il ordonna: « Levez-vous tous. Cette personne est mon ami proche, le Vice-Général Wang. À l'avenir, lorsque vous le verrez, considérez que c'est moi que vous saluez! »
 

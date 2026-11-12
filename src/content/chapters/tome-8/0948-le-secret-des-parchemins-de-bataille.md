@@ -44,7 +44,7 @@ Lie Yunzi se redressa soudainement, les yeux écarquillés par une surprise inim
 
 Le corps de Xu Ting trembla. Au moment où la bête féroce chargea, il cracha un jet de sang et fut projeté en arrière. Des craquements sinistres retentirent alors que des jets de sang jaillissaient de son corps.
 
-Lançant un sourire misérable, il s'écrasa lourdement à plus de trente mètres de là.
+Lançant un sourire misérable, il s'écrasa lourdement à plus de cent pieds de là.
 
 Quant au parchemin de bataille, il se referma instantanément et resta flottant dans les airs, comme si la scène précédente n'avait jamais eu lieu.
 
@@ -116,7 +116,7 @@ Le corps de Wang Lin frémit alors que le reflet du caractère « Bataille » s'
 
 Lie Yunzi s'approcha rapidement, les yeux brillants d'excitation, et demanda avec urgence: « L'avez-vous vu?! »
 
-Wang Lin réfléchit silencieusement un instant avant de hocher la tête. Juste au moment où il allait parler, Lie Yunzi agita sa manche. Le corps de Xu Ting, situé à plus de trente mètres de là, fut emporté par une puissante bourrasque et projeté à des kilomètres de distance.
+Wang Lin réfléchit silencieusement un instant avant de hocher la tête. Juste au moment où il allait parler, Lie Yunzi agita sa manche. Le corps de Xu Ting, situé à plus de cent pieds de là, fut emporté par une puissante bourrasque et projeté à des kilomètres de distance.
 
 Lie Yunzi réprima l'excitation qui bouillonnait en lui et dit: « Maintenant, dites-moi ce que vous avez vu! »
 

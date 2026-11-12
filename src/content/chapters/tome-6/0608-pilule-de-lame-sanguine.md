@@ -58,7 +58,7 @@ Un doux « Hein? » s'échappa de l'intérieur de la tour noire. Bien que la str
 
 Le vieil homme en armure noire poussa un grand soupir de soulagement en voyant l'énergie se dissiper sans que la tour ne s'écroule. Mais à cet instant précis, une épaisse énergie démoniaque jaillit de la tour pour pénétrer directement son corps. L'armure noire qu'il portait projeta alors un éclat démoniaque.
 
-Son corps commença immédiatement à gonfler, jusqu'à atteindre la stature d'un géant de neuf mètres. Son armure s'agrandit avec lui. Une corne noire poussa sur le front du vieil homme, dégageant une aura glaciale.
+Son corps commença immédiatement à gonfler, jusqu'à atteindre la stature d'un géant de trente pieds. Son armure s'agrandit avec lui. Une corne noire poussa sur le front du vieil homme, dégageant une aura glaciale.
 
 À cet instant, l'homme n'était plus humain! Il poussa un rugissement de douleur avant de se retourner brusquement. Il fixa Wang Lin qui s'enfuyait, et ses yeux devinrent glacials!
 
@@ -98,7 +98,7 @@ Wang Lin interrogea une dernière fois Yao Xixue avant de réintégrer son corps
 
 Sans perdre un instant, Wang Lin se mordit le bout du doigt et commença à tracer un symbole complexe dans l'air avec son sang. Une fois le symbole formé, il fusionna rapidement avec la goutte de sang bleu. Wang Lin s'en saisit prestement et la pressa entre ses sourcils.
 
-À ce moment-là, le vieil homme de neuf mètres de haut se rapprochait. Le symbole jaillit alors des sourcils de Wang Lin; il le projeta à cinq cents kilomètres, et celui-ci disparut par-delà l'horizon.
+À ce moment-là, le vieil homme de trente pieds de haut se rapprochait. Le symbole jaillit alors des sourcils de Wang Lin; il le projeta à cinq cents kilomètres, et celui-ci disparut par-delà l'horizon.
 
 Après avoir accompli tout cela, Wang Lin se retourna brusquement, la clarté quittant ses yeux. Ce qui les remplaça fut une intention meurtrière et une soif de combat absolument démentes!
 

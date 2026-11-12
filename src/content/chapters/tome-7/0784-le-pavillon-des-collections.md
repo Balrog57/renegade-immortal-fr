@@ -1,6 +1,6 @@
 ---
 n: 784
-title: Le Pavillon Cang Jue
+title: Le Pavillon Cang Pin
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 784 - Collection Pavilion
@@ -44,13 +44,13 @@ Quant au cultivateur nommé Lu, l'éventail qu'il tenait se désintégra dès qu
 
 De son côté, le regard de Wang Lin devint glacial; il cracha un grain de sable qui se mua en un sceau pour poursuivre le cultivateur Song. L'artefact le rattrapa instantanément et s'abattit sur lui sans merci.
 
-Le cultivateur Song poussa un cri et son âme originelle libéra une immense quantité d'énergie originelle. Ses yeux étaient emplis de terreur alors qu'il tentait désespérément de fuir, mais le Fouet du Karma surgit et le ramena brutalement vers Wang Lin.
+Le cultivateur Song poussa un cri et son âme originelle libéra une immense quantité d'énergie originelle. Ses yeux étaient emplis de terreur alors qu'il tentait désespérément de fuir, mais le Fouet Kunji surgit et le ramena brutalement vers Wang Lin.
 
 « Cher camarade Xu, ayez pitié! Je sais que j'ai eu tort, j'ai eu tort! » Sans accorder la moindre attention aux supplications de Song, Wang Lin garda un regard froid et pinça ses doigts. L'âme originelle du cultivateur Song s'effondra immédiatement, se transformant en une énergie originelle que Wang Lin dévora.
 
 La puissante énergie circula dans le corps de Wang Lin, lui rendant peu à peu ses couleurs. Il prit une profonde inspiration et rattrapa aussitôt le cultivateur Lu, qui était piégé par le drapeau des âmes.
 
-Sa main s'étira et le Fouet du Karma fouetta à plusieurs reprises l'intérieur de la brume noire. Finalement, d'un coup sec du drapeau, il captura l'âme originelle. Le regard de Wang Lin resta impitoyable tandis qu'il extirpait l'âme originelle du cultivateur Lu du drapeau.
+Sa main s'étira et le Fouet Kunji fouetta à plusieurs reprises l'intérieur de la brume noire. Finalement, d'un coup sec du drapeau, il captura l'âme originelle. Le regard de Wang Lin resta impitoyable tandis qu'il extirpait l'âme originelle du cultivateur Lu du drapeau.
 
 « Si vous me tuez, la famille Lu ne vous lâchera jamais! » hurla le cultivateur, avant de se muer en silence lorsque Wang Lin pinça son âme originelle pour la dévorer.
 
@@ -64,14 +64,14 @@ Après un long moment, ses traits retrouvèrent progressivement leur normalité,
 
 « Cependant, peu importe comment on le regarde, cela ressemble moins à un sort céleste qu'à un sort démoniaque! De plus, ce sort exige trop d'énergie... Pour l'utiliser, je devrai préparer les âmes originelles de plusieurs cultivateurs des stades Yin Illusoire et Corporel Yang. »
 
-Wang Lin se leva et ramassa les sacs de rangement des défunts. Il contempla le Pavillon Cang Jue en marmonnant: « Hélas, ce pavillon ne peut être emporté... Autrement, les quatre grandes familles l'auraient déjà arraché de force au Royaume Céleste. Mais je n'ai pas l'intention de le laisser ici sans rien faire. Si seulement je pouvais l'emporter... »
+Wang Lin se leva et ramassa les sacs de rangement des défunts. Il contempla le Pavillon Cang Pin en marmonnant: « Hélas, ce pavillon ne peut être emporté... Autrement, les quatre grandes familles l'auraient déjà arraché de force au Royaume Céleste. Mais je n'ai pas l'intention de le laisser ici sans rien faire. Si seulement je pouvais l'emporter... »
 
 Alors qu'il réfléchissait, les yeux de Wang Lin s'illuminèrent soudainement en repensant aux paroles entendues à l'intérieur du tableau.
 
-« Le Maître Xiaoyaozi dessinera un tableau pour l'ouverture initiale du Pavillon Cang Jue... » Les yeux de Wang Lin brillèrent davantage lorsqu'il se remémora les sceaux manuels du garçon sous l'arbre.
+« Le Maître Xiaoyaozi dessinera un tableau pour l'ouverture initiale du Pavillon Cang Pin... » Les yeux de Wang Lin brillèrent davantage lorsqu'il se remémora les sceaux manuels du garçon sous l'arbre.
 
-« Lorsque j'ai utilisé ces sceaux auparavant, j'ai senti le pavillon trembler... » Le cœur de Wang Lin fit un bond. Il se précipita immédiatement auprès du Pavillon Cang Jue.
+« Lorsque j'ai utilisé ces sceaux auparavant, j'ai senti le pavillon trembler... » Le cœur de Wang Lin fit un bond. Il se précipita immédiatement auprès du Pavillon Cang Pin.
 
-Il prit une profonde inspiration et forma les sceaux appris du garçon. En un instant, le Pavillon Cang Jue, de forme carrée, se mit à luire. Sous les yeux de Wang Lin, l'édifice rétrécit de plus en plus jusqu'à atteindre une taille tenant dans la paume d'une main, avant de voler vers lui.
+Il prit une profonde inspiration et forma les sceaux appris du garçon. En un instant, le Pavillon Cang Pin, de forme carrée, se mit à luire. Sous les yeux de Wang Lin, l'édifice rétrécit de plus en plus jusqu'à atteindre une taille tenant dans la paume d'une main, avant de voler vers lui.
 
-Tenant le Pavillon Cang Jue dans sa main, malgré sa force mentale, Wang Lin laissa échapper un rire. Un rire empreint d'une joie pure!
+Tenant le Pavillon Cang Pin dans sa main, malgré sa force mentale, Wang Lin laissa échapper un rire. Un rire empreint d'une joie pure!

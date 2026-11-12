@@ -98,7 +98,7 @@ Wang Lin ne manifesta aucune surprise; d'un geste de la manche, il leva simpleme
 
 « Le Doigt de la Mort! » Les yeux de la femme en robe blanche s'illuminèrent.
 
-La zone dans un rayon de 330 mètres autour de Wang Lin fut soudainement empreinte de mort, comme si toute vie dans ce périmètre avait été absorbée par le doigt.
+La zone dans un rayon de mille pieds autour de Wang Lin fut soudainement empreinte de mort, comme si toute vie dans ce périmètre avait été absorbée par le doigt.
 
 Au moment où il utilisa le Doigt de la Mort, un fracas retentit dans l'air entre lui et l'homme robuste. Wang Lin fut repoussé de trois pas, son regard devenant glacial.
 
@@ -108,7 +108,7 @@ Wang Lin resta calme et répondit: « Je ne veux pas d'une position interne! »
 
 Le visage de l'homme se fit sérieux avant qu'il ne sourie: « Ta compréhension de la Terre Yao Ling dépasse mes attentes. Tu connais la distinction entre les fonctions internes et externes. »
 
-Dans les souvenirs de Lou Yun, son ancêtre lui avait expliqué que les Anciens occupaient des positions internes sans troupes sous leur commandement. Seuls ceux occupant des positions externes, tels que les commandants, disposaient de troupes à leurs ordres!
+Dans les souvenirs de Luo Yun, son ancêtre lui avait expliqué que les Anciens occupaient des positions internes sans troupes sous leur commandement. Seuls ceux occupant des positions externes, tels que les commandants, disposaient de troupes à leurs ordres!
 
 « L'Empereur Démon a dit que nous pouvions accorder n'importe quelle fonction aux étrangers pourvu qu'ils en aient la capacité. Petit gars, si tu veux une position externe, tu dois alors déployer ta véritable puissance, et ce doigt n'était pas assez fort! »
 

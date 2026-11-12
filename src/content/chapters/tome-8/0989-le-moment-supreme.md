@@ -96,11 +96,11 @@ Tandis que les restrictions envahissaient la zone, le palais fut totalement scel
 
 Malgré cela, Wang Lin restait un peu inquiet. Il frappa son sac de rangement et une boussole apparut dans sa main! Cette boussole n'était l'apanage que de l'héritier de la Restriction d'Annihilation!
 
-Après y avoir insufflé de l'énergie originelle, l'aiguille se mit à tournoyer. La boussole s'éleva et grandit jusqu'à atteindre une trentaine de mètres de large. Elle flotta au-dessus de Wang Lin; quand celui-ci se leva, la boussole descendit pour se poser sur le sol, et Wang Lin s'assit en son centre.
+Après y avoir insufflé de l'énergie originelle, l'aiguille se mit à tournoyer. La boussole s'éleva et grandit jusqu'à atteindre cent pieds de large. Elle flotta au-dessus de Wang Lin; quand celui-ci se leva, la boussole descendit pour se poser sur le sol, et Wang Lin s'assit en son centre.
 
 « Cela devrait suffire! » Wang Lin frappa à nouveau son sac de rangement et le cadavre argenté apparut devant lui. En l'observant, il régula sa respiration un instant avant de presser impitoyablement le point entre ses sourcils!
 
-À cet instant, le cadavre féminin ouvrit brusquement les yeux, lançant un regard glacial à Wang Lin. Un vortex tournoyant apparut entre ses sourcils, stoppant le doigt de Wang Lin à environ trois centimètres de sa peau.
+À cet instant, le cadavre féminin ouvrit brusquement les yeux, lançant un regard glacial à Wang Lin. Un vortex tournoyant apparut entre ses sourcils, stoppant le doigt de Wang Lin à un pouce de sa peau.
 
 Un regard féroce traversa les yeux du cadavre et elle recula. Cependant, au moment même de son retrait, la boussole sous elle émit un gémissement et se mit à tourner. Des restrictions jaillirent de la boussole pour se lier parfaitement à toutes les autres présentes dans la pièce. Quelle que soit la sortie qu'elle emprunte, elle toucherait une restriction, et en déclencher une seule revenait à toutes les déclencher!
 
@@ -110,7 +110,7 @@ Le cadavre féminin était gravement blessé et, bien que son niveau de culture 
 
 L'expression de Wang Lin resta sereine et, alors que les griffes approchaient, un rayon de lumière bleue jaillit de son œil droit. La main de la créature toucha immédiatement cette lueur.
 
-Après avoir poussé un cri déchirant, la femme recula promptement. Malgré la rapidité de son retrait, ses mouvements étaient légers et elle parvint, contre toute attente, à ne toucher aucune des restrictions. Elle s'arrêta à une dizaine de mètres de Wang Lin. Une pointe d'intelligence brilla dans son regard alors qu'elle montrait les dents devant lui en poussant un grondement sourd.
+Après avoir poussé un cri déchirant, la femme recula promptement. Malgré la rapidité de son retrait, ses mouvements étaient légers et elle parvint, contre toute attente, à ne toucher aucune des restrictions. Elle s'arrêta à quelques dizaines de pieds de Wang Lin. Une pointe d'intelligence brilla dans son regard alors qu'elle montrait les dents devant lui en poussant un grondement sourd.
 
 Ce cadavre féminin était déjà magnifique; ainsi, loin d'inspirer le danger, ce geste lui donnait l'allure d'un chat à cause de ses deux canines saillantes.
 

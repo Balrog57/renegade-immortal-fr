@@ -1,6 +1,6 @@
 ---
 n: 708
-title: Corps originel, Ta Sen, Zhou Ru
+title: Corps originel, Tuo Sen, Zhou Ru
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 708 - Original Body, Ta Sen, Zhou Ru
@@ -54,7 +54,7 @@ Les yeux de Zi Xin se plissèrent sur l'astre. Trois mois auparavant, un esclave
 
 Après avoir réfléchi un instant, Zi Xin se dirigea vers la petite planète avec ses deux esclaves.
 
-Aucun être vivant ne résidait sur ce monde totalement abandonné. La terre était desséchée. À leur arrivée, un grondement continu résonna sous leurs pieds. Elle vit alors de nouvelles fissures déchirer le sol et une montagne au loin s'effondrer brusquement dans un nuage de poussière. Plus loin, une rivière de cent pieds de large n'était plus qu'un lit asséché.
+Aucun être vivant ne résidait sur ce monde totalement abandonné. La terre était desséchée. À leur arrivée, un grondement continu résonna sous leurs pieds. Elle vit alors de nouvelles fissures déchirer le sol et une montagne au loin s'effondrer brusquement dans un nuage de poussière. Plus loin, une rivière de mille pieds de large n'était plus qu'un lit asséché.
 
 L'un des esclaves commenta: « Bien que cette planète ait été abandonnée il y a 400 ans, elle n'était pas aussi étrange autrefois. C'est comme si elle avait accompli un cycle de vie entier en seulement quatre siècles. Cela est devenu flagrant ces dernières décennies. »
 

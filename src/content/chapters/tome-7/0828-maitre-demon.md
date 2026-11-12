@@ -58,7 +58,7 @@ S'il était forcé d'apparaître en plein milieu et d'être attaqué par tous ce
 
 À cet instant précis, quelques Sens Divins accoururent rapidement, et l'un d'eux n'hésita pas à perturber l'énergie originelle de la région. Des rugissements retentirent au loin alors qu'une multitude de cultivateurs se précipitait.
 
-L'énergie originelle fut troublée, forçant le corps de Wang Lin à apparaître à 3,3 kilomètres de là. Son expression devint encore plus sombre et il s'enfuit promptement.
+L'énergie originelle fut troublée, forçant le corps de Wang Lin à apparaître à dix mille pieds de là. Son expression devint encore plus sombre et il s'enfuit promptement.
 
 « Xu Mu est là!! »
 « Xu Mu est là, tuez-le! »

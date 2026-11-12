@@ -109,7 +109,7 @@ Soudain, un énorme fracas retentit. Un objet lourd venait de percuter violemmen
 
 Les habitants de la vallée ressentirent la puissance du choc. De nombreuses femmes et enfants furent réveillés par la secousse.
 
-Loin de la vallée, l'homme en robe noire abattit son épée dans une éclaboussure de sang. Une bête totalement noire, d'environ trois mètres de long et dotée d'une unique corne, venait d'apparaître. Elle fut tranchée en deux presque instantanément par l'homme.
+Loin de la vallée, l'homme en robe noire abattit son épée dans une éclaboussure de sang. Une bête totalement noire, d'environ dix pieds de long et dotée d'une unique corne, venait d'apparaître. Elle fut tranchée en deux presque instantanément par l'homme.
 
 Après avoir tué la créature, l'homme prit une inspiration, aspirant un flux d'énergie démoniaque qui s'échappait du cadavre de la mystérieuse bête et pénétrait par ses sept orifices.
 

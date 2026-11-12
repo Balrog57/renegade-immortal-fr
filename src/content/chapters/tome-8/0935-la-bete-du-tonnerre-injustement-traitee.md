@@ -16,17 +16,17 @@ La mort de plus de dix mille cultivateurs força les deux camps à marquer une p
 
 Du côté de Luotian, une multitude de cultivateurs se retirèrent pour se rassembler entre les régions occidentale et septentrionale afin de récupérer. L'Alliance, quant à elle, s'était plongée dans un silence total, bien que la nouvelle de cet affrontement ait déjà parcouru tous ses rangs.
 
-Ce jour-là, une silhouette apparut près du vortex. C’était un homme aux cheveux blancs vêtu d'une robe jaune. Si Wang Lin avait été présent, il l'aurait immédiatement reconnu comme étant Huanglong.
+Ce jour-là, une silhouette apparut près du vortex. C’était un homme aux cheveux blancs vêtu d'une robe jaune. Si Wang Lin avait été présent, il l'aurait immédiatement reconnu comme étant Huang Long.
 
-Huanglong flottait calmement dans le vide, contemplant le vortex en contrebas. La puissante force d'aspiration s'effondrait dès qu'elle approchait de lui.
+Huang Long flottait calmement dans le vide, contemplant le vortex en contrebas. La puissante force d'aspiration s'effondrait dès qu'elle approchait de lui.
 
-« Bien que cette bataille de reconnaissance ressemble à une égalité, en réalité, l'Alliance a perdu! » songea Huanglong en observant le champ de bataille. Il pouvait aisément imaginer l'intensité des combats qui venaient de se dérouler.
+« Bien que cette bataille de reconnaissance ressemble à une égalité, en réalité, l'Alliance a perdu! » songea Huang Long en observant le champ de bataille. Il pouvait aisément imaginer l'intensité des combats qui venaient de se dérouler.
 
-« L'Alliance Xiu Zhen a toujours fait preuve d'arrogance, et cette guerre n'est que la conséquence de l'affaire avec Maître Yan Leizi. Intéressant! Je ne m'attendais pas à ce qu'en aidant accidentellement Maître Yan Leizi autrefois, je donne une telle opportunité à mes Quatre Sectes Divines! » Les yeux de Huanglong s'illuminèrent tandis qu'il examinait attentivement le champ de bataille avant de s'avancer dans le vide.
+« L'Alliance Xiu Zhen a toujours fait preuve d'arrogance, et cette guerre n'est que la conséquence de l'affaire avec Maître Yan Leizi. Intéressant! Je ne m'attendais pas à ce qu'en aidant accidentellement Maître Yan Leizi autrefois, je donne une telle opportunité à mes Quatre Sectes Divines! » Les yeux de Huang Long s'illuminèrent tandis qu'il examinait attentivement le champ de bataille avant de s'avancer dans le vide.
 
-« Je dois discuter de cela avec les trois autres. Mes Quatre Sectes Divines attendent ce jour depuis bien trop longtemps! Je me demande seulement... si la planète de culture de rang 9 qui soutient l'Alliance Xiu Zhen interviendra... Après tout, ils ne reconnaissent que l'Alliance... » Huanglong disparut progressivement, plongé dans ses réflexions.
+« Je dois discuter de cela avec les trois autres. Mes Quatre Sectes Divines attendent ce jour depuis bien trop longtemps! Je me demande seulement... si la planète de culture de rang 9 qui soutient l'Alliance Xiu Zhen interviendra... Après tout, ils ne reconnaissent que l'Alliance... » Huang Long disparut progressivement, plongé dans ses réflexions.
 
-« Je présume que la Secte Shi Yin médite également sur cette question. L'arrivée de Luotian a rompu l'équilibre de l'Alliance! Et il y a aussi ce Wang Lin. Cet enfant est remarquable; le laisser participer à la bataille fera de lui l'avant-garde de mes Quatre Sectes Divines. Avec la culture de Maître Yan Leizi, il devrait être capable de percevoir ma marque. Cela peut être considéré comme un indice de l'attitude de mes Quatre Sectes Divines envers Luotian. » Huanglong sourit avant de s'évanouir parmi les étoiles.
+« Je présume que la Secte Shi Yin médite également sur cette question. L'arrivée de Luotian a rompu l'équilibre de l'Alliance! Et il y a aussi ce Wang Lin. Cet enfant est remarquable; le laisser participer à la bataille fera de lui l'avant-garde de mes Quatre Sectes Divines. Avec la culture de Maître Yan Leizi, il devrait être capable de percevoir ma marque. Cela peut être considéré comme un indice de l'attitude de mes Quatre Sectes Divines envers Luotian. » Huang Long sourit avant de s'évanouir parmi les étoiles.
 
 « Cette bataille n'est pas assez vaste. Qu'elle gagne en intensité et consume davantage de forces de l'Alliance Xiu Zhen! Mes Quatre Sectes Divines ont trop longtemps patienté, il est temps que la puissance que nous avons accumulée éclate enfin! »
 

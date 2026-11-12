@@ -24,7 +24,7 @@ Ils furent soudainement attaqués par ces bêtes mystérieuses et se retrouvère
 
 Bien que cent ans puissent paraître une éternité, le temps avait passé très vite pour eux. Ils étaient enfermés dans cet abîme, sans distinction entre le jour et la nuit. Une brume sombre les enveloppait, et quiconque osait sortir s'exposait aux attaques de ces innombrables bêtes.
 
-Le frère cadet Shen Hou était mort lors d'une tentative de percée forcée. Même s'il avait utilisé l'énergie de l'épée de son maître avant de mourir pour terrasser quelques bêtes, elles étaient tout simplement trop nombreuses!
+Le Junior frère Shen Hou était mort lors d'une tentative de percée forcée. Même s'il avait utilisé l'énergie de l'épée de son maître avant de mourir pour terrasser quelques bêtes, elles étaient tout simplement trop nombreuses!
 
 Chen Long savait que même en rassemblant toute l'énergie des épées, ils ne pourraient pas quitter les lieux.
 

@@ -52,7 +52,7 @@ De larges gouttes de sueur perlèrent sur son front. Sa douleur était telle qu'
 
 D'immenses quantités d'énergie spirituelle céleste pénétrèrent son corps et fusionnèrent avec son énergie d'origine, formant une énergie inédite qui le remplit intégralement.
 
-Sept minutes plus tard, Xu Ting poussa un rugissement et ses cheveux se dressèrent comme portés par un vent invisible. Des craquements résonnèrent dans son corps et une aura céleste extrêmement puissante explosa de lui.
+Un demi-bâton d'encens plus tard, Xu Ting poussa un rugissement et ses cheveux se dressèrent comme portés par un vent invisible. Des craquements résonnèrent dans son corps et une aura céleste extrêmement puissante explosa de lui.
 
 Sa force actuelle était d'un cran supérieure à celle qu'il possédait auparavant!
 

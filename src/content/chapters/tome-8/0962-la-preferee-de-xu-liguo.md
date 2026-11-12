@@ -16,7 +16,7 @@ Wang Lin ignora les paroles de Xu Liguo; d'un mouvement de son âme originelle, 
 
 À ce moment, un petit rire parvint du côté de Wang Lin. Zhao Xinmeng apparut, et son regard envers Wang Lin était quelque peu différent.
 
-Wang Lin fronça les sourcils, puis se rasseit sur sa chaise. Il dit: « Quatrième Sœur Aînée, je vais réfléchir à votre demande. »
+Wang Lin fronça les sourcils, puis se rasseit sur sa chaise. Il dit: « Quatrième Senior sœur, je vais réfléchir à votre demande. »
 
 Zhao Xinmeng regarda Wang Lin et, après avoir hésité un instant, elle dit doucement: « Bien que mon niveau de culture ne soit pas élevé, j'ai préservé ma virginité durant mes mille ans de culture. Si vous pouvez renforcer mon sceau, je... je peux vous donner mon yin originel millénaire. » Le visage de Zhao Xinmeng rougit alors qu'elle faisait face à Wang Lin. Elle écarta sa manche, révélant un petit point rouge.
 

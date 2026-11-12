@@ -68,7 +68,7 @@ Ses yeux se fermèrent lentement comme s'il était enveloppé par les ténèbres
 
 Le corps du garçon à la grosse tête tressaillit et il réussit de justesse à ouvrir les yeux. Il esquissa un sourire amer et murmura: « Est-ce vraiment le cas... »
 
-Deux silhouettes de 3 300 mètres de haut poursuivaient Lei Ji. Elles ressemblaient à deux colosses faisant de grandes enjambées pour les rattraper.
+Deux silhouettes de dix mille pieds de haut poursuivaient Lei Ji. Elles ressemblaient à deux colosses faisant de grandes enjambées pour les rattraper.
 
 Chacune portait la marque d'une hache brillant entre ses sourcils. Leurs regards étaient glacials et chargés d'une intention meurtrière.
 

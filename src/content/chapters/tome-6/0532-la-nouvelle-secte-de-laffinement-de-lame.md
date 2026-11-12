@@ -22,7 +22,7 @@ Deux filaments de gaz gris parcouraient son corps tels des aiguilles, continuant
 
 Le regard de Wang Lin se glaça. Il cessa de reculer et fit tournoyer le Fouet Kunji. Sous une salve de coups, le fantôme céleste commença à pousser des gémissements misérables. Finalement, incapable de supporter la douleur, il fit volte-face pour s'enfuir.
 
-Wang Lin savait que c'était là l'instant de vulnérabilité du fantôme céleste. Une fois qu'il se serait échappé et rétabli, il deviendrait très difficile à gérer. D'après les souvenirs de Lou Yun, le fantôme avait besoin de sept jours, puis de quarante-neuf jours pour recouvrer ses forces.
+Wang Lin savait que c'était là l'instant de vulnérabilité du fantôme céleste. Une fois qu'il se serait échappé et rétabli, il deviendrait très difficile à gérer. D'après les souvenirs de Luo Yun, le fantôme avait besoin de sept jours, puis de quarante-neuf jours pour recouvrer ses forces.
 
 Sans la moindre hésitation, il lança le Fouet Kunji. L'arme s'élança vers la créature tel un dragon féroce.
 
@@ -102,11 +102,11 @@ Wang Lin, quant à lui, était assis en position du lotus dans les profondeurs d
 
 Il devait se rendre à la Cité Gu Yao, mais avant cela, des préparatifs s'imposaient.
 
-Créer sa propre assise au sein de la Cité Gu Yao serait ardu. De plus, selon les souvenirs de Lou Yun, le manoir du général de l'aile gauche abritait de nombreux experts. Ces gens étaient les habitants originels des lieux. Leur culture et leurs sorts étaient intrinsèquement liés à l'énergie spirituelle démoniaque.
+Créer sa propre assise au sein de la Cité Gu Yao serait ardu. De plus, selon les souvenirs de Luo Yun, le manoir du général de l'aile gauche abritait de nombreux experts. Ces gens étaient les habitants originels des lieux. Leur culture et leurs sorts étaient intrinsèquement liés à l'énergie spirituelle démoniaque.
 
-Bien que Wang Lin n'eût jamais rencontré de cultivateur utilisant cette énergie, Lou Yun, lui, en avait côtoyé, et l'ancêtre de celui-ci avait interagi avec ce genre d'individus durant une longue période.
+Bien que Wang Lin n'eût jamais rencontré de cultivateur utilisant cette énergie, Luo Yun, lui, en avait côtoyé, et l'ancêtre de celui-ci avait interagi avec ce genre d'individus durant une longue période.
 
-S'il n'avait pas eu accès aux souvenirs de Lou Yun, Wang Lin serait allé à la Cité Gu Yao sans hésiter, mais il avait désormais changé d'avis.
+S'il n'avait pas eu accès aux souvenirs de Luo Yun, Wang Lin serait allé à la Cité Gu Yao sans hésiter, mais il avait désormais changé d'avis.
 
 « Plutôt que de rejoindre le manoir du général de l'aile gauche, je préfère rester ici et instruire les habitants afin qu'ils obéissent à mes ordres. Je leur enseignerai des sorts pour que, d'ici de nombreuses années, je dispose d'une force qui ne réponde qu'à moi. »
 

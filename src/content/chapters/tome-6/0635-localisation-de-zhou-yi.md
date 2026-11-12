@@ -36,7 +36,7 @@ Du Jian laissa poindre un éclair de désespoir, mais à ce moment précis, son 
 
 Wang Lin ignora complètement Du Jian pour se concentrer sur les insectes. Ces créatures étaient extrêmement étranges. D'abord, elles s'étaient dispersées pour attaquer tout le monde, mais dès qu'elles virent la lumière multicolore de Du Jian, elles s'étaient immédiatement rassemblées.
 
-Zhao Yixuan joua avec ses cheveux et dit doucement: « Après avoir dévoré le frère aîné Du, nous serons les prochaines cibles. Si nous ne partons pas maintenant, je crains que nous n'ayons plus d'autre chance. »
+Zhao Yixuan joua avec ses cheveux et dit doucement: « Après avoir dévoré le Senior frère Du, nous serons les prochaines cibles. Si nous ne partons pas maintenant, je crains que nous n'ayons plus d'autre chance. »
 
 À cet instant précis, la lumière multicolore autour de Du Jian s'effondra soudainement. Son esprit vacilla alors qu'il activait immédiatement la dernière utilisation de son trésor de sauvetage, provoquant le bris du jade.
 

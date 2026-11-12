@@ -14,7 +14,7 @@ Bien qu'il paraisse calme, de puissantes ondes s'agitaient dans son cœur.
 
 « Serait-il possible... qu'il existe réellement un moyen de faire évoluer le Royaume Ji...? » Le cœur de Wang Lin s'emballa et sa bouche se dessécha. Ces quelques centaines d'années passées au sein du Royaume Ji lui avaient permis de comprendre profondément la nature de ce pouvoir incroyable.
 
-« Ji, Dao, Shi... » Wang Lin commença à méditer. Il en savait trop peu pour pouvoir tout analyser. Il poussa un soupir et cessa d'y songer pour concentrer son esprit sur le Pavillon Cang Jue.
+« Ji, Dao, Shi... » Wang Lin commença à méditer. Il en savait trop peu pour pouvoir tout analyser. Il poussa un soupir et cessa d'y songer pour concentrer son esprit sur le Pavillon Cang Pin.
 
 Traverser le vide aurait dû être une affaire fort ennuyeuse. Après tout, le vide était immense et la plupart des cultivateurs passaient le plus clair de leur temps sur les fragments; ils ne traversaient l'espace que pour passer d'un fragment à un autre. Cependant, après environ un demi-mois de progression dans le vide, ils commencèrent à voir de nombreux rayons de lumière apparaître au loin et à proximité.
 
@@ -62,7 +62,7 @@ L'expression de Li Yuan changea légèrement lorsqu'il leva sa main gauche pour 
 
 Seul Wang Lin resta d'un calme imperturbable; il esquissa un léger signe de tête vers le rayon qui approchait.
 
-Le rayon d'énergie s'arrêta à soixante-six mètres de Wang Lin. La lumière se dissipa pour révéler un homme d'environ trente ans. Son visage était pâle, sans aucune pilosité, et il possédait une certaine beauté. Cependant, ses yeux de phénix jetaient un doute sur l'ensemble de son apparence, car ils dégageaient une grâce presque féminine.
+Le rayon d'énergie s'arrêta à deux cents pieds de Wang Lin. La lumière se dissipa pour révéler un homme d'environ trente ans. Son visage était pâle, sans aucune pilosité, et il possédait une certaine beauté. Cependant, ses yeux de phénix jetaient un doute sur l'ensemble de son apparence, car ils dégageaient une grâce presque féminine.
 
 Vêtu d'une robe pourpre et dorée, il se tenait droit. Il joignit les mains en signe de salut devant Wang Lin avec une attitude extrêmement respectueuse: « Le junior Zhan Konglie salue le Senior! »
 

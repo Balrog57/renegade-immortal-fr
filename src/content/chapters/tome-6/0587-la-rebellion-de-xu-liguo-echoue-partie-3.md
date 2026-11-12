@@ -180,7 +180,7 @@ Après tout, c'était un véritable massacre entre cultivateurs!
 
 Lorsque les membres de la Secte Da Luo Jian s'étaient opposés aux généraux démons, ils s'étaient retenus. Mais face aux cultivateurs, ils s'étaient montrés d'une cruauté extrême, comme pour faire étalage de leur puissance.
 
-La lumière matinale balaya la place de 33 kilomètres. La foule était encore plus nombreuse qu'auparavant. Après tout, les combats suivants seraient les véritables affrontements. Hormis quelques chanceux, tous les prétendants restants étaient célèbres!
+La lumière matinale balaya la place de dix mille dizaines de pieds. La foule était encore plus nombreuse qu'auparavant. Après tout, les combats suivants seraient les véritables affrontements. Hormis quelques chanceux, tous les prétendants restants étaient célèbres!
 
 Les 48 généraux démons traversèrent la Porte Tian Yao. Une intention de combat si puissante semblait former une bête primordiale chargeant à travers la porte dès son ouverture.
 

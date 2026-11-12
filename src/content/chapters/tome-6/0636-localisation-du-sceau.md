@@ -34,7 +34,7 @@ L'expression de Wang Lin devint sombre. Il frappa son sac de rangement et en sor
 
 Tout en réfléchissant, il déploya son Sens Divin. Cette fois, il fut encore plus méticuleux en explorant chaque fissure, mais le résultat resta identique.
 
-Wang Lin marqua une pause. Après quelques respirations, il frappa son sac de rangement et le drapeau de l'âme apparut. D'un geste, il libéra mille puissants fragments d'âmes qu'il dirigea vers chaque fissure.
+Wang Lin marqua une pause. Après quelques respirations, il frappa son sac de rangement et l'Étendard de l'Âme apparut. D'un geste, il libéra mille puissants fragments d'âmes qu'il dirigea vers chaque fissure.
 
 Les yeux clos, Wang Lin projeta son Sens Divin dans chaque fragment d'âme. De cette manière, c'était comme s'il se trouvait lui-même à l'intérieur des failles, lui permettant de les inspecter minutieusement. Il fut d'une rigueur absolue, ne laissant passer aucune trace.
 
@@ -58,15 +58,15 @@ Progressivement, cette aura impérieuse disparut de ses yeux et de grosses goutt
 
 Wang Lin saisit l'épée céleste de la main droite et fit un pas en avant. Il pivota brusquement, libérant une déferlante d'énergie. Un vortex d'énergie d'épée se forma autour de lui, faisant de Wang Lin son centre névralgique.
 
-« Brise! » Dans un rugissement, Wang Lin s'immobilisa soudainement. À cet instant précis, le vortex éclata et l'énergie d'épée jaillit dans toutes les directions. D'innombrables fissures apparurent sur les parois de l'abîme. Les craquements se multiplièrent, et bientôt, des fractures couvrirent près de 330 mètres de hauteur le long de la paroi.
+« Brise! » Dans un rugissement, Wang Lin s'immobilisa soudainement. À cet instant précis, le vortex éclata et l'énergie d'épée jaillit dans toutes les directions. D'innombrables fissures apparurent sur les parois de l'abîme. Les craquements se multiplièrent, et bientôt, des fractures couvrirent près de mille pieds de hauteur le long de la paroi.
 
-« CRAC! » La voix de Wang Lin tonna comme un coup de tonnerre à travers l'Abîme Chao Xi. De nouvelles fissures déchirèrent la falaise, provoquant des éboulements massifs. Le flanc de l'Abîme recula de 3,3 centimètres sous la puissance de l'énergie d'épée de Wang Lin.
+« CRAC! » La voix de Wang Lin tonna comme un coup de tonnerre à travers l'Abîme Chao Xi. De nouvelles fissures déchirèrent la falaise, provoquant des éboulements massifs. Le flanc de l'Abîme recula d'un pouce sous la puissance de l'énergie d'épée de Wang Lin.
 
 Ses yeux s'illuminèrent et il réutilisa son énergie. La falaise fut rapidement rabotée. Après un demi-bâton d'encens, une petite ouverture apparut, d'où émanait une aura très ténue. Cette aura n'appartenait pas à Zhou Yi, mais elle exhalait une tyrannie extrême.
 
-La main droite de Wang Lin traça un sceau et pointa l'ouverture. L'épée céleste s'élança vers la brèche, suivie de près par sa lame en croissant. Des pans entiers de roche s'effondrèrent. En un clin d'œil, une fissure cachée à 9,9 mètres dans la paroi apparut devant lui.
+La main droite de Wang Lin traça un sceau et pointa l'ouverture. L'épée céleste s'élança vers la brèche, suivie de près par sa lame en croissant. Des pans entiers de roche s'effondrèrent. En un clin d'œil, une fissure cachée à trente pieds dans la paroi apparut devant lui.
 
-L'ouverture n'était pas grande, mesurant à peine 1,65 mètre de haut, et plongeait dans l'obscurité totale. Dès que le Sens Divin de Wang Lin tenta d'y pénétrer, il fut violemment repoussé par un Sens Divin tyrannique.
+L'ouverture n'était pas grande, mesurant à peine cinq pieds de haut, et plongeait dans l'obscurité totale. Dès que le Sens Divin de Wang Lin tenta d'y pénétrer, il fut violemment repoussé par un Sens Divin tyrannique.
 
 Le choc projeta le corps de Wang Lin en arrière, qui s'écrasa contre la paroi opposée. Dans un fracas assourdissant, les roches tombèrent tandis que le corps de Wang Lin restait imprimé dans la roche. Le sang afflua et s'échappa du coin de sa bouche.
 
@@ -86,6 +86,6 @@ Wang Lin prit une profonde inspiration et pressa son front. Cent mille brins d'�
 
 Il frappa son sac de rangement et l'armure démoniaque apparut, tournoyant autour de lui sous forme de filaments noirs. Elle se solidifia lentement en une armure, enveloppée d'une aura maléfique. Plus de dix symboles dorés, entourés d'insectes, flottaient autour de lui, offrant une couche de protection supplémentaire.
 
-Après ces préparatifs, Wang Lin sortit le drapeau de l'âme. Il l'agita et le drapeau s'enroula autour de lui en un vaste nuage noir, tandis que plus de cent millions de fragments d'âmes rugissaient à l'intérieur.
+Après ces préparatifs, Wang Lin sortit l'Étendard de l'Âme. Il l'agita et l'étendard s'enroula autour de lui en un vaste nuage noir, tandis que plus de cent millions de fragments d'âmes rugissaient à l'intérieur.
 
 Le regard de Wang Lin devint résolu alors qu'il fit un pas en avant et chargea vers la fissure!

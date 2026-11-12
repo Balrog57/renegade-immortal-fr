@@ -40,7 +40,7 @@ Ses yeux s'illuminèrent et son énergie originelle se déversa dans son sens di
 
 Cette aspiration semblait sans fin, aspirant sans cesse son âme originelle comme si elle voulait dévorer toute son âme originelle. Après avoir réfléchi un instant, Wang Lin retira son âme originelle des os de bêtes.
 
-Puis, ses mains formèrent des sceaux et il en déposa d'innombrables aux alentours. Son énergie originelle se propagea alors, enveloppant tout dans un rayon de 3,3 kilomètres autour de lui. Un brouillard blanc, saturé de son énergie originelle, apparut.
+Puis, ses mains formèrent des sceaux et il en déposa d'innombrables aux alentours. Son énergie originelle se propagea alors, enveloppant tout dans un rayon de 10 000 pieds autour de lui. Un brouillard blanc, saturé de son énergie originelle, apparut.
 
 Si un étranger passait par là et voyait ce brouillard, il n'oserait rien faire d'imprudent, car cette brume était chargée d'une pression d'énergie originelle écrasante. Même des cultivateurs au stade Yin Illusoire ou Corporel Yang seraient extrêmement prudents.
 

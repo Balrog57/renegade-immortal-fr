@@ -36,7 +36,7 @@ Wang Lin répondit: « Suivez ma règle: répondez à l'une de mes questions, et
 
 Yao Xixue baissa la tête, ses yeux trahissant une lutte intérieure. Wang Lin attendit patiemment.
 
-Après le temps qu'il faut pour consumer une demi-tige d'encens, elle releva la tête et dit froidement: « Même si vous me scellez, avec les capacités de mon père, il finira par me trouver. Le moment venu, je verrai personnellement mon père détruire votre corps, extraire votre âme, la raffiner et l'enfermer dans les profondeurs du néant. Vous saurez alors ce que signifie être pire que la mort! »
+Après le temps d'un demi-bâton d'encens, elle releva la tête et dit froidement: « Même si vous me scellez, avec les capacités de mon père, il finira par me trouver. Le moment venu, je verrai personnellement mon père détruire votre corps, extraire votre âme, la raffiner et l'enfermer dans les profondeurs du néant. Vous saurez alors ce que signifie être pire que la mort! »
 
 Wang Lin poussa un soupir: « Vous avez gaspillé votre deuxième chance. J'espère que vous chérirez la prochaine! » Sur ces mots, ses yeux s'illuminèrent et il fit un pas en avant. Il arriva devant Yao Xixue, lui saisit la mâchoire et, avec une légère force, lui força la bouche à s'ouvrir.
 
@@ -84,7 +84,7 @@ Après une courte réflexion, Wang Lin sortit un morceau de jade. Il le remit à
 
 Ouyang Hua prit une profonde inspiration en acceptant le jade avec précaution. Après l'avoir lu, il le broya et déclara d'un ton solennel: « Ancêtre, je l'ai mémorisé et je n'oublierai pas vos paroles. Ce sort ne sera enseigné qu'aux disciples principaux de la Tribu de l'Affinement de l'Âme! »
 
-Wang Lin hocha la tête et leva la main vers le ciel. Toute la brume noire recouvrant la tribu se rassembla instantanément dans sa paume, formant un drapeau de 9,9 mètres de long. Il l'avala ensuite rapidement avec son âme originelle.
+Wang Lin hocha la tête et leva la main vers le ciel. Toute la brume noire recouvrant la tribu se rassembla instantanément dans sa paume, formant un grand drapeau de trente pieds de long. Il l'avala ensuite rapidement avec son âme originelle.
 
 Puis, il sortit plusieurs drapeaux d'âme ordinaires et les lança vers les cieux, recouvrant à nouveau le ciel d'une brume noire!
 

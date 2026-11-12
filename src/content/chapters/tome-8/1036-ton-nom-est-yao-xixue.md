@@ -94,7 +94,7 @@ L'Oiseau Vermillon poussa un nouveau cri et poursuivit la goutte d'eau de près.
 
 La goutte était si rapide qu'elle atteignit instantanément Wang Lin. C'était manifestement son ultime combat avant la mort! Mais Wang Lin ne paniqua pas; une lueur bleue jaillit de son œil droit, et un bouclier de lumière azur apparut immédiatement devant lui!
 
-Un rugissement tonitruant retentit lorsqu'un impact puissant frappa le bouclier azur. Celui-ci fut repoussé de quelques centimètres par la force du choc, mais il ne se fissura pas. Il bloqua l'attaque de la goutte d'eau.
+Un rugissement tonitruant retentit lorsqu'un impact puissant frappa le bouclier azur. Celui-ci fut repoussé de quelques pouces par la force du choc, mais il ne se fissura pas. Il bloqua l'attaque de la goutte d'eau.
 
 Au même moment, l'Oiseau Vermillon s'approcha et enveloppa la goutte d'une chaleur inimaginable. La goutte d'eau rétrécit jusqu'à disparaître enfin après un ultime rugissement.
 

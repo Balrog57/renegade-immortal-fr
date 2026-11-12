@@ -16,7 +16,7 @@ Il y a quelque temps, un messager du Temple Céleste du Tonnerre avait été sce
 
 La main de Wang Lin traça un sceau et, d'un geste du doigt, il dissipa la restriction sur les trois drapeaux. À l'instant où celle-ci disparut, l'âme originelle scellée du messager s'échappa. Ses yeux étaient empreints de terreur et il tenta de se téléporter dès qu'il fut libre.
 
-Le regard de Wang Lin devint glacial et il frappa son sac de rangement. Le drapeau d'âme du milliard d'âmes vola hors du sac et se mua en un immense nuage noir qui dévora l'âme originelle du messager du Temple Céleste du Tonnerre.
+Le regard de Wang Lin devint glacial et il frappa son sac de rangement. L'Étendard de l'Âme vola hors du sac et se mua en un immense nuage noir qui dévora l'âme originelle du messager du Temple Céleste du Tonnerre.
 
 « Ne me tuez pas, Camarade Cultivateur! Je vous offrirai un trésor de grande valeur en échange de ma vie, un trésor précieux! » Le messager se débattit à l'intérieur du nuage noir en implorant la clémence.
 

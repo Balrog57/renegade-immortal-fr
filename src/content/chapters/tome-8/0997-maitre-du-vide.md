@@ -38,11 +38,11 @@ Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blan
 
 Ling Tianhou se remémora le passé et répondit respectueusement: « Junior ne s'en souvient pas, cela fait bien trop longtemps. »
 
-Le vieil homme en robe dorée poussa un soupir et dit lentement: « Lorsque toi et Tian Yunzi avez obtenu en même temps la qualification, je vous ai personnellement introduits dans la Terre Sainte du Vide Brillant. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la culture de l'autre a également atteint un tel niveau. »
+Le vieil homme en robe dorée poussa un soupir et dit lentement: « Lorsque toi et Tian Yunzi avez obtenu en même temps la qualification, je vous ai personnellement introduits dans la Terre Sainte Kun Xu. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la culture de l'autre a également atteint un tel niveau. »
 
 Ling Tianhou réfléchit, mais la nostalgie dans ses yeux s'intensifia.
 
-« Lorsque j'ai reçu ton jade il y a quelques mois, j'hésitais sur ma venue. Je ne voulais pas venir, car la guerre avec Luotian devenait sérieuse et mon frère aîné, Zhong Xuanzi, ne peut pas créer d'avatar. Cependant, compte tenu de ce qui s'est passé entre toi et Tian Yunzi, j'ai décidé de venir pour clore le litige entre vous deux! » En parlant, le regard du vieil homme laissait transparaître une détermination profonde.
+« Lorsque j'ai reçu ton jade il y a quelques mois, j'hésitais sur ma venue. Je ne voulais pas venir, car la guerre avec Luotian devenait sérieuse et mon Senior frère, Zhong Xuanzi, ne peut pas créer d'avatar. Cependant, compte tenu de ce qui s'est passé entre toi et Tian Yunzi, j'ai décidé de venir pour clore le litige entre vous deux! » En parlant, le regard du vieil homme laissait transparaître une détermination profonde.
 
 L'esprit de Ling Tianhou trembla tandis qu'il contemplait le vieillard: « Merci, Maître du Vide. »
 
@@ -56,7 +56,7 @@ La silhouette de Lei Ji rétrécit jusqu'à n'être plus qu'un homme d'une dizai
 
 Le vieil homme assis sur la calebasse et l'homme froid vêtu de noir entrèrent tous deux dans le trou noir. La belle femme d'âge moyen hésita en regardant la femme en rose à ses côtés.
 
-La femme en rose sourit comme une rose et dit doucement: « Tante Xia, détends-toi pour ce voyage vers la Terre Yao Ling. Xi Xuan possède un trésor offert par la Sœur Aînée; c'est amplement suffisant pour assurer ma sécurité. De plus, la Deuxième Sœur n'a-t-elle pas envoyé le Maître du Vide ici également...? »
+La femme en rose sourit comme une rose et dit doucement: « Tante Xia, détends-toi pour ce voyage vers la Terre Yao Ling. Xi Xuan possède un trésor offert par la Grande Senior sœur; c'est amplement suffisant pour assurer ma sécurité. De plus, la Deuxième Senior sœur n'a-t-elle pas envoyé le Maître du Vide ici également...? »
 
 La belle femme d'âge moyen réfléchit et hocha la tête. Elle guida ensuite les quatre femmes autour d'elle dans le trou noir. Qian Qin affichait une expression complexe. Depuis l'apparition de Wang Lin, elle ne cessait de le regarder. En pensant qu'ils allaient se retrouver ensemble sur la Terre Yao Ling, elle songea: « Je me demande s'il se souvient encore de moi. »
 

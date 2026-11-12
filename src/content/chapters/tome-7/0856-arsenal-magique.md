@@ -120,4 +120,4 @@ Tout cela se produisit en un éclair. Lorsque le Dieu de Sang absorba l'âme du 
 
 Un bruit de déchirure retentit tandis qu'une longue faille s'ouvrait, laissant flotter lentement une lampe ancienne!
 
-« Qing Shui, puisque tu cherches la mort, ne blâme pas ce vieillard pour avoir tué un céleste! » L'expression du Dieu de Sang devint hideuse, et l'ombre gigantesque d'un démon ancien de plusieurs dizaines de mètres apparut devant lui. Ses yeux rouge sang fixèrent Qing Shui avant de laisser échapper un rugissement silencieux!
+« Qing Shui, puisque tu cherches la mort, ne blâme pas ce vieillard pour avoir tué un céleste! » L'expression du Dieu de Sang devint hideuse, et l'ombre gigantesque d'un démon ancien de plusieurs centaines de pieds apparut devant lui. Ses yeux rouge sang fixèrent Qing Shui avant de laisser échapper un rugissement silencieux!

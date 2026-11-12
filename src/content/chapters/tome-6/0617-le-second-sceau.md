@@ -8,7 +8,7 @@ slug: le-second-sceau
 ---
 Wang Lin réfléchissait. Plus il séjournait dans la Terre Yao Ling, plus tout devenait étrange. D'abord, ce fut le tableau de Huang Long. Ensuite, les deux Mo Fei qui étaient parfaitement identiques. Enfin, cet homme imposant dont l'apparence ressemblait étrangement à celle de Ling Tianhou.
 
-Le regard de Wang Lin vacilla et il murmura pour lui-même: « Tian Yunzi suit la volonté des cieux. S'il insiste pour que je vienne ici, c'est qu'il a ses propres motifs... De plus, lorsque j'étais sur la planète Tian Yun, Bai Wei avait souligné qu'une grande majorité des disciples de Tian Yunzi âgés de plus de dix mille ans avaient disparu. J'ignore si la disparition de ces aînés a un lien avec cette Terre Yao Ling. »
+Le regard de Wang Lin vacilla et il murmura pour lui-même: « Tian Yunzi suit la volonté des cieux. S'il insiste pour que je vienne ici, c'est qu'il a ses propres motifs... De plus, lorsque j'étais sur la planète Tian Yun, Bai Wei avait souligné qu'une grande majorité des disciples de Tian Yunzi âgés de plus de dix mille ans avaient disparu. J'ignore si la disparition de ces Seniors frères a un lien avec cette Terre Yao Ling. »
 
 Wang Lin toucha son sac de rangement et ses yeux devinrent glacials. Il pensa: « Tant que je serai assez fort, peu importe l'étrangeté de ce lieu, cela ne pourra affecter mon cœur de dao! »
 
@@ -54,7 +54,7 @@ Wang Lin afficha un regard déterminé, saisit le piège à bêtes et se redress
 
 L'endroit était une plaine totalement désertique. Wang Lin jeta le bracelet au sol avant de former un sceau et de le pointer du doigt. Le bracelet émit une lueur noire avant de se transformer en Char de Guerre Divinx.
 
-Le char de guerre féroce, couvert d'épines, apparut en dégageant une lumière puissante. Simultanément, la bête spirituelle surgit. Son corps de trois cent trente mètres de haut ressemblait à une petite montagne.
+Le char de guerre féroce, couvert d'épines, apparut en dégageant une lumière puissante. Simultanément, la bête spirituelle surgit. Son corps de mille pieds de haut ressemblait à une petite montagne.
 
 Ses yeux rouges fixèrent férocement Wang Lin dès son apparition. Elle poussa un rugissement indomptable qui ébranla le ciel et la terre.
 
@@ -92,7 +92,7 @@ L'âme originelle de Wang Lin retourna dans son corps. Il ouvrit les yeux et fix
 
 À cet instant, quelque part à des milliers de kilomètres de là, à la frontière entre le Pays Huo Yao et le Pays Jin Yao.
 
-Le lieu était une vaste chaîne de montagnes. Un miasme emplissait ces montagnes toute l'année, faisant de cet endroit un territoire que ni l'un ni l'autre des pays démoniaques ne contrôlait. Au cœur du miasme se trouvait une cité blanche. Pour être plus précis, il s'agissait d'un château entouré de murs de pierre blanche de 33 mètres de haut. L'intérieur du château dégageait une aura mystérieuse.
+Le lieu était une vaste chaîne de montagnes. Un miasme emplissait ces montagnes toute l'année, faisant de cet endroit un territoire que ni l'un ni l'autre des pays démoniaques ne contrôlait. Au cœur du miasme se trouvait une cité blanche. Pour être plus précis, il s'agissait d'un château entouré de murs de pierre blanche de cent pieds de haut. L'intérieur du château dégageait une aura mystérieuse.
 
 Soudain, une ombre noire vola rapidement à travers le miasme. En flottant dans les airs, l'ombre se mit à genoux et dit respectueusement: « Salutations, Ancêtre. J'ai trouvé l'emplacement de Wang Lin, celui qui avait disparu de la capitale du Pays Tian Yao il y a vingt ans! »
 

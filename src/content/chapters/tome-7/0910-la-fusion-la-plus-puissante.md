@@ -72,7 +72,7 @@ Le garçon n'était pas le seul sous le choc; Yu Fei l'était tout autant. Pour 
 
 Il s'apprêtait à charger quand Wang Lin se retourna soudainement et poussa un rugissement!
 
-ROAR!!!
+RUGISSEMENT!!!
 
 Ce cri était celui d'un dieu ancien. Cela faisait une éternité que la voix d'un dieu ancien n'avait résonné en ce monde. Sa réapparition soudaine évoquait une présence éternelle, une voix capable de fendre les cieux.
 

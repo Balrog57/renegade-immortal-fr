@@ -34,35 +34,35 @@ Le cœur de Qing Yi fut envahi par une douce émotion. Elle suivit le regard de 
 
 Une lueur étrange passa dans les yeux de l'homme, qui secoua la tête: « Je sens que Père me regarde en ce moment même... »
 
-Dans le manoir des Wang, à la cité des Vastes Eaux, Wang Lin détacha son regard de l'horizon. Il était assis dans la cour sous un arbre, bercé par le vent d'automne et écoutant le bruissement des feuilles. Parfois, une ou deux feuilles tombaient et dérivaient devant ses yeux.
+Dans le manoir des Wang, à la Ville Qi Shui, Wang Lin détacha son regard de l'horizon. Il était assis dans la cour sous un arbre, bercé par le vent d'automne et écoutant le bruissement des feuilles. Parfois, une ou deux feuilles tombaient et dérivaient devant ses yeux.
 
 Les feuilles qui tombent finissent toujours par retourner aux racines de l'arbre. Elles étaient comme des enfants qui partent lorsqu'ils sont fatigués, mais qui reviennent toujours vers ceux qu'ils aiment.
 
 Le temps semblait s'écouler silencieusement au rythme de la chute des feuilles. Les années défilèrent et, en un clin d'œil, cinq nouvelles années s'étaient écoulées.
 
-L'École du Ciel était devenue extrêmement vaste, englobant les trois empires et s'étendant désormais sur toute la planète Ran Yun. Si la paix avait duré, tout aurait été simple, mais il y a trois ans, un changement soudain s'était produit dans l'Empire Di Shan. Ils avaient commencé à réprimer l'École du Ciel, déployant même de vastes troupes pour les anéantir.
+La Secte Tian Xing était devenue extrêmement vaste, englobant les trois empires et s'étendant désormais sur toute la planète Ran Yun. Si la paix avait duré, tout aurait été simple, mais il y a trois ans, un changement soudain s'était produit dans l'Empire Di Shan. Ils avaient commencé à réprimer la Secte Tian Xing, déployant même de vastes troupes pour les anéantir.
 
 Ce bouleversement fut comme verser de l'huile sur un feu ardent. Ce changement plongea le monde mortel dans le chaos et provoqua un immense tumulte.
 
-La réaction de l'École du Ciel fut d'une férocité extrême. En seulement quinze jours, ils parvinrent à prendre le contrôle de l'armée de l'Empire Di Shan sans verser une goutte de sang. Six ou sept fonctionnaires sur dix de la cour de l'Empire Di Shan étaient des fidèles de l'École du Ciel.
+La réaction de la Secte Tian Xing fut d'une férocité extrême. En seulement quinze jours, ils parvinrent à prendre le contrôle de l'armée de l'Empire Di Shan sans verser une goutte de sang. Six ou sept fonctionnaires sur dix de la cour de l'Empire Di Shan étaient des fidèles de la Secte Tian Xing.
 
 Prendre moins d'un mois pour asservir un empire fut comme un coup de tonnerre qui frappa les esprits. Personne ne s'y attendait, et tous furent ébranlés jusque dans leur âme.
 
-Les empires Da Qin et Chen Yun ne bougèrent pas de manière imprudente. Ils envoyèrent des émissaires à l'École du Ciel pour signer un pacte de non-agression.
+Les empires Da Qin et Chen Yun ne bougèrent pas de manière imprudente. Ils envoyèrent des émissaires à la Secte Tian Xing pour signer un pacte de non-agression.
 
-L'Empire Di Shan n'existait plus, remplacé par un empire colossal nommé l'Empire Céleste.
+L'Empire Di Shan n'existait plus, remplacé par un empire colossal nommé l'Empire Tian Xing.
 
-Dans la capitale de l'Empire Céleste, Wang Ping, revêtu de sa robe impériale, se tenait en hauteur, contemplant le monde en contrebas. À ses côtés, Qing Yi l'accompagnait en silence.
+Dans la capitale de l'Empire Tian Xing, Wang Ping, revêtu de sa robe impériale, se tenait en hauteur, contemplant le monde en contrebas. À ses côtés, Qing Yi l'accompagnait en silence.
 
-Les dignitaires de l'Empire Céleste levaient les yeux vers leur nouvel empereur. Ils ne parvenaient jamais à percer son mystère. C'était comme si rien dans ce monde n'avait de valeur à ses yeux; comme si sa présence même ici n'était qu'une tentative de prouver quelque chose à une personne invisible.
+Les dignitaires de l'Empire Tian Xing levaient les yeux vers leur nouvel empereur. Ils ne parvenaient jamais à percer son mystère. C'était comme si rien dans ce monde n'avait de valeur à ses yeux; comme si sa présence même ici n'était qu'une tentative de prouver quelque chose à une personne invisible.
 
 Le regard de Wang Ping balaya le monde sous ses pieds avant de se perdre au loin.
 
 Les troubles de l'Empire Di Shan avaient attiré l'attention des cultivateurs de la planète Ran Yun, qui manifestaient des signes d'ingérence.
 
-La vie de Wang Lin demeurait aussi calme qu'une eau sans rides, et son visage vieillissait davantage. Cette année marquait le cinquième anniversaire de la fondation de l'Empire Céleste.
+La vie de Wang Lin demeurait aussi calme qu'une eau sans rides, et son visage vieillissait davantage. Cette année marquait le cinquième anniversaire de la fondation de l'Empire Tian Xing.
 
-Les empires Da Qin et Chen Yun rompirent leur accord et lancèrent une offensive contre l'Empire Céleste.
+Les empires Da Qin et Chen Yun rompirent leur accord et lancèrent une offensive contre l'Empire Tian Xing.
 
 Wang Lin ne prêta aucune attention à ces événements. Il passait ses journées assis dans une auberge, écoutant les rumeurs circuler sur les trois empires. Il se contentait de boire en silence, sans jamais prononcer un mot.
 
@@ -84,29 +84,29 @@ Wang Lin et les vieux serviteurs marchèrent sous la lune qui montait progressiv
 
 Après avoir congédié les serviteurs, Wang Lin s'assit dans la cour et leva les yeux vers le ciel en murmurant: « Le temps passe si vite. Ping Er a déjà 47 ans... Peut-être a-t-il lui-même trouvé des indices... »
 
-La guerre entre les trois empires se déroulait lentement, mais l'ingérence des cultivateurs provoqua de nombreux rebondissements inattendus. Cependant, tout changea lorsque l'empereur de l'Empire Céleste prit personnellement la tête de ses armées.
+La guerre entre les trois empires se déroulait lentement, mais l'ingérence des cultivateurs provoqua de nombreux rebondissements inattendus. Cependant, tout changea lorsque l'empereur de l'Empire Tian Xing prit personnellement la tête de ses armées.
 
 Peu importe le niveau de culture des intervenants, tous reculaient devant lui. Peu à peu, tous les cultivateurs qui tentaient d'interférer se retirèrent du monde mortel.
 
 Outre l'ascension de Wang Ping, une autre raison majeure fut que les familles Sun, Ran et Zhao avaient donné leurs ordres.
 
-Wang Ping siégeait au sommet d'une tente dorée dans le camp militaire. Après avoir écarté quelques courtisans, il sortit de la tente. Son regard passa devant plusieurs soldats avant de se poser sur le mont Quilian, au loin.
+Wang Ping siégeait au sommet d'une tente dorée dans le camp militaire. Après avoir écarté quelques courtisans, il sortit de la tente. Son regard passa devant plusieurs soldats avant de se poser sur le mont Qi Lian, au loin.
 
 Le visage de Wang Ping paraissait un peu plus marqué par l'âge, et les cheveux autour de ses tempes étaient devenus d'un blanc immaculé. Après être devenu le souverain suprême des mortels, le bonheur s'était fait rare dans sa vie. Le poids de ses responsabilités accablait son cœur.
 
 Soudain, il ressentit la nostalgie des dix-neuf années de son enfance et tout ce qu'il avait vécu au village lorsqu'il était un petit garçon.
 
-Alors qu'il contemplait le mont Quilian, pensif, Qing Yi sortit de la tente. Elle se tint aux côtés de Wang Ping et dit doucement: « Tu as dit que c'était là que tu avais grandi. Veux-tu aller voir? »
+Alors qu'il contemplait le mont Qi Lian, pensif, Qing Yi sortit de la tente. Elle se tint aux côtés de Wang Ping et dit doucement: « Tu as dit que c'était là que tu avais grandi. Veux-tu aller voir? »
 
 L'apparence de Qing Yi portait également les traces du temps tandis qu'elle regardait tendrement Wang Ping.
 
 Wang Ping soupira et répondit: « Allons voir... »
 
-Une paire de sergents les suivit alors que Wang Ping et Qing Yi marchaient vers le mont Quilian. Wang Ping observa les environs; cet environnement inconnu lui procurait pourtant un étrange sentiment de familiarité.
+Une paire de sergents les suivit alors que Wang Ping et Qing Yi marchaient vers le mont Qi Lian. Wang Ping observa les environs; cet environnement inconnu lui procurait pourtant un étrange sentiment de familiarité.
 
-La fumée au loin devint plus distincte, puis le village de Lune Déchue apparut à sa vue.
+La fumée au loin devint plus distincte, puis le village Luo Yue apparut à sa vue.
 
-Dès qu'ils approchèrent, peut-être en raison de la présence des soldats, des aboiements féroces s'élevèrent du village. En ces temps chaotiques, les villageois de Lune Déchue étaient extrêmement vigilants. À l'entente des chiens, ils sortirent immédiatement avec leurs outils agricoles et leurs torches. Ils virent, non loin de là, des soldats en armure complète accompagnés d'un homme et d'une femme en vêtements civils.
+Dès qu'ils approchèrent, peut-être en raison de la présence des soldats, des aboiements féroces s'élevèrent du village. En ces temps chaotiques, les villageois de Luo Yue étaient extrêmement vigilants. À l'entente des chiens, ils sortirent immédiatement avec leurs outils agricoles et leurs torches. Ils virent, non loin de là, des soldats en armure complète accompagnés d'un homme et d'une femme en vêtements civils.
 
 Face aux regards hostiles des villageois, Wang Ping ne dit mot. Il les fixa du regard, mais finit par ne pouvoir en reconnaître un seul.
 

@@ -32,7 +32,7 @@ Wang Lin marcha d'un pas régulier jusqu'à Treize. Lorsqu'il se pencha pour l'e
 
 Wang Lin s'agenouilla et pressa doucement son doigt droit sur la poitrine de Treize. Un cri strident jaillit soudainement du corps, tandis qu'une ligne rouge bondissait du point de pression pour foncer droit sur lui. Les yeux de Wang Lin devinrent glacials et une force invisible enveloppa son corps. Un bruit sourd retentit, comme si la ligne rouge avait percuté une plaque d'acier, et elle fut violemment repoussée.
 
-À cet instant, Wang Lin fit un mouvement brusque pour saisir la ligne rouge. D'un coup sec, il tira, provoquant un hurlement aigu alors qu'il extirpait la ligne du corps de Treize. Cette entité mesurait environ trois mètres de long et se tortillait comme un serpent. Son extrémité opposée tenta de charger Wang Lin, mais fut une fois de plus stoppée.
+À cet instant, Wang Lin fit un mouvement brusque pour saisir la ligne rouge. D'un coup sec, il tira, provoquant un hurlement aigu alors qu'il extirpait la ligne du corps de Treize. Cette entité mesurait environ dix pieds de long et se tortillait comme un serpent. Son extrémité opposée tenta de charger Wang Lin, mais fut une fois de plus stoppée.
 
 La froideur dans le regard de Wang Lin s'intensifia et l'énergie spirituelle céleste en son sein déferla avec fureur. Il serra fermement la prise et, après une série de craquements, la ligne rouge se mua en poussière en l'espace de trois respirations.
 
@@ -72,13 +72,13 @@ Wang Lin était doté d'une grande intelligence. Si le niveau de culture de cet 
 
 Fort de cette pensée, il laissa échapper un reniflement glacial et s'élança comme une météorite traversant le ciel.
 
-La Tribu des Eaux Célestes résidait dans une vaste plaine du nord-ouest de la Terre Yao Ling. La zone était entourée de terres planes; à l'origine, ce n'était pas un lieu propice à l'habitation, mais une formation ancienne y était établie. Cette formation était extrêmement puissante: une fois activée, tout ce qui se trouvait dans un rayon de cinq kilomètres était protégé. Même durant la nuit des esprits démoniaques, l'intérieur restait parfaitement sûr.
+La Tribu Tian Shui résidait dans une vaste plaine du nord-ouest de la Terre Yao Ling. La zone était entourée de terres planes; à l'origine, ce n'était pas un lieu propice à l'habitation, mais une formation ancienne y était établie. Cette formation était extrêmement puissante: une fois activée, tout ce qui se trouvait dans un rayon de cinq kilomètres était protégé. Même durant la nuit des esprits démoniaques, l'intérieur restait parfaitement sûr.
 
 La survie d'une tribu dans la Terre Yao Ling dépendait de sa capacité à trouver une formation protectrice. On en trouvait beaucoup dans ce territoire, mais peu couvraient une telle étendue de cinq kilomètres. Plus la zone couverte était vaste, plus la formation était puissante, ce qui permettait également à la tribu d'avoir un potentiel de croissance plus important.
 
 Par exemple, la vallée n'était que limitée par sa taille; une fois qu'une certaine population était atteinte, elle ne pouvait plus accueillir de nouveaux membres. Cette formation sur la plaine couvrant cinq kilomètres, elle permettait une expansion bien plus grande.
 
-Deux vieillards étaient assis dans une demeure très simple de la Tribu des Eaux Célestes. L'un portait du gris et l'autre du blanc. Entre eux reposait un service à thé pourpre.
+Deux vieillards étaient assis dans une demeure très simple de la Tribu Tian Shui. L'un portait du gris et l'autre du blanc. Entre eux reposait un service à thé pourpre.
 
 Le vieillard en robe blanche prit une tasse et but une gorgée. « De toutes les choses apportées par les étrangers, seul ce thé convient à mes goûts. »
 

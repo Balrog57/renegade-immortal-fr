@@ -16,7 +16,7 @@ Le Doigt du Tremblement de Montagne de Situ Nan, qui avait rassemblé toutes les
 
 Situ Nan rit et recula. Une lueur d'admiration dans ses yeux tandis qu'il souriait: « On dit que, séparés trois jours, on se regarde d'un œil neuf. Wang Lin, je ne t'ai pas vu depuis des centaines d'années, et tu m'as vraiment surpris aujourd'hui! »
 
-Wang Lin recula également d'environ 330 mètres, en riant: « On dirait que tu as dû te lancer dans une culture intensive en porte fermée durant ces centaines d'années! »
+Wang Lin recula également de mille pieds, en riant: « On dirait que tu as dû te lancer dans une culture intensive en porte fermée durant ces centaines d'années! »
 
 Les deux se regardèrent et sourirent joyeusement. Wang Lin n'avait pas ressenti un tel bonheur depuis longtemps. Ces retrouvailles avec Situ Nan lui rappelaient leur longue amitié, réchauffant son cœur.
 
@@ -60,7 +60,7 @@ Alors que Wang Lin contemplait Situ Nan, les souvenirs du passé traversèrent �
 
 « Moi, Wang Lin, de toute ma vie, ne m'inclinerai jamais devant les cieux, ni ne rendrai hommage à aucun fantôme ou dieu. Je ne m'incline que devant mes parents et je rends hommage à Situ! »
 
-Situ Nan l'avait tellement aidé. Sans lui, Wang Lin serait mort à Zhao et n'aurait jamais accompli ce qu'il avait réalisé aujourd'hui.
+Situ Nan l'avait tellement aidé. Sans lui, Wang Lin serait mort dans le Pays Zhao et n'aurait jamais accompli ce qu'il avait réalisé aujourd'hui.
 
 Sans Situ, il aurait été presque impossible pour Wang Lin de franchir les premiers stades du premier pas: Condensation de Qi, Établissement des Fondations, Formation du Noyau et Âme Naissante! Sans cette base, il n'aurait jamais atteint son niveau actuel.
 

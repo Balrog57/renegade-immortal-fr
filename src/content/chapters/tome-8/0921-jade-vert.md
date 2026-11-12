@@ -12,7 +12,7 @@ Fixant au loin le Serpent aux yeux de lune et ses innombrables tentacules oscill
 
 « À l'époque, j'ai emprunté le Serpent aux yeux de lune pour échapper à la traque de la famille Yao et je me suis caché à l'intérieur de son corps. J'avais déjà senti qu'un membre de Luotian convoitait cette créature. Quel genre d'individu pourrait faire sortir de force le Serpent aux yeux de lune pour l'envoyer dans l'Alliance comme un trésor magique?! Serait-ce... lui?! » Wang Lin haleta, son esprit dérivant vers la silhouette qu'il avait croisée à deux reprises.
 
-La première fois, c'était lors de la bataille entre Qing Shui et le Dieu de Sang. La seconde, après les 108 bénédictions célestes, lorsqu'il avait déchiré le passage entre les deux systèmes stellaires!
+La première fois, c'était lors de la bataille entre Qing Shui et Xue Shenzi. La seconde, après les 108 bénédictions célestes, lorsqu'il avait déchiré le passage entre les deux systèmes stellaires!
 
 À cet instant, le sifflement produit par l'immense morceau de bois devant le Serpent aux yeux de lune devint de plus en plus assourdissant. Alors que les ondulations se rapprochaient, les cultivateurs derrière Wang Lin commencèrent à acclamer.
 

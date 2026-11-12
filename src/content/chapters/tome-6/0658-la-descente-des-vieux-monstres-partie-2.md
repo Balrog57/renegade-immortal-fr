@@ -90,11 +90,11 @@ Chen Tao le remercia et répondit: « Demain, je devrai vous appeler "Vice-Comma
 
 Shi Xiao afficha un sourire fier et déclara: « Ce poste aurait dû être le mien il y a plus de cent ans! Mo Lihai ne me l'a volé que par des méthodes sournoises. Si ce n'était pas pour ce misérable de Wang Lin, que serait devenu Mo Lihai?! »
 
-Chen Tao regarda Shi Xiao et dit calmement: « Wang Lin est mon frère instructeur cadet! »
+Chen Tao regarda Shi Xiao et dit calmement: « Wang Lin est mon Junior frère! »
 
-Shi Xiao haussa un sourcil avec un sourire glacial. « Où était votre frère cadet pendant la guerre contre le Pays Huo Yao? Il a profité de la fin du conflit pour s'approprier les mérites de tous. Bien qu'il ait aidé le Seigneur Démon Ancien, il nous a tous couverts de honte! »
+Shi Xiao haussa un sourcil avec un sourire glacial. « Où était votre Junior frère pendant la guerre contre le Pays Huo Yao? Il a profité de la fin du conflit pour s'approprier les mérites de tous. Bien qu'il ait aidé le Seigneur Démon Ancien, il nous a tous couverts de honte! »
 
-« De plus, cet homme a disparu depuis de nombreuses années; je crains que ses os ne puissent même plus être retrouvés. Vous vous souvenez de lui comme de votre frère cadet, mais je crains qu'il ne se souvienne plus de vous comme de son frère instructeur aîné. »
+« De plus, cet homme a disparu depuis de nombreuses années; je crains que ses os ne puissent même plus être retrouvés. Vous vous souvenez de lui comme de votre Junior frère, mais je crains qu'il ne se souvienne plus de vous comme de son Senior frère. »
 
 Chen Tao restait silencieux, pensif.
 
@@ -132,9 +132,9 @@ Sous la lune, il semblait marcher sur l'astre lui-même. Ses vêtements flottaie
 
 « Faites attention au Maître! » La voix de Wang Lin résonna dans les oreilles de Chen Tao. Ce dernier fixa le ciel pendant un long moment, incapable de prononcer un mot.
 
-Une fois ses affaires terminées, Wang Lin apparut devant l'entrée de l'Abîme Chao Xi. Il se retourna pour contempler la terre avant de lever les yeux vers le ciel. Son regard semblait transpercer la voûte céleste, s'élevant jusqu'à franchir la limite du ciel pour atteindre la Mer Yao Ling.
+Une fois ses affaires terminées, Wang Lin apparut devant l'entrée de l'Abîme Chao Xi. Il se retourna pour contempler la terre avant de lever les yeux vers le ciel. Son regard semblait transpercer la voûte céleste, s'élevant jusqu'à franchir la limite du ciel pour atteindre la Mer Dong.
 
-Devant la porte de la Mer Yao Ling, Tian Yunzi, Ling Tianhou, Xue Zu et sept ou huit anciens se tenaient là.
+Devant la porte Yao Ling, sur la Mer Dong, Tian Yunzi, Ling Tianhou, Xue Zu et sept ou huit anciens se tenaient là.
 
 Tous attendaient que Ling Tianhou ouvre la porte quand soudain, Tian Yunzi s'exclama. Il fixa la porte du Pays Yao Ling, les sourcils froncés par une inquiétude soudaine.
 

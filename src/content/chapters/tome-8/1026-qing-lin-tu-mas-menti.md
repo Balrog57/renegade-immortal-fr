@@ -20,13 +20,13 @@ Désormais dépourvu du sceau du Gardien Céleste, Ta Shan fut envahi par une au
 
 Un tatouage complexe se forma progressivement sous ses doigts, gravé profondément entre les sourcils de Ta Shan.
 
-« Au nom de l'Ancêtre Sainte de votre clan du Tatouage, j'active l'esprit de votre lignée et je vous accorde le Saint Tatouage du clan... » La voix de la femme paraissait épuisée. Au moment où elle traça le dernier trait, la rune étincela d'une lueur sombre. Son corps cessa de trembler et il retrouva son calme, fixant la femme devant lui avec un regard empreint de confusion.
+« Au nom de l'Ancêtre Sainte de votre Clan Fu Wen, j'active l'esprit de votre lignée et je vous accorde le Saint Tatouage du clan... » La voix de la femme paraissait épuisée. Au moment où elle traça le dernier trait, la rune étincela d'une lueur sombre. Son corps cessa de trembler et il retrouva son calme, fixant la femme devant lui avec un regard empreint de confusion.
 
 Tandis qu'elle gravait ce nouveau tatouage sur Ta Shan, elle plongea sans retenue dans ses souvenirs. Elle vit comment le clan de Ta Shan avait vécu à l'intérieur de la Bête des Limbes, sacrifié aux Célestiels. Elle vit comment ces derniers les avaient marqués d'une empreinte d'esclave. Elle vit l'apparition de Wang Lin, qui les avait extirpés de la Bête des Limbes pour leur trouver un nouveau foyer.
 
 Elle avait tout vu.
 
-Lorsqu'elle constata que l'empreinte d'esclave affectait des générations entières du clan du Tatouage, un flot encore plus abondant de sang noir jaillit de ses orbites vides!
+Lorsqu'elle constata que l'empreinte d'esclave affectait des générations entières du Clan Fu Wen, un flot encore plus abondant de sang noir jaillit de ses orbites vides!
 
 « Qing Lin... Tu m'as menti!!! » La femme leva la tête et poussa un cri strident, chargé de rage. Ce hurlement était d'une virulence extrême, et le Vortex Funéraire Céleste sous ses pieds devint soudainement plus intense encore. Le gémissement d'innombrables âmes s'échappait du vortex.
 
@@ -68,7 +68,7 @@ Lorsque Wang Lin aperçut l'apparition, il eut un sursaut et ses pupilles se con
 
 « Qing Lin! »
 
-« Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin servant de restriction qu'il a laissé dans le Bassin Funéraire Céleste lors du scellement de l'Ancêtre Sainte du clan du Tatouage. Il est dépourvu d'intelligence, de souvenirs et des pouvoirs divins de son corps véritable; il ne possède que l'instinct d'empêcher l'Ancêtre Sainte du clan du Tatouage, Qiu Yao, de s'échapper! » L'esprit du Maître du Vide fut ébranlé. À son niveau de culture, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel; si fragile qu'un souffle pourrait l'anéantir.
+« Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin servant de restriction qu'il a laissé dans le Bassin Funéraire Céleste lors du scellement de l'Ancêtre Sainte du Clan Fu Wen. Il est dépourvu d'intelligence, de souvenirs et des pouvoirs divins de son corps véritable; il ne possède que l'instinct d'empêcher l'Ancêtre Sainte du Clan Fu Wen, Qiu Yao, de s'échapper! » L'esprit du Maître du Vide fut ébranlé. À son niveau de culture, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel; si fragile qu'un souffle pourrait l'anéantir.
 
 À ce moment-là, loin de la Terre Yao Ling de la Mer Dong, au-delà de la sphère de la planète Tian Yun, dans le champ stellaire de l'Alliance mais en un lieu que l'Alliance Xiu Zhen elle-même ne pouvait contrôler, un système stellaire était en proie aux flammes. Au moment même où l'Oiseau Vermillon de Wang Lin s'éveillait et où celui-ci sortait du monde-bouteille, un bouleversement fracassant se produisait dans toute la Secte Divine de l'Oiseau Vermillon!
 

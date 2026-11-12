@@ -78,7 +78,7 @@ Un corps spirituel pourpre flottait devant lui. Ce corps spirituel était celui 
 
 Zhou Yi avait les yeux clos et le visage empreint de confusion. À l'exception de la zone entre ses sourcils, tout son corps était recouvert d'une teinte pourpre. Cette couleur semblait vivante, car elle se tortillait continuellement. Le pourpre sur le visage de Zhou Yi ressemblait à un amas de fils de soie tentant de dévorer la lumière dorée située entre ses sourcils.
 
-Une formation de 9,9 mètres de large couvrait le sol sous Zhou Yi. Des volutes de gaz pourpre s'échappaient de la formation, se transformaient en runes et pénétraient dans le corps de Zhou Yi.
+Une formation de trente pieds de large couvrait le sol sous Zhou Yi. Des volutes de gaz pourpre s'échappaient de la formation, se transformaient en runes et pénétraient dans le corps de Zhou Yi.
 
 Quatre épées précieuses étaient plantées aux quatre points cardinaux de la formation. Des éclairs jaillissaient de ces armes pour se fondre dans le sol.
 

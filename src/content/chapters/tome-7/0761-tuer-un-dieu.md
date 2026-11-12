@@ -6,15 +6,15 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 761 - Killing God
 slug: tuer-un-dieu
 ---
-Xue Zu lança un regard glacial à Wang Lin. Son doigt ne s'arrêta pas et continua de presser vers le bas, s'arrêtant à peine à 9,9 centimètres du visage de Wang Lin.
+Xue Zu lança un regard glacial à Wang Lin. Son doigt ne s'arrêta pas et continua de presser vers le bas, s'arrêtant à peine à trois pouces du visage de Wang Lin.
 
 Un fracas assourdissant résonna dans le ciel. Wang Lin cracha une bouchée de sang et son corps fut projeté tel un cerf-volant brisé. Dans les airs, il effectua plusieurs rotations avant de s'écraser au sol, faisant craqueler la terre sous lui.
 
-Le corps de Wang Lin continua de reculer. Chaque pas qu'il faisait fissurait le sol. Après avoir reculé de 330 mètres, il parvint enfin à stabiliser sa position. Il était dans un état lamentable, du sang s'écoulant du coin de sa bouche.
+Le corps de Wang Lin continua de reculer. Chaque pas qu'il faisait fissurait le sol. Après avoir reculé de mille pieds, il parvint enfin à stabiliser sa position. Il était dans un état lamentable, du sang s'écoulant du coin de sa bouche.
 
 D'innombrables fissures jonchaient le sol devant lui, témoignant de la puissance phénoménale de ce doigt.
 
-Xue Zu fit un pas et se retrouva à 33 mètres de Wang Lin. Il déclara d'un ton calme: « Je ne te donnerai que trois phrases! »
+Xue Zu fit un pas et se retrouva à cent pieds de Wang Lin. Il déclara d'un ton calme: « Je ne te donnerai que trois phrases! »
 
 Du sang coula davantage du coin de la bouche de Wang Lin; de nombreux os de son corps étaient brisés. Le corps de la garde céleste était puissant et c'était la première fois qu'il subissait des blessures aussi graves, mais Wang Lin sourit.
 

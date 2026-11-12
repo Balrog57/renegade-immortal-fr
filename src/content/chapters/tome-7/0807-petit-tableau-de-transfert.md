@@ -50,7 +50,7 @@ Ta Shan laissa échapper un sourire misérable, recula de quelques pas et marmon
 
 Wang Lin fixa le Fourneau Yin Mystérieux et demanda lentement: « Qu'y a-t-il à l'intérieur de ce fourneau? »
 
-Ta Shan murmura: « Je l'ignore. Les archives du clan disent qu'il y a d'innombrables années, le Roi Céleste Xiaoyaozi a introduit mon clan dans le corps de la Bête des Limbes pour garder ce Fourneau Yin Mystérieux jusqu'à son retour. »
+Ta Shan murmura: « Je l'ignore. Les archives du clan disent qu'il y a d'innombrables années, le Roi Céleste Xiaoyao a introduit mon clan dans le corps de la Bête des Limbes pour garder ce Fourneau Yin Mystérieux jusqu'à son retour. »
 
 « Comment puis-je quitter cet endroit? » demanda Wang Lin en détournant le regard.
 
@@ -94,7 +94,7 @@ Wang Lin cria: « Scelle! »
 
 La brume de sang se mua en de multiples restrictions qui s'agrippèrent immédiatement au corps de la créature, formant un immense sceau.
 
-Simultanément, le regard de Wang Lin devint glacial et il pointa le vide. Le Fouet du Karma apparut soudainement et infligea des coups impitoyables à la femme.
+Simultanément, le regard de Wang Lin devint glacial et il pointa le vide. Le Fouet Kunji apparut soudainement et infligea des coups impitoyables à la femme.
 
 L'ombre de la femme poussa un gémissement misérable. Elle recula de quelques pas avant de charger à nouveau. Son corps se dispersa en neuf filaments de gaz noir qui foncèrent sur Wang Lin comme des flèches.
 
@@ -116,7 +116,7 @@ Ta Shan en fut extrêmement choqué. Il fixa la porte, le cuir chevelu engourdi 
 
 « L'esprit du Fourneau Yin Mystérieux! » L'ancêtre du Clan Xian Xuan essuya le sang au coin de sa bouche, affichant une expression complexe.
 
-Le visage de Wang Lin était sombre lorsqu'il s'assit. « Vous deux, partez. Ne laissez personne approcher à moins de 330 mètres d'ici! »
+Le visage de Wang Lin était sombre lorsqu'il s'assit. « Vous deux, partez. Ne laissez personne approcher à moins de mille pieds d'ici! »
 
 Le vieil homme réfléchit silencieusement. Après un instant, il inclina respectueusement la tête. Puis, lui et Ta Shan se transformèrent en rayons de lumière et s'envolèrent au loin.
 
@@ -130,6 +130,6 @@ Le ciel était bleu, mais grâce à sa vision, Wang Lin pouvait distinguer vague
 
 « Si cet endroit est vraiment scellé, comment ai-je été envoyé ici... Ce lieu n'est pas accueillant. Je dois trouver un moyen de partir au plus vite! Mais bien que ce soit dangereux, c'est aussi le meilleur endroit pour se cacher! » Wang Lin réfléchit et frappa sa sacoche d'où s'échappa un objet.
 
-Cet objet mesurait environ 50 mètres de long et 13 mètres de large. Dès son apparition, il dégagea une aura terrifiante. D'innombrables épines le recouvraient, lui donnant un aspect féroce. Quiconque le regardait ne pouvait s'empêcher de ressentir une pointe de terreur.
+Cet objet mesurait environ cent cinquante pieds de long et plus de quarante pieds de large. Dès son apparition, il dégagea une aura terrifiante. D'innombrables épines le recouvraient, lui donnant un aspect féroce. Quiconque le regardait ne pouvait s'empêcher de ressentir une pointe de terreur.
 
 Le troisième Char de Guerre Divin!

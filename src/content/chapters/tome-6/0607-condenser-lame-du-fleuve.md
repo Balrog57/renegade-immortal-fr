@@ -24,7 +24,7 @@ Les environs étaient plongés dans un silence total, à l'exception du grondeme
 
 « Où as-tu appris cette empreinte de paume?! » Le sens divin résonna comme un rugissement tonnerre.
 
-Dès que ce son retentit, le sol commença à se briser, mais les secousses s'arrêtèrent à une trentaine de mètres de Wang Lin.
+Dès que ce son retentit, le sol commença à se briser, mais les secousses s'arrêtèrent à cent pieds de Wang Lin.
 
 Les yeux de Wang Lin se rétrécirent. Il s'en souvenait maintenant: c'était cette voix qui l'avait gravement blessé d'innombrables fois sur le chemin de sa progression. S'il n'avait pas eu l'énergie d'extinction et de massacre, il serait déjà mort.
 

@@ -48,7 +48,7 @@ Le visage de Nangong Han était marqué par le regret. Il le suivit rapidement e
 
 Les 107 autres participants du Domaine Sud avaient été sélectionnés. Le vieil homme à la robe violette sortit une pierre noire et la broya. D'innombrables éclats de lumière cristalline jaillirent et une formation illusoire se matérialisa.
 
-Cette formation était immense, s'étendant sur environ 330 mètres de large. Le vieil homme à la robe violette entra le premier, suivi des deux messagers en robes vertes. Ils disparurent à l'intérieur de la formation.
+Cette formation était immense, s'étendant sur environ mille pieds de large. Le vieil homme à la robe violette entra le premier, suivi des deux messagers en robes vertes. Ils disparurent à l'intérieur de la formation.
 
 Les participants restants, plus d'une centaine, entrèrent progressivement dans la formation. Wang Lin en faisait partie, tout comme Shengong Hu et Zhan Konglie.
 

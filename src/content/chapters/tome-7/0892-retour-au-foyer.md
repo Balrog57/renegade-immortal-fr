@@ -60,7 +60,7 @@ Au fil de sa marche, la mélancolie dans le cœur de Wang Lin s'accentuait. Il e
 
 Une immense cité s'y trouvait, grouillante de vie et de bruit. Une plaque à bordure dorée sur fond violet surplombait la porte de la ville, portant trois caractères!
 
-La Cité Ancestrale!
+La Cité Huangzu!
 
 En observant la ville de loin, Wang Lin s'arrêta. L'image de sa ville natale et le souvenir du visage et de la voix de ses parents occupaient son esprit.
 
@@ -96,7 +96,7 @@ Le garçon avait une apparence si étrange et terrifiante que le serveur pâlit 
 
 Wang Lin poussa un soupir et demanda: « Serveur, y avait-il autrefois un vieux robinier ici? »
 
-Le serveur n'avait aucune intention de lui répondre, mais après avoir aperçu Ta Shan et le garçon à la grosse tête derrière Wang Lin, il répliqua: « Quel vieux robinier? J'ai grandi dans la Cité Ancestrale et je n'en ai jamais vu! »
+Le serveur n'avait aucune intention de lui répondre, mais après avoir aperçu Ta Shan et le garçon à la grosse tête derrière Wang Lin, il répliqua: « Quel vieux robinier? J'ai grandi dans la Cité Huangzu et je n'en ai jamais vu! »
 
 La mélancolie dans les yeux de Wang Lin s'intensifia et son cœur se serra d'amertume. Il continua sa route, s'enfonçant plus profondément dans la ville, suivi par Ta Shan et le garçon à la grosse tête.
 

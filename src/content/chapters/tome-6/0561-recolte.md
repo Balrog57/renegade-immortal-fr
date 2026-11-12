@@ -26,7 +26,7 @@ Wang Lin laissa échapper un froid reniflement; l'énergie spirituelle céleste 
 
 Sans s'arrêter, il tendit la main vers un autre sac. La lumière rouge sang résista pendant trois respirations avant de se dissiper!
 
-Wang Lin effaça l'empreinte du Sens Divin sur le troisième sac comme il l'avait fait pour les deux précédents. Il était sur le point de tout terminer d'un coup et de saisir le dernier sac lorsque son expression changea soudainement, et sa main droite s'immobilisa à 9,9 centimètres du quatrième sac.
+Wang Lin effaça l'empreinte du Sens Divin sur le troisième sac comme il l'avait fait pour les deux précédents. Il était sur le point de tout terminer d'un coup et de saisir le dernier sac lorsque son expression changea soudainement, et sa main droite s'immobilisa à trois pouces du quatrième sac.
 
 Ses yeux devinrent très sérieux tandis qu'il retirait lentement sa main pour examiner attentivement le sac de rangement. Plus tôt, lorsqu'il avait récupéré les sacs, son niveau de culture n'était pas assez élevé, mais en y regardant de plus près maintenant, il sembla déceler des indices.
 

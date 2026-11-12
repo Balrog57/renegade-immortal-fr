@@ -24,7 +24,7 @@ Tandis que Wang Lin l'examinait attentivement, l'homme sorti de la tour faisait 
 
 Wang Lin esquissa un mince sourire et répondit: « Je n'avais que des soupçons jusqu'alors. Ce n'est qu'en voyant le frère Gu aujourd'hui que j'en ai eu la certitude. » À peine eut-il fini de parler qu'un sens divin se mit à supplier frénétiquement dans son esprit.
 
-« Maître, le Maître que moi, Xu Liguo, respecte le plus! Avez-vous le cœur d'autoriser deux amants destinés à être unis par la vie et la mort à ne faire que se croiser alors qu'ils ne sont séparés que d'une dizaine de mètres... Maître, je n'ai pas vu cette petite beauté depuis dix ans, je... » Wang Lin fronça les sourcils et frappa son sac de rangement; aussitôt, Xu Liguo s'en envola.
+« Maître, le Maître que moi, Xu Liguo, respecte le plus! Avez-vous le cœur d'autoriser deux amants destinés à être unis par la vie et la mort à ne faire que se croiser alors qu'ils ne sont séparés que de quelques dizaines de pieds... Maître, je n'ai pas vu cette petite beauté depuis dix ans, je... » Wang Lin fronça les sourcils et frappa son sac de rangement; aussitôt, Xu Liguo s'en envola.
 
 Cette fois, il s'était montré avisé. Craignant d'irriter Wang Lin, il n'avait pas emmené l'épée céleste mais était sorti seul.
 
@@ -60,7 +60,7 @@ L'expression de Wang Lin devint sombre; il saisit Xu Liguo et le renvoya dans so
 
 L'Empereur Démon poussa un soupir intérieur. À l'origine, il n'avait pas souhaité s'engager dans un affrontement aussi tendu avec Wang Lin, mais il ne pouvait supporter de voir Shuang Er être malmenée.
 
-Bien que l'esprit d'épée de Wang Lin le cachât très bien, il percevait aisément la lubricité dans ses yeux. L'Empereur Démon soupira secrètement et dit: « Frère Wang, Mo Fei est déjà devenu vice-commandant en chef. Il se trouve auprès du Commandant Céleste. Ensemble, ils dirigent l'armée de gauche et devraient être arrivés à Songtao, dans le Pays Démon de Feu. »
+Bien que l'esprit d'épée de Wang Lin le cachât très bien, il percevait aisément la lubricité dans ses yeux. L'Empereur Démon soupira secrètement et dit: « Frère Wang, Mo Fei est déjà devenu vice-commandant en chef. Il se trouve auprès du Commandant Céleste. Ensemble, ils dirigent l'armée de gauche et devraient être arrivés à la Ville Songtao, dans le Pays Huo Yao. »
 
 Après une courte pause, il ajouta: « J'ai déjà annoncé que le Frère Wang est le messager de l'Ancêtre. Cela facilitera vos démarches. De plus, comme vous détenez mon jade, c'est comme si j'étais présent personnellement. Si quelqu'un vous manque de respect, vous n'aurez qu'à ordonner au Commandant Céleste de le tuer! » Sur ces mots, il lança un jade blanc vers Wang Lin.
 

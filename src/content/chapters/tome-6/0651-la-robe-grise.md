@@ -40,7 +40,7 @@ Après une profonde inspiration, Wang Lin détourna le regard. En observant l'ob
 
 Après un long moment, Wang Lin poussa un soupir et esquissa un sourire amer. « Je ne parviens pas à l'activer! »
 
-Il réfléchit un instant et observa les environs. Cette fissure n'était pas large, elle ne faisait qu'une dizaine de mètres de large; il pouvait tout distinguer d'un seul regard. Peu après, il se leva et atteignit l'entrée de la brèche. La force d'aspiration extérieure était constante. En s'avançant un peu plus, il la sentit distinctement, son propre corps montrant déjà des signes d'aspiration.
+Il réfléchit un instant et observa les environs. Cette fissure n'était pas large, elle ne faisait que quelques dizaines de pieds de large; il pouvait tout distinguer d'un seul regard. Peu après, il se leva et atteignit l'entrée de la brèche. La force d'aspiration extérieure était constante. En s'avançant un peu plus, il la sentit distinctement, son propre corps montrant déjà des signes d'aspiration.
 
 Wang Lin recula, le regard vacillant.
 
@@ -72,7 +72,7 @@ Pourtant, à cet instant, après avoir dévoré deux énergies d'épée consécu
 
 Après avoir vérifié que son âme originelle était intacte, Wang Lin eut un sourire amer. « Peut-on encore appeler cela une âme originelle... » Il toucha de nouveau son sac de rangement pour en sortir une sphère de restrictions.
 
-La petite sphère grandit à sa sortie pour atteindre une hauteur d'environ 1,65 mètre lorsqu'elle toucha le sol. D'innombrables restrictions scintillaient sur sa surface. La main droite de Wang Lin traça un sceau avant de pointer la sphère.
+La petite sphère grandit à sa sortie pour atteindre une hauteur d'environ cinq pieds lorsqu'elle toucha le sol. D'innombrables restrictions scintillaient sur sa surface. La main droite de Wang Lin traça un sceau avant de pointer la sphère.
 
 Une sphère de restrictions commença à se fendre en deux, tel une fleur s'épanouissant, révélant un homme séduisant à l'intérieur.
 
@@ -80,13 +80,13 @@ Il s'agissait de Du Jian, de la division rouge. Ses yeux étaient clos et son vi
 
 Cependant, en s'examinant, il réalisa immédiatement que son âme originelle avait été scellée. Il était devenu, pour ainsi dire, un simple mortel.
 
-La voix de Wang Lin fut calme lorsqu'il prononça lentement: « Frère Aîné Du, vous pouvez maintenant me révéler le secret du Maître! »
+La voix de Wang Lin fut calme lorsqu'il prononça lentement: « Senior frère Du, vous pouvez maintenant me révéler le secret du Maître! »
 
 Du Jian afficha une expression amère et regarda Wang Lin d'un air complexe. Après un silence réflexif, il répondit: « Même si je parle, je crains que cela ne mène inévitablement à ma mort... »
 
 Le regard de Wang Lin balaya Du Jian. Une lueur de foudre apparut dans ses yeux et perça ceux de Du Jian, provoquant un choc mental chez ce dernier. Pointant Wang Lin du doigt, il s'exclama: « Tes... tes yeux... »
 
-Wang Lin retira son regard et dit d'un ton serein: « Frère Aîné Du, ma patience a des limites! »
+Wang Lin retira son regard et dit d'un ton serein: « Senior frère Du, ma patience a des limites! »
 
 Comme si Du Jian n'avait rien entendu, ses yeux étaient empreints d'effroi. Il ne s'était toujours pas remis de la puissance du regard de Wang Lin. Du Jian avait rencontré de nombreux cultivateurs, même de rang puissant.
 

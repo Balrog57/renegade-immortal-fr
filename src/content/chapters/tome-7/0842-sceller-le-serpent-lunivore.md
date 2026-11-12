@@ -68,7 +68,7 @@ L'homme d'âge moyen en robe noire suivit de près le Daoïste aux Cinq Couleurs
 
 Le son de la cloche portait une puissance phénoménale. En résonnant, elle intensifia l'effondrement de l'espace et le projeta directement vers le Serpent aux yeux de lune.
 
-Cependant, ces attaques s'effondrèrent instantanément devant le doigt du Dieu Ancien devenu presque tangible. Le premier à affronter cette menace fut Lie Yunzi de la famille Zhan. Au moment où son épée d'argent entra en contact avec le doigt, des bruits de déchirement résonnèrent dans son corps. Il cracha du sang et fut projeté en arrière! Pourtant, après avoir parcouru une quarantaine de mètres, les yeux de Lie Yunzi brillèrent de rage. Il ne recula plus et chargea de nouveau!
+Cependant, ces attaques s'effondrèrent instantanément devant le doigt du Dieu Ancien devenu presque tangible. Le premier à affronter cette menace fut Lie Yunzi de la famille Zhan. Au moment où son épée d'argent entra en contact avec le doigt, des bruits de déchirement résonnèrent dans son corps. Il cracha du sang et fut projeté en arrière! Pourtant, après avoir parcouru plus de cent pieds, les yeux de Lie Yunzi brillèrent de rage. Il ne recula plus et chargea de nouveau!
 
 Son niveau de culture était si élevé qu'il ne mourut pas sous le coup du doigt du Dieu Ancien, mais son âme originelle fut endommagée!
 
@@ -76,7 +76,7 @@ Le doigt du Dieu Ancien ne ralentit pas sa course. Le vieil homme en robe rouge 
 
 À cet instant précis, le fantôme du Daoïste aux Cinq Couleurs s'approcha. Dès qu'il fut proche du doigt du Dieu Ancien, il se désintégra en un épais brouillard noir pour se diffuser sur l'appendice, tentant de le dévorer!
 
-L'ancêtre de la famille Shengong ne marqua pas de pause. Sa main traça un sceau et pointa entre ses sourcils. D'innombrables dragons de tonnerre se condensèrent rapidement en un éclair d'un diamètre de 33 mètres. Il se projeta à une vitesse dépassant l'entendement pour percuter le doigt du Dieu Ancien.
+L'ancêtre de la famille Shengong ne marqua pas de pause. Sa main traça un sceau et pointa entre ses sourcils. D'innombrables dragons de tonnerre se condensèrent rapidement en un éclair épais de cent pieds. Il se projeta à une vitesse dépassant l'entendement pour percuter le doigt du Dieu Ancien.
 
 L'aigle noir de l'homme en robe noire ne s'arrêta pas non plus. Alors que les sorts de chacun heurtaient le doigt du Dieu Ancien, il chargea également. La cloche sonna avec force lors de l'impact.
 
