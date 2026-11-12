@@ -1,6 +1,6 @@
 ---
 n: 642
-title: La sagesse de Wang Lin
+title: La bête moustique aux brumes violettes
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Wang Lin's Wisdom

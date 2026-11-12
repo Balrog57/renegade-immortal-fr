@@ -8,13 +8,13 @@ slug: tuez-le
 ---
 Parmi les dix membres du Sanctuaire du Dieu de la Guerre, hormis Ma Liang qui était parti seul quatre jours auparavant, seuls ces trois-là subsistaient. Zhou Zihong laissa échapper un soupir en contemplant les créatures étranges qui convergeaient vers eux. Elle ferma les yeux, accablée par le désespoir, et ne put s'empêcher de penser à Ma Liang.
 
-« Ce Ma Liang a toujours été aussi timide qu'une souris et craint la mort plus que tout, mais il se trouve qu'il a la peau épaisse, insensible aux coups comme aux reproches. La jeune apprentie sœur Tong n'en pouvait plus de ses importunités et avait imaginé un moyen de l'envoyer sur le champ de bataille étranger pour s'en débarrasser. Si je ne l'avais pas pris en pitié et ne l'avais pas aidé à maintes reprises, il serait déjà mort. Au moins, il possède une conscience. Il y a quelques jours, il m'a offert une pilule censée aider à préserver la jeunesse... Je me demande si c'est vrai... »
+« Ce Ma Liang a toujours été aussi timide qu'une souris et craint la mort plus que tout, mais il se trouve qu'il a la peau épaisse, insensible aux coups comme aux reproches. La Junior sœur Tong n'en pouvait plus de ses importunités et avait imaginé un moyen de l'envoyer sur le champ de bataille étranger pour s'en débarrasser. Si je ne l'avais pas pris en pitié et ne l'avais pas aidé à maintes reprises, il serait déjà mort. Au moins, il possède une conscience. Il y a quelques jours, il m'a offert une pilule censée aider à préserver la jeunesse... Je me demande si c'est vrai... »
 
-Son cœur était empreint de désolation. Elle sombrait peu à peu dans des pensées délirantes. C'est alors qu'elle entendit soudainement le cri du frère aîné Yang à ses côtés: « Ma Liang! Vite, fuis! »
+Son cœur était empreint de désolation. Elle sombrait peu à peu dans des pensées délirantes. C'est alors qu'elle entendit soudainement le cri du Senior frère Yang à ses côtés: « Ma Liang! Vite, fuis! »
 
 Zhou Zihong sursauta et ouvrit les yeux. Elle vit un jeune homme fondre sur eux. Il était très beau, mais son regard laissait transparaître une pointe de froideur et sa poitrine était tachée de sang.
 
-« Jeune frère Ma, il semble que nous ne puissions échapper à ce désastre. Ah... » Le frère aîné Yang soupira. Il paraissait avoir une trentaine d'années et la tristesse se lisait sur son visage.
+« Junior frère Ma, il semble que nous ne puissions échapper à ce désastre. Ah... » Le Senior frère Yang soupira. Il paraissait avoir une trentaine d'années et la tristesse se lisait sur son visage.
 
 Wang Lin observa les trois individus sans dire un mot. À cet instant, les créatures qui les poursuivaient s'arrêtèrent net en apercevant Wang Lin, affichant des expressions d'hésitation.
 
@@ -28,13 +28,13 @@ Zhou Zihong resta pétrifiée devant cette scène. Elle ne comprenait pas pourqu
 
 Mais elle écarta rapidement cette conjecture. Les deux autres disciples du Sanctuaire du Dieu de la Guerre étaient tout aussi perplexes, mais le soulagement de survivre à un péril si imminent les frappa de plein fouet, et ils poussèrent un long soupir de soulagement.
 
-Le frère aîné Yang était le plus ancien d'entre eux. Après avoir jeté un regard inquiet autour de lui, encore tremblant, il déclara: « Jeune apprentie sœur, bien que nous ne sachions pas pourquoi ces créatures ne nous attaquent pas, rester ici n'est pas prudent. Nous devons rejoindre la matrice de transfert et partir sans tarder. »
+Le Senior frère Yang était le plus ancien d'entre eux. Après avoir jeté un regard inquiet autour de lui, encore tremblant, il déclara: « Junior sœur, bien que nous ne sachions pas pourquoi ces créatures ne nous attaquent pas, rester ici n'est pas prudent. Nous devons rejoindre la matrice de transfert et partir sans tarder. »
 
-Zhou Zihong frissonna et acquiesça, puis ajouta: « Jeune frère Ma, tu es le plus faible d'entre nous, alors ne laisse surtout rien de ces choses te toucher. Si elles t'atteignent, ton âme se dispersera aussitôt! »
+Zhou Zihong frissonna et acquiesça, puis ajouta: « Junior frère Ma, tu es le plus faible d'entre nous, alors ne laisse surtout rien de ces choses te toucher. Si elles t'atteignent, ton âme se dispersera aussitôt! »
 
 L'autre disciple du Sanctuaire du Dieu de la Guerre s'exclama avec impatience: « De quoi discutez-vous encore? Si vous ne bougez pas, j'y vais seul! » Sur ce, il s'élança et chargea rapidement vers l'avant. Wang Lin savait, grâce aux souvenirs de Ma Liang, que cet homme se nommait Lin Tao.
 
-Le frère aîné Yang partit également, refusant de rester sur place. Zhou Zihong hésita un instant avant de lancer: « Fais attention! », puis elle les suivit à son tour.
+Le Senior frère Yang partit également, refusant de rester sur place. Zhou Zihong hésita un instant avant de lancer: « Fais attention! », puis elle les suivit à son tour.
 
 Durant tout ce temps, Wang Lin n'avait pas encore eu l'occasion de parler, se contentant de les suivre sans se presser. La raison pour laquelle il avait sauvé ces trois-là, outre ses propres desseins, était qu'il savait par les souvenirs de Ma Liang que celui-ci éprouvait une immense gratitude envers Zhou Zihong. Puisqu'il avait pris possession du corps de Ma Liang, il lui semblait juste d'accomplir quelques tâches pour son compte.
 

@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2004 - Star of Disaster for the Prince
 slug: letoile-du-desastre-pour-le-prince
 ---
-« Quant à savoir si cette affaire est vraie, ce petit ne le sait pas. Cependant, avec la présence du prince à leurs côtés, cela signifie que l'empereur du Shi Antique a dû donner son accord, sinon le seigneur de la ville n'aurait pas ordonné le confinement de la cité », expliqua l'homme corpulent.
+« Quant à savoir si cette affaire est vraie, ce petit ne le sait pas. Cependant, avec la présence du prince à leurs côtés, cela signifie que l'empereur de l'Ancien Shi a dû donner son accord, sinon le seigneur de la ville n'aurait pas ordonné le confinement de la cité », expliqua l'homme corpulent.
 
 « Choisir une concubine? » Wang Lin fut surpris et ne s'attarda pas sur la question. Il pensa simplement qu'il était absurde que l'Empereur de l'Ancien Dao, le lieu même qu'il devait protéger, envoie des émissaires jusque dans les deux autres pays pour choisir une concubine.
 
@@ -30,7 +30,7 @@ Non seulement lui, mais les deux personnes derrière lui tournèrent la tête au
 
 Cependant, l'homme en armure dorée les ignora. Il observa Wang Lin avec confusion.
 
-« Ce membre du clan m'est très inconnu. Je suis Liang Yun, le seigneur de la ville de la Pierre Noire. Je me demande si ce membre du clan a besoin d'aide? » L'homme à l'armure dorée joignit les mains en signe de salut vers Wang Lin.
+« Ce membre du clan m'est très inconnu. Je suis Liang Yun, le seigneur de la ville de Hei Shi. Je me demande si ce membre du clan a besoin d'aide? » L'homme à l'armure dorée joignit les mains en signe de salut vers Wang Lin.
 
 « Je suis Kong Si », sourit l'homme d'âge mûr aux yeux démoniaques en joignant également les mains.
 

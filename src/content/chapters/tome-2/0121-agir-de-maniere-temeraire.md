@@ -22,7 +22,7 @@ Quant à la formation de ces champs de bataille et aux destinations de ces faill
 
 Chaque pays de rang 5 contrôle de nombreux pays de rang 4, et chaque pays de rang 4 en contrôle de nombreux de rang 3. Quant aux pays de rang 1 et 2, l'Union a instauré des règles strictes pour empêcher quiconque d'entraver leur croissance.
 
-Zhao est un pays de culture de rang 3 de la Planète Suzaku, contrôlé par le pays de rang 4 du Dragon Vert, lui-même soumis au pays de rang 5 du Clan Ju Mo.
+Zhao est un pays de culture de rang 3 de la Planète Suzaku, contrôlé par le pays de rang 4 Qing Long, lui-même soumis au pays de rang 5 du Clan Ju Mo.
 
 Chaque fois qu'une bataille de grande ampleur éclate dans un champ de bataille étranger, tous les cultivateurs de l'Âme Naissante de Zhao sont réquisitionnés pour combattre. Ils n'ont ni le droit de retarder leur départ, ni celui de résister. Autrefois, les cinq ancêtres de l'Âme Naissante de la Secte Heng Yue avaient été appelés. S'ils partaient, la Secte Heng Yue serait en sécurité, mais leur survie était incertaine. S'ils refusaient, non seulement la Secte Heng Yue serait anéantie, mais eux aussi ne pourraient y échapper.
 
@@ -82,7 +82,7 @@ Pour l'heure, son corps était dépourvu d'énergie spirituelle et il devait com
 
 Alors qu'il volait, Wang Lin s'arrêta brusquement et regarda vers le nord-ouest. Après une courte réflexion, il changea de cap. Peu de temps après, il vit trois faisceaux de lumière foncer vers lui, poursuivis par plus de dix âmes errantes.
 
-Zhou Zihong était une disciple du Sanctuaire du Dieu de la Guerre du pays de Huo Fen, pays de culture de rang 3. D'ordinaire très douce, elle affichait maintenant les lèvres pincées, les cheveux en désordre et le visage couvert de sueur, son énergie spirituelle étant totalement épuisée. Son visage était empreint de chagrin et d'indignation alors qu'elle regardait ses deux frères aînés, dont les visages reflétaient la peur tandis qu'ils fuyaient désespérément.
+Zhou Zihong était une disciple du Sanctuaire du Dieu de la Guerre du pays de Huo Fen, pays de culture de rang 3. D'ordinaire très douce, elle affichait maintenant les lèvres pincées, les cheveux en désordre et le visage couvert de sueur, son énergie spirituelle étant totalement épuisée. Son visage était empreint de chagrin et d'indignation alors qu'elle regardait ses deux Senior frères, dont les visages reflétaient la peur tandis qu'ils fuyaient désespérément.
 
 — Je crains que nous ne soyons les trois seuls survivants du Sanctuaire du Dieu de la Guerre... lâcha Zhou Zihong dans un rire amer.
 

@@ -12,11 +12,11 @@ Cette mer était la plus vaste du Continent Astral Immortel. Elle était agitée
 
 Cette mer constituait une barrière naturelle rendant périlleux tout voyage entre les terres des Célestes et celles des Anciens.
 
-Le continent du Nord, vaste région prise dans les glaces, bordait cette mer, et sa partie la plus septentrionale était le Continent Meng Froid. Ce dernier n'était pas très vaste et était presque entièrement recouvert de neige.
+Le continent du Nord, vaste région prise dans les glaces, bordait cette mer, et sa partie la plus septentrionale était le Continent Han Meng. Ce dernier n'était pas très vaste et était presque entièrement recouvert de neige.
 
 Les cultivateurs résidant sur ce continent étaient accoutumés à ce climat, et la plupart d'entre eux pratiquaient des méthodes de culture liées au froid. Les mortels y étaient rares, et plus on s'enfonçait vers le nord, plus leur présence se faisait rare.
 
-À l'extrémité septentrionale du continent s'étendait une mer immense. Vu d'en haut, le Continent Meng Froid ressemblait à un fragment de glace flottant à la lisière de l'océan. Bien que martelé jour et nuit par les flots, il ne fondait jamais.
+À l'extrémité septentrionale du continent s'étendait une mer immense. Vu d'en haut, le Continent Han Meng ressemblait à un fragment de glace flottant à la lisière de l'océan. Bien que martelé jour et nuit par les flots, il ne fondait jamais.
 
 On pouvait même voir parfois, dans les eaux qui bordaient ce continent, des couches de glace reformées dériver au gré des vagues.
 

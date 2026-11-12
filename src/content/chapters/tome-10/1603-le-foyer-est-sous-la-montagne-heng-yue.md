@@ -90,9 +90,9 @@ En voyant le flocon de saule flotter devant lui, Wang Lin sourit soudainement.
 
 Alors qu'il riait, une autre embarcation passa à proximité. Au moment où elle longea leur sillage, deux voix douces et séduisantes s'élevèrent:
 
-« Senior Sister, ces flocons de saule sont bien agaçants. Ils sont désagréables lorsqu'elles se posent sur vous. »
+« Senior sœur, ces flocons de saule sont bien agaçants. Ils sont désagréables lorsqu'elles se posent sur vous. »
 
-« Si tu n'y prêtes pas attention, elles n'existeront pas. Junior Sister, ton cœur n'est pas calme. »
+« Si tu n'y prêtes pas attention, elles n'existeront pas. Junior sœur, ton cœur n'est pas calme. »
 
 En entendant ces voix, il fut saisi par la surprise. Elles lui semblaient étrangement familières, comme s'il les avait déjà entendues. Il se redressa et regarda vers l'autre bateau. Il aperçut les silhouettes de deux femmes.
 
@@ -118,7 +118,7 @@ Adossé à la proue, buvant son vin, Wang Lin regarda l'eau et vit son propre vi
 
 Le bateau des deux femmes se rapprocha progressivement jusqu'à dépasser celui de Wang Lin. C'était comme deux trajectoires de vie distinctes qui poursuivaient leurs chemins respectifs.
 
-« Tiens, Senior Sister, je crois que ce vieil homme nous regardait. » Xu Fei jeta un regard vers le dos de Wang Lin.
+« Tiens, Senior sœur, je crois que ce vieil homme nous regardait. » Xu Fei jeta un regard vers le dos de Wang Lin.
 
 Le bateau passa sous un pont de pierre.
 

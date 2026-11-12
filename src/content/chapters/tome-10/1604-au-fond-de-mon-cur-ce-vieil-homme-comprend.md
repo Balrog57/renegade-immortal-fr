@@ -1,6 +1,6 @@
 ---
 n: 1604
-title: Au fond de mon cœur, ce vieil homme comprend
+title: Le vieux père ferme les yeux dans ses bras
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1604 - In My Heart, This Old Man Understands
@@ -10,7 +10,7 @@ La calèche emporta le maître et son serviteur, tous deux âgés, ainsi que que
 
 Ce n'est qu'au crépuscule que les deux femmes du bateau débarquèrent et marchèrent dans les rues de Su. Leurs apparences changèrent progressivement pour devenir très ordinaires.
 
-« Senior Sister, tu as grandi ici. À part le bateau, y a-t-il d'autres endroits divertissants? Nous avons pratiqué la culture en isolement pendant si longtemps et nous sommes enfin sorties, il faut bien s'amuser un peu. »
+« Senior sœur, tu as grandi ici. À part le bateau, y a-t-il d'autres endroits divertissants? Nous avons pratiqué la culture en isolement pendant si longtemps et nous sommes enfin sorties, il faut bien s'amuser un peu. »
 
 « Toi, je vais rendre visite à mes parents, et tu dois me suivre. Il n'y a rien d'intéressant dans la ville de Su. Demain, j'irai voir le Grand Érudit Su Dao. C'était un ami de la famille autrefois. Une fois sur place, tu ne devras pas manquer de respect. Bien qu'il soit mortel, même le Maître est très poli envers lui. »
 
@@ -20,11 +20,11 @@ Alors que les deux femmes discutaient, un érudit qui passait par là entendit l
 
 Les deux femmes furent stupéfaites. L'érudit secoua la tête et partit avec un sourire.
 
-« Wang Lin... Wang Lin... Ah, Senior Sister, je me souviens! Le vieil homme qui nous regardait sur le bateau... bien qu'il soit âgé, c'était ce jeune érudit, Wang Lin! »
+« Wang Lin... Wang Lin... Ah, Senior sœur, je me souviens! Le vieil homme qui nous regardait sur le bateau... bien qu'il soit âgé, c'était ce jeune érudit, Wang Lin! »
 
 Zhou Rui s'arrêta net et se retourna vers la rivière qui s'estompait dans le crépuscule. Devant elle, l'image de ce jeune homme rougissant apparut.
 
-« Senior Sister, Senior Sister, qu'arrive-t-il? » Xu Fei regarda Zhou Rui comme si elle avait compris quelque chose.
+« Senior sœur, Senior sœur, qu'arrive-t-il? » Xu Fei regarda Zhou Rui comme si elle avait compris quelque chose.
 
 Zhou Rui réfléchit silencieusement un instant avant de secouer doucement la tête. Elle reprit sa marche avec Xu Fei, mais après seulement dix pas, elle serra les dents, comme si elle venait de prendre une décision irrévocable.
 

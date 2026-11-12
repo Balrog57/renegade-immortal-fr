@@ -8,7 +8,7 @@ slug: demon
 ---
 Dès que les paroles de Wang Lin furent prononcées, les expressions du groupe de Zhou Zihong changèrent soudainement. Celle de Lin Tao, en particulier, devint livide. Il commença à reculer, mais l'âme errante bondit immédiatement vers lui dès qu'elle entendit l'ordre de Wang Lin.
 
-Zhou Zihong se mordit la lèvre inférieure. Elle voulut arrêter Wang Lin, mais aucun son ne sortit de sa bouche. Le frère aîné Yang poussa un soupir et une expression complexe traversa son visage.
+Zhou Zihong se mordit la lèvre inférieure. Elle voulut arrêter Wang Lin, mais aucun son ne sortit de sa bouche. Le Senior frère Yang poussa un soupir et une expression complexe traversa son visage.
 
 Lin Tao bougea aussi vite qu'il le put, non pas pour s'enfuir, mais pour esquiver de gauche à droite dans la zone, tentant désespérément de rester à distance de l'âme errante. Il savait que, même en s'enfuyant, il n'était pas certain d'aller plus vite que l'âme errante, et que, même s'il avait la chance de lui échapper, vu l'immensité du champ de bataille étranger, il ne pourrait jamais regagner vivant une matrice de transfert.
 
@@ -20,7 +20,7 @@ Le front de Lin Tao était couvert de sueur froide, mais il n'osa pas l'essuyer.
 
 Une fois la goutte de sang apparue, le corps de Lin Tao parut bien plus affaibli. Il regarda nerveusement Wang Lin.
 
-Wang Lin agita la main. Après avoir capturé le sang, son regard se posa sur le frère aîné Yang.
+Wang Lin agita la main. Après avoir capturé le sang, son regard se posa sur le Senior frère Yang.
 
 En voyant Wang Lin accepter la goutte de sang, Lin Tao poussa un long soupir de soulagement. Sa vie était sauve. Il était très intelligent et fut sans doute le premier à comprendre que quelque chose n'allait pas: il avait réalisé que Ma Liang était déjà mort et qu'un autre l'avait possédé, mais il n'avait pas osé le mentionner aux deux autres.
 
@@ -36,7 +36,7 @@ L'homme de nom de famille Yang eut un sourire amer. Sans un mot, il frappa son p
 
 Il n'avait pas été plus lent que Lin Tao pour spéculer sur le fait que les comportements étranges de Ma Liang étaient dus à une possession. Il était resté extrêmement nerveux durant tout ce temps. Puisque tout était désormais découvert, il évalua rapidement ses options et décida de devenir l'esclave de Wang Lin. Face à la vie ou à la mort, qu'importait la fierté? De plus, cet homme était manifestement un cultivateur d'un pays de culture supérieure, assez puissant pour que ces créatures étranges le craignent. S'il le suivait, il trouverait peut-être plus tard une belle opportunité.
 
-Après avoir offert sa goutte de sang, il regarda sa jeune apprentie sœur Zhou Zihong d'un air complexe et tenta de la raisonner: « Jeune apprentie sœur, tu... »
+Après avoir offert sa goutte de sang, il regarda sa Junior sœur Zhou Zihong d'un air complexe et tenta de la raisonner: « Junior sœur, tu... »
 
 Zhou Zihong lui fit signe de se taire. Elle fixa Wang Lin en se mordant la lèvre inférieure et demanda: « Senior... quand vous avez possédé ce corps, Ma Liang était-il mort ou vivant? » Son regard devint soudainement calme alors qu'elle soutenait celui de Wang Lin.
 
