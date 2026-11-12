@@ -3,7 +3,7 @@ name: Wang Lin
 title: Wang Lin
 type: personnage
 image: /renegade-immortal-fr/wiki/images/Wang_Lin_Fandom.webp
-categories: ["Personnages", "Homme", "Céleste", "Vivant", "Clan Wang", "Secte Heng Yue", "Pays de Zhao", "Secte Cloud Sky", "Planète Suzaku", "Secte Heavenly Fate", "Planète Tian Yun", "Système stellaire Allheaven", "Système stellaire Alliance", "Système stellaire Cloud Sea", "Royaume Scellé", "Continent Astral Immortel"]
+categories: ["Personnages", "Homme", "Céleste", "Vivant", "Clan Wang", "Secte Heng Yue", "Pays de Zhao", "Secte Cloud Sky", "Planète Suzaku", "Secte Heavenly Fate", "Planète Tian Yun", "Système stellaire Allheaven", "Système stellaire Alliance", "Système stellaire Cloud Sea", "Royaume Scellé", "Continent Xian Gang"]
 url: "https://xian-ni.fandom.com/wiki/Wang_Lin"
 sections: ["{\"heading\":\"Aperçu\",\"body\":\"Wang Lin est le protagoniste principal de Renegade Immortal. Né dans un corps faible, il débute comme un jeune homme ordinaire avant de devenir l'un des plus grands Immortels du cosmos. Ses cheveux, noirs à l'origine, blanchissent après 7 ans d'épreuve sur la Montagne Jin de la Planète Suzaku, puis le corps de son Dieu Antique devient rouge à cause de son intention meurtrière, avant de redevenir définitivement blanc après le second Éveil de la Marque du Vermillon. Cette allure blanche témoigne d'une vie marquée par la mort, la tragédie et la perte.\"}", "{\"heading\":\"Personnalité\",\"body\":\"Son but initial est de devenir un Immortel pour ne pas décevoir ses parents, son Quatrième Oncle et son village. Bien qu'intelligent, il n'aime pas tuer. Mais après la mort de ses parents et de sa famille, Wang Lin devient impitoyable. Sa naïveté causa la perte du Clan Wang: en épargnant des mortels qui virent son visage, il permit à Teng Huayuan de localiser sa ville natale. Après la destruction de son clan, il jure de se venger et devient un tueur froid et sans pitié. Malgré sa nature impitoyable, il reste un homme de parole, ne cherchant jamais les ennuis et ne ripostant que lorsqu'il est menacé. Son amour pour Li Muwan prouve qu'il peut encore s'attacher.\"}", "{\"heading\":\"Background\",\"body\":\"Né mortel sans rien de spécial. Avant la sélection de la Secte Heng Yue, son rêve était de réussir l'examen impérial et d'entrer à la cour pour rendre ses parents fiers. Il devient un puissant cultivateur pour sauver sa femme, Li Muwan.\"}"]
 ---
@@ -13,11 +13,11 @@ sections: ["{\"heading\":\"Aperçu\",\"body\":\"Wang Lin est le protagoniste pri
 ### Fiche signalétique
 
 - **Pinyin:** Wáng Lín
-| **Alias:** Xu Mu, Tie Zhu, Xiao Lin Zi, Ma Liang, Zeng Niu, Ceng Niu, Qian Mu, Na Du, Lyu Zihao, Maître Démon, Grand Diable, Démon Daozi, Wang Pockmark, Fléau, Ancêtre Wang, Céleste Suprême, Dieu Antique Wang Lin, Sixième Génération Empereur Divin du Vermillon, Seigneur du Royaume Scellé, Grand Érudit, Empyrée aux Cheveux Blancs, Paragon Wang, Dixième Soleil
+| **Alias:** Xu Mu, Tie Zhu, Xiao Lin Zi, Ma Liang, Zeng Niu, Zeng Niu, Qian Mu, Na Du, Lyu Zihao, Maître Démon, Grand Diable, Démon Daozi, Wang Pockmark, Fléau, Ancêtre Wang, Céleste Suprême, Dieu Antique Wang Lin, Sixième Génération Empereur Divin du Vermillon, Seigneur du Royaume Scellé, Grand Érudit, Empyrée aux Cheveux Blancs, Paragon Wang, Dixième Soleil
 - **Statut:** Vivant
 - **Âge:** 15 ans (début) · 3000+ ans (fin)
 - **Genre:** Homme
-- **Espèce:** Humain · Dieu Antique · Ordre Antique · Céleste Antique
+- **Espèce:** Humain · Dieu Antique · Dao Gu · Céleste Antique
 - **Cheveux:** Noirs (corps original) → Blancs (après l'héritage de Tu Si) → Blancs définitifs (second Éveil Vermillon)
 - **Yeux:** Bleus (corps original) · Rouges (corps Ma Liang, Dieu Antique 2 étoiles+)
 - **Cultivation:** 4e Marche Piétinement des Cieux (fin du roman) · Summer Immortal 9e Marche (AWWP)
@@ -107,7 +107,7 @@ Né mortel sans rien de spécial. Avant l'événement de sélection des disciple
 
 **Amis:** Situ Nan · Qing Shui · Tuo Sen (ancien ennemi) · Zhou Wutai
 
-**Maîtres:** Tu Si (héritage du savoir) · Situ Nan · Du Tian · Tian Yunzi (ancien) · Bai Fan (héritage) · Lu Yun · Qing Lin · Su Dao (érudit) · Xuan Luo (abdiqué)
+**Maîtres:** Tu Si (héritage du savoir) · Situ Nan · Dun Tian · Tian Yunzi (ancien) · Bai Fan (héritage) · Lu Yun · Qing Lin · Su Dao (érudit) · Xuan Luo (abdiqué)
 
 **Disciples:** Thirteen · Xie Qing · Xi Zi Feng
 

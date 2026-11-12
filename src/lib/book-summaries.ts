@@ -118,11 +118,11 @@ export const BOOK_SUMMARIES: BookSummary[] = [
   {
     book: 12,
     title: 'Tenth Sun of the Immortal Astral Continent',
-    titleFr: 'Le Dixième Soleil du Continent Astral Immortel',
+    titleFr: 'Le Dixième Soleil du Continent Xian Gang',
     titleCn: 'Le dixième soleil céleste',
     rangeStart: 1794,
     rangeEnd: 2002,
-    summary: "Le Continent Astral Immortel est en feu. Wang Lin, devenu l'un des Empereurs Divins les plus puissants de son époque, affronte le Clan Céleste (Chosen Immortal Clan) dans une guerre d'une ampleur cosmique. Autour de lui gravitent des figures légendaires — Qing Lin, Zhou Yi, Bei Lou, l'Ancien Dieux Tu Si — dans une danse mortelle où chaque pas peut être le dernier. La lumière du dixième soleil s'élève, et avec elle, l'espoir d'un nouvel ordre. Ce tome est le plus long de l'œuvre (209 chapitres) et contient certaines des batailles les plus emblématiques.",
+    summary: "Le Continent Xian Gang est en feu. Wang Lin, devenu l'un des Empereurs Divins les plus puissants de son époque, affronte le Clan Céleste (Chosen Immortal Clan) dans une guerre d'une ampleur cosmique. Autour de lui gravitent des figures légendaires — Qing Lin, Zhou Yi, Bei Lou, l'Ancien Dieux Tu Si — dans une danse mortelle où chaque pas peut être le dernier. La lumière du dixième soleil s'élève, et avec elle, l'espoir d'un nouvel ordre. Ce tome est le plus long de l'œuvre (209 chapitres) et contient certaines des batailles les plus emblématiques.",
   },
   {
     book: 13,

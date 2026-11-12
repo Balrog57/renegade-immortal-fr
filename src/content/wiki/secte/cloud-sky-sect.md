@@ -3,7 +3,7 @@ name: Secte Tian Dao des Nuages
 title: Secte Tian Dao des Nuages
 type: secte
 image: /renegade-immortal-fr/wiki/images/Cloud Sky Sect.webp
-categories: ["Sectes", "Organisations", "Planète Suzaku", "Système Stellaire du Vide Brillant", "Royaume Scellé", "Monde de la Grotte de Wang Lin"]
+categories: ["Sectes", "Organisations", "Planète Suzaku", "Système Stellaire de Kun Xu", "Royaume Scellé", "Monde de la Grotte de Wang Lin"]
 url: "https://xian-ni.fandom.com/wiki/Cloud_Sky_Sect"
 sections: ["{\"heading\":\"Histoire\",\"body\":\"La Secte Tian Dao des Nuages (Cloud Sky Sect) était située dans un pays de cultivation de rang 3, nommé Chu. C'était une secte très mystérieuse, bien connue pour son alchimie et qui recrutait rarement des disciples.\\n\\nAprès que **Wang Lin** soit revenu à Chu, il décida de rejoindre la Secte Tian Dao des Nuages pour apprendre l'alchimie et atteindre le stade de l'**Âme Naissante** . C'est là qu'il trouva son grand amour, **Li Muwan**. Après que les membres de la secte tentèrent de se retourner contre lui et Li Muwan, il les piétina et prit leur sang d'âme (soul blood). Cela fit de lui le nouveau chef de secte. Li Muwan dirigea la secte en son absence.\\n\\nÀ son retour, il remarqua que l'espérance de vie de Li Muwan touchait presque à sa fin et décida d'essayer de la sauver. Au cours de cette épreuve, il recruta deux personnes de la Secte Tian Dao des Nuages qui le suivirent pour atteindre le stade de la **Formation de l'Âme** (Formation de l'Âme).\\n\\nAprès l'arc de Suzaku, la Secte Tian Dao des Nuages utilisa toute sa fondation et l'aide de cultivateurs alliés pour créer une statue de **Wang Lin** en reconnaissance de tout ce qu'il avait fait pour la planète Suzaku. La Secte Tian Dao des Nuages prit pratiquement le contrôle du pays de Chu et fut élevée au rang de pays de cultivation de rang 4 grâce à l'un des disciples qui atteignit finalement la Formation de l'Âme.\\n\\nLa Secte Tian Dao des Nuages devint si puissante que même les pays de cultivation de rang 5 devaient lui témoigner du respect. Cela était principalement dû à la statue de Wang Lin et aux accomplissements qu'il avait réalisés.\\n\\nAprès que Wang Lin s'éleva comme le nouveau Seigneur du Royaume Scellé (Lord of the Sealed Realm), Suzaku fut remodelée par les puissants cultivateurs du royaume qui souhaitaient l'honorer. Seules neuf sectes survécurent à cette période, les autres étant assimilées ou anéanties. La Secte Tian Dao des Nuages est l'une de ces neuf sectes.\"}"]
 ---
@@ -22,7 +22,7 @@ Après l'arc de Suzaku, la secte consacra toute sa fondation à ériger une stat
 - **Spécialité:** Alchimie
 - **Chef de secte:** Wang Lin (après coup de force)
 - **Personnalité clé:** Li Muwan
-- **Système stellaire:** Système Stellaire du Vide Brillant (Brilliant Void Star System)
+- **Système stellaire:** Système Stellaire de Kun Xu (Brilliant Void Star System)
 - **Monde:** Monde de la Grotte de Wang Lin
 - **Royaume:** Royaume Scellé
 - **Statut:** L'une des neuf sectes survivantes après le remodelage de Suzaku
