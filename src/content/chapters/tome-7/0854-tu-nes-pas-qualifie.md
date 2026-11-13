@@ -96,7 +96,7 @@ L'expression de Qing Shui demeurait indifférente alors qu'il marchait vers Xue 
 
 L'œil droit de Qing Shui brilla lorsqu'il leva la main droite pour pointer vers le haut. Un vent noir, plusieurs fois plus puissant que celui de Wang Lin, apparut immédiatement. Ce vent était d'une densité dépassant l'imagination et ses rugissements résonnaient parmi les étoiles. En un clin d'œil, six dragons noirs se formèrent à partir de ce vent.
 
-Ces six dragons noirs mesuraient chacun plus de 33 kilomètres de long et semblaient occuper le monde entier. Ils générèrent une pression colossale qui repoussa les nuages de Tribulation Céleste. Cependant, d'autres nuages se rassemblèrent comme s'ils se concentraient pour l'attaque la plus puissante qui soit!
+Ces six dragons noirs mesuraient chacun plus de cent mille pieds de long et semblaient occuper le monde entier. Ils générèrent une pression colossale qui repoussa les nuages de Tribulation Céleste. Cependant, d'autres nuages se rassemblèrent comme s'ils se concentraient pour l'attaque la plus puissante qui soit!
 
 Un seul regard suffisait à terrifier n'importe qui!
 

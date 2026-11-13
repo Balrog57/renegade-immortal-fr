@@ -38,7 +38,7 @@ Quant à Xu Liguo, il n'en laissait aucune trace; il était sans doute parti che
 
 Alors que le moustique se rapprochait, Wang Lin esquissa un sourire et tapota sa tête. L'insecte afficha une expression de pur contentement avant de s'envoler à nouveau.
 
-Wang Lin avança dans les hautes herbes et, un instant plus tard, atteignit une zone dégagée d'environ trois cent trente mètres de large. L'herbe y avait été arrachée pour laisser place à des sillons qui se croisaient, formant un motif complexe, tel une formation.
+Wang Lin avança dans les hautes herbes et, un instant plus tard, atteignit une zone dégagée d'environ mille pieds de large. L'herbe y avait été arrachée pour laisser place à des sillons qui se croisaient, formant un motif complexe, tel une formation.
 
 Sans même examiner les sillons au sol, Wang Lin s'avança et s'assit au centre de la formation.
 

@@ -136,7 +136,7 @@ C'est comme si un éclair avait déchiré le ciel lorsqu'une gigantesque épée 
 
 L'illusion d'un immense bélier violet émana du symbole, libérant une aura violente qui fusionna avec l'arme, renforçant encore davantage son intention d'épée.
 
-« Tranchant Final du Bélier! » Alors que l'homme criait, l'énergie spirituelle céleste de son corps jaillit. Il abattit immédiatement sa main droite tandis que la grande épée dans les airs s'élançait. Elle s'abattit sur Wang Lin avec une quantité inimaginable d'énergie d'épée.
+« Tranchant d'Épée Mo Yang! » Alors que l'homme criait, l'énergie spirituelle céleste de son corps jaillit. Il abattit immédiatement sa main droite tandis que la grande épée dans les airs s'élançait. Elle s'abattit sur Wang Lin avec une quantité inimaginable d'énergie d'épée.
 
 L'expression de Mo Lihai changea et il commença aussitôt à reculer. Ses subordonnés firent de même, et en un clin d'œil, ils s'étaient éloignés de plusieurs centaines de mètres.
 
@@ -158,7 +158,7 @@ Bien qu'il ne s'agisse que d'un esprit d'épée et donc d'une illusion, tous les
 
 L'âme du bélier poussa un cri déchirant alors que son essence était détruite par l'intention de meurtre. Les particules de vie issues du bélier effondré retournèrent rapidement vers la grande épée, et à cet instant précis, l'arme cessa de lutter.
 
-Ce que Wang Lin venait de faire ressemblait étrangement à ce que Tian Yunzi avait accompli en faisant s'effondrer le Char de Guerre Divin d'un simple pointage du doigt!
+Ce que Wang Lin venait de faire ressemblait étrangement à ce que Tian Yunzi avait accompli en faisant s'effondrer l'âme de la bête du Char de Guerre Divin d'un simple pointage du doigt!
 
 Mo Lihai ne put s'empêcher d'aspirer une bouffée d'air froid devant un tel spectacle. Son expression devint complexe en observant Wang Lin.
 

@@ -130,4 +130,4 @@ Wang Lin possédait encore quelques jades célestes, mais il ignorait s'ils suff
 
 « Le premier stade de culture... » Les yeux de Wang Lin brillèrent intensément.
 
-« Lorsque j'ai atteint le stade Ascendant, l'Ancien Démon Bei Luo a dit que les cultivateurs défiant le ciel attireraient la Tribulation Divine. Je me demande si la Tribulation Divine ne reviendra pas lorsque je franchirai la première étape pour entrer dans l'Yin Illusoire! » Wang Lin leva les yeux vers le ciel et son regard devint glacial.
+« Lorsque j'ai atteint le stade Ascendant, l'Ancien Démon Bei Luo a dit que les cultivateurs défiant le ciel attireraient la Tribulation Céleste. Je me demande si la Tribulation Céleste ne reviendra pas lorsque je franchirai la première étape pour entrer dans l'Yin Illusoire! » Wang Lin leva les yeux vers le ciel et son regard devint glacial.

@@ -22,7 +22,7 @@ Sous les yeux de Wang Lin, la lumière noire se condensa pour former sept runes 
 
 En contemplant ces sept runes au cœur de la lueur sombre, Wang Lin se remémora les paroles laissées par le créateur du Char de Guerre Divin:
 
-« Le troisième Char de Guerre Divin est d'une puissance extrême, dépassant toutes mes espérances. Si son utilisateur parvient à en exploiter toute la force, il pourra aisément tuer un dieu céleste... Cependant, il demeure incomplet. Il requiert trois matériaux supplémentaires: l'Aile du Mystère Mystérieux, le Bois de Culture de l'Inframonde et l'Âme du Papillon Céleste!
+« Le troisième Char de Guerre Divin est d'une puissance extrême, dépassant toutes mes espérances. Si son utilisateur parvient à en exploiter toute la force, il pourra aisément tuer un dieu céleste... Cependant, il demeure incomplet. Il requiert trois matériaux supplémentaires: l'Aile du Mystère Mystérieux, le Bois à Motifs de l'Inframonde et l'Âme du Papillon Céleste!
 
 Je regrette de ne pas avoir pu trouver ces trois éléments. Puisse mon successeur les dénicher et apaiser mes regrets! Pour que le troisième char reconnaisse son maître, vous devez fusionner avec les sept runes et les raffiner pour en faire votre trésor lié à la vie. Ce n'est qu'à cette condition que sa véritable puissance sera libérée. Autrement, même en fusionnant avec les runes, vous ne pourrez jamais l'utiliser pleinement! Successeur, choisis toi-même; choisis avec prudence et discernement... »
 

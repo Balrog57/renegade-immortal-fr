@@ -32,7 +32,7 @@ L'homme d'âge moyen eut un petit rire: « D'accord. Je veux voir ce qui rend ce
 
 Le Vice-Commandant Xuan ricana intérieurement: « Si vous aviez été gravement blessé par lui, vous seriez tout aussi confiant! »
 
-À cet instant précis, un homme sortit rapidement de la rangée des généraux démons. Il portait une armure de couleur terre et, bien qu'il semblât immobile, il apparut soudainement à environ trois cent trente mètres de Wang Lin.
+À cet instant précis, un homme sortit rapidement de la rangée des généraux démons. Il portait une armure de couleur terre et, bien qu'il semblât immobile, il apparut soudainement à environ mille pieds de Wang Lin.
 
 « Merci à mes collègues pour leur bienveillance: personne ne viendra me disputer le rôle de challenger! » Sa voix résonna dans l'air, empreinte d'une fierté et d'une confiance insolentes.
 
@@ -60,9 +60,9 @@ Des ondes de choc se propagèrent à partir des pieds de Wang Lin comme autant d
 
 À cet instant, la terre sur laquelle Wang Lin avait posé le pied sembla se transformer en magma infernal. Sous la force de son pas, le sol vola en éclats et d'innombrables colonnes de lave jaillirent vers les cieux, tels des glaives rouges transperçant l'azur.
 
-Ao Di fut expulsé du sol à seize mètres et demi de Wang Lin, les yeux écarquillés par l'incrédulité. Cette technique d'évasion terrestre était utilisée en symbiose avec sa bête démoniaque liée à sa vie; même si son ennemi avait utilisé un sort pour faire s'effondrer le terrain, il n'aurait pas dû être aussi facilement débusqué. En réalité, il aurait dû pouvoir changer de stratégie et attaquer par le flanc au moment de l'impact.
+Ao Di fut expulsé du sol à cinquante pieds de Wang Lin, les yeux écarquillés par l'incrédulité. Cette technique d'évasion terrestre était utilisée en symbiose avec sa bête démoniaque liée à sa vie; même si son ennemi avait utilisé un sort pour faire s'effondrer le terrain, il n'aurait pas dû être aussi facilement débusqué. En réalité, il aurait dû pouvoir changer de stratégie et attaquer par le flanc au moment de l'impact.
 
-De plus, la chose la plus cruciale était que cette place de trente-trois kilomètres de côté était saturée d'innombrables restrictions; faire s'effondrer le sol ici était au moins dix fois plus difficile qu'à l'extérieur! Il se déplaçait avec une prudence extrême en utilisant son art d'évasion, étudiant attentivement la meilleure trajectoire pendant que Shi Xiao combattait.
+De plus, la chose la plus cruciale était que cette place de cent mille pieds de côté était saturée d'innombrables restrictions; faire s'effondrer le sol ici était au moins dix fois plus difficile qu'à l'extérieur! Il se déplaçait avec une prudence extrême en utilisant son art d'évasion, étudiant attentivement la meilleure trajectoire pendant que Shi Xiao combattait.
 
 Mais il n'eut pas le temps de réfléchir. Alors qu'il flottait dans les airs, le regard de Wang Lin lui tomba dessus comme une lame acérée traversant le vent et le sable. En croisant ce regard, son cuir chevelu se glaça soudainement et un pressentiment funeste l'envahit!
 

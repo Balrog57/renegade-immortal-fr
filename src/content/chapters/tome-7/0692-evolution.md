@@ -58,7 +58,7 @@ Après s'être intégré à l'immensité de la mer, à la férocité de la monta
 
 Bien qu'il fût toujours mortel, son âme embrassait le monde!
 
-À leur retour, la dernière montagne qu'ils franchirent fut le mont Qilian, près du village de la Lune Déchue.
+À leur retour, la dernière montagne qu'ils franchirent fut le mont Qilian, près du village Luo Yue.
 
 La nature enfantine avait totalement disparu du visage de Wang Ping, âgé de vingt-sept ans. À la place, ses yeux étaient empreints de détermination. Durant ces huit années de voyage, les traces de sa nature démoniaque s'étaient progressivement évanouies, remplacées par une beauté absolue.
 

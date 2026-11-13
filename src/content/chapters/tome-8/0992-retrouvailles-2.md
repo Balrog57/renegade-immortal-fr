@@ -26,7 +26,7 @@ Les cultivateurs de son niveau voient la plupart des choses avec détachement. P
 
 Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. Les yeux du Maître Fu Fengzi s'illuminèrent et il renonça à soigner ses propres blessures. Alors que Situ Nan se trouvait à moins de cinq kilomètres du palais de Wang Lin, le Maître Fu Fengzi apparut devant lui.
 
-L'expression du Maître Fu Fengzi était calme lorsqu'il dit lentement: « Confrère cultivateur, puisque vous avez déjà pris les personnes que vous convoitez, le mieux serait de partir! »
+L'expression du Maître Fu Fengzi était calme lorsqu'il dit lentement: « Daoïste, puisque vous avez déjà pris les personnes que vous convoitez, le mieux serait de partir! »
 
 Les yeux de Situ Nan se plissèrent, mais son expression était empreinte d'impatience et il cria: « Si tu n'étais pas blessé, tu serais à peine à la hauteur, mais en l'état actuel, tu n'es absolument pas qualifié pour me barrer la route! » Tout en parlant, Situ Nan leva sa main droite et pointa le doigt sans hésiter.
 

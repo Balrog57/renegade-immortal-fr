@@ -34,7 +34,7 @@ Cela pouvait être comparé au tonnerre. Ce fracas puissant était le résultat 
 
 Les cheveux blancs de Maître Yan Leizi flottaient au vent alors qu'il hurlait: « Daoïstes, aidez-moi! »
 
-Les yeux des vieux monstres installés sur les tapis de prière brillèrent intensément, y compris ceux du Dieu Sanguin. Ils s'envolèrent tous dans les airs et s'assirent avant de déployer leurs divers sorts. Ces sortilèges furent projetés dans le vortex, multipliant sa puissance par plusieurs fois.
+Les yeux des vieux monstres installés sur les tapis de prière brillèrent intensément, y compris ceux du Xue Shenzi. Ils s'envolèrent tous dans les airs et s'assirent avant de déployer leurs divers sorts. Ces sortilèges furent projetés dans le vortex, multipliant sa puissance par plusieurs fois.
 
 Les bruits d'éclatement devinrent encore plus violents et la force de rotation atteignit son paroxysme. Cette force agissait comme une alène acérée qui s'acharnait sur le vide, tentant désespérément de le percer!
 
@@ -48,7 +48,7 @@ Les vieux monstres environnants formèrent tous des sceaux. Les yeux de Lie Yunz
 
 Le corps de Lie Yunzi trembla, son visage pâlit et il fut contraint de reculer. L'ancêtre de la famille Shengong s'avança à son tour. Il frappa son front et un petit drapeau s'en échappa. Dans un éclat de lumière, l'objet vola vers le vortex.
 
-Le bruit d'un miroir se brisant résonna une nouvelle fois. Le Dieu Sanguin, enveloppé d'une lueur sanglante, se précipita dans le vortex, son poing en avant. Ce coup de poing dégageait une lueur rouge éblouissante et perça les profondeurs du vortex.
+Le bruit d'un miroir se brisant résonna une nouvelle fois. Le Xue Shenzi, enveloppé d'une lueur sanglante, se précipita dans le vortex, son poing en avant. Ce coup de poing dégageait une lueur rouge éblouissante et perça les profondeurs du vortex.
 
 Le vieil homme de la famille Xiang et l'homme nommé Gongsun firent un pas en avant, l'un après l'autre. Puis, divers vieux monstres lancèrent leurs attaques. Pendant un long moment, le vortex commença à s'étendre davantage, sous une pluie ininterrompue d'explosions!
 
@@ -102,7 +102,7 @@ L'apparition de cette silhouette fut d'une étrangeté absolue; c'était comme s
 
 Ses pupilles se contractèrent brusquement. Une lueur de froideur passa dans les yeux de Qing Shui.
 
-La silhouette floue qui venait d'apparaître était la personne qui avait interrompu le combat entre Qing Shui et le Dieu Sanguin!
+La silhouette floue qui venait d'apparaître était la personne qui avait interrompu le combat entre Qing Shui et le Xue Shenzi!
 
 Elle apparut d'une manière mystérieuse et pointa impitoyablement du doigt la main géante. Une puissante vague d'énergie originelle jaillit. En voyant cela, Wang Lin fut saisi par une terreur indicible!
 

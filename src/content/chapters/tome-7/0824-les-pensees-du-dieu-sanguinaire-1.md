@@ -1,6 +1,6 @@
 ---
 n: 824
-title: Les Pensées du Dieu Sanguinaire (1)
+title: Les Pensées de Xue Shenzi (1)
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 824 - Blood Gods Thoughts (1)

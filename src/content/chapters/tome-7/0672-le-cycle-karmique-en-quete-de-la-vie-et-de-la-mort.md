@@ -30,7 +30,7 @@ Après avoir récupéré ces objets, Wang Lin se retourna et disparut. Il ne lai
 
 Après le départ de Wang Lin, les trois hommes restèrent plongés dans une réflexion silencieuse. Sun Xi, ayant d'autres projets en tête, était naturellement le plus détendu. Il sourit en joignant les mains: « Chers Daoïstes, j'ai encore des affaires importantes à régler, je vais donc prendre congé. »
 
-L'homme d'âge mûr soupira également et dit: « Je dois retourner chez moi pour préparer des jades célestes, au cas où le compagnon Xu en aurait besoin. »
+L'homme d'âge mûr soupira également et dit: « Je dois retourner chez moi pour préparer des jades célestes, au cas où le Daoïste Xu en aurait besoin. »
 
 Les deux s'élancèrent vers le nord et le sud sous forme d'arcs-en-ciel. L'ancêtre de la famille Ran resta seul, réfléchissant longuement dans le silence. Puis, poussant un profond soupir, il regarda au loin et murmura: « Peu importe. Se ruiner pour éviter une catastrophe... La question d'il y a quatre ans sera portée par ce Xu Mu. S'il ne meurt pas, nous serons hors de danger. Bien que cet homme ne semble pas être du genre à rompre sa promesse, je dois tout de même surveiller secrètement qu'il ne quitte pas la planète Ran Yun. »
 

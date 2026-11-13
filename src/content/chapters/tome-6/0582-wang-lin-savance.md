@@ -68,7 +68,7 @@ Sa présence provoqua l'exclamation de la foule!
 
 « Je pensais que l'adversaire de Shi Xiao serait Mo Lihai. Il y a trois cents ans, Mo Lihai lui avait infligé sa première cicatrice. C'était l'insulte la plus profonde que Shi Xiao ait jamais subie! »
 
-L'apparence de Shi Xiao était proprement démoniaque. Il marcha vers la place et s'arrêta à cent mètres de Mu Yun, avant de déclarer calmement: « Mu Yun, tu n'es pas mon adversaire. Retire-toi! »
+L'apparence de Shi Xiao était proprement démoniaque. Il marcha vers la place et s'arrêta à trois cents pieds de Mu Yun, avant de déclarer calmement: « Mu Yun, tu n'es pas mon adversaire. Retire-toi! »
 
 Le général démon Mu Yun esquissa un sourire. Ce sourire, mêlé à ses traits, ressemblait à celui d'un cadavre et dégageait une aura sinistre.
 

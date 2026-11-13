@@ -38,7 +38,7 @@ Wang Lin fronça les sourcils. Il sentait vaguement qu'une certaine distance le 
 
 Après une courte réflexion, ses yeux s'illuminèrent; il pressa alors son doigt entre ses sourcils. Il ouvrit la bouche et cracha un grain de sable qui se métamorphosa instantanément en un fragment gigantesque d'environ mille pieds de large.
 
-« Ce fragment a été raffiné par la tribulation céleste, et même le vent noir du Seigneur Céleste ne pouvait le briser; il devrait donc pouvoir résister aux failles spatiales. » Wang Lin fit un geste de la main. Le fragment s'élança vers l'avant et Wang Lin l'observa attentivement.
+« Ce fragment a été raffiné par la tribulation céleste, et même un coup du Seigneur Céleste Qing Feng ne pouvait le briser; il devrait donc pouvoir résister aux failles spatiales. » Wang Lin fit un geste de la main. Le fragment s'élança vers l'avant et Wang Lin l'observa attentivement.
 
 Il vit le fragment percuter d'innombrables fissures en un instant. La force émanant des brèches se propageait sur toute sa surface, mais elle n'avait aucun effet sur lui alors qu'il fonçait droit devant.
 

@@ -100,13 +100,13 @@ Un vent glacial s'engouffra de l'intérieur, forçant Wang Lin à s'arrêter. Il
 
 « Et alors si je romps ma promesse? » répondit Xue Shenzi d'un ton sombre en avançant. En plus de bloquer la fuite de Wang Lin, il avait injecté de l'énergie originelle au sein des nuages de la Tribulation Céleste!
 
-Instantanément, les nuages de la rétribution se condensèrent encore plus vite. Des grondements tonitruants résonnèrent tandis que la foudre s'accumulait dans les cieux. D'innombrables éclairs rouges descendirent aussitôt.
+Instantanément, les nuages de la Tribulation se condensèrent encore plus vite. Des grondements tonitruants résonnèrent tandis que la foudre s'accumulait dans les cieux. D'innombrables éclairs rouges descendirent aussitôt.
 
 Cette masse de foudre fut scindée en deux: une moitié se dirigea vers Xue Shenzi, l'autre vers Wang Lin.
 
 À cet instant, l'espace environnant fut enveloppé par la foudre. La pression colossale des décharges fit trembler violemment toute la zone.
 
-Xue Shenzi ne daigna même pas regarder la foudre de la rétribution et fit un pas. Lorsqu'il réapparut, il se tenait déjà devant Wang Lin. Il leva sa main droite et tendit négligemment le bras vers lui!
+Xue Shenzi ne daigna même pas regarder la foudre de la Tribulation et fit un pas. Lorsqu'il réapparut, il se tenait déjà devant Wang Lin. Il leva sa main droite et tendit négligemment le bras vers lui!
 
 Cette tentative de saisie était d'une simplicité absolue, dénuée de toute puissance apparente. Pourtant, quand Wang Lin la vit, son esprit vacilla comme s'il n'existait aucun moyen de l'esquiver!
 

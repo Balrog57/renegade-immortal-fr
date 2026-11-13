@@ -40,7 +40,7 @@ Lorsqu'il avait survolé les lieux plus tôt, Li Yuan avait aperçu deux montagn
 
 Fort de cette intuition, Wang Lin retira sa main. Peu de temps après, la première vallée apparut devant eux.
 
-L'entrée de la vallée était vaste, large d'une dizaine de mètres. À première vue, l'intérieur semblait vide, mais une fine couche de brume y régnait, créant un effet d'illusion.
+L'entrée de la vallée était vaste, large de plusieurs dizaines de pieds. À première vue, l'intérieur semblait vide, mais une fine couche de brume y régnait, créant un effet d'illusion.
 
 Arrivés à l'entrée, Wang Lin et Li Yuan s'arrêtèrent pour observer attentivement les lieux.
 
@@ -102,7 +102,7 @@ Wang Lin prit une profonde inspiration et s'assit en position du lotus. Ses doig
 
 Lorsqu'il pointa le neuvième point, son visage était d'un rouge ardent. Wang Lin se redressa lentement et inspira profondément; la rougeur disparut instantanément.
 
-À cet instant précis, il frappa sa sacoche de rangement et l'Écran des Montagnes et des Rivières apparut. La peinture s'étira brusquement sur plus de 3 kilomètres, comblant les fissures comme si elles étaient recousues.
+À cet instant précis, il frappa sa sacoche de rangement et l'Écran des Montagnes et des Rivières apparut. La peinture s'étira brusquement sur plus de dix mille pieds, comblant les fissures comme si elles étaient recousues.
 
 Au moment où la peinture se déploya, le garde céleste saisit Wang Lin et le projeta violemment vers l'avant.
 

@@ -64,7 +64,7 @@ En repensant au regard de la Bête de Tonnerre, une idée absurde germa dans l'e
 
 Cette pression contenait de l'énergie originelle. Il utilisait déjà un sort originel. Il était évident que Zhan Konglie traitait ce combat avec une extrême prudence.
 
-Le combat était sur le point d'éclater. Shengong Hu fit un pas et pointa sa main vers le ciel comme pour invoquer la foudre de la rétribution divine. La Bête de Tonnerre à ses côtés rugit et rassembla d'innombrables éclairs autour de son corps. Les deux créaient une scène absolument saisissante.
+Le combat était sur le point d'éclater. Shengong Hu fit un pas et pointa sa main vers le ciel comme pour invoquer la foudre céleste. La Bête de Tonnerre à ses côtés rugit et rassembla d'innombrables éclairs autour de son corps. Les deux créaient une scène absolument saisissante.
 
 Cependant, à cet instant précis, Wang Lin ouvrit lentement les yeux et dit calmement: « Shengong Hu, je ne t'aiderai pas dans ce combat. Que ce soit ton épreuve pour prouver ta soumission envers moi. Si tu perds, je te rendrai ton âme dao! »
 

@@ -72,7 +72,7 @@ L'homme en bleu répondit brusquement: « Il s'appelle Wang Lin. C'était le sep
 
 La femme fut saisie d'effroi et son expression changea instantanément.
 
-« Est-ce celui dont les rumeurs disent qu'il a tué d'innombrables personnes dans la Terre Yao Ling, créant une véritable rivière de sang? Celui qui, finalement, fut traqué par Maître et de nombreux anciens, mais qui parvint tout de même à s'échapper? Le démon Wang Lin?! »
+« Est-ce celui dont les rumeurs disent qu'il a tué d'innombrables personnes dans la Terre Yao Ling, créant une véritable rivière de sang? Celui qui, finalement, fut traqué par Maître et de nombreux Seniors, mais qui parvint tout de même à s'échapper? Le démon Wang Lin?! »
 
 Au loin, Wang Lin esquissa un sourire amer. Les commérages étaient une chose redoutable. Au fil des centaines d'années, les rumeurs à son sujet avaient fini par se transformer. Dans un soupir, Wang Lin quitta la Secte Tian Yun en empruntant le petit sentier.
 

@@ -78,7 +78,7 @@ Dès l'apparition de l'aura ancienne, celle-ci se dissipa aussitôt. C'était co
 
 La personne qui tirait le seau ressentirait naturellement une secousse. Si elle était distraite, elle pourrait se blesser.
 
-Wang Lin ressentit précisément cela lorsqu'il échoua à extraire l'âme de la montagne. Au moment où l'aura ancienne se dissipa, une force puissante percuta son corps. Des craquements résonnèrent dans ses os et son visage pâlit. Il lui fallut un certain temps pour s'en remettre.
+Wang Lin ressentit précisément cela lorsqu'il échoua à extraire l'âme de la planète. Au moment où l'aura ancienne se dissipa, une force puissante percuta son corps. Des craquements résonnèrent dans ses os et son visage pâlit. Il lui fallut un certain temps pour s'en remettre.
 
 En contemplant la montagne devant lui, Wang Lin prit une profonde inspiration. La valeur de ce mont résidait dans le fait qu'il lui permettait d'expérimenter le sort d'extraction d'âme, normalement réservé aux cultivateurs du second niveau.
 

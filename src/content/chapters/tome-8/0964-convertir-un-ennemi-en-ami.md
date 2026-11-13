@@ -40,7 +40,7 @@ Une prise, un coup de poing, une pression. Tout était d'une simplicité déconc
 
 Aucun cultivateur du Scruteur du Nirvana ne pouvait faire cela; pas même un cultivateur au sommet du stade avancé du Scruteur du Nirvana, car ils étaient trois! Il n'y avait qu'une seule explication: cet homme était un cultivateur du Purificateur du Nirvana!
 
-« Veuillez nous pardonner, Camarade Cultivateur Wang Lin. Cette affaire est de notre faute... » Maître Yi Chen sourit amèrement. Les trois se tenaient devant Wang Lin, très embarrassés. Ils étaient tous les trois célèbres sur la planète Tian Yun et venaient de provoquer quelqu'un qu'ils n'auraient pas dû. Bien que leur cœur fût amer, ils ne ressentaient aucune rancœur.
+« Veuillez nous pardonner, Daoïste Wang Lin. Cette affaire est de notre faute... » Maître Yi Chen sourit amèrement. Les trois se tenaient devant Wang Lin, très embarrassés. Ils étaient tous les trois célèbres sur la planète Tian Yun et venaient de provoquer quelqu'un qu'ils n'auraient pas dû. Bien que leur cœur fût amer, ils ne ressentaient aucune rancœur.
 
 Après tout, puisque l'autre partie était un cultivateur du Purificateur du Nirvana, qu'il s'agisse d'une simple vérification de sens divin ou d'un balayage arrogant, cela restait compréhensible.
 
@@ -48,7 +48,7 @@ S'ils avaient connu son niveau de culture au préalable, ils n'auraient jamais o
 
 « Sur la planète Tian Yun et toutes les planètes environnantes, les cultivateurs du Purificateur du Nirvana sont extrêmement rares. Chacun d'eux est capable de faire trembler une planète de culture d'un simple pas. Je n'ai jamais entendu parler de quelqu'un nommé Wang Lin. Il a dit qu'il venait de la Secte Tian Yun... Se pourrait-il... qu'il soit issu d'une génération plus ancienne des disciples de Tian Yunzi? » Les trois se regardèrent, le doute dans les yeux. Cependant, la puissance manifestée par Wang Lin était bel et bien digne d'un Purificateur du Nirvana.
 
-Le vieillard en robe verte, très embarrassé, dit: « Veuillez ne pas nous blâmer, Camarade Cultivateur Wang. Nous trois sommes responsables de cette ville, il est possible que nous vous ayons offensé. Veuillez nous oublier, pardonnez-nous! »
+Le vieillard en robe verte, très embarrassé, dit: « Veuillez ne pas nous blâmer, Daoïste Wang. Nous trois sommes responsables de cette ville, il est possible que nous vous ayons offensé. Veuillez nous oublier, pardonnez-nous! »
 
 L'homme d'âge moyen laissa également échapper un sourire amer en pensant: « La réputation des trois frères Chen n'en sera pas trop affectée. Après tout, qui oserait provoquer un Purificateur du Nirvana? »
 
@@ -56,7 +56,7 @@ Tous trois affichaient une sincérité totale et admettaient sans cesse leur err
 
 Ils poussèrent tous un soupir de soulagement. Si Wang Lin n'avait pas voulu passer l'éponge, ils n'auraient eu d'autre choix que de tenter de s'enfuir. Provoquer un Purificateur du Nirvana revenait à signer son arrêt de mort.
 
-Maître Yi Chen dit poliment: « Le Camarade Cultivateur Wang est certainement venu à la Ville Gui Yan pour cette fiole de Jade Violet Liquide. Cependant, il reste encore plusieurs jours avant l'enchère. Le Camarade a-t-il un endroit où loger? Si ce n'est pas le cas, nous trois pouvons vous arranger un logement. »
+Maître Yi Chen dit poliment: « Le Daoïste Wang est certainement venu à la Ville Gui Yan pour cette fiole de Jade Violet Liquide. Cependant, il reste encore plusieurs jours avant l'enchère. Le Daoïste a-t-il un endroit où loger? Si ce n'est pas le cas, nous trois pouvons vous arranger un logement. »
 
 L'homme en robe violette et le vieillard en robe verte lancèrent à Wang Lin des regards accueillants.
 
@@ -64,7 +64,7 @@ Peu importe leur arrogance habituelle, face à un Purificateur du Nirvana, ils n
 
 « Du Jade Violet Liquide? » Cela semblait familier à Wang Lin. Après une courte réflexion, il regarda les trois hommes et hocha la tête. « Dans ce cas, je vais vous causer des ennuis, mes chers Daoïstes! »
 
-Maître Yi Chen rit: « Aucun problème. C'est le destin qui nous permet de faire la connaissance du Camarade Cultivateur Wang Lin. » Il fit un geste de la main droite pour l'inviter à les suivre.
+Maître Yi Chen rit: « Aucun problème. C'est le destin qui nous permet de faire la connaissance du Daoïste Wang Lin. » Il fit un geste de la main droite pour l'inviter à les suivre.
 
 Wang Lin se retourna et regarda au loin. À la porte de la ville, Bai Wei le fixait, et derrière lui se tenait Xu Liguo, sous la forme d'une brume noire.
 
@@ -74,7 +74,7 @@ Bai Wei hésita un instant avant de s'élancer dans les airs. Xu Liguo regarda l
 
 Lorsque les trois frères virent Bai Wei, ils furent surpris, mais ne dirent rien. Ils se dirigèrent vers la partie est de la ville, vers un magnifique bâtiment de quatre étages entouré d'une cour remplie de jardins rocailleux et de rivières artificielles. L'énergie spirituelle y était assez dense.
 
-Maître Yi Chen sourit: « C'est ici que nous logeons en ville. Le Camarade Cultivateur Wang peut choisir une chambre. »
+Maître Yi Chen sourit: « C'est ici que nous logeons en ville. Le Daoïste Wang peut choisir une chambre. »
 
 Wang Lin joignit les mains et sourit: « Merci beaucoup! »
 

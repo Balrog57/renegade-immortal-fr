@@ -62,7 +62,7 @@ Les disciples de la Secte Da Luo Jian se levèrent, prêts à attaquer. Cependan
 
 Tout en parlant, le doigt de Chen Long prit la forme d'une épée. Cette lame perça l'énergie de massacre comme un éclair. Son doigt contenait un sortilège mystérieux qui, après avoir pénétré l'énergie, lui permit de donner un coup de pied à Wu Ma et de le projeter hors de l'encerclement.
 
-Il se retourna, ignorant totalement l'énergie de massacre qui l'entourait, et sourit à Wang Lin: « Camarade cultivateur Wang, mon Junior frère a été imprudent. Je vous prie d'excuser ce spectacle. »
+Il se retourna, ignorant totalement l'énergie de massacre qui l'entourait, et sourit à Wang Lin: « Daoïste Wang, mon Junior frère a été imprudent. Je vous prie d'excuser ce spectacle. »
 
 « Aucun problème! » La voix de Wang Lin était calme alors que l'énergie de massacre autour de Chen Long enveloppait l'épée de Wu Ma. Puis, cette énergie retourna vers Wang Lin avec l'arme.
 
@@ -70,9 +70,9 @@ Wang Lin s'empara de l'épée sous les yeux de Chen Long et des autres. Il frapp
 
 Après avoir été projeté par Chen Long, Wu Ma se retrouva dépossédé de son épée et privé de son sens divin. Son âme fut endommagée, le faisant cracher une large traînée de sang. Il fixa Wang Lin et hurla: « Toi! »
 
-L'expression de Wang Lin resta impassible lorsqu'il dit calmement: « Puisque tu es le Junior frère du camarade cultivateur Chen Long, je ne te tuerai pas pour cette offense. Je garderai cette épée en guise d'avertissement. »
+L'expression de Wang Lin resta impassible lorsqu'il dit calmement: « Puisque tu es le Junior frère du Daoïste Chen Long, je ne te tuerai pas pour cette offense. Je garderai cette épée en guise d'avertissement. »
 
-Le regard de Chen Long ne vacilla pas et il esquissa un léger sourire. « C'est ainsi que cela doit être! » Il se retourna et lança froidement à Wu Ma: « Toi, tais-toi! Le camarade cultivateur Wang n'est pas quelqu'un que tu peux provoquer. Si tu continues, je détruirai ta culture en lieu et place de notre Maître! »
+Le regard de Chen Long ne vacilla pas et il esquissa un léger sourire. « C'est ainsi que cela doit être! » Il se retourna et lança froidement à Wu Ma: « Toi, tais-toi! Le Daoïste Wang n'est pas quelqu'un que tu peux provoquer. Si tu continues, je détruirai ta culture en lieu et place de notre Maître! »
 
 Wu Ma, manifestement terrifié par Chen Long, hocha la tête et resta silencieux.
 
@@ -92,11 +92,11 @@ Wang Lin répondit d'un ton serein: « Mon ami est de nature froide et n'appréc
 
 Tan Lang lança un regard à Wang Lin et eut un sourire narquois.
 
-Chen Long sourit légèrement et présenta l'homme: « Camarade cultivateur Wang, ce senior est Tan Lang. C'est un expert de la génération de notre Maître. Hélas, sans sa blessure qui ne lui permet d'exprimer qu'une culture d'Ascendant au stade avancé, nous ne serions pas restés piégés ici depuis un siècle! »
+Chen Long sourit légèrement et présenta l'homme: « Daoïste Wang, ce senior est Tan Lang. C'est un expert de la génération de notre Maître. Hélas, sans sa blessure qui ne lui permet d'exprimer qu'une culture d'Ascendant au stade avancé, nous ne serions pas restés piégés ici depuis un siècle! »
 
 Wang Lin pensa: « Ce Chen Long n'est pas simple! » Cet homme avait été capable de distiller toutes les informations essentielles en quelques phrases seulement.
 
-Chen Long ajouta aussitôt: « Senior Tan Lang, puisque le camarade cultivateur Wang et son ami sont arrivés, que diriez-vous d'unir nos forces pour tenter une percée? Peut-être parviendrons-nous à briser ce siège imposé par cette horde de bêtes démoniaques! »
+Chen Long ajouta aussitôt: « Senior Tan Lang, puisque le Daoïste Wang et son ami sont arrivés, que diriez-vous d'unir nos forces pour tenter une percée? Peut-être parviendrons-nous à briser ce siège imposé par cette horde de bêtes démoniaques! »
 
 « Une horde de bêtes démoniaques... » L'expression de Wang Lin resta neutre, mais cela avait capté son attention.
 

@@ -44,7 +44,7 @@ Les végétaux capables de survivre dans de telles conditions n'avaient rien de 
 
 Cet endroit possédait une énergie spirituelle semblable à celle des planètes de culture ordinaires, mais l'énergie ici était imprégnée d'un poison de feu. Si un mortel en inhalait ne serait-ce qu'une bouffée, son corps entier, jusqu'à la moelle de ses os, se transformerait instantanément en cendres noires.
 
-Même les cultivateurs ne pouvaient supporter longtemps ce poison de feu. Ce champ stellaire était nommé la Terre Zhu Que, et ces neuf planètes étaient les Planètes Divines de Suzaku!
+Même les cultivateurs ne pouvaient supporter longtemps ce poison de feu. Ce champ stellaire était nommé la Terre Suzaku, et ces neuf planètes étaient les Planètes Divines de Suzaku!
 
 La première Planète Divine était la plus vénérée! Dans sa partie méridionale se dressait une statue géante rouge sombre, qui s'élevait jusqu'aux cieux: celle d'un Oiseau Vermillon prenant son envol!
 
@@ -70,7 +70,7 @@ Le temps passa lentement et, en un clin d'œil, les flammes de la statue commenc
 
 À la périphérie, ceux qui n'avaient que peu absorbé de flammes avaient déjà ouvert les yeux. Bientôt, tout le monde retrouva la conscience.
 
-Même les trois anciens sur la queue sortirent de leur transe. L'un d'eux se leva, regarda les disciples de la Secte Zhu Que et s'apprêta à parler.
+Même les trois anciens sur la queue sortirent de leur transe. L'un d'eux se leva, regarda les disciples de la Secte Suzaku et s'apprêta à parler.
 
 Cependant, à cet instant précis, un changement stupéfiant survint!
 
@@ -145,7 +145,7 @@ Dès que la scène apparut, la femme tourna soudainement le regard. Ses yeux vid
 Xu Kongzi, Tian Yunzi et tous les autres apparurent également dans l'image!
 
 « Xu Kongzi et Tian Yunzi sont là aussi! »
-« Cette personne a traversé l'Éveil de Suzaku dans un lieu si périlleux... Xu Kongzi est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte Zhu Que d'avoir un tel éveil! »
+« Cette personne a traversé l'Éveil de Suzaku dans un lieu si périlleux... Xu Kongzi est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte Suzaku d'avoir un tel éveil! »
 « Cependant, je n'ai jamais vu celui qui s'est éveillé. Comment a-t-il obtenu la Lignée de Suzaku? »
 
 Les neuf personnes observaient la scène au cœur de la sphère de feu. À cet instant précis, un puissant Sens Divin émana des profondeurs du système stellaire embrasé. Cette présence était si forte qu'elle fit même marquer un temps d'arrêt aux flammes du système!
@@ -162,4 +162,4 @@ Après que ce Sens Divin eut balayé les lieux, les neuf individus manifestèren
 
 Une intention meurtrière jaillit de Xu Kongzi. Il avait immédiatement remarqué le changement du tatouage sur le corps de Wang Lin.
 
-« La Secte Zhu Que a remarqué son éveil! »
+« La Secte Suzaku a remarqué son éveil! »

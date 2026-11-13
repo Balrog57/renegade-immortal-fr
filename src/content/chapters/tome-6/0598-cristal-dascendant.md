@@ -122,7 +122,7 @@ L'épreuve de vie ou de mort de l'Ascendant: entendre le Dao au matin, mourir le
 
 S'il commettait la moindre erreur, non seulement toute sa culture serait perdue, mais son âme originelle s'effondrerait également. Bien qu'il ignorât si cela affecterait le corps du dieu antique à l'extérieur, il n'était pas prêt à prendre un tel risque!
 
-L'Ascension est une épreuve qui doit être accomplie dans un lieu extrêmement sûr, afin d'éliminer tout facteur externe et de garantir la plus grande chance de succès!
+L'Ascendant est une épreuve qui doit être accomplie dans un lieu extrêmement sûr, afin d'éliminer tout facteur externe et de garantir la plus grande chance de succès!
 
 Cette grotte était sans aucun doute le meilleur endroit pour atteindre le stade de l'Ascendant!
 
@@ -138,7 +138,7 @@ C'était un cristal rouge de la taille d'un ongle. Dès l'apparition de ce crist
 
 « Cristal d'Ascendant! Cela m'a été offert par le Senior Zhou Yi. Si je réussis à atteindre le stade de l'Ascendant aujourd'hui, je n'oublierai jamais ma dette envers mon Senior de toute ma vie! » Wang Lin prit une profonde inspiration, puis avala le cristal qu'il tenait dans sa main!
 
-Après cela, il ferma les yeux et s'immergea dans le processus d'ascension, tandis que son domaine et son énergie spirituelle céleste fusionnaient!
+Après cela, il ferma les yeux et s'immergea dans le processus de l'Ascendant, tandis que son domaine et son énergie spirituelle céleste fusionnaient!
 
 Le temps passa lentement. L'expression de Wang Lin demeurait aussi calme que la surface d'une eau sans rides. Les jades célestes environnants étaient consommés et transformés en poussière. Il absorbait des quantités infinies d'énergie spirituelle céleste dans son corps!
 

@@ -16,7 +16,7 @@ Un fracas retentit dans la 16e couche, puis le tatouage s'effondra. Tandis que l
 
 Au moment précis de sa disparition, un réseau de transfert apparut dans le bassin, émettant une lueur étrange.
 
-Sur la planète Suzaku, sur la place d'une secte, un homme ressemblant à Huanglong discutait en souriant avec quelques cultivateurs de bas niveau lorsqu'il tourna soudainement le regard vers l'horizon. Ce fut l'instant même où le passage vers la 17e couche s'ouvrit.
+Sur la planète Suzaku, sur la place d'une secte, un homme ressemblant à Huang Long discutait en souriant avec quelques cultivateurs de bas niveau lorsqu'il tourna soudainement le regard vers l'horizon. Ce fut l'instant même où le passage vers la 17e couche s'ouvrit.
 
 Après un long moment, il détourna les yeux et pensa: « Peu importe, il n'y a rien dans la 17e couche qui ne puisse être montré. La culture de ce petit gars a atteint un point tel qu'il peut percevoir certains secrets. Cependant, la 17e couche est sa limite; il ne pourra pas pénétrer dans la 18e. »
 

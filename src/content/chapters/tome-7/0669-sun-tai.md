@@ -82,7 +82,7 @@ Au troisième étage, le vieil homme serra les dents et disparut.
 
 Une fois que Wang Lin atteignit un lieu reculé, il se retourna. Le vieil homme du Pavillon Bao He apparut derrière lui. Il scruta attentivement Wang Lin avec un air de doute.
 
-Remarquant le regard de Wang Lin, le vieil homme soupira: « Cher cultivateur, ce vieil homme vous a pris pour quelqu'un d'autre. J'espère que vous ne m'en tiendrez pas rigueur. » Il se détourna et s'éloigna, sa silhouette empreinte de vicissitudes.
+Remarquant le regard de Wang Lin, le vieil homme soupira: « Daoïste, ce vieil homme vous a pris pour quelqu'un d'autre. J'espère que vous ne m'en tiendrez pas rigueur. » Il se détourna et s'éloigna, sa silhouette empreinte de vicissitudes.
 
 Wang Lin réfléchit un instant puis prononça lentement: « Sun Tai. »
 

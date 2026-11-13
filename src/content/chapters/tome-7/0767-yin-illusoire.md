@@ -24,7 +24,7 @@ Une lueur mystérieuse brilla dans les yeux de Wang Lin. Il s'était éveillé. 
 
 Dès son éveil, il perçut le chaos qui régnait en lui. Si ce chaos n'était pas résolu au plus vite, son corps exploserait de lui-même, sans même que la Tribulation Céleste ait besoin de le tuer.
 
-« Cette rétribution arrive au moment opportun! » Les yeux de Wang Lin s'illuminèrent. C'était la première fois qu'il se réjouissait de l'arrivée d'une telle calamité. Sa main droite pressa le sol et il s'élança dans les airs sans la moindre hésitation.
+« Cette Tribulation Céleste arrive au moment opportun! » Les yeux de Wang Lin s'illuminèrent. C'était la première fois qu'il se réjouissait de l'arrivée d'une telle calamité. Sa main droite pressa le sol et il s'élança dans les airs sans la moindre hésitation.
 
 Depuis l'épée céleste à ses côtés, Xu Liguo poussa immédiatement un cri: « Maître... Maître... emmenez-moi avec vous! Je veux retourner dans le sac de rangement. Cet endroit est terrifiant... »
 
@@ -62,7 +62,7 @@ Un long cri s'échappa de sa bouche, un cri qui perça les nuages et se propagea
 
 Xue Zu observait les nuages, espérant que Wang Lin soit terrassé par la Tribulation Céleste. Cependant, en entendant ce cri, son expression changea radicalement.
 
-« Yin Illusoire... » Le visage de Xue Zu s'assombrit et il murmura: « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la rétribution et atteindre le stade Yin Illusoire... Mais cela reste encore... »
+« Yin Illusoire... » Le visage de Xue Zu s'assombrit et il murmura: « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la Tribulation Céleste et atteindre le stade Yin Illusoire... Mais cela reste encore... »
 
 Alors qu'il parlait, son expression se mua une fois de plus alors qu'il fixait les nuages tourbillonnants devant lui.
 

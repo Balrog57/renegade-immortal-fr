@@ -67,9 +67,9 @@ Il existait une planète de culture dans la région nord de l'Alliance. Située 
 
 Cette planète de rang 7 portait un nom magnifique: Anyue. La majeure partie de la surface était couverte de forêts et de nombreux villages mortels étaient dispersés à travers le globe. On trouvait également de nombreuses sectes de culture nichées au cœur de ses montagnes.
 
-Une montagne célèbre dominait la partie sud de la planète: la Montagne Céleste. Elle était si haute que son sommet demeurait perpétuellement enveloppé de brume; nul ne savait si son pic touchait le ciel. Un petit sentier de marches de pierre menait vers les hauteurs, tandis que le reste restait caché dans les nuages. On aurait cru un séjour d'immortels.
+Une montagne célèbre dominait la partie sud de la planète: la Montagne Tian Shan. Elle était si haute que son sommet demeurait perpétuellement enveloppé de brume; nul ne savait si son pic touchait le ciel. Un petit sentier de marches de pierre menait vers les hauteurs, tandis que le reste restait caché dans les nuages. On aurait cru un séjour d'immortels.
 
-Chaque matin, le son des cloches résonnait depuis la cime. Quelques oiseaux magnifiques s'envolaient parmi les nuages pour errer sur la Montagne Céleste, leurs cris se mêlant aux carillons. La scène semblait tout droit sortie d'une peinture, d'une élégance extrême, tel un paradis caché.
+Chaque matin, le son des cloches résonnait depuis la cime. Quelques oiseaux magnifiques s'envolaient parmi les nuages pour errer sur la Montagne Tian Shan, leurs cris se mêlant aux carillons. La scène semblait tout droit sortie d'une peinture, d'une élégance extrême, tel un paradis caché.
 
 Dong... Dong... Dong... Le son de la cloche semblait percer les nuages en se propageant depuis le sommet, apportant une paix profonde au cœur de quiconque l'entendait.
 
@@ -81,7 +81,7 @@ Wang Lin se tenait silencieusement au loin, contemplant le village devant lui. L
 
 Ce qu'il revoyait n'était pas le village qui s'offrait à lui, mais son enfance sur la planète Suzaku. Des fragments de comptine parvinrent jusqu'à lui, portés par l'écho des cloches matinales:
 
-« L'arbre à abricot fleurit de blanc. La fille ne sera pas prise par une famille de taoïstes. Avant le Nouvel An, le second Lang monta à la montagne, et après le Nouvel An, le premier Lang n'était qu'un sac d'os. Les cris de la fille accompagnent les morts, mais elle prend le cercueil pour famille... L'arbre à abricot fleurit de blanc et les enfants ne doivent pas être pris par les taoïstes. Si l'on demande mon âge, je n'ai pas encore trouvé mon Dao. Le chien aboie, le chat griffe, faisant fuir le taoïste vers sa demeure. »
+« L'arbre à abricot fleurit de blanc. La fille ne sera pas prise par une famille de taoïstes. L'an dernier, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Les cris de la fille accompagnent les morts, mais elle prend le cercueil pour famille... L'arbre à abricot fleurit de blanc et les enfants ne doivent pas être pris par les taoïstes. Si l'on demande mon âge, je n'ai pas encore trouvé mon Dao. Le chien aboie, le chat griffe, faisant fuir le taoïste vers sa demeure. »
 
 La voix d'un enfant tendre atteignit les oreilles de Wang Lin, mêlée au tintement cristallin d'une cloche. C'était un enfant vêtu d'une modeste tunique de toile qui montait sur un bœuf en direction du village. Un anneau de fer traversait le nez de l'animal, auquel étaient attachées deux cloches qui tintaient sans cesse à chaque pas. Plusieurs veaux suivaient le bœuf.
 
@@ -91,8 +91,8 @@ Wang Lin esquissa un sourire et hocha la tête: « Quel est cet endroit? »
 
 L'enfant pointa l'horizon et répondit d'une voix douce: « C'est le village des fleurs d'abricot! » Tout en parlant, il s'assit sur son bœuf et entra dans le village, ne laissant derrière lui que l'écho de sa comptine...
 
-Wang Lin poussa un soupir. À l'écoute de cette mélodie, une pointe de tristesse l'envahit. Il murmura: « Planète Anyue, un village sous la Montagne Céleste... C'est bien ici. »
+Wang Lin poussa un soupir. À l'écoute de cette mélodie, une pointe de tristesse l'envahit. Il murmura: « Planète Anyue, un village sous la Montagne Tian Shan... C'est bien ici. »
 
 L'appel vague d'un ami mourant, rongé par le mal du pays, résonna dans les oreilles de Wang Lin:
 
-« S'il vous plaît, ramenez mes cendres sur la planète Anyue, dans le système stellaire de l'Alliance. Il y a une montagne appelée Montagne Céleste. Je me souviens qu'il y avait un village sous cette montagne. Veuillez emporter mes cendres là-bas... »
+« S'il vous plaît, ramenez mes cendres sur la planète Anyue, dans le système stellaire de l'Alliance. Il y a une montagne appelée Montagne Tian Shan. Je me souviens qu'il y avait un village sous cette montagne. Veuillez emporter mes cendres là-bas... »

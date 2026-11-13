@@ -56,7 +56,7 @@ Wang Lin demanda: « À quelle distance sommes-nous? »
 
 « Moins de cinq kilomètres! » répondit Shengong Hu, dont les nerfs étaient à vif. Les fissures qui se dressaient devant lui lui glaçaient le sang.
 
-Wang Lin fronça légèrement les sourcils alors que le fragment vacillait pour esquiver d'autres crevasses. Ils se rapprochèrent progressivement, et Wang Lin perçut un écran de lumière large de 3,3 kilomètres. À l'intérieur de cet écran, un fragment était maintenu en place.
+Wang Lin fronça légèrement les sourcils alors que le fragment vacillait pour esquiver d'autres crevasses. Ils se rapprochèrent progressivement, et Wang Lin perçut un écran de lumière large de 10 000 pieds. À l'intérieur de cet écran, un fragment était maintenu en place.
 
 De plus, une formation y était établie. Plusieurs individus s'y tenaient, manifestement prêts pour le transfert. L'un d'eux était Zhan Konglie. À l'extérieur de la formation, sept ou huit messagers du Temple Céleste du Tonnerre semblaient échanger entre eux.
 

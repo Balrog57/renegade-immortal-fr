@@ -16,19 +16,19 @@ Le vieil homme regarda la silhouette de Wang Lin disparaître progressivement. U
 
 Wang Lin quitta le Pavillon Bao He et se dirigea vers l'élégant Pavillon Qing Zhu. Bien que ce pavillon ne fût pas grand, il dégageait une certaine distinction. En entrant, Wang Lin observa les étagères en bois qui bordaient les murs. Une petite boîte reposait sur chaque étagère, et l'intérieur de chacune était tapissé de soie jaune. Toutes sortes de trésors magiques, de pilules et autres objets y étaient entreposés.
 
-Un jeune érudit était assis à l'intérieur du pavillon. Il tenait un livre ancien et semblait le lire avec grand intérêt. Lorsque le jeune homme remarqua l'entrée de Wang Lin, il posa son ouvrage, se leva et sourit. « Bien que notre boutique ne soit pas vaste, nous possédons une collection assez riche. Je me demande ce que cherche l'ami. »
+Un jeune érudit était assis à l'intérieur du pavillon. Il tenait un livre ancien et semblait le lire avec grand intérêt. Lorsque le jeune homme remarqua l'entrée de Wang Lin, il posa son ouvrage, se leva et sourit. « Bien que notre boutique ne soit pas vaste, nous possédons une collection assez riche. Je me demande ce que cherche le Daoïste. »
 
 La culture de cette personne n'était qu'au stade initial de la Formation de l'Âme. Lorsqu'il vit Wang Lin, il ne fit preuve d'aucune arrogance, contrairement à la personne du Pavillon Bao He; au contraire, son accueil fut empreint de simplicité et d'enthousiasme.
 
 Wang Lin esquissa un léger sourire. Il frappa son sac de rangement, et l'épée volante en sortit. Il demanda: « Cher Daoïste accepterait-il cette épée? »
 
-En regardant l'épée, le jeune homme fronça légèrement les sourcils et afficha un sourire amer. « Cher compagnon, cette épée... Laissez tomber. Me permettez-vous de l'examiner? »
+En regardant l'épée, le jeune homme fronça légèrement les sourcils et afficha un sourire amer. « Cher Daoïste, cette épée... Laissez tomber. Me permettez-vous de l'examiner? »
 
 L'attitude du jeune homme était extrêmement décontractée. Wang Lin sourit et fit un geste de la main droite. L'épée volante vola doucement vers le jeune homme. Ce dernier la balaya de son Sens Divin et dit: « Cette épée est extrêmement ordinaire. Je crains... Hein! »
 
 Le jeune homme n'avait prononcé qu'une demi-phrase que ses yeux s'écarquillèrent soudainement. Il fixa l'épée volante aux allures banales, le regard chargé de stupeur.
 
-Il leva brusquement la tête vers Wang Lin et demanda précipitamment: « Cher compagnon, le sort à l'intérieur de cette épée... »
+Il leva brusquement la tête vers Wang Lin et demanda précipitamment: « Cher Daoïste, le sort à l'intérieur de cette épée... »
 
 Wang Lin sourit. « Vous le saurez bien en l'essayant! »
 
@@ -54,15 +54,15 @@ Plus important encore, même pour un cultivateur possédant le niveau requis, à
 
 C'était le domaine de la Vie et de la Mort de Wang Lin qui permettait au sort de téléportation de l'épée de durer en quelque sorte indéfiniment. Cependant, si l'équilibre était rompu, le sort finirait par expirer.
 
-Le jeune homme agrippa l'épée volante. Il retourna précipitamment dans la boutique tout en fixant Wang Lin et s'exclama: « Cher compagnon, cette boutique veut cette épée! Est-ce que cent mille pierres spirituelles de haute qualité suffisent? »
+Le jeune homme agrippa l'épée volante. Il retourna précipitamment dans la boutique tout en fixant Wang Lin et s'exclama: « Cher Daoïste, cette boutique veut cette épée! Est-ce que cent mille pierres spirituelles de haute qualité suffisent? »
 
 Wang Lin fronça légèrement les sourcils. Le niveau de culture du jeune homme devant lui était trop bas; en utilisant son énergie spirituelle, il ne pouvait n'en exploiter qu'un dixième de la puissance.
 
-Voyant le froncement de sourcils de Wang Lin, le jeune homme réfléchit un instant. Il serra les dents et dit: « Cher compagnon, je peux ajouter cinquante mille pierres spirituelles de haute qualité supplémentaires. Bien que cette épée soit un trésor spirituel de premier ordre, j'ai déjà proposé un prix très élevé. »
+Voyant le froncement de sourcils de Wang Lin, le jeune homme réfléchit un instant. Il serra les dents et dit: « Cher Daoïste, je peux ajouter cinquante mille pierres spirituelles de haute qualité supplémentaires. Bien que cette épée soit un trésor spirituel de premier ordre, j'ai déjà proposé un prix très élevé. »
 
 Wang Lin fronça les sourcils et demanda: « Avez-vous des cultivateurs au stade de la Transformation de l'Âme? »
 
-Le jeune homme sursauta. Un air de mécontentement apparut sur son visage et il répliqua: « Que voulez-vous dire par là, cher compagnon? Pensez-vous que mon niveau de culture est insuffisant pour discerner les capacités de cette épée? Nous avons des aînés au stade de la Transformation de l'Âme, et puisque vous le demandez, je vais en appeler un! » Il frappa son sac de rangement et une pierre de jade s'en échappa. Après y avoir laissé un message, il la lança hors de la boutique.
+Le jeune homme sursauta. Un air de mécontentement apparut sur son visage et il répliqua: « Que voulez-vous dire par là, cher Daoïste? Pensez-vous que mon niveau de culture est insuffisant pour discerner les capacités de cette épée? Nous avons des Seniors au stade de la Transformation de l'Âme, et puisque vous le demandez, je vais en appeler un! » Il frappa son sac de rangement et une pierre de jade s'en échappa. Après y avoir laissé un message, il la lança hors de la boutique.
 
 Une fois la pierre envoyée, le jeune homme se rassit silencieusement et commença à manipuler l'épée volante qu'il tenait en main.
 

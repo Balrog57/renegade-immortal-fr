@@ -26,7 +26,7 @@ Il était tout simplement trop près du vieil homme. Au moment où il leva le po
 
 L'aura d'ancien dieu émanant du coup forma une tempête sur le point de dévorer le vieil homme. Les pupilles de ce dernier se rétractèrent et il cria précipitamment:
 
-« Camarade cultivateur, ayez pitié! Je vous en prie, écoutez-moi! Juste une fois! »
+« Daoïste, ayez pitié! Je vous en prie, écoutez-moi! Juste une fois! »
 
 Le visage du vieil homme était livide et son cœur battait la chamade. Cela faisait longtemps qu'il n'avait pas été confronté à une telle crise de vie ou de mort. Tout son corps était engourdi et il abandonna sa dignité pour proférer de telles paroles.
 
@@ -34,9 +34,9 @@ La main droite de Wang Lin s'arrêta soudainement alors que son poing ne se trou
 
 Le front du vieil homme était couvert de sueur tandis qu'il contemplait le poing devant lui. Il pouvait clairement ressentir la puissance contenue dans ce coup. Si celui-ci l'atteignait, son corps s'effondrerait à coup sûr. Une fois son corps détruit, il serait peu probable que son âme originelle puisse s'échapper.
 
-« Puisque le camarade cultivateur se rend à la grotte céleste dans la Terre Yao Ling et aura certainement besoin d'aide, je suis prêt à faire de mon mieux pour vous assister afin de compenser l'incident d'aujourd'hui! »
+« Puisque le Daoïste se rend à la grotte céleste dans la Terre Yao Ling et aura certainement besoin d'aide, je suis prêt à faire de mon mieux pour vous assister afin de compenser l'incident d'aujourd'hui! »
 
-Les yeux de Wang Lin étaient glacials, impossibles à percer. Sous son regard, le vieil homme se plaignit intérieurement et ajouta: « De plus, je donnerai au camarade cultivateur ce bouclier magique. C'est le trésor protecteur le plus puissant dont je dispose. Si vous l'avez, cela vous aidera grandement dans la grotte céleste! »
+Les yeux de Wang Lin étaient glacials, impossibles à percer. Sous son regard, le vieil homme se plaignit intérieurement et ajouta: « De plus, je donnerai au Daoïste ce bouclier magique. C'est le trésor protecteur le plus puissant dont je dispose. Si vous l'avez, cela vous aidera grandement dans la grotte céleste! »
 
 Tout en parlant, le vieil homme effaça son empreinte sur le bouclier et le tendit à Wang Lin.
 
@@ -52,7 +52,7 @@ Le vieil homme n'osa pas résister et permit à Wang Lin de poser le sceau. L'em
 
 Les sept hommes en noir avaient déjà été éliminés par Da Tou. Se léchant les lèvres, Da Tou retourna aux côtés de Wang Lin.
 
-Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji, se plaça devant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Fu Fengzi. Aujourd'hui, j'ai perdu face devant vous et je me soumets de tout cœur. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre Yao Ling. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et que nous serons quittes! »
+Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji, se plaça devant Wang Lin et eut un sourire amer: « Suivant les ordres du Daoïste, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Fu Fengzi. Aujourd'hui, j'ai perdu face devant vous et je me soumets de tout cœur. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre Yao Ling. Cependant, j'espère qu'après notre retour, le Daoïste relâchera le sceau et que nous serons quittes! »
 
 Wang Lin regarda calmement Chen Feng et dit lentement: « Mon sceau n'est pas puissant. Si vous voulez le lever, vous le pourrez facilement. »
 
@@ -90,7 +90,7 @@ Il avait été très attiré par cette femme au corps d'esprit de l'eau. S'il n'
 
 Alors qu'il s'apprêtait à partir, trois rayons de lumière jaillirent de la planète bleue. Ces trois faisceaux ressemblaient à trois dragons rugissants qui chargeaient vers l'extérieur; en s'entrecroisant, ils formaient une tempête mugissante.
 
-« Camarades cultivateurs, pourquoi rôdez-vous devant notre planète?! » rugit le Maître Yi Chen.
+« Daoïstes, pourquoi rôdez-vous devant notre planète?! » rugit le Maître Yi Chen.
 
 « Hein? » Après avoir crié, le Maître Yi Chen remarqua immédiatement quelque chose.
 
@@ -122,11 +122,11 @@ L'esprit de Chen Feng trembla. Bien que la voix de Wang Lin fût calme, il y per
 
 Cette scène stupéfia une fois de plus les trois frères Chen.
 
-« Camarade cultivateur Maître Yi Chen, nous venons à peine de nous séparer et je ne m'attendais pas à vous revoir si tôt. J'ignorais que cette planète vous appartenait. Je vais partir et trouver un autre monde pour ma culture en isolement! » Wang Lin joignit les mains en signe de respect envers les trois frères Chen.
+« Daoïste Yi Chen, nous venons à peine de nous séparer et je ne m'attendais pas à vous revoir si tôt. J'ignorais que cette planète vous appartenait. Je vais partir et trouver un autre monde pour ma culture en isolement! » Wang Lin joignit les mains en signe de respect envers les trois frères Chen.
 
 Le Maître Yi Chen rendit rapidement le geste, mais son cœur était sous le choc. Il ne s'attendait pas à ce que Chen Feng manifeste une telle peur par la simple parole de Wang Lin.
 
-Le Maître Yi Chen joignit les mains et dit: « Camarade cultivateur Wang, j'ignorais que vous et le Senior Fu Fengzi étiez... »
+Le Maître Yi Chen joignit les mains et dit: « Daoïste Wang, j'ignorais que vous et le Senior Fu Fengzi étiez... »
 
 « C'est mon serviteur. » Wang Lin n'en dit pas plus. Il adressa un signe de tête au Maître Yi Chen et s'apprêta à partir.
 

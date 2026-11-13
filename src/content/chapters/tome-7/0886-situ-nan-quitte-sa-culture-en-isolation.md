@@ -26,7 +26,7 @@ Le corps de Wang Lin trembla violemment. Son apparence se rétablit rapidement e
 
 Qing Shui se retourna, s'élança vers les étoiles et disparut progressivement.
 
-« Junior Frère, à partir de maintenant, sois prudent... La méthode pour restaurer le Royaume Ji est liée à la tribulation divine. Cependant, n'emprunte pas ce chemin tant que tu n'as pas atteint le stade du Briseur du Nirvana. Avant cela, évite-le! »
+« Junior Frère, à partir de maintenant, sois prudent... La méthode pour restaurer le Royaume Ji est liée à la Tribulation Céleste. Cependant, n'emprunte pas ce chemin tant que tu n'as pas atteint le stade du Briseur du Nirvana. Avant cela, évite-le! »
 
 Qing Shui était parti...
 

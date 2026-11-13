@@ -56,7 +56,7 @@ De nombreuses parties du pavillon furent détruites, car ce n'était qu'en causa
 
 « L'Empereur Démon interdit à l'Épée de l'Empereur de sortir, mais je suis l'esprit de l'épée, alors cela devrait aller... Ça devrait être bon... D'accord, je n'attaquerai pas. Je vais juste jeter un coup d'œil à ce "casse-croûte" répugnant et mémoriser son aura pour le retrouver plus facilement. Oui, ça ne devrait poser aucun problème... » La jeune fille cligna des yeux avant de s'envoler du pavillon pour charger directement vers la Porte Tian Yao.
 
-Alors qu'elle approchait de la place de trente-trois kilomètres de côté, son corps se mua en néant et elle se posa sur le toit du palais qui faisait face à la place pour observer la scène.
+Alors qu'elle approchait de la place de cent mille pieds de côté, son corps se mua en néant et elle se posa sur le toit du palais qui faisait face à la place pour observer la scène.
 
 Au moment où elle apparut au-dessus du palais, huit regards semblèrent l'observer avec désinvolture.
 

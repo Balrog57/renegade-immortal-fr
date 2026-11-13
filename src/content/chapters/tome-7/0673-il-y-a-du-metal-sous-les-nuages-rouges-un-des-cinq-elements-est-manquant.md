@@ -100,7 +100,7 @@ Il se transforma en un rayon de lumière arc-en-ciel et plongea dans l'atmosphè
 
 À cet instant, tous les cultivateurs de Ran Yun ressentirent cette aura puissante. Une aura particulièrement hautaine, comme si elle considérait le monde comme une colonie de fourmis en l'arpentant.
 
-« Je suis Huan Dong, garde de deuxième rang de la famille Huan de la planète principale des Mille Illusions. Que tous les cultivateurs Ascendants de la planète Ran Yun viennent me voir sans tarder! » Sa voix froide, chargée d'arrogance, tonna comme le tonnerre à travers la planète. Tous les cultivateurs sous le stade Ascendant furent choqués par ce cri; certains, de bas niveau, crachèrent même du sang sous l'effet du choc.
+« Je suis Huan Dong, garde de deuxième rang de la famille Huan de la planète principale Qianhuan. Que tous les cultivateurs Ascendants de la planète Ran Yun viennent me voir sans tarder! » Sa voix froide, chargée d'arrogance, tonna comme le tonnerre à travers la planète. Tous les cultivateurs sous le stade Ascendant furent choqués par ce cri; certains, de bas niveau, crachèrent même du sang sous l'effet du choc.
 
 Le jeune homme sous le rocher était l'un d'entre eux. Il était en pleine culture lorsqu'il fut frappé par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, le faisant cracher du sang et l'affaiblissant instantanément.
 
@@ -124,4 +124,4 @@ Pour qu'un cultivateur atteigne le stade Ascendant, son domaine doit fusionner a
 
 Son domaine était l'élément métal. Le métal représentait l'invincibilité. Son domaine bougeait au rythme de ses sorts et sa main s'illumina. À cet instant, il semblait que cette lumière avait remplacé celle du ciel ou qu'elle en avait absorbé toute la clarté. Utilisant la puissance de cette lumière, il pressa sa main vers le bas.
 
-L'expression de Wang Lin resta de marbre. La foudre traversa ses yeux et se propagea sur tout son corps. Il ressemblait à un immortel maîtrisant la foudre. Il pointa un doigt et le Doigt de la Mort jaillit. Sa puissance avait été multipliée plusieurs fois; ce doigt contenait une foudre dense d'éclairs. Quiconque l'observait avec attention aurait eu le sentiment de faire face à une tribulation divine de foudre.
+L'expression de Wang Lin resta de marbre. La foudre traversa ses yeux et se propagea sur tout son corps. Il ressemblait à un immortel maîtrisant la foudre. Il pointa un doigt et le Doigt de la Mort jaillit. Sa puissance avait été multipliée plusieurs fois; ce doigt contenait une foudre dense d'éclairs. Quiconque l'observait avec attention aurait eu le sentiment de faire face à une Tribulation Céleste de foudre.

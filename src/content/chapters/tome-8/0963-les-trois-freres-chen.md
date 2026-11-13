@@ -74,7 +74,7 @@ Wang Lin et Bai Wei se tenaient à l'extérieur de la ville, attendant leur tour
 
 Bai Wei n'était manifestement pas au courant, mais Wang Lin fronça les sourcils.
 
-« J'espère que ce camarade ne sera pas offensé, mais nous sommes tous les trois chargés de la sécurité de la Ville Gui Yan, nous devons donc être vigilants. Si vous n'êtes pas d'accord, ne me blâmez pas si je détruis ce sens divin! » Maître Yi Chen laissa échapper un soupir. Il savait que son attitude était excessive; après tout, cet homme n'avait pas outrepassé les limites et il ne s'agissait que d'une vérification naturelle.
+« J'espère que ce Daoïste ne sera pas offensé, mais nous sommes tous les trois chargés de la sécurité de la Ville Gui Yan, nous devons donc être vigilants. Si vous n'êtes pas d'accord, ne me blâmez pas si je détruis ce sens divin! » Maître Yi Chen laissa échapper un soupir. Il savait que son attitude était excessive; après tout, cet homme n'avait pas outrepassé les limites et il ne s'agissait que d'une vérification naturelle.
 
 Les trois frères Chen avaient déjà agi ainsi par le passé. Mais désormais que la Ville Gui Yan leur témoignait de grands égards, ils se devaient d'être rigoureux. De plus, il était quelque peu irrité.
 

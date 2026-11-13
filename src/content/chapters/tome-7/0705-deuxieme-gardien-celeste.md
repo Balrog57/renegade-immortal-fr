@@ -48,9 +48,9 @@ L'expression du Daoïste du Tonnerre devint sombre. Tout au long de son trajet, 
 
 À cet instant, la formation d'épée aux sept étoiles arriva et encercla le Daoïste du Tonnerre. Alors que l'énergie d'épée se précipitait sur lui, le Daoïste sortit un jade et le broya. Une explosion de tonnerre et d'éclairs jaillit alors tout autour de lui, formant une barrière. La formation d'épée aux sept étoiles transperça la barrière, provoquant une série d'explosions.
 
-La barrière de foudre trembla violemment. À l'intérieur, le Daoïste du Tonnerre fixa Wang Lin et s'exclama avec urgence: « Cher collègue cultivateur Xu, j'ai été imprudent dans cette affaire, mais pourquoi aller si loin?! Je suis un membre du Temple Céleste du Tonnerre; si vous me tuez, il vous sera difficile de circuler dans le Système Stellaire de Luotian! »
+La barrière de foudre trembla violemment. À l'intérieur, le Daoïste du Tonnerre fixa Wang Lin et s'exclama avec urgence: « Daoïste Xu, j'ai été imprudent dans cette affaire, mais pourquoi aller si loin?! Je suis un membre du Temple Céleste du Tonnerre; si vous me tuez, il vous sera difficile de circuler dans le Système Stellaire de Luotian! »
 
-« Si je ne vous tue pas, il me sera tout de même difficile de circuler dans le Système Stellaire de Luotian! » rétorqua Wang Lin d'une voix froide. Puis il frappa son sac, faisant apparaître l'Étendard des Mille Millions d'Âmes. L'étendard de trente pieds de large émettait des gémissements fantomatiques capables de secouer l'âme originelle.
+« Si je ne vous tue pas, il me sera tout de même difficile de circuler dans le Système Stellaire de Luotian! » rétorqua Wang Lin d'une voix froide. Puis il frappa son sac, faisant apparaître l'Étendard de l'Âme. L'étendard de trente pieds de large émettait des gémissements fantomatiques capables de secouer l'âme originelle.
 
 D'un seul coup, tous les fragments d'âmes s'envolèrent. Parmi eux, outre les fragments de la Transformation de l'Âme, se trouvaient même quelques fragments d'Ascendant.
 
@@ -64,7 +64,7 @@ La deuxième était un géant noir de trente pieds de haut. Son corps dégageait
 
 La troisième était une petite aiguille noire, presque invisible; même en utilisant le Sens Divin, il était difficile d'en percevoir l'existence. Son corps principal constituait la quatrième âme, la plus mystérieuse!
 
-Ces trois âmes primaires ultimes étaient la fusion de tous les fragments contenus dans l'étendard. C'était le sortilège le plus puissant que Wang Lin pouvait utiliser avec l'Étendard des Mille Millions d'Âmes à cet instant.
+Ces trois âmes primaires ultimes étaient la fusion de tous les fragments contenus dans l'étendard. C'était le sortilège le plus puissant que Wang Lin pouvait utiliser avec l'Étendard de l'Âme à cet instant.
 
 Wang Lin hurla: « Tuez! »
 

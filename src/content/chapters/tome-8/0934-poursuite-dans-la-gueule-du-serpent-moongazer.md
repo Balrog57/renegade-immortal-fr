@@ -14,7 +14,7 @@ Dès qu'il eut prononcé ces quatre mots, le gaz blanc autour de lui jaillit ave
 
 Bang, bang, bang, bang!!!
 
-Un choc colossal résonna à travers les étoiles, aggravant l'effondrement. Le vortex de 5 000 kilomètres se déchira soudainement davantage. De nombreux cultivateurs ne purent esquiver assez vite et disparurent dans le vide.
+Un choc colossal résonna à travers les étoiles, aggravant l'effondrement. Le vortex de dix mille li se déchira soudainement davantage. De nombreux cultivateurs ne purent esquiver assez vite et disparurent dans le vide.
 
 Une fois capté par le vortex formé par l'effondrement de l'espace, il était difficile d'en sortir vivant. Personne n'oserait s'y aventurer sans précaution!
 

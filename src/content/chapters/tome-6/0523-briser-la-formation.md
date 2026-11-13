@@ -40,7 +40,7 @@ Pourtant, au moment même de son effondrement, les lueurs vertes cristallines qu
 
 Mais elles retrouvèrent aussitôt leur éclat!
 
-À cet instant, les lumières vertes situées dans un rayon de 3,3 kilomètres autour de la vallée brillèrent de mille feux. Des rayons de lumière jaillirent de ces amas flottants et s'entrelacèrent les uns aux autres dans le ciel.
+À cet instant, les lumières vertes situées dans un rayon de dix mille pieds autour de la vallée brillèrent de mille feux. Des rayons de lumière jaillirent de ces amas flottants et s'entrelacèrent les uns aux autres dans le ciel.
 
 Tout cela se produisit juste après l'effondrement de la figure verte. Cela fut si rapide qu'il n'y eut aucun répit pour la réaction!
 
@@ -50,7 +50,7 @@ Cependant, en un clin d'œil, un changement radical s'opéra sous les yeux de Wa
 
 Bien que la déduction se poursuive dans son esprit et approchât de sa conclusion, ses yeux restaient rivés sur la formation.
 
-Il put alors voir que la zone d'un rayon de 3,3 kilomètres autour de la formation était désormais encerclée par d'innombrables couches de lumière verte. Tout le périmètre autour de la vallée était devenu une gigantesque cage émeraude.
+Il put alors voir que la zone d'un rayon de dix mille pieds autour de la formation était désormais encerclée par d'innombrables couches de lumière verte. Tout le périmètre autour de la vallée était devenu une gigantesque cage émeraude.
 
 Wang Lin se trouvait prisonnier de cette cage!
 
@@ -62,7 +62,7 @@ Bien que la lance de restrictions fût détruite, Wang Lin ne parut nullement pe
 
 La véritable raison pour laquelle Wang Lin avait lancé cette lance était que sa déduction touchait à son terme; il pouvait briser la formation à tout instant.
 
-La lance de restrictions était brisée et il se trouvait piégé dans cette cage de lumière verte d'un rayon de 3,3 kilomètres, mais son expression resta imperturbable.
+La lance de restrictions était brisée et il se trouvait piégé dans cette cage de lumière verte d'un rayon de dix mille pieds, mais son expression resta imperturbable.
 
 Dans l'esprit de Wang Lin, la déduction continuait de converger vers une solution!
 

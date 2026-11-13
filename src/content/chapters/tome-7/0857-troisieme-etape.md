@@ -6,23 +6,23 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 857 - Third Step
 slug: troisieme-etape
 ---
-L'expression de Qing Shui demeurait indifférente. Il ne daignait pas regarder le Dieu de Sang, ses yeux fixant la silhouette démoniaque qui émergeait du corps de ce dernier avec une froideur glaciale.
+L'expression de Qing Shui demeurait indifférente. Il ne daignait pas regarder Xue Shenzi, ses yeux fixant la silhouette démoniaque qui émergeait du corps de ce dernier avec une froideur glaciale.
 
-Son œil droit scintillait d'un éclat écarlate, exhalant une intention meurtrière. D'un seul pas, Qing Shui s'élança. Le brouillard noir dans sa main s'étendit soudainement sur plus de trente pieds et vola vers le Dieu de Sang.
+Son œil droit scintillait d'un éclat écarlate, exhalant une intention meurtrière. D'un seul pas, Qing Shui s'élança. Le brouillard noir dans sa main s'étendit soudainement sur plus de trente pieds et vola vers Xue Shenzi.
 
-Le visage du Dieu de Sang était empreint de férocité alors qu'il pointait la lampe antique du doigt. Il n'était pas le seul à bouger: le démon ancien pointa également la lampe antique.
+Le visage de Xue Shenzi était empreint de férocité alors qu'il pointait la lampe antique du doigt. Il n'était pas le seul à bouger: le démon ancien pointa également la lampe antique.
 
 Une flamme brûlait encore à l'intérieur de l'antique lampe. Non loin de là, les yeux de Wang Lin étaient rivés sur l'objet dès son apparition. Il pouvait clairement distinguer l'ombre d'une femme en proie à une lutte acharnée au cœur de la lampe. Un sentiment de tristesse muette semblait émaner des flammes et se répandre dans le ciel étoilé.
 
-D'un geste du doigt du Dieu de Sang, le feu à l'intérieur de la lampe antique s'enflamma violemment. Soudain, l'ombre d'un immense démon ancien jaillit de la lampe!
+D'un geste du doigt de Xue Shenzi, le feu à l'intérieur de la lampe antique s'enflamma violemment. Soudain, l'ombre d'un immense démon ancien jaillit de la lampe!
 
-Le démon ancien ressemblait presque trait pour trait à l'ombre démoniaque entourant le Dieu de Sang. Cependant, son aura d'une puissance inimaginable surpassait de loin celle de cette ombre!
+Le démon ancien ressemblait presque trait pour trait à l'ombre démoniaque entourant Xue Shenzi. Cependant, son aura d'une puissance inimaginable surpassait de loin celle de cette ombre!
 
 C'était comme comparer une luciole et la pleine lune!
 
-« C'est son véritable corps! » Les yeux de Wang Lin se refroidirent tandis qu'il comprenait la situation. Ce qui se trouvait dans la lampe antique était le corps réel du démon ancien. Quant aux entités logées dans le Dieu de Sang et Yao Yun, ce n'étaient que des clones!
+« C'est son véritable corps! » Les yeux de Wang Lin se refroidirent tandis qu'il comprenait la situation. Ce qui se trouvait dans la lampe antique était le corps réel du démon ancien. Quant aux entités logées dans Xue Shenzi et Yao Yun, ce n'étaient que des clones!
 
-Le Dieu de Sang poussa un rugissement féroce: « Flamme démoniaque dévorante de dieux! »
+Xue Shenzi poussa un rugissement féroce: « Flamme démoniaque dévorante de dieux! »
 
 Alors qu'il rugissait, les flammes de la lampe antique se propagèrent et le véritable corps du démon ancien chargea.
 
@@ -56,13 +56,13 @@ Pourtant, dès que l'éclair rouge apparut, il s'effondra sous le simple regard 
 
 L'expression de Qing Shui resta froide alors qu'il levait la main et disait calmement: « Xu Mu, regarde attentivement, voici le quatrième des six grands sorts de Maître: l'Effondrement des Montagnes! »
 
-Les yeux du démon ancien étaient saturés d'énergie démoniaque. Son corps colossal recula rapidement pour saisir le Dieu de Sang. Il pénétra immédiatement dans son corps, arrachant des cris de douleur à la bouche du Dieu de Sang.
+Les yeux du démon ancien étaient saturés d'énergie démoniaque. Son corps colossal recula rapidement pour saisir Xue Shenzi. Il pénétra immédiatement dans son corps, arrachant des cris de douleur à la bouche de Xue Shenzi.
 
-Les veines sur le visage du Dieu de Sang saillirent, révélant une expression de souffrance indicible. C'était comme s'il subissait une douleur déchirante!
+Les veines sur le visage de Xue Shenzi saillirent, révélant une expression de souffrance indicible. C'était comme s'il subissait une douleur déchirante!
 
 Ses cheveux s'agitèrent sans vent et s'allongèrent brusquement. Puis, deux cornes illusoires jaillirent du sommet de son crâne. Simultanément, une lumière verte recouvrit son corps. Il n'avait plus rien d'humain; il ressemblait désormais à un démon ancien!
 
-Une énergie démoniaque dense émanait de lui. Les yeux du Dieu de Sang n'avaient plus de point fixe, seulement un éclat maléfique. Il poussa un rugissement et chargea Qing Shui.
+Une énergie démoniaque dense émanait de lui. Les yeux de Xue Shenzi n'avaient plus de point fixe, seulement un éclat maléfique. Il poussa un rugissement et chargea Qing Shui.
 
 L'expression de Qing Shui était grave et son œil droit dégageait une lueur rouge intense. Juste au moment où il allait attaquer, son visage changea et il leva brusquement les yeux!
 
@@ -70,11 +70,11 @@ Même Wang Lin redressa immédiatement la tête. Il ressentit vaguement une éne
 
 « Ceci... c'est la troisième étape!! » L'expression de Wang Lin changea radicalement.
 
-Même le Dieu de Sang, pourtant devenu fou, redressa instantanément la tête, son visage se transformant sous l'effet de la surprise.
+Même Xue Shenzi, pourtant devenu fou, redressa instantanément la tête, son visage se transformant sous l'effet de la surprise.
 
-« Assez... » Une voix calme émana lentement des étoiles. Puis, une silhouette formée d'innombrables rayons de lumière stellaire apparut entre Qing Shui et le Dieu de Sang.
+« Assez... » Une voix calme émana lentement des étoiles. Puis, une silhouette formée d'innombrables rayons de lumière stellaire apparut entre Qing Shui et Xue Shenzi.
 
-Dès que cette figure illusoire se manifesta, elle leva la main et fit un geste désinvolte vers le Dieu de Sang. Ce dernier cracha immédiatement une grande quantité de sang, et le démon ancien fut expulsé de son corps. Le visage du démon ancien était pétrifié par le choc alors qu'il fixait la silhouette illusoire.
+Dès que cette figure illusoire se manifesta, elle leva la main et fit un geste désinvolte vers Xue Shenzi. Ce dernier cracha immédiatement une grande quantité de sang, et le démon ancien fut expulsé de son corps. Le visage du démon ancien était pétrifié par le choc alors qu'il fixait la silhouette illusoire.
 
 « Démon ancien, je me fiche que vous empruntiez la famille Yao pour restaurer votre corps; cela m'est égal. Cependant, si vous provoquez un massacre dans le Système Stellaire de Luotian et perturbez l'entrée dans l'Alliance, alors je n'hésiterai pas à éteindre votre flamme démoniaque inextinguible! »
 
@@ -102,7 +102,7 @@ Même l'énergie démoniaque absorbée par certaines bêtes sur les planètes de
 
 Pourtant, ces dernières paroles auraient pu terrifier n'importe quelle créature. Seule une fraction de l'intention meurtrière de cet être avait été libérée, et pourtant cela suffisait à faire changer les couleurs du monde. Si elle avait été pleinement déchaînée, les étoiles elles-mêmes auraient cessé d'exister!
 
-Le Dieu de Sang réfléchit silencieusement un instant avant de saisir la lampe antique. Sans même jeter un regard à Qing Shui, il fusionna avec le monde et disparut.
+Xue Shenzi réfléchit silencieusement un instant avant de saisir la lampe antique. Sans même jeter un regard à Qing Shui, il fusionna avec le monde et disparut.
 
 Qing Shui et Wang Lin étaient désormais les deux seuls restants. Wang Lin n'était toujours pas remis du choc; une émotion qu'il ne pourrait jamais oublier.
 

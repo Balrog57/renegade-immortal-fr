@@ -92,7 +92,7 @@ Au sein du domaine ancestral des Huan, au moment où le jade apparut, Huan Feng 
 
 Voyant que Huan Wuqing s'apprêtait à activer le sort sur le jade, Huan Feng Shen eut un regard résolu. Il fit un pas en avant et déclara d'un ton grave: « Ancêtre, je ne permettrai pas que la famille Huan soit mêlée à cette affaire. Je retire la lignée des Huan de ce conflit. Si l'Ancêtre souhaite protéger cette Huan Mei, c'est votre problème personnel. Ne traînez pas toute la famille avec vous! »
 
-Tout en parlant, il leva les yeux vers Wang Lin et joignit ses mains: « Camarade cultivateur, je suis le chef de la famille Huan, Huan Feng Shen. Comme je l'ai dit à l'instant, la famille Huan ne participera pas. C'est une querelle personnelle entre vous et Huan Wuqing. J'espère que vous saurez distinguer le juste du tort! »
+Tout en parlant, il leva les yeux vers Wang Lin et joignit ses mains: « Daoïste, je suis le chef de la famille Huan, Huan Feng Shen. Comme je l'ai dit à l'instant, la famille Huan ne participera pas. C'est une querelle personnelle entre vous et Huan Wuqing. J'espère que vous saurez distinguer le juste du tort! »
 
 L'ancêtre des Huan lança un regard glacial à Huan Feng Shen. Un rictus sinistre étira ses lèvres alors qu'il se tourna vers les descendants directs: « Et vous autres? »
 

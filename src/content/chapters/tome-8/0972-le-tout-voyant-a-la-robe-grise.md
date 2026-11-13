@@ -100,7 +100,7 @@ Le garçon s'avança pour faire face à Tian Yunzi à la Robe Grise. Ling Tianho
 
 Alors que le corps du garçon s'élançait, l'Épée Serpentine de la Pluie vola vers les dix filaments d'énergie de massacre projetés par Tian Yunzi.
 
-En un instant, l'épée brilla intensément et un python gigantesque long de 3,3 kilomètres apparut. Il poussa un rugissement tout en exhalant un souffle fétide, déclenchant une tempête dévastatrice.
+En un instant, l'épée brilla intensément et un python gigantesque long de dix mille pieds apparut. Il poussa un rugissement tout en exhalant un souffle fétide, déclenchant une tempête dévastatrice.
 
 L'expression de Tian Yunzi resta indifférente tandis que les dix filaments d'énergie de massacre percutaient l'ouragan dégueulé par le python. Lors de la collision, ces filaments subirent une mutation inattendue qui fit changer l'expression de Wang Lin.
 

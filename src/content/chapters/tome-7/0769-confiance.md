@@ -26,7 +26,7 @@ Xue Zu fut stupéfait. Son expression changea lorsqu'il réalisa que quelque cho
 
 « Wang Lin! » Xue Zu serra les dents alors que la lumière de sang brillait intensément, repoussant immédiatement l'âme originelle de Wang Lin. Cependant, durant ce processus, les éclairs de la Tribulation Céleste continuèrent de tomber. Ils traversèrent l'âme originelle de Wang Lin pour frapper directement Xue Zu. Ce dernier recula précipitamment, voulant quitter ces nuages de Tribulation Céleste.
 
-« Xue Zu, votre planète de sang a été détruite, et même votre concubine, Zi Xin, est morte elle aussi! » Le Sens Divin de Wang Lin résonna, rendant l'expression de Xue Zu encore plus lugubre.
+« Senior Xue Zu, votre planète de sang a été détruite, et même votre concubine, Zi Xin, est morte elle aussi! » Le Sens Divin de Wang Lin résonna, rendant l'expression de Xue Zu encore plus lugubre.
 
 « De plus, votre pavillon de sang est assez intéressant! » La voix de Wang Lin surgit du vide.
 

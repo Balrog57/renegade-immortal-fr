@@ -58,13 +58,13 @@ Non seulement lui, mais tous les chefs des familles soutenant Wang Lin fermèren
 
 « La famille Meng de la Planète Diyan recommande Senior Xu Mu. J'ignore si ma famille Meng en a les qualifications! » Un autre cultivateur s'avança et fixa l'Ancien de la famille Tang sans aucune crainte.
 
-« La famille Baili de la Planète Nuage de Tonnerre recommande Senior Xu Mu... »
+« La famille Baili de la Planète Lei Yun recommande Senior Xu Mu... »
 
-« La famille Si Kong de la Planète Eau Noire recommande Senior Xu Mu... »
+« La famille Si Kong de la Planète Shui Ming recommande Senior Xu Mu... »
 
 « La famille Zhou de la Planète Diyan recommande Senior Xu Mu... »
 
-« La famille Ning de la Planète Ciel Bleu recommande également Senior Xu Mu. Je ne sais pas si ma famille Ning, en tant que l'une des lignées des planètes principales, a les qualifications! »
+« La famille Ning de la Planète Tian Lan recommande également Senior Xu Mu. Je ne sais pas si ma famille Ning, en tant que l'une des lignées des planètes principales, a les qualifications! »
 
 Après l'intervention de ces personnes, d'autres s'alignèrent aux côtés de Wang Lin pour fixer l'Ancien de la famille Tang. Tous étaient des survivants du Royaume Céleste du Tonnerre ayant réussi à s'échapper sous le commandement de Wang Lin!
 

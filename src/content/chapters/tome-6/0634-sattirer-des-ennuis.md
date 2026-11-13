@@ -46,9 +46,9 @@ Après avoir confirmé ses soupçons, Wang Lin s'arrêta en plein air et inspect
 
 « À mille pieds plus bas se trouve l'un des passages difficiles que j'avais découvert grâce au cristal. »
 
-Wang Lin flottait dans les airs, le visage impassible. Peu de temps après, Murong Zhuo descendit et vint se placer à ses côtés en lui adressant un signe de tête. Après un moment de silence, il demanda soudainement: « Camarade Cultivateur Wang, connaîtriez-vous cet endroit? »
+Wang Lin flottait dans les airs, le visage impassible. Peu de temps après, Murong Zhuo descendit et vint se placer à ses côtés en lui adressant un signe de tête. Après un moment de silence, il demanda soudainement: « Daoïste Wang, connaîtriez-vous cet endroit? »
 
-Wang Lin regarda Murong Zhuo et répondit: « Un arbre ancien pousse sur la falaise, mille pieds plus bas. Cet arbre est extrêmement étrange; le Camarade Murong devrait donc être prudent. »
+Wang Lin regarda Murong Zhuo et répondit: « Un arbre ancien pousse sur la falaise, mille pieds plus bas. Cet arbre est extrêmement étrange; le Daoïste Murong devrait donc être prudent. »
 
 Murong Zhuo fut surpris. Il hocha la tête et ne dit plus un mot.
 

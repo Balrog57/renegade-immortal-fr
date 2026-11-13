@@ -60,7 +60,7 @@ L'homme en robe noire était son opposé. Son visage était lugubre et ses yeux 
 
 Le rugissement tonitruant à l'intérieur de la petite sphère s'intensifia. L'énergie spirituelle céleste dans le corps de Wang Lin afflua avec frénésie, se convertissant en énergie spirituelle démoniaque pour être injectée dans la sphère.
 
-Quant à l'homme en robe noire, il maudissait intérieurement. Il devait insuffler toute l'énergie spirituelle céleste démoniaque accumulée jusqu'ici dans la sphère, car s'il perdait le contrôle de celle-ci, il subirait un terrible contrecoup.
+Quant à l'homme en robe noire, il maudissait intérieurement. Il devait insuffler toute l'énergie spirituelle céleste spectrale accumulée jusqu'ici dans la sphère, car s'il perdait le contrôle de celle-ci, il subirait un terrible contrecoup.
 
 Le visage de l'homme était féroce. Sans ouvrir la bouche, il envoya un message par sens divin: « Je ne crois pas qu'un cultivateur au stade intermédiaire de la Transformation de l'Âme comme toi possède plus d'énergie spirituelle céleste que moi, qui suis au sommet du stade avancé de la Transformation de l'Âme. Puisque tu veux te mesurer à moi, voyons qui vivra et qui mourra! »
 
@@ -80,11 +80,11 @@ La scène fut si rapide que même l'homme en robe noire en fut stupéfait, avant
 
 Le regard de Wang Lin resta froid: « C'est bien fait pour toi! »
 
-Les yeux de l'homme en robe noire étaient emplis d'une intention meurtrière: « Petit bâtard, tu es mort! » Maintenant que le fantôme ne l'absorbait plus, il utilisa toute l'énergie spirituelle céleste démoniaque qu'il avait cultivée selon la méthode de sa secte pour l'injecter dans la petite sphère.
+Les yeux de l'homme en robe noire étaient emplis d'une intention meurtrière: « Petit bâtard, tu es mort! » Maintenant que le fantôme ne l'absorbait plus, il utilisa toute l'énergie spirituelle céleste spectrale qu'il avait cultivée selon la méthode de sa secte pour l'injecter dans la petite sphère.
 
-« Wang Lin, accepte ta mort! » En disant cela, il insuffla 90 % de son énergie spirituelle céleste démoniaque dans la sphère. À cet instant, le rugissement tonitruant de l'objet résonna à travers les cieux. C'était comme si la petite sphère entre leurs doigts n'était plus un objet ordinaire, mais la légendaire foudre de la tribulation céleste.
+« Wang Lin, accepte ta mort! » En disant cela, il insuffla 90 % de son énergie spirituelle céleste spectrale dans la sphère. À cet instant, le rugissement tonitruant de l'objet résonna à travers les cieux. C'était comme si la petite sphère entre leurs doigts n'était plus un objet ordinaire, mais la légendaire foudre de la tribulation céleste.
 
-Alors que l'énergie spirituelle céleste démoniaque de l'homme pénétrait dans la sphère, il devint évident que l'énergie de Wang Lin était insuffisante, ce qui fit que la petite sphère commença lentement à converger vers lui.
+Alors que l'énergie spirituelle céleste spectrale de l'homme pénétrait dans la sphère, il devint évident que l'énergie de Wang Lin était insuffisante, ce qui fit que la petite sphère commença lentement à converger vers lui.
 
 L'homme en robe noire afficha un sourire cruel, comme s'il voyait déjà Wang Lin être frappé par la sphère. Le corps de Wang Lin serait pulvérisé, sa chair et son sang projetés partout. Même son âme originelle serait totalement dispersée, sans aucune chance de réintégrer le cycle de la réincarnation!
 
@@ -122,7 +122,7 @@ Tout cela — de l'apparition de la bête à son attaque — se produisit en un 
 
 Alors que la bête spirituelle rugissait, elle fonça sur l'homme en robe noire avec la rapidité de la foudre.
 
-Le visage de l'homme changea comme jamais auparavant. Il avait déjà utilisé toute l'énergie spirituelle céleste démoniaque de son corps, le rendant incapable d'esquiver. S'il tentait de s'écarter, il subirait immédiatement le contrecoup de la sphère chargée d'une aura destructrice!
+Le visage de l'homme changea comme jamais auparavant. Il avait déjà utilisé toute l'énergie spirituelle céleste spectrale de son corps, le rendant incapable d'esquiver. S'il tentait de s'écarter, il subirait immédiatement le contrecoup de la sphère chargée d'une aura destructrice!
 
 Mais maintenant, face à cette bête féroce, s'il ne l'évitait pas, il mourrait. Il tourna brusquement la tête en arrière, lança un regard venimeux à Wang Lin, leva sa main gauche et frappa violemment son propre front.
 

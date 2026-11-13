@@ -6,13 +6,13 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 597 - Demon Drum
 slug: le-tambour-demoniaque
 ---
-« Merde de chien, punition divine et petit voyou, vous osez détruire la capitale de mon Pays Tian Yao?! »
+« Merde de chien, Tribulation Céleste et petit voyou, vous osez détruire la capitale de mon Pays Tian Yao?! »
 
-« Maudits, tous maudits! Toi, sale gosse, tu mérites de mourir, et cette punition divine plus encore! »
+« Maudits, tous maudits! Toi, sale gosse, tu mérites de mourir, et cette Tribulation Céleste plus encore! »
 
-« Haha, une punition divine? Magnifique! Mon ancêtre est né pour répondre à la punition divine et a cultivé en la traversant. Aujourd'hui, je veux voir quelle est la puissance de cette rétribution! »
+« Haha, une Tribulation Céleste? Magnifique! Mon ancêtre est né pour répondre à la Tribulation Céleste et a cultivé en la traversant. Aujourd'hui, je veux voir quelle est la puissance de cette Tribulation Céleste! »
 
-Des rugissements furieux jaillirent du sol. Puis, des grondements tonitruants montèrent des profondeurs, non moins puissants que le tonnerre de la punition divine.
+Des rugissements furieux jaillirent du sol. Puis, des grondements tonitruants montèrent des profondeurs, non moins puissants que le tonnerre de la Tribulation Céleste.
 
 Cinq ondes de choc dévastatrices s'élancèrent de sous terre. Bien que la puissance céleste tentât de les réprimer, ces ondes réussirent à s'imposer et à s'élever à cent pieds dans les airs.
 
@@ -50,7 +50,7 @@ Wang Lin se trouvait au centre de la puissance céleste. Des bruits de craquemen
 
 Les cinq vieillards se relevèrent immédiatement, pointèrent le ciel du doigt et se mirent à insulter les cieux.
 
-« Je suis le descendant du démon ancien, qui est hors des lois célestes. Tu n'es qu'une simple punition divine, tu ne vaux rien! »
+« Je suis le descendant du démon ancien, qui est hors des lois célestes. Tu n'es qu'une simple Tribulation Céleste, tu ne vaux rien! »
 
 Tout en maudissant, ils s'envolèrent de nouveau vers les cieux. Cette fois, une énergie spirituelle démoniaque jaillit de leurs corps. Une épaisse brume démoniaque enveloppa toute la Cité Tian Yao tandis que les cinq hommes fonçaient droit vers les nuages rouges.
 
@@ -64,7 +64,7 @@ Wang Lin cracha une large bouffée de sang, tandis que des bruits de déchiremen
 
 Les cinq vieillards qui chargeaient le nuage rouge furent eux aussi projetés au sol, laissant derrière eux cinq cratères profonds.
 
-L'un des vieillards, au fond de son trou, était furieux. Il en sortit et hurla avec rage: « Punition divine, espèce de saloperie! Tu as détruit ma Cité Tian Yao, je vais te combattre jusqu'à la mort! »
+L'un des vieillards, au fond de son trou, était furieux. Il en sortit et hurla avec rage: « Tribulation Céleste, espèce de saloperie! Tu as détruit ma Cité Tian Yao, je vais te combattre jusqu'à la mort! »
 
 À cet instant, Wang Lin ne ressentait plus rien à l'extérieur. Il était sous terre et avait perdu toute sensation corporelle. Ses méridiens étaient brisés et ses os semblaient se réduire en poussière.
 
@@ -78,13 +78,13 @@ Les yeux de Wang Lin restaient grands ouverts. Même à cet instant, son regard 
 
 « Ce dont le Dao céleste a véritablement peur, ce sont ceux qui choisissent non pas de fuir, mais de l'affronter... Pour ces créatures, les cieux feront tout pour les effacer... Tu n'es pas le premier, et tu ne seras pas le dernier... »
 
-« Lorsque d'autres font face à l'Ascendant, ils suivent soit le Dao céleste, soit ils l'évitent, et ainsi la punition divine n'advient pas. Mais toi, tu as choisi de l'affronter, et c'est ce qui a provoqué la descente de cette rétribution... »
+« Lorsque d'autres font face à l'Ascendant, ils suivent soit le Dao céleste, soit ils l'évitent, et ainsi la Tribulation Céleste n'advient pas. Mais toi, tu as choisi de l'affronter, et c'est ce qui a provoqué la descente de cette Tribulation Céleste... »
 
 « Le Dao céleste ne permettra jamais un troisième type de culture défiant les cieux... Il y a d'innombrables années, lors de la formation de l'univers, il existait une race aussi ancienne que le Dao céleste lui-même. Les membres de cette race possédaient un pouvoir immense. Ils utilisaient ce pouvoir pour forger leur propre Dao, et ils utilisaient ce Dao pour combattre les cieux. Certains possédaient des sorts prodigieux; d'un simple revers de main, ils pouvaient détruire le Dao et utiliser leurs sortilèges pour lutter contre les cieux. Il y avait aussi ceux qui marchaient sur la voie du massacre; ils étaient avides de sang, et leur intention meurtrière plongeait les peuples dans la misère; ils utilisaient la mort pour transformer le ciel! »
 
 « Ils se faisaient appeler l'Ordre Ancien! »
 
-« La punition divine ne put détruire leurs corps, et la puissance céleste ne put les faire plier. Ils furent les premières formes de vie à cultiver tout en défiant les cieux... »
+« La Tribulation Céleste ne put détruire leurs corps, et la puissance céleste ne put les faire plier. Ils furent les premières formes de vie à cultiver tout en défiant les cieux... »
 
 « Après d'innombrables années, l'Ordre Ancien se scinda! Ceux qui possédaient un pouvoir extrême s'appelèrent dieux anciens... Ceux qui marchaient sur la voie du massacre s'appelèrent diables anciens... Ceux dont les sorts détruisaient le Dao s'appelèrent démons anciens! Ils furent les secondes formes de vie à cultiver tout en défiant les cieux! »
 
@@ -106,7 +106,7 @@ Wang Lin réfléchit.
 
 Wang Lin projeta un message par son Sens Divin: « Tu dois avoir une raison d'apparaître et de me révéler tout cela. »
 
-« C'est exact. Je peux t'aider à réparer ton corps et à surmonter cette punition divine. Je peux aussi te donner du pouvoir dans le Pays Tian Yao, mais tu devras faire quelque chose pour moi. Tu dois récupérer les huit reliques sacrées des huit autres pays! »
+« C'est exact. Je peux t'aider à réparer ton corps et à surmonter cette Tribulation Céleste. Je peux aussi te donner du pouvoir dans le Pays Tian Yao, mais tu devras faire quelque chose pour moi. Tu dois récupérer les huit reliques sacrées des huit autres pays! »
 
 Wang Lin réfléchit. Peu après, il dit lentement: « Je ne peux pas être le seul cultivateur défiant les cieux depuis l'aube de la Terre Yao Ling... »
 
@@ -118,7 +118,7 @@ Avant que Wang Lin n'ait pu achever sa phrase, la voix l'interrompit avec un sou
 
 « Tu es plus apte que quiconque. C'est pour cela que je t'ai choisi... »
 
-Wang Lin médita longuement avant de répondre calmement: « Répare mon corps et donne-moi le pouvoir de résister à la punition divine! »
+Wang Lin médita longuement avant de répondre calmement: « Répare mon corps et donne-moi le pouvoir de résister à la Tribulation Céleste! »
 
 La voix résonna: « Qu'il en soit ainsi... »
 

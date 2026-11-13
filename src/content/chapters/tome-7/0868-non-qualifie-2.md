@@ -28,7 +28,7 @@ En voyant cela, les yeux de Maître Yan Leizi s'illuminèrent. La vue de cette l
 
 Qing Shui gardait les yeux calmes; il jeta un bref regard à Wang Lin avant de détourner les siens.
 
-Hormis ces deux-là, les yeux des autres anciens s'illuminèrent également. Seul le Dieu de Sang affichait une expression sombre et ricana intérieurement.
+Hormis ces deux-là, les yeux des autres anciens s'illuminèrent également. Seul Xue Shenzi affichait une expression sombre et ricana intérieurement.
 
 À l'exception d'eux, seules quelques personnes furent capables de percevoir le caractère extraordinaire du troisième œil. L'ancêtre de Xi Zifeng laissa échapper un soupir et murmura: « Cet homme est si jeune et possède pourtant une culture aussi puissante. Il n'est pas simple! »
 

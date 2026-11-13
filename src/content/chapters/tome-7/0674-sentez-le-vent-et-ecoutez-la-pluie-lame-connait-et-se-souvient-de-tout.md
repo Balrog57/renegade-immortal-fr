@@ -8,7 +8,7 @@ slug: sentez-le-vent-et-ecoutez-la-pluie-lame-connait-et-se-souvient-de-tout
 ---
 Le Doigt de la Mort se transforma en un rayon de lumière noire lorsqu'il fut projeté. Des ondulations apparurent autour de lui, et même ces ondulations étaient parcourues d'éclairs crépitants.
 
-Le son résonna et continua de s'étendre avant de se muer en détonations de tonnerre qui descendaient du ciel. La puissance du tonnerre entourant le Doigt de la Mort était encore plus redoutable; c'était comme si elle incarnait la colère de la foudre de la tribulation divine.
+Le son résonna et continua de s'étendre avant de se muer en détonations de tonnerre qui descendaient du ciel. La puissance du tonnerre entourant le Doigt de la Mort était encore plus redoutable; c'était comme si elle incarnait la colère de la foudre de la Tribulation Céleste.
 
 D'un seul doigt, la lumière autour du corps de Huan Dong se désintégra sans aucune résistance. Son visage pâlit instantanément et il recula précipitamment. La puissance de ce doigt était trop immense, au point que, malgré sa culture, son cœur en trembla.
 
@@ -60,11 +60,11 @@ Huan Dong vit cette lueur glaciale et réalisa intérieurement que quelque chose
 
 Bien que les paroles de Huan Dong s'adressent à l'ancêtre de la famille Ran et à ses compagnons, son regard balayait occasionnellement Wang Lin. Il semblait éprouver une certaine crainte envers celui qui l'avait capturé, tentant de deviner quel pouvait être son soutien.
 
-En entendant cela, une pointe d'hésitation traversa les yeux de l'ancêtre de la famille Ran, mais elle fut immédiatement remplacée par de la détermination. Il dit calmement: « Camarade cultivateur Huan, je me demande pourquoi vous êtes venu sur la planète Ran Yun. »
+En entendant cela, une pointe d'hésitation traversa les yeux de l'ancêtre de la famille Ran, mais elle fut immédiatement remplacée par de la détermination. Il dit calmement: « Daoïste Huan, je me demande pourquoi vous êtes venu sur la planète Ran Yun. »
 
 Huan Dong fixa l'ancêtre de la famille Ran, puis les deux autres. Il esquissa un sourire. « Ainsi, le membre de la famille Huan a bel et bien été tué par vous trois il y a quatre ans. Ran Xuefeng, Sun Xi, Zhao Chuanwen, les lignées de vos familles touchent à leur fin! »
 
-L'expression de l'ancêtre de la famille Ran devint sombre alors qu'il se tournait vers Wang Lin: « Camarade cultivateur Xu, que diriez-vous de nous remettre cet homme? »
+L'expression de l'ancêtre de la famille Ran devint sombre alors qu'il se tournait vers Wang Lin: « Daoïste Xu, que diriez-vous de nous remettre cet homme? »
 
 Le visage de Wang Lin resta impassible et il hocha la tête.
 
@@ -72,7 +72,7 @@ Le visage de Wang Lin resta impassible et il hocha la tête.
 
 « La demoiselle de la famille Huan? » Wang Lin regarda Huan Dong.
 
-Sun Xi expliqua: « Camarade cultivateur Xu, vous l'ignorez peut-être, mais l'ancêtre de la famille Huan a ramené une femme du Système Stellaire de l'Alliance. Il en a fait sa fille adoptive et utilisera le rituel de lignée pour transformer son sang. »
+Sun Xi expliqua: « Daoïste Xu, vous l'ignorez peut-être, mais l'ancêtre de la famille Huan a ramené une femme du Système Stellaire de l'Alliance. Il en a fait sa fille adoptive et utilisera le rituel de lignée pour transformer son sang. »
 
 Les yeux de Wang Lin se plissèrent. « Quel est le niveau de culture de l'ancêtre de la famille Huan? »
 
@@ -102,7 +102,7 @@ En fouillant dans ces mémoires, Wang Lin tomba soudainement sur l'image d'une f
 
 Cette scène soudaine fit sursauter l'ancêtre de la famille Ran et ses compagnons, qui furent chacun plongés dans leurs propres réflexions.
 
-« Liu Mei... » Wang Lin fronça les sourcils, et des images de la planète Suzaku défilèrent devant ses yeux, incluant ce qui s'était passé dans le Tombeau Zhu Que.
+« Liu Mei... » Wang Lin fronça les sourcils, et des images de la planète Suzaku défilèrent devant ses yeux, incluant ce qui s'était passé dans le Tombeau Suzaku.
 
 « Cette femme a eu une chance inouïe de parvenir au Système Stellaire de Luotian... » Wang Lin réfléchit longuement en silence. Il leva les yeux vers le ciel et partit sans dire un mot.
 

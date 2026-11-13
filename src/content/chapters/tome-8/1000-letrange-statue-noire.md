@@ -19,13 +19,13 @@ Une fois les méthodes de culture de la Secte transmises aux disciples, tous ent
 
 Si la Tactique de Raffinement Céleste en Neuf Cycles était cultivée à son paroxysme, l'énergie en spirale qu'elle produisait s'avérait extrêmement puissante. Bien qu'elle fût inutile pour Wang Lin, elle représentait un véritable sort céleste pour les disciples de la Secte!
 
-Par ailleurs, Wang Lin prit une décision majeure. Après avoir mis en place de nombreuses restrictions, il pénétra dans le Pavillon Cang Xian sous le couvert d'innombrables fragments d'âme!
+Par ailleurs, Wang Lin prit une décision majeure. Après avoir mis en place de nombreuses restrictions, il pénétra dans le Pavillon Cang Pin sous le couvert d'innombrables fragments d'âme!
 
-Le Pavillon Cang Xian était scellé à l'intérieur même du corps de Wang Lin. Il pouvait y accéder d'une simple pensée, il n'était donc pas nécessaire de le sortir. Depuis qu'il l'avait obtenu, il ne l'avait sorti qu'une seule fois!
+Le Pavillon Cang Pin était scellé à l'intérieur même du corps de Wang Lin. Il pouvait y accéder d'une simple pensée, il n'était donc pas nécessaire de le sortir. Depuis qu'il l'avait obtenu, il ne l'avait sorti qu'une seule fois!
 
 C'était juste avant de venir ici. Il avait installé une quantité massive de restrictions sur la planète Shuiling avant de l'ouvrir! Tout cela pour offrir une fortune à Situ Nan!
 
-En ce jour, Wang Lin se souvenait encore de l'expression stupéfaite de Situ Nan lorsqu'il avait réalisé ce qu'était le Pavillon Cang Xian et ce qu'il représentait dans le Royaume Céleste. Un tel visage était extrêmement rare chez Situ Nan!
+En ce jour, Wang Lin se souvenait encore de l'expression stupéfaite de Situ Nan lorsqu'il avait réalisé ce qu'était le Pavillon Cang Pin et ce qu'il représentait dans le Royaume Céleste. Un tel visage était extrêmement rare chez Situ Nan!
 
 Après s'être remis de ses émotions, les yeux de Situ Nan avaient brillé de mille feux. Même la nuit, son regard rayonnait comme le soleil et la lune, trahissant l'excitation qui bouillonnait dans son cœur!
 
@@ -33,13 +33,13 @@ Les sorts célestes se divisaient en trois catégories: basse, moyenne et haute 
 
 Seuls les cultivateurs les plus puissants avaient la qualification et la force nécessaire pour obtenir des sorts célestes complets, mais ceux-ci étaient d'une rareté absolue. Quant aux sorts de qualité moyenne ou élevée, ils suffiraient à rendre n'importe quel cultivateur fou de convoitise! Même un cultivateur au stade du Briseur du Nirvana en serait ébranlé! S'ils apprenaient que les niveaux supérieurs contenaient des sorts laissés par l'Empereur Céleste Bai Fan, ils perdraient la raison!
 
-Après tout, le Pavillon Cang Xian avait préservé la majeure partie des sorts célestes du Royaume Céleste du Tonnerre! De plus, au dernier étage, outre les sorts de l'Empereur Céleste Bai Fan, se trouvaient également des sorts destinés aux Seigneurs Célestes. C'était un trésor divin pour les cultivateurs de niveau Briseur du Nirvana! Si ces derniers réagissaient ainsi, que dire des cultivateurs Scruteur du Nirvana ou Purificateur du Nirvana?
+Après tout, le Pavillon Cang Pin avait préservé la majeure partie des sorts célestes du Royaume Céleste du Tonnerre! De plus, au dernier étage, outre les sorts de l'Empereur Céleste Bai Fan, se trouvaient également des sorts destinés aux Seigneurs Célestes. C'était un trésor divin pour les cultivateurs de niveau Briseur du Nirvana! Si ces derniers réagissaient ainsi, que dire des cultivateurs Scruteur du Nirvana ou Purificateur du Nirvana?
 
-C'est pourquoi Wang Lin se montrait extrêmement prudent avec le Pavillon Cang Xian. Situ Nan y avait tiré d'immenses bénéfices. L'extase dans ses yeux avait fait comprendre à Wang Lin que, bien que son niveau de culture n'ait pas progressé, les sorts célestes qu'il avait acquis grâce à son talent feraient de lui une force terrifiante pour tout ennemi.
+C'est pourquoi Wang Lin se montrait extrêmement prudent avec le Pavillon Cang Pin. Situ Nan y avait tiré d'immenses bénéfices. L'extase dans ses yeux avait fait comprendre à Wang Lin que, bien que son niveau de culture n'ait pas progressé, les sorts célestes qu'il avait acquis grâce à son talent feraient de lui une force terrifiante pour tout ennemi.
 
 Lors de cette ouverture, Wang Lin avait choisi un sort céleste de qualité moyenne nommé Gestation Spirituelle. Après l'avoir pleinement compris, il en avait fait le prix de l'accord des trois frères Chen, qui, les yeux presque rouges, acceptèrent sans la moindre hésitation d'entrer dans la Terre Yao Ling!
 
-À ce moment-là, Wang Lin avait parcouru le Pavillon Cang Xian et en avait extrait quatre sorts célestes de basse qualité. La culture des disciples actuels de la Secte Lian Hun était anormale; ils maîtrisaient parfaitement les âmes, mais toute leur progression reposait sur les drapeaux d'âme. C'est pourquoi les sorts choisis par Wang Lin étaient pour la plupart liés à l'âme. Cependant, les sorts célestes n'étaient pas de simples techniques qu'ils pouvaient cultiver telles quelles. Wang Lin en avait appris les fondamentaux avant de les diviser en divers sorts interdits destinés à être transmis.
+À ce moment-là, Wang Lin avait parcouru le Pavillon Cang Pin et en avait extrait quatre sorts célestes de basse qualité. La culture des disciples actuels de la Secte Lian Hun était anormale; ils maîtrisaient parfaitement les âmes, mais toute leur progression reposait sur les drapeaux d'âme. C'est pourquoi les sorts choisis par Wang Lin étaient pour la plupart liés à l'âme. Cependant, les sorts célestes n'étaient pas de simples techniques qu'ils pouvaient cultiver telles quelles. Wang Lin en avait appris les fondamentaux avant de les diviser en divers sorts interdits destinés à être transmis.
 
 Quant à Ouyang Hua, Wang Lin ne se montra pas avare. Il sortit un sort céleste complet de basse qualité, l'Ascension du Raffinement des Âmes, pour le lui offrir en récompense de ses centaines d'années de labeur acharné. Ce n'était pas que Wang Lin refusait de lui donner un sort de qualité moyenne, mais la culture d'Ouyang Hua était trop singulière: s'il utilisait ses 99 drapeaux d'âme, il pouvait combattre un cultivateur Ascendant, mais sans eux, son niveau de culture s'effondrait. L'Ascension du Raffinement des Âmes était déjà une tâche ardue pour lui; après tout, c'était un sort céleste complet.
 

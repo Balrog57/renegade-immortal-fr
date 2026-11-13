@@ -81,13 +81,13 @@ Li Yuan prit une grande inspiration. Il devina vaguement l'intention de Wang Lin
 
 Si Wang Lin avait été seul, il aurait pu secouer la montagne, mais pas la briser. Cependant, le garde céleste était différent. Son corps était d'une robustesse extrême et, après ce coup, les tremblements de la montagne s'intensifièrent.
 
-Dans la vallée, les yeux de Wang Lin étaient injectés de sang alors qu'il agrippait la paroi pour la soulever. Parallèlement, le garde céleste subissait une pression accrue. Il enfonça ses mains dans la roche et souleva la montagne d'environ trois mètres!
+Dans la vallée, les yeux de Wang Lin étaient injectés de sang alors qu'il agrippait la paroi pour la soulever. Parallèlement, le garde céleste subissait une pression accrue. Il enfonça ses mains dans la roche et souleva la montagne d'environ dix pieds!
 
 Le grondement fit vibrer toute la vallée et même l'espace de stockage commença à trembler. Le garde céleste souleva la montagne et se glissa dessous. Son corps émit un éclat doré tandis qu'il portait entièrement la masse sur son dos.
 
 Les vibrations violentes affectèrent la vallée, forçant les huit courtes épées à marquer une pause. La brume verte ignora totalement Wang Lin et s'échappa tout entière par la partie soulevée de la montagne, et les insectes firent de même.
 
-Des craquements sinistres émanaient du corps du garde céleste. Semblant être entré en transe, il poussa un rugissement et souleva la montagne d'une dizaine de mètres supplémentaires.
+Des craquements sinistres émanaient du corps du garde céleste. Semblant être entré en transe, il poussa un rugissement et souleva la montagne de plusieurs dizaines de pieds supplémentaires.
 
 Peu importait le nombre de fissures spatiales qui apparaissaient, elles étaient broyées par l'impact de la masse rocheuse. Une fois la montagne portée à une certaine hauteur, le garde céleste la relâcha violemment vers le sol.
 

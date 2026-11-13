@@ -104,7 +104,7 @@ Seuls le jeune homme et ses trente-deux clones subsistaient.
 
 Wang Lin sentait que l'âme originelle du vieil homme était extrêmement affaiblie et pouvait se dissiper à tout moment, telle une lampe dont l'huile s'épuise.
 
-« Malheur! Cette fois, ce vieux fou travaille à perte! »
+« Malheur! Cette fois, ce vieil homme travaille à perte! »
 
 Les yeux du jeune homme brillèrent d'un éclat rouge et il fit un pas vers Wang Lin.
 

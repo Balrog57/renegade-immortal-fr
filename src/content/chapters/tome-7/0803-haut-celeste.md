@@ -42,7 +42,7 @@ Les yeux de Wang Lin restaient neutres, mais son cœur fut secoué. Avec près d
 
 Le terme « Haut Céleste » ne signifiait rien s'il sortait de la bouche de mortels, mais venant des membres du Clan Xian Yi, la portée était tout autre!
 
-Plus important encore, « Haut Céleste » n'était pas qu'un simple titre. Avant de se rendre au Pavillon Cang Jue, il n'y avait pas songé, mais désormais, l'idée ne pouvait lui échapper.
+Plus important encore, « Haut Céleste » n'était pas qu'un simple titre. Avant de se rendre au Pavillon Cang Pin, il n'y avait pas songé, mais désormais, l'idée ne pouvait lui échapper.
 
 Le regard de Wang Lin demeura serein lorsqu'il demanda lentement: « Vous pouvez percevoir mon niveau de culture? »
 

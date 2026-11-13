@@ -64,13 +64,13 @@ Wang Lin hocha la tête et son regard balaya le garçon à la grosse tête qui f
 
 Le niveau de culture du garçon à la grosse tête était identique à celui de Wang Lin: le stade initial du Scruteur du Nirvana. Ayant été témoin de l'ascension de Wang Lin lors des trois épreuves, il éprouvait une peur immense envers lui et ne voulait pas le provoquer inutilement.
 
-Son sourire idiot avait disparu et il cria rapidement: « Camarade cultivateur Xu Mu, je quitte simplement cette zone! Pourquoi vouloir m'exterminer? Nos niveaux de culture sont identiques; si nous combattons, même si tu l'emportes, tu seras blessé. Ne donne pas d'opportunité à ce Xu Ting! »
+Son sourire idiot avait disparu et il cria rapidement: « Daoïste Xu Mu, je quitte simplement cette zone! Pourquoi vouloir m'exterminer? Nos niveaux de culture sont identiques; si nous combattons, même si tu l'emportes, tu seras blessé. Ne donne pas d'opportunité à ce Xu Ting! »
 
 Le regard de Wang Lin restait glacial. En avançant, il leva la main. Un Coup Céleste se fusionna avec sa paume et il abattit son geste impitoyablement. L'expression du garçon changea radicalement. Alors qu'il reculait, la Fourmi Céleste Profonde poussa un rugissement et se posta devant lui pour faire écran. Au moment où le Coup Céleste toucha l'insecte, celui-ci s'effondra!
 
 Le Sceau Céleste brilla et l'une des runes dorées atterrit sur la fourmi en train de s'effondrer. Cette rune fut immédiatement douée d'intelligence.
 
-Le visage du garçon à la grosse tête devint livide. Tout en reculant avec célérité, il forma un sceau et cria: « Sort Céleste, Embrasser! » Aussitôt, une ondulation se propagea autour de lui. À mesure que l'onde s'étendait, l'environnement commença à muter. Diverses bêtes féroces apparurent, poussant des rugissements de rage alors qu'elles se ruaient sur Wang Lin.
+Le visage du garçon à la grosse tête devint livide. Tout en reculant avec célérité, il forma un sceau et cria: « Sort Immortel, Embrasser! » Aussitôt, une ondulation se propagea autour de lui. À mesure que l'onde s'étendait, l'environnement commença à muter. Diverses bêtes féroces apparurent, poussant des rugissements de rage alors qu'elles se ruaient sur Wang Lin.
 
 « Je vais me servir de toi pour tester ma maîtrise du tonnerre! » La voix de Wang Lin était aussi glaciale que le vent d'hiver. Lorsqu'elle atteignit les oreilles du garçon, celui-ci en trembla. Il se souvenait comment Wang Lin avait dévoré l'esprit du tonnerre lors de l'épreuve terrestre. Amer, il battit en retraite aussitôt après avoir lancé son sortilège.
 

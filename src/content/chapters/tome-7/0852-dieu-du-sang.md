@@ -22,7 +22,7 @@ Puis, le deuxième éclair de la Tribulation Céleste descendit sur l'image du y
 
 Dévorer la Tribulation Céleste!
 
-L'âme originelle de Wang Lin trembla violemment, la puissance de la rétribution résonnant en son sein. Cependant, l'ancien dragon de tonnerre vivait au cœur des éclairs et du tonnerre. Il poussa un rugissement avant de regagner le corps de Wang Lin, dont des arcs électriques jaillissaient, et ce dernier recula promptement.
+L'âme originelle de Wang Lin trembla violemment, la puissance de la Tribulation résonnant en son sein. Cependant, l'ancien dragon de tonnerre vivait au cœur des éclairs et du tonnerre. Il poussa un rugissement avant de regagner le corps de Wang Lin, dont des arcs électriques jaillissaient, et ce dernier recula promptement.
 
 Pourtant, Wang Lin ne montra aucun signe de panique. Bien que la Tribulation Céleste fût puissante, il n'en avait aucune crainte, d'autant plus qu'un autre portait la moitié du fardeau.
 

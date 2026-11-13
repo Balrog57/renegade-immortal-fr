@@ -66,7 +66,7 @@ Zhan Konglie fixait la scène, abasourdi. Sa décision était prise!
 
 Quant à Nangong Han, il esquissa un sourire amer et pensa: « Ce Xu Mu a le même maître que le Seigneur Céleste Qing Shui. Je devrais chercher à nouer des liens plus étroits avec lui; cela me sera certainement bénéfique à l'avenir. »
 
-Non seulement lui, mais les yeux de certains vieux monstres sur les tapis de prière s'illuminèrent également. Seul le Dieu de Sang ricana intérieurement.
+Non seulement lui, mais les yeux de certains vieux monstres sur les tapis de prière s'illuminèrent également. Seul Xue Shenzi ricana intérieurement.
 
 Les murmures de la foule parvinrent aux oreilles du Maître Yan Leizi. Il regarda Qing Shui et, après une courte réflexion, sourit: « Puisque le Seigneur Céleste l'a tué accidentellement, cette affaire en reste là. Cependant, Seigneur Céleste, veuillez considérer qu'il n'est pas aisé pour nous, cultivateurs, de progresser; soyez donc plus prudent la prochaine fois. »
 

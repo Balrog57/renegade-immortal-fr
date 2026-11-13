@@ -120,4 +120,4 @@ Poussé par le brouillard, Wang Lin se retourna lorsqu'il fut sorti et vit la b�
 
 La bête remarqua également Wang Lin et sa troupe. Elle referma lentement sa gueule avant de reculer pour disparaître dans les profondeurs. Hormis le tourbillon de brume, sa silhouette était désormais invisible.
 
-Wang Lin avait disparu pendant près de six mois avant de réapparaître dans le système stellaire Luotian. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux visait directement Wang Lin!
+Wang Lin avait disparu pendant plus de six mois avant de réapparaître dans le système stellaire Luotian. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux visait directement Wang Lin!

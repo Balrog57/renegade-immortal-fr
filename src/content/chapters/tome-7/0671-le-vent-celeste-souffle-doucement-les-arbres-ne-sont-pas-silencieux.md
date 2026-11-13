@@ -26,7 +26,7 @@ Liu Mei soupira. « Le trésor que j'avais préparé pour lui est désormais inu
 
 Un événement majeur se déroulait sur la planète Qianhuan. Un ancêtre, parti il y a des milliers d'années, était revenu. Il avait également ramené un disciple au talent prodigieux, et dans trois mois, un rituel de lignée aurait lieu pour ce disciple afin de faire d'elle une disciple directe de la famille Huan.
 
-La nouvelle se répandit comme une traînée de poudre jusqu'à ce que chaque planète liée à Mille Illusions en soit informée.
+La nouvelle se répandit comme une traînée de poudre jusqu'à ce que chaque planète liée à Qianhuan en soit informée.
 
 La planète Ran Yun était une planète subordonnée à la planète Qianhuan.
 
@@ -108,11 +108,11 @@ Tout cela se produisit en un éclair; si vite que l'ancêtre de la famille Ran n
 
 L'ombre du garde céleste disparut derrière Wang Lin. Ce dernier regarda froidement l'ancêtre et demanda calmement: « Est-ce vous qui vouliez m'impliquer dans les affaires d'il y a quatre ans? »
 
-L'esprit du vieil homme trembla. Après une courte réflexion, il serra les dents et dit: « Cher cultivateur, cette affaire est de ma faute. Je n'ai fait cela que parce que... »
+L'esprit du vieil homme trembla. Après une courte réflexion, il serra les dents et dit: « Daoïste, cette affaire est de ma faute. Je n'ai fait cela que parce que... »
 
 « Je n'ai pas l'intention d'écouter vos excuses. Si vous voulez bénéficier de ma protection, vous devez prouver votre sincérité! La sincérité dont vous avez fait preuve jusqu'ici est insuffisante! » Wang Lin avait les mains derrière le dos et paraissait très calme.
 
-Le vieil homme prit une profonde inspiration. Des centaines d'idées tournèrent dans sa tête avant qu'il ne demande aussitôt: « Que voulez-vous dire par là, cher cultivateur? »
+Le vieil homme prit une profonde inspiration. Des centaines d'idées tournèrent dans sa tête avant qu'il ne demande aussitôt: « Que voulez-vous dire par là, Daoïste? »
 
 Wang Lin répondit lentement: « Donnez-moi quatre-vingt-dix pour cent de tous les jades célestes que votre famille possède! »
 
@@ -124,7 +124,7 @@ Deux illusions apparurent là où Wang Lin fixait le vide. C'étaient Sun Xi et 
 
 « Vous, vous donnerez soixante-dix pour cent des jades célestes de votre famille en échange de ma protection! » Wang Lin pointa Sun Xi du doigt.
 
-Le regard de Sun Xi devint grave et il hocha immédiatement la tête. « Cher cultivateur Xu, j'accepte! Tant que je peux m'extraire de l'ombre d'il y a quatre ans, j'accepte cette condition! »
+Le regard de Sun Xi devint grave et il hocha immédiatement la tête. « Daoïste Xu, j'accepte! Tant que je peux m'extraire de l'ombre d'il y a quatre ans, j'accepte cette condition! »
 
 « Quant à vous, donnez-moi quatre-vingt-dix pour cent des jades célestes de votre famille! » Le regard de Wang Lin se posa sur l'homme d'âge moyen qui se trouvait dans le glacier.
 

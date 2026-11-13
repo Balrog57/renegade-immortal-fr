@@ -98,13 +98,13 @@ Le vortex chargea la planète Shuiling. Tout en laissant échapper un rire arrog
 
 Dès que Situ Nan et son vortex apparurent au-dessus de la planète Shuiling, les trois frères Chen crachèrent du sang une fois de plus. La formation de protection étant liée à leur propre essence, ils furent contraints de reculer.
 
-Derrière Situ Nan, les cultivatrices du Palais Rose suivirent rapidement, remplissant le ciel. Le parfum qu'elles dégageaient était suffisant pour enivrer les esprits. L'homme d'âge mûr vêtu de bleu arriva également, le visage exalté. Il fixa les trois frères Chen d'un regard haineux et pensa: « Même vous trois vieux débris pouvez connaître une telle journée! »
+Derrière Situ Nan, les cultivatrices du Palais Hong Fen suivirent rapidement, remplissant le ciel. Le parfum qu'elles dégageaient était suffisant pour enivrer les esprits. L'homme d'âge mûr vêtu de bleu arriva également, le visage exalté. Il fixa les trois frères Chen d'un regard haineux et pensa: « Même vous trois vieux débris pouvez connaître une telle journée! »
 
-Le visage du Maître Yi Chen se fit sombre alors qu'il fixait Situ Nan en criant: « Cher cultivateur possède une puissance incroyable; je présume que vous n'êtes pas un inconnu! »
+Le visage du Maître Yi Chen se fit sombre alors qu'il fixait Situ Nan en criant: « Daoïste, votre puissance est incroyable; je présume que vous n'êtes pas un inconnu! »
 
 Situ Nan le dévisagea et éclata de rire. « Je suis Situ Nan! »
 
-« Cher cultivateur Situ possède une telle puissance, pourquoi nous forcer, nous trois? De plus, Ling Er et Zhao Xue ne sont que des juniors, nous vous en prions, laissez-les partir. Nous, les frères Chen, ferons amende honorable. »
+« Daoïste Situ possède une telle puissance, pourquoi nous forcer, nous trois? De plus, Ling Er et Zhao Xue ne sont que des juniors, nous vous en prions, laissez-les partir. Nous, les frères Chen, ferons amende honorable. »
 
 En observant les trois frères, Situ Nan secoua la tête. « Ce vieil homme possède déjà assez de femmes et de fours de culture, vos juniors ne m'intéressent guère. Cependant, le frère de ce vieil homme est encore très jeune. Voyons voir... plus de mille ans, il est donc encore tout jeune. Soyez sans crainte, mon frère est très beau, et ces deux juniors pourraient bien ne pas lui plaire. Ne me faites pas perdre mon temps. Faites-les sortir, ou je vous tuerai tous pour les emporter! »
 

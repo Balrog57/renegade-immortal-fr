@@ -50,7 +50,7 @@ En contemplant le monde d'obscurité au-delà de la fissure, les yeux de Wang Li
 
 Après quelques calculs silencieux, Wang Lin sauta hors de la fissure. Sa silhouette fendit l'air comme l'éclair alors qu'il chargeait droit vers le grand rocher.
 
-La formation des Sept Étoiles suivit Wang Lin lors de son ascension. La puissante force d'aspiration provenant du fond du puits s'intensifia instantanément, devenant folle.
+La formation des Sept Étoiles suivit Wang Lin hors de la fissure. La puissante force d'aspiration provenant du fond du puits s'intensifia instantanément, devenant folle.
 
 L'aspiration était ici incomparablement plus forte, et en un instant, certaines lignes rouges furent arrachées du corps de Wang Lin. Dès qu'elles quittèrent son corps, elles se mirent à onduler comme si elles luttaient pour leur survie. Cependant, elles se transformèrent aussitôt en une brume rouge qui disparut dans les profondeurs du puits.
 

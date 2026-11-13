@@ -64,11 +64,11 @@ Après sa rencontre avec Shengong Hu, Wang Lin fit quelques suppositions et comm
 
 Outre les jades célestes, le Royaume Céleste du Tonnerre recelait des pilules et des trésors célestes. Bien que certains soient pillés à chaque ouverture, il en restait toujours. Quant à savoir si l'on pouvait en trouver, tout dépendait de la fortune de chacun. Des rumeurs circulaient même sur l'existence de sorts célestes complets. Bien que la plupart fussent lacunaires, les cultivateurs du Système Stellaire de Luotian étaient convaincus que des sorts complets y existaient!
 
-À cela s'ajoutait une autre raison cruciale: à ce jour, huit corps de célestiaux parfaitement intacts avaient été découverts dans le Royaume Céleste du Tonnerre.
+À cela s'ajoutait une autre raison cruciale: à ce jour, huit corps d'êtres célestes parfaitement intacts avaient été découverts dans le Royaume Céleste du Tonnerre.
 
 Si l'on trouvait le reste d'un être céleste, même un simple indice, on pouvait le vendre au Temple Céleste du Tonnerre. Si les informations étaient exactes, les bénéfices étaient immenses.
 
-Si l'on parvenait à obtenir un corps de célestiaux par ses propres moyens pour le remettre au Temple, les gains personnels seraient inimaginables. Même pour la famille du découvreur, ce serait une récolte prodigieuse. De plus, si celui qui trouvait le corps possédait suffisamment de talent, il pourrait même devenir le disciple de l'un des dix grands Anciens. Dès lors, il s'élèverait au-dessus des autres et son avenir serait sans limites!
+Si l'on parvenait à obtenir un corps d'être céleste par ses propres moyens pour le remettre au Temple, les gains personnels seraient inimaginables. Même pour la famille du découvreur, ce serait une récolte prodigieuse. De plus, si celui qui trouvait le corps possédait suffisamment de talent, il pourrait même devenir le disciple de l'un des dix grands Anciens. Dès lors, il s'élèverait au-dessus des autres et son avenir serait sans limites!
 
 Mais ce qui attirait véritablement les cultivateurs de la deuxième étape du Système Stellaire de Luotian, c'étaient les puits d'énergie originelle!
 

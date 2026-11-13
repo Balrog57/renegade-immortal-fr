@@ -8,9 +8,9 @@ slug: je-suis-tellement-badass
 ---
 Shengong Hu laissa échapper un rugissement. Sa main tremblait légèrement sous l'effet de ses blessures. Bien qu'il se soit partiellement rétabli et qu'il ait utilisé une pilule du Temple Céleste du Tonnerre pour en contenir les effets, lui permettant d'atteindre son apogée un court instant, cela ne suffisait toujours pas pour exécuter ce sort.
 
-Il serra les dents et sa main droite s'abattit soudainement. La foudre de la rétribution divine apparut et descendit avec une puissance inimaginable.
+Il serra les dents et sa main droite s'abattit soudainement. La foudre de la Tribulation Céleste apparut et descendit avec une puissance inimaginable.
 
-L'expression de Zhan Konglie devint sombre. Ses mains formèrent rapidement des sceaux et il cracha une gorgée d'énergie vitale sur son épée en bois. L'épée poussa un rugissement avant de libérer une puissante énergie d'épée qui fonça droit sur la foudre de la rétribution divine.
+L'expression de Zhan Konglie devint sombre. Ses mains formèrent rapidement des sceaux et il cracha une gorgée d'énergie vitale sur son épée en bois. L'épée poussa un rugissement avant de libérer une puissante énergie d'épée qui fonça droit sur la foudre de la Tribulation Céleste.
 
 Lorsque les deux forces entrèrent en collision, un choc assourdissant ébranla toute la zone. La foudre s'effondra et l'épée en bois fut repoussée. L'énergie originelle résiduelle atteignit sa limite, provoquant la destruction d'une multitude de fragments de roche.
 
@@ -20,7 +20,7 @@ Shengong Hu recula également jusqu'à pénétrer dans le lac de tonnerre. Du sa
 
 Les yeux de Wang Lin s'illuminèrent. Il avait observé la bataille avec une attention extrême et en avait tiré quelques enseignements. Il n'aurait pas pu résister à un seul coup de l'un ou l'autre de ces sorts originels du Yang Corporel.
 
-Cependant, il remarqua une faille: le sort originel de Shengong Hu semblait imparfait. La puissance de cette foudre de la rétribution divine aurait dû être bien plus grande.
+Cependant, il remarqua une faille: le sort originel de Shengong Hu semblait imparfait. La puissance de cette foudre de la Tribulation Céleste aurait dû être bien plus grande.
 
 Wang Lin avait, après tout, contemplé le monde de la troisième étape et, avant d'entrer dans l'anneau intérieur, il avait vaguement aperçu la Loi du Tonnerre. Il n'était donc pas surprenant pour lui de déceler des imperfections dans le sort de Shengong Hu.
 

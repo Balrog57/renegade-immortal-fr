@@ -10,7 +10,7 @@ Au Lac Long Tan, à la lisière de la Cité Tian Yao!
 
 Une légion de soldats démons gardait le Lac Long Tan tout au long de l'année. De nombreux experts cachés de la capitale passaient également leur temps à s'y cultiver. Peu importe l'ampleur des événements, tant qu'ils ne visaient pas directement le Lac Long Tan, ils n'intervenaient jamais.
 
-Grâce à la puissante énergie spirituelle démoniaque qui imprégnait les lieux, même la tribulation divine d'il y a dix ans n'avait causé aucun dommage ici.
+Grâce à la puissante énergie spirituelle démoniaque qui imprégnait les lieux, même la Tribulation Céleste d'il y a dix ans n'avait causé aucun dommage ici.
 
 Les eaux du Lac Long Tan étaient saturées d'énergie spirituelle démoniaque, abritant un autre monde en leurs profondeurs. Un voile de cette même énergie bloquait l'accès à une grotte souterraine.
 

@@ -60,7 +60,7 @@ C'était le disciple de la Division Bleue de la Secte Tian Yun qui était venu d
 
 Cette simple phrase suffit à provoquer la dispersion instinctive de la foule. Aucun d'eux n'avait atteint le stade de l'Ascendant. Le cultivateur le plus puissant ici n'était qu'au sommet du stade tardif de la Transformation de l'Âme. Face à un Ascendant capable de rassembler tout le miasme environnant, ils choisirent tous sagement de reculer.
 
-Cependant, quelques individus imprudents, croyant pouvoir compter sur le soutien du soi-disant Ancêtre du Royaume Céleste, persistèrent. Un jeune homme vêtu d'une robe taoïste s'écria: « Quel culot! Qui es-tu? Donne ton nom! Mon Union de Culture... »
+Cependant, quelques individus imprudents, croyant pouvoir compter sur le soutien du soi-disant Ancêtre du Royaume Céleste, persistèrent. Un jeune homme vêtu d'une robe daoïste s'écria: « Quel culot! Qui es-tu? Donne ton nom! Mon Union de Culture... »
 
 Il n'eut pas le temps de finir sa phrase; le regard glacial de Wang Lin perça ses yeux comme une lame acérée. Le sang qu'il cracha força ses mots à retourner dans sa gorge.
 

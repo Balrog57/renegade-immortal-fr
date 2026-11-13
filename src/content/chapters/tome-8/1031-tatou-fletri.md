@@ -64,7 +64,7 @@ Il réfléchit un instant. Dans le silence des profondeurs, Wang Lin se remémor
 
 « Je présume qu'il s'agissait de la Peinture des Montagnes et des Rivières, la Peinture de la Fumée du Désert Solitaire. »
 
-« L'Oiseau Vermillon s'est éveillé à un moment inopportun... Je ne pensais pas que son réveil percerait les quatre-vingt-dix-neuf royaumes pour informer tout le monde. Par conséquent, ils pensent tous que je suis un membre des Quatre Sectes Divines. »
+« Suzaku s'est éveillé à un moment inopportun... Je ne pensais pas que son réveil percerait les quatre-vingt-dix-neuf royaumes pour informer tout le monde. Par conséquent, ils pensent tous que je suis un membre des Quatre Sectes Divines. »
 
 « Bien que je n'aie décelé aucun indice dans le regard de ce Xu Kongzi, j'ai eu l'impression qu'une aiguille était braquée sur moi. »
 

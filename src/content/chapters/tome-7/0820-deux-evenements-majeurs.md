@@ -158,7 +158,7 @@ Dès que Wang Lin s'approcha, trois rayons de lumière jaillirent de la planète
 
 Une forte fluctuation d'énergie d'origine émanait des trois; il était clair qu'ils étaient tous au stade de l'Yin Illusoire.
 
-À leur apparition, leurs visages étaient graves. L'homme d'âge moyen regarda Wang Lin et dit calmement: « Camarade cultivateur, vous arrivez avec une telle hâte; je me demande ce que vous voulez! »
+À leur apparition, leurs visages étaient graves. L'homme d'âge moyen regarda Wang Lin et dit calmement: « Daoïste, vous arrivez avec une telle hâte; je me demande ce que vous voulez! »
 
 Les regards des deux autres balayèrent le Clan Xian Xuan derrière Wang Lin. Plus ils regardaient, plus ils étaient stupéfaits. Les personnes derrière ne dégageaient aucune fluctuation d'énergie spirituelle, mais possédaient une force mystérieuse qu'ils n'avaient jamais vue auparavant.
 

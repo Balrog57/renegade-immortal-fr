@@ -82,7 +82,7 @@ Cette aura était imprégnée d'une odeur de sang qui se propagea pour former un
 
 Dans ce rugissement, une voix froide et impitoyable s'éleva:
 
-« Domaine Sha Yu de l'Alliance Xiu Zhen, Tueur Yu Fei, venu réclamer votre tête, Xu Mu! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
+« Royaume Sha Yu de l'Alliance Xiu Zhen, Tueur Yu Fei, venu réclamer votre tête, Xu Mu! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
 
 L'expression de Lei Ji devint paniquée et il s'apprêta à esquiver. À cet instant, le garçon à grosse tête regarda Wang Lin, serra les dents et s'avança. Ses deux mains tracèrent un sceau et l'énergie d'origine céleste jaillit. Cette énergie forma une tempête autour de son corps et, bientôt, un sortilège céleste apparut.
 

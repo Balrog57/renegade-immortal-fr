@@ -130,17 +130,17 @@ Non seulement eux, mais presque tous ceux qui connaissaient Wang Lin étaient pl
 
 Wang Lin ne rangea pas ses 45 épées volantes; son regard balaya l'assistance avant de se poser sur le vieil homme à la stature de montagne de chair, et il dit calmement: « Senior, suis-je qualifié? »
 
-Le vieil homme réfléchit silencieusement avant de laisser échapper un reniflement froid et de dire à Tian Yunzi: « Camarade cultivateur Tian Yunzi, j'ai encore une fournée de pilules à raffiner, je ne vous dérangerai donc plus. »
+Le vieil homme réfléchit silencieusement avant de laisser échapper un reniflement froid et de dire à Tian Yunzi: « Daoïste Tian Yunzi, j'ai encore une fournée de pilules à raffiner, je ne vous dérangerai donc plus. »
 
 Sur ce, il cria aux quatre disciples qui le portaient: « Retour à la secte! »
 
 Les quatre disciples acquiescèrent rapidement, soulevèrent son corps colossal et disparurent au loin.
 
-Le vieil homme debout sur la gourde regarda profondément Wang Lin et rit: « Le camarade cultivateur Wang s'est bien caché. Ce vieil homme s'appelle Qi Mengtan. Si vous en avez le temps, vous êtes le bienvenu sur ma planète Meng. » Sur ces mots, il salua Wang Lin d'un geste des mains et partit.
+Le vieil homme debout sur la gourde regarda profondément Wang Lin et rit: « Le Daoïste Wang s'est bien caché. Ce vieil homme s'appelle Qi Mengtan. Si vous en avez le temps, vous êtes le bienvenu sur ma planète Meng. » Sur ces mots, il salua Wang Lin d'un geste des mains et partit.
 
 La personne qui s'en alla avec lui était le vieil homme maigre. Dès le début, il avait affiché une expression indifférente. Même en partant, il ne salua pas Tian Yunzi; il se contenta de partir.
 
-La dernière à partir fut la belle femme d'âge moyen. Elle regarda Wang Lin et sourit: « Les épées volantes du camarade cultivateur Wang sont imprégnées d'une intention meurtrière. Cependant, un excès d'intention meurtrière peut être difficile à contrôler. Si vous en avez le temps, je vous prie de venir sur la planète Zi Xia. » Sur ce, elle s'inclina devant Tian Yunzi et partit, suivie par les quatre femmes.
+La dernière à partir fut la belle femme d'âge moyen. Elle regarda Wang Lin et sourit: « Les épées volantes du Daoïste Wang sont imprégnées d'une intention meurtrière. Cependant, un excès d'intention meurtrière peut être difficile à contrôler. Si vous en avez le temps, je vous prie de venir sur la planète Zi Xia. » Sur ce, elle s'inclina devant Tian Yunzi et partit, suivie par les quatre femmes.
 
 Alors qu'elles s'éloignaient, les yeux de la femme en robe rose brillèrent. Elle regarda Wang Lin avec un sourire: « Ma maîtresse excelle dans le raffinage, et ses tarifs ne sont pas élevés. »
 

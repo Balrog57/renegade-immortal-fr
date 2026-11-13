@@ -98,19 +98,19 @@ Les yeux des trois vieillards, dont l'Ancien Sun, s'illuminèrent, mais une poin
 
 « Absurde? » La voix de Wang Lin était glaciale.
 
-« Cher cultivateur, je vous prie de ne point vous mettre en colère! » Une voix séculaire résonna depuis l'intérieur de la demeure. Puis, un vieil homme vêtu de noir sortit lentement. Sa simple présence fit légèrement se dissiper la pression.
+« Cher Daoïste, je vous prie de ne point vous mettre en colère! » Une voix séculaire résonna depuis l'intérieur de la demeure. Puis, un vieil homme vêtu de noir sortit lentement. Sa simple présence fit légèrement se dissiper la pression.
 
 Bien que la culture de cet homme n'ait pas atteint le stade Ascendant, il se trouvait au sommet du stade avancé de la Transformation de l'Âme, à un seul pas de l'Ascension. Il semblait qu'il ne lui manquât qu'une infime étincelle de compréhension pour percer.
 
 Cependant, Wang Lin remarqua que ce vieillard dégageait une aura d'Ascendant. Ce n'était pas parce qu'il cachait sa propre culture, mais parce qu'un sens divin d'un cultivateur Ascendant résidait en lui.
 
-Le vieil homme en noir déclara: « Cette affaire est de la faute de ma famille Sun; nous avons offensé un cher cultivateur. »
+Le vieil homme en noir déclara: « Cette affaire est de la faute de ma famille Sun; nous avons offensé un Daoïste. »
 
 Après ces mots, les trois anciens furent stupéfaits, avant de comprendre la situation une seconde plus tard.
 
 « Deux cents mille jades célestes, et nous oublierons tout cela! » Wang Lin regarda calmement le vieillard.
 
-L'expression du vieil homme en noir changea légèrement. Il hésita un instant puis acquiesça: « Soit. Mais deux cents mille jades célestes représentent une somme colossale, et ceci n'est qu'une branche de la famille Sun. Le cher cultivateur peut-il patienter trois jours? »
+L'expression du vieil homme en noir changea légèrement. Il hésita un instant puis acquiesça: « Soit. Mais deux cents mille jades célestes représentent une somme colossale, et ceci n'est qu'une branche de la famille Sun. Le Daoïste peut-il patienter trois jours? »
 
 Wang Lin observa l'homme d'un regard profond. Ce qu'il scrutait n'était pas le vieillard lui-même, mais le sens divin de l'Ascendant qui l'habitait.
 

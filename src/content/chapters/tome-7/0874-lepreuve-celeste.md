@@ -24,7 +24,7 @@ En particulier, l'ancêtre de la famille Xiang hocha la tête. Plus il regardait
 
 Les messagers célestes restèrent sans voix et cessèrent de battre le tambour. Dans leur esprit, si Xu Mu persistait, même s'ils battaient du tambour jusqu'à ce qu'il soit réduit en miettes, cela ne servirait à rien. Ils se regardèrent avec un sourire amer. Cependant, leurs regards envers Wang Lin ne contenaient aucune jalousie, mais plutôt une trace d'admiration.
 
-Wang Lin ignora tout cela. Après avoir quitté la place, il joignit les mains devant Maître Yan Leizi et dit: « Junior a commis une erreur. J'espère que Senior ne m'en tiendra pas rigueur. » Ses paroles ressemblaient fort à celles de son aîné, Qing Shui. Lorsque le Seigneur Céleste Qing Shui entendit cela, il esquissa un sourire.
+Wang Lin ignora tout cela. Après avoir quitté la place, il joignit les mains devant Maître Yan Leizi et dit: « Junior a commis une erreur. J'espère que Senior ne m'en tiendra pas rigueur. » Ses paroles ressemblaient fort à celles de son Senior frère, Qing Shui. Lorsque le Seigneur Céleste Qing Shui entendit cela, il esquissa un sourire.
 
 Maître Yan Leizi sourit et répondit: « Ce n'est rien. Abandonner un simple lac de tonnerre et le clone d'un esprit du tonnerre pour aider un junior puissant à croître en force est un juste prix. Quant à la destruction du lac, obtenir suffisamment de mérites militaires lors de la bataille contre le Système Stellaire de l'Alliance suffira! » Sur ce, il pointa son index droit. D'un seul geste, le monde sembla trembler et une énergie originelle infinie se rassembla. Cette énergie se transforma soudainement en une rune.
 
@@ -120,7 +120,7 @@ L'apparition de Wang Lin attira immédiatement l'attention générale. Après to
 
 Cette anticipation était palpable; même certains ancêtres de grandes familles de culture observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Outre eux, une douzaine de vieux monstres sur les tapis de prière, au sommet du Système Stellaire de Luotian, regardaient eux aussi avec un sourire.
 
-Seul le Dieu de Sang laissa échapper un reniflement froid. Après réflexion, il posa également son regard sur Wang Lin.
+Seul Xue Shenzi laissa échapper un reniflement froid. Après réflexion, il posa également son regard sur Wang Lin.
 
 Maître Yan Leizi sourit intérieurement. Il avait un mal de tête concernant ce Wang Lin. Quoi qu'il en soit, ce junior était lié à lui et, compte tenu des relations entre Wang Lin et Qing Shui, il n'était pas sage de l'opprimer. Wang Lin avait fait subir une lourde perte au Temple Céleste du Tonnerre lors des deux premières épreuves. Cependant, puisque Lie Yunzi était responsable de l'épreuve céleste, quel que soit l'incident qui surviendrait, ce ne serait pas lui qui en pâtirait, mais Lie Yunzi.
 

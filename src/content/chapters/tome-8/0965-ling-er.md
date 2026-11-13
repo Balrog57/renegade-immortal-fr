@@ -8,7 +8,7 @@ slug: ling-er
 ---
 Wang Lin ouvrit la porte et vit Maître Yi Chen qui se tenait à l'extérieur avec un sourire.
 
-« Cher cultivateur, vous êtes trop aimable. Je vous en prie, entrez. » Wang Lin sourit.
+« Daoïste, vous êtes trop aimable. Je vous en prie, entrez. » Wang Lin sourit.
 
 Au nord de cette cour, se dressait un pavillon. Bien que de taille modeste, il était d'une grande beauté. Orné de dragons et de phénix sculptés et façonné dans le jade céleste, il disposait d'une formation d'accumulation d'énergie spirituelle afin de garantir un environnement propice à la culture.
 
@@ -38,7 +38,7 @@ La jeune fille cligna des yeux et s'inclina devant Wang Lin: « Ling Er salue Se
 
 Wang Lin l'observa attentivement et fut surpris.
 
-« Cher cultivateur Wang a sans doute remarqué que ma petite-fille est née avec un corps spirituel aquatique naturel. Hormis sa voix, tout ce qui la caractérise a été dissimulé par ce vieil homme. Je me dois de la garder près de moi; autrement, elle deviendrait une cible pour des individus mal intentionnés cherchant à l'utiliser comme un chaudron. » Maître Yi Chen eut un sourire amer.
+« Daoïste Wang a sans doute remarqué que ma petite-fille est née avec un corps spirituel aquatique naturel. Hormis sa voix, tout ce qui la caractérise a été dissimulé par ce vieil homme. Je me dois de la garder près de moi; autrement, elle deviendrait une cible pour des individus mal intentionnés cherchant à l'utiliser comme un chaudron. » Maître Yi Chen eut un sourire amer.
 
 Wang Lin acquiesça. Un corps spirituel aquatique était le réceptacle idéal pour servir de chaudron. Cependant, elle n'aurait guère à s'inquiéter en compagnie de Maître Yi Chen. Peu de gens oseraient tenter de lui ravir une femme, car il ne valait pas la peine de se faire des ennemis de leur rang pour une simple conquête.
 
@@ -50,7 +50,7 @@ En entendant la voix de cette femme magnifique, Wang Lin entra brièvement en tr
 
 Après ce soupir secret, le regard de Wang Lin revint sur la magnifique jeune fille. Celle-ci, mal à l'aise, n'osait croiser son regard.
 
-Effleurant doucement sa sac de rangement, Wang Lin en sortit un chapeau de paille. En le voyant, il eut l'impression de voir Yun Quezi. Après avoir posé le chapeau sur la table, il dit calmement: « Ceci est un cadeau d'un vieil ami. Il peut aider à dissimuler votre aura. Une fois que cher cultivateur Maître Yi Chen l'aura raffiné, son pouvoir pourrait s'en trouver accru. Je souhaite l'offrir à cette enfant. »
+Effleurant doucement sa sac de rangement, Wang Lin en sortit un chapeau de paille. En le voyant, il eut l'impression de voir Yun Quezi. Après avoir posé le chapeau sur la table, il dit calmement: « Ceci est un cadeau d'un vieil ami. Il peut aider à dissimuler votre aura. Une fois que le Daoïste Maître Yi Chen l'aura raffiné, son pouvoir pourrait s'en trouver accru. Je souhaite l'offrir à cette enfant. »
 
 La jeune fille fronça le nez; il était évident qu'elle trouvait ce chapeau un peu laid.
 
@@ -68,9 +68,9 @@ La joie brilla dans les yeux de la jeune fille alors qu'elle saisissait les cloc
 
 Sa voix était encore plus charmeuse qu'auparavant, mais cela n'eut aucun effet sur Wang Lin.
 
-Lorsque Maître Yi Chen vit les clochettes, sa perspicacité lui permit de comprendre immédiatement qu'elles n'étaient pas ordinaires. Il soupira, se leva et joignit les mains devant Wang Lin: « Cher cultivateur Wang, ce vieil homme vous remercie infiniment. »
+Lorsque Maître Yi Chen vit les clochettes, sa perspicacité lui permit de comprendre immédiatement qu'elles n'étaient pas ordinaires. Il soupira, se leva et joignit les mains devant Wang Lin: « Daoïste Wang, ce vieil homme vous remercie infiniment. »
 
-Il se sentait profondément embarrassé. C'était à eux trois d'avoir commis une maladresse, et pourtant, leur junior recevait maintenant de magnifiques présents de la part de l'autre partie. Après s'être rassis, il réfléchit un instant, puis sortit une pierre noire: « Cher cultivateur Wang, veuillez accepter cette Pierre du Ciel Obscur. Lorsque les cultivateurs atteignent notre niveau, nous avons besoin de ces pierres pour y confier notre âme originelle afin de créer des avatars ou pour préserver des sorts puissants. Si vous refusez, ce vieil homme en éprouvera une grande honte. »
+Il se sentait profondément embarrassé. C'était à eux trois d'avoir commis une maladresse, et pourtant, leur junior recevait maintenant de magnifiques présents de la part de l'autre partie. Après s'être rassis, il réfléchit un instant, puis sortit une pierre noire: « Daoïste Wang, veuillez accepter cette Pierre du Ciel Obscur. Lorsque les cultivateurs atteignent notre niveau, nous avons besoin de ces pierres pour y confier notre âme originelle afin de créer des avatars ou pour préserver des sorts puissants. Si vous refusez, ce vieil homme en éprouvera une grande honte. »
 
 Wang Lin sourit en prenant la pierre et la parcourut de son Sens Divin. Bien que son expression restât neutre, il fut intérieurement impressionné. Cette pierre noire était très étrange, parsemée de minuscules orifices dégageant une étrange aura. Non seulement elle pouvait stocker et préserver le Sens Divin, mais elle permettait aussi de préparer un sort à l'avance. Elle était similaire aux talismans du Clan Xian Yi. De plus, on pouvait créer un avatar illusoire par la simple pensée. C'était un trésor fort pratique.
 

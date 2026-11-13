@@ -119,7 +119,7 @@ Au dernier pas, Wang Lin leva le pied et fixa l'homme en violet. Une pointe de f
 
 Si les pas précédents avaient progressivement accumulé la puissance, ce dernier pas fut l'explosion de toute l'énergie recueillie jusqu'alors.
 
-L'expression de l'homme en violet changea radicalement. Il recula sans hésiter et joignit les mains: « Camarade cultivateur, je n'avais aucune intention malveillante! »
+L'expression de l'homme en violet changea radicalement. Il recula sans hésiter et joignit les mains: « Daoïste, je n'avais aucune intention malveillante! »
 
 Wang Lin le regarda froidement et passa devant lui. L'homme en violet laissa échapper un sourire amer et suivit Wang Lin.
 
@@ -127,7 +127,7 @@ Lorsque la brume bleue se dissipa, il ne restait aucune trace de l'affrontement.
 
 « Il lui sera très difficile de survivre après avoir été emmené par ce Senior... » La jeune fille resta un moment dans l'inquiétude avant de fermer les yeux pour reprendre sa culture. Elle avait accompli son devoir.
 
-Après avoir quitté la partie nord de la ville, Wang Lin se dirigea tranquillement vers le Pavillon Bao He sur le côté est. L'homme en violet afficha un sourire amer et dit: « Camarade cultivateur Xu, mon nom est Sun Xi. Je n'avais aucune intention malveillante tout à l'heure. » En raison de son rang, il ne s'adresserait normalement jamais ainsi à quelqu'un de même niveau de culture. Cependant, lorsqu'il avait testé cet homme, la culture de ce Xu Mu était trop mystérieuse et il n'avait pu déceler aucun indice.
+Après avoir quitté la partie nord de la ville, Wang Lin se dirigea tranquillement vers le Pavillon Bao He sur le côté est. L'homme en violet afficha un sourire amer et dit: « Daoïste Xu, mon nom est Sun Xi. Je n'avais aucune intention malveillante tout à l'heure. » En raison de son rang, il ne s'adresserait normalement jamais ainsi à quelqu'un de même niveau de culture. Cependant, lorsqu'il avait testé cet homme, la culture de ce Xu Mu était trop mystérieuse et il n'avait pu déceler aucun indice.
 
 Mais ce n'était pas le point le plus important. Il ressentait une assurance et une intention meurtrière terrifiante émaner de Wang Lin. Une telle aura ne pouvait provenir que d'une personne ayant tué des adversaires de même niveau, et pas une seule fois! C'était la seule façon d'acquérir une telle confiance en soi.
 

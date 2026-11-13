@@ -26,7 +26,7 @@ Une silhouette noire jaillit soudainement du sol et atterrit sur l'une des point
 
 Les yeux de Wang Lin, injectés de sang, s'ancrèrent dans ceux de l'adversaire alors qu'il fit un pas en avant, pressant son pouce droit. Le Doigt de la Mort apparut et fonça sur le vieil homme squelettique telle une traînée de lumière noire.
 
-Le vieil homme esquissa un sourire sinistre. Face au Doigt de la Mort, loin de l'esquiver, il ouvrit brusquement sa large gueule. À cet instant, une illusion surgit derrière lui: un cocon d'environ trente mètres de haut, couvert de pustules.
+Le vieil homme esquissa un sourire sinistre. Face au Doigt de la Mort, loin de l'esquiver, il ouvrit brusquement sa large gueule. À cet instant, une illusion surgit derrière lui: un cocon d'environ cent pieds de haut, couvert de pustules.
 
 Au moment où le vieil homme ouvrit la bouche, une immense gueule apparut également sur le cocon illusoire. Celle-ci aspira le rayon noir du Doigt de la Mort avant de l'avaler.
 
@@ -38,7 +38,7 @@ Il fixa Wang Lin d'un regard sombre et prit la parole pour la première fois: «
 
 Cette sphère fut si rapide qu'elle atteignit le sol en un instant. En explosant, elle libéra le pus qui fusionna avec la terre.
 
-Instantanément, le sol dans un rayon de 3 300 mètres se mit à trembler. Peu après, d'énormes quantités de pus jaillirent de la terre, formant soudainement un encerclement. Une épaisse couche de pus s'éleva rapidement sur le cercle extérieur, créant une muraille redoutable.
+Instantanément, le sol dans un rayon de 10 000 pieds se mit à trembler. Peu après, d'énormes quantités de pus jaillirent de la terre, formant soudainement un encerclement. Une épaisse couche de pus s'éleva rapidement sur le cercle extérieur, créant une muraille redoutable.
 
 Le vieil homme se lécha les lèvres et disparut en un éclair dans le pus. Aussitôt sa disparition, le mur de pus commença à se refermer de toutes parts.
 
@@ -46,11 +46,11 @@ La paroi de pus couvrait le ciel et la terre; en se contractant, elle finit par 
 
 Le vieil homme réapparut à l'extérieur de cette sphère. Fixant la masse qui se réduisait rapidement, il lança d'une voix rauque: « Feng Yin, nul besoin de rester ici, tu peux repartir. Un simple cultivateur ose agir à sa guise en ces lieux... Il n'a aucune chance de survivre à mon Ulcère Céleste et Terre Purulente! »
 
-Une bourrasque de vent froid souffla et la femme au visage tatoué apparut à une quarantaine de mètres du vieil homme. Elle observa froidement la sphère de pus qui ne faisait plus qu'une trentaine de mètres de large et déclara d'un ton glacial: « Si cet individu pouvait être tué si facilement, Maître ne nous aurait pas envoyés ici! »
+Une bourrasque de vent froid souffla et la femme au visage tatoué apparut à une centaine de pieds du vieil homme. Elle observa froidement la sphère de pus qui ne faisait plus que cent pieds de large et déclara d'un ton glacial: « Si cet individu pouvait être tué si facilement, Maître ne nous aurait pas envoyés ici! »
 
 « Oh? Alors je veux voir comment ce petit cultivateur compte échapper à mon Ulcère Céleste et Terre Purulente! » Le vieil homme maigre sourit, mais son sourire se figea bientôt.
 
-Lorsque la sphère de pus atteignit seulement dix mètres de diamètre, elle cessa de rétrécir. Une puissante intention de combat et de meurtre transperça alors l'enveloppe purulente.
+Lorsque la sphère de pus atteignit seulement trente pieds de diamètre, elle cessa de rétrécir. Une puissante intention de combat et de meurtre transperça alors l'enveloppe purulente.
 
 Cette intention meurtrière fit chuter instantanément la température environnante, générant des rafales de vent glacial. La présence de cette volonté de combat mêlée à l'envie de tuer fit se rétracter les pupilles du vieil homme.
 
@@ -72,7 +72,7 @@ Une série de gémissements et de chocs métalliques résonna rapidement dans le
 
 Le regard du vieil homme devint glacial. Sans même accorder de l'importance aux trois armes, il forma un sceau de la main et hurla: « Terre Purulente! »
 
-Le sol dans un rayon de 3 300 mètres autour de lui commença à secouer. Tandis que la terre tremblait, des anneaux de lumière apparurent et s'étendirent rapidement. Ils ressemblaient à des ulcères poussant sur un visage, mais ils se développaient sur le sol même.
+Le sol dans un rayon de 10 000 pieds autour de lui commença à secouer. Tandis que la terre tremblait, des anneaux de lumière apparurent et s'étendirent rapidement. Ils ressemblaient à des ulcères poussant sur un visage, mais ils se développaient sur le sol même.
 
 Le vieil homme hurla: « Explosez! » À cet instant, son énergie déferla et toutes les plaies surgissant du sol explosèrent simultanément.
 
@@ -84,7 +84,7 @@ Xu Liguo ricana intérieurement en voyant le vieillard tenter l'approche. Loin d
 
 « Ceci... Quel genre d'épée est-ce là?! » Le vieil homme fut stupéfait et battit en retraite précipitamment. Cependant, l'épée céleste le poursuivit. L'arme habitée par l'âme du bélier maléfique décrivit une courbe pour frapper le vieillard dans le dos.
 
-Après l'explosion des plaies terrestres, une colonne de pus d'une trentaine de mètres d'épaisseur jaillit vers le ciel, se propageant en ondulations. Le corps de Wang Lin, imprégné d'énergie spirituelle céleste, flottait dans les airs. Il fit un pas vers le vieil homme, lequel était alors engagé dans un combat acharné contre les deux épées.
+Après l'explosion des plaies terrestres, une colonne de pus d'une centaine de pieds d'épaisseur jaillit vers le ciel, se propageant en ondulations. Le corps de Wang Lin, imprégné d'énergie spirituelle céleste, flottait dans les airs. Il fit un pas vers le vieil homme, lequel était alors engagé dans un combat acharné contre les deux épées.
 
 Le vieil homme poussa un rugissement de rage et invoqua à nouveau le cocon illusoire pour lancer son sort. D'un seul pas, Wang Lin brisa l'espace et apparut au-dessus du vieillard. Ses yeux rouge sang fixèrent le cocon alors qu'il tendait la main droite. Des filaments d'énergie de massacre jaillirent et s'insinuèrent dans l'illusion.
 

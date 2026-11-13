@@ -52,7 +52,7 @@ En chemin, son expression changea alors qu'il scrutait l'horizon. Il aperçut un
 
 La brise légère faisait flotter ses vêtements, lui conférant une élégance suprême.
 
-« Maître de la Secte Huanglong! » En voyant cet homme, les yeux de Wang Lin se plissèrent brusquement et brillèrent. Le portrait qu'il avait aperçu dans la Terre Yao Ling apparut immédiatement dans son esprit.
+« Maître de la Secte Huang Long! » En voyant cet homme, les yeux de Wang Lin se plissèrent brusquement et brillèrent. Le portrait qu'il avait aperçu dans la Terre Yao Ling apparut immédiatement dans son esprit.
 
 Le centipède était extrêmement rapide et disparut en un instant derrière l'horizon. Pourtant, Wang Lin sentit distinctement un regard posé sur lui depuis le dos de la créature.
 

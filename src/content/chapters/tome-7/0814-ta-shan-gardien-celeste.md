@@ -18,11 +18,11 @@ La main de Wang Lin traça un sceau et, d'un geste du doigt, il dissipa la restr
 
 Le regard de Wang Lin devint glacial et il frappa son sac de rangement. L'Étendard de l'Âme vola hors du sac et se mua en un immense nuage noir qui dévora l'âme originelle du messager du Temple Céleste du Tonnerre.
 
-« Ne me tuez pas, Camarade Cultivateur! Je vous offrirai un trésor de grande valeur en échange de ma vie, un trésor précieux! » Le messager se débattit à l'intérieur du nuage noir en implorant la clémence.
+« Ne me tuez pas, Daoïste! Je vous offrirai un trésor de grande valeur en échange de ma vie, un trésor précieux! » Le messager se débattit à l'intérieur du nuage noir en implorant la clémence.
 
 Les yeux de Wang Lin restèrent froids alors qu'il demanda lentement: « Quel trésor de grande valeur? »
 
-Le messager cria immédiatement: « Une Pierre de Luotian! Je sais où le Camarade Cultivateur peut obtenir une Pierre de Luotian. Si vous promettez de me laisser partir, je vous y mènerai sans attendre! »
+Le messager cria immédiatement: « Une Pierre de Luotian! Je sais où le Daoïste peut obtenir une Pierre de Luotian. Si vous promettez de me laisser partir, je vous y mènerai sans attendre! »
 
 Le visage de Wang Lin ne trahissait aucune émotion tandis que sa main droite formait un sceau. Le nuage noir dévora instantanément l'âme originelle et la scella à l'intérieur du drapeau.
 
@@ -42,7 +42,7 @@ Après une profonde inspiration, les yeux de Wang Lin brillèrent d'une lueur in
 
 Dans un éclat de lumière dorée, une énergie spirituelle céleste emplit l'air, et un pavillon de la taille d'une paume apparut dans la main de Wang Lin. Même à cet instant, le cœur de Wang Lin s'emballa et une excitation fébrile illumina son regard lorsqu'il posa les yeux sur l'objet.
 
-« Si l'on me demandait quelle a été ma plus grande récolte dans le Royaume Céleste du Tonnerre, ce serait celle-ci! Le Pavillon Cang Jue! » Wang Lin se lécha les lèvres. Il avait craint de le sortir après l'avoir obtenu, car il était tout simplement trop précieux!
+« Si l'on me demandait quelle a été ma plus grande récolte dans le Royaume Céleste du Tonnerre, ce serait celle-ci! Le Pavillon Cang Pin! » Wang Lin se lécha les lèvres. Il avait craint de le sortir après l'avoir obtenu, car il était tout simplement trop précieux!
 
 « Combien de sorts célestes se cachent là-dedans... » Les yeux de Wang Lin étaient remplis d'excitation, mais il parvint à la réprimer un instant plus tard.
 
@@ -52,7 +52,7 @@ Wang Lin réprima son désir avant de prendre une profonde inspiration et de ran
 
 Puis, il sortit un sac de rechange et y plaça le pavillon. Il ouvrit sa chemise, incisa son torse et y inséra le sac. La blessure se referma rapidement sous l'effet de son énergie originelle.
 
-« De cette façon, personne ne saura où se trouve le Pavillon Cang Jue! » Wang Lin toucha sa poitrine en affichant un sourire.
+« De cette façon, personne ne saura où se trouve le Pavillon Cang Pin! » Wang Lin toucha sa poitrine en affichant un sourire.
 
 Il portait encore plusieurs sacs de rangement remplis de jades célestes. La quantité de jades était phénoménale, tous obtenus dans le Royaume Céleste du Tonnerre.
 
@@ -64,7 +64,7 @@ La grenouille tonitruante au sol roula des yeux et bondit avec fracas, suivant l
 
 Lorsqu'ils approchèrent de la zone résidentielle du Clan Xian Xuan, les yeux de Wang Lin se plissèrent. Il vit que tous étaient agenouillés sur la grande place, y compris les femmes et les enfants.
 
-Au centre de la place se trouvait une plateforme en bois de dix mètres de large. Une personne y était allongée: c'était Ta Shan!
+Au centre de la place se trouvait une plateforme en bois de trente pieds de large. Une personne y était allongée: c'était Ta Shan!
 
 Le visage de Ta Shan était d'un gris cadavérique et ses yeux étaient ternes, comme s'il pouvait mourir à tout instant. Une aura de mort enveloppait son corps; il était évident qu'il touchait à sa fin.
 
@@ -126,6 +126,6 @@ Une voix après l'autre, jusqu'à ce que cela forme une véritable tempête!
 
 Tandis qu'il méditait, Wang Lin regarda Ta Shan. Après un long moment, il murmura: « Je peux faire en sorte qu'il ne meure pas! »
 
-Bien que sa voix fût douce, lorsqu'elle atteignit les oreilles des membres du Clan Xian Xuan, et particulièrement celles du vieil homme, leurs corps tremblèrent. Les yeux de ce dernier s'emplirent d'espoir et il marcha vers Wang Lin. Il s'agenouilla à 33 mètres de lui, les larmes coulant sur ses joues: « Bienfaiteur, est-ce vrai? »
+Bien que sa voix fût douce, lorsqu'elle atteignit les oreilles des membres du Clan Xian Xuan, et particulièrement celles du vieil homme, leurs corps tremblèrent. Les yeux de ce dernier s'emplirent d'espoir et il marcha vers Wang Lin. Il s'agenouilla à cent pieds de lui, les larmes coulant sur ses joues: « Bienfaiteur, est-ce vrai? »
 
 Wang Lin réfléchit un instant et répondit lentement: « J'en suis sûr à 50 %! Cependant, si mon sort réussit, bien que Ta Shan ne meure pas, il deviendra une marionnette sans conscience. S'il parvient à la retrouver, cela dépendra de lui seul. »

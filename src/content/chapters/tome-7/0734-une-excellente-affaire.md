@@ -64,11 +64,11 @@ Si cela s'était passé dans le Système Stellaire de l'Alliance, une famille co
 
 Ce qui était plus important encore, c'était qu'il fût la première personne de sa lignée à réussir à le maîtriser depuis que sa famille l'avait obtenu.
 
-Wang Lin attendit un moment. Voyant que le vieil homme hésitait toujours, il agita ses manches et s'avança vers la Bête du Tonnerre. Il déclara alors: « Puisque mon confrère est encore réticent, oublions cette affaire! » Sur ce, la Bête du Tonnerre sous ses pieds se changea en un éclair de foudre et s'élança au loin, suivie de près par la marionnette céleste.
+Wang Lin attendit un moment. Voyant que le vieil homme hésitait toujours, il agita ses manches et s'avança vers la Bête du Tonnerre. Il déclara alors: « Puisque le Daoïste est encore réticent, oublions cette affaire! » Sur ce, la Bête du Tonnerre sous ses pieds se changea en un éclair de foudre et s'élança au loin, suivie de près par la marionnette céleste.
 
 Le sceau de vie dans la main du vieil homme se dissipa en un gaz gris, provoquant une onde de choc dans son cœur; il avait l'impression que ce sort aurait dû lui appartenir et qu'on venait de le lui voler.
 
-En voyant Wang Lin disparaître à l'horizon, l'expression du vieil homme changea radicalement. Il serra les dents et cria: « Confrère, arrête! Je l'échange contre l'Art du Massacre Céleste, ainsi que le Doigt de la Mort et le Doigt Démoniaque! »
+En voyant Wang Lin disparaître à l'horizon, l'expression du vieil homme changea radicalement. Il serra les dents et cria: « Daoïste, arrête! Je l'échange contre l'Art du Massacre Céleste, ainsi que le Doigt de la Mort et le Doigt Démoniaque! »
 
 Wang Lin s'arrêta. La Bête du Tonnerre, dotée d'intelligence, fit volte-face, s'immobilisant à cent pieds du vieil homme. Des éclairs s'échappaient de son museau et ses yeux étaient empreints de mépris.
 
@@ -80,7 +80,7 @@ Le vieil homme les examina. Bien que son visage fût impassible, il admirait sec
 
 Wang Lin rattrapa le jade et l'examina. Il essaya secrètement le sort et consacra même un effort considérable pour le comparer à l'état du troisième œil qu'il avait observé. Il identifia immédiatement les anomalies, mais ne les mentionna pas et se contenta de hocher la tête.
 
-En regardant le vieil homme, Wang Lin éprouva une certaine pointe de culpabilité. Après tout, il avait réalisé une affaire exceptionnelle. Après avoir hésité, il dit: « Confrère, il est préférable de ne pas cultiver plus de 100 000 brins d'énergie de massacre, sans quoi un grand danger pourrait surgir! » Sur ces mots, il partit précipitamment, comme s'il était pressé.
+En regardant le vieil homme, Wang Lin éprouva une certaine pointe de culpabilité. Après tout, il avait réalisé une affaire exceptionnelle. Après avoir hésité, il dit: « Daoïste, il est préférable de ne pas cultiver plus de 100 000 brins d'énergie de massacre, sans quoi un grand danger pourrait surgir! » Sur ces mots, il partit précipitamment, comme s'il était pressé.
 
 Le vieil homme fut surpris avant de baisser les yeux sur le jade qu'il tenait. Après une réflexion, il retourna rapidement sur la planète avec les autres et se lança immédiatement dans une culture de méditation profonde. Il devait cultiver autant que possible pour être prêt lorsque le Royaume Céleste du Tonnerre s'ouvrirait dans un mois.
 

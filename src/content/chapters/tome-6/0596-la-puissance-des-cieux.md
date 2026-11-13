@@ -86,7 +86,7 @@ Le nuage rouge ne se dissipait pas, mais il n'y avait plus de réaction violente
 
 Lorsqu'il réapparut, il se trouvait dans le ciel, au-dessus de la cité impériale. En s'approchant si près du nuage de Tribulation Céleste, son cuir chevelu ne put s'empêcher de s'engourdir.
 
-« Cette fois, les choses semblent avoir échappé à tout contrôle! » Le jeune homme eut un sourire amer. À peine apparu, il tendit sa main droite vers Wang Lin. Il s'apprêtait à extraire Wang Lin de la cité impériale pour qu'il subisse la rétribution loin des civils. Si la rétribution avait été ce qu'il avait d'abord imaginé, il ne serait pas si alarmé, mais cette fois, elle lui inspirait un sombre pressentiment.
+« Cette fois, les choses semblent avoir échappé à tout contrôle! » Le jeune homme eut un sourire amer. À peine apparu, il tendit sa main droite vers Wang Lin. Il s'apprêtait à extraire Wang Lin de la cité impériale pour qu'il subisse la Tribulation Céleste loin des civils. Si la Tribulation avait été ce qu'il avait d'abord imaginé, il ne serait pas si alarmé, mais cette fois, elle lui inspirait un sombre pressentiment.
 
 Alors qu'il allait tendre le bras, il s'arrêta brusquement pour lever les yeux vers le ciel. Il eut un sourire amer et songea: « Puisque ce petit gars est ainsi verrouillé par la Tribulation Céleste, je n'ai pas la capacité de le déplacer! »
 

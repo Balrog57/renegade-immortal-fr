@@ -14,7 +14,7 @@ Parmi les trois femmes devant le vieil homme, la petite sœur de Sun Yunshan, Su
 
 « Wang Lin!! » Le petit homme fut saisi de stupeur et son visage se voila immédiatement d'obscurité. Il n'aurait jamais imaginé que le jeune cultivateur qu'il avait voulu capturer sur un coup de tête pour en faire un gardien céleste ait atteint un tel niveau de culture. S'il l'avait su à l'époque, connaissant sa propre nature, il n'aurait jamais provoqué Wang Lin.
 
-Le vieil homme réfléchit un instant avant de déclarer lentement: « Camarade cultivateur Wang, j'ai fait preuve d'imprudence plus tôt en vous offensant deux fois. Vous avez déjà tué deux de mes gardiens célestes, nous sommes donc quittes. Aujourd'hui, je ne vous compliquerai pas la tâche, vous pouvez partir! Après ce jour, nos chemins ne se croiseront plus! »
+Le vieil homme réfléchit un instant avant de déclarer lentement: « Daoïste Wang, j'ai fait preuve d'imprudence plus tôt en vous offensant deux fois. Vous avez déjà tué deux de mes gardiens célestes, nous sommes donc quittes. Aujourd'hui, je ne vous compliquerai pas la tâche, vous pouvez partir! Après ce jour, nos chemins ne se croiseront plus! »
 
 En entendant ces paroles, les trois femmes furent surprises. Elles connaissaient bien ce vieil Ancêtre. Bien que son niveau de culture fût élevé, il était d'une grande mesquinerie. Or, alors qu'on frappait à sa porte, non seulement il n'attaquait pas, mais il laissait même Wang Lin s'en aller.
 
@@ -46,7 +46,7 @@ Soudain, une majesté inimaginable émana de l'homme d'âge moyen. Les yeux du f
 
 Les pupilles de Wang Lin se contractèrent brusquement. Bien que le geste de pointer l'épée ne possédât aucune puissance d'attaque intrinsèque, Wang Lin ressentit un besoin impérieux de reculer. Il eut l'impression que son âme originelle s'effondrerait s'il ne battait pas en retraite!
 
-Cette sensation était extrêmement puissante, mais ce n'était pas une première pour lui. La tribulation divine avait possédé cette même force!
+Cette sensation était extrêmement puissante, mais ce n'était pas une première pour lui. La Tribulation Céleste avait possédé cette même force!
 
 Wang Lin, qui cultivait en défiant les cieux, possédait un cœur Dao d'une fermeté absolue. Il se força à ne pas reculer et, loin de cela, il fit un pas en avant!
 

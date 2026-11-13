@@ -110,7 +110,7 @@ Alors qu'il réfléchissait, la femme sembla agiter sa main droite et un rayon d
 
 Grâce à cette faible clarté, Wang Lin vit enfin l'intérieur du palais et eut le souffle coupé.
 
-L'édifice ressemblait à un temple taoïste de mortels. Neuf statues s'y dressaient. Huit étaient disposées sur les côtés, tandis que celle du centre, sculptée dans des matières diverses et indéterminables, dégageait un reflet doré.
+L'édifice ressemblait à un temple daoïste de mortels. Neuf statues s'y dressaient. Huit étaient disposées sur les côtés, tandis que celle du centre, sculptée dans des matières diverses et indéterminables, dégageait un reflet doré.
 
 Cependant, cette lumière dorée était très faible. À l'instant même où elle apparaissait, elle semblait être dévorée par l'obscurité. Par conséquent, elle ne subsistait qu'au cœur de la statue, lui conférant une aura mystérieuse.
 

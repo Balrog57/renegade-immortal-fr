@@ -20,7 +20,7 @@ Diverses scènes défilèrent devant ses yeux avant de s'arrêter enfin sur le v
 
 Wang Lin poussa un soupir et caressa la tête de Wang Ping. Ses yeux étaient calmes. Il avait transcendé la vie et la mort, il avait percé les mystères de la réincarnation. Ces choses n'étaient pour lui que de la fumée; il les avait vues, mais elles ne s'ancreraient pas dans son cœur.
 
-La tombe de Sun Tai se trouvait à l'arrière du village de la Lune Déchue. Tous ceux qui mouraient au village y étaient enterrés.
+La tombe de Sun Tai se trouvait à l'arrière du village Luo Yue. Tous ceux qui mouraient au village y étaient enterrés.
 
 Wang Ping grava la stèle: « Tombe de Sun Tai », signée de son petit-fils adoptif Wang Ping.
 
@@ -110,7 +110,7 @@ Son apparence ressemblait de plus en plus à celle de Liu Mei.
 
 À l'inverse, Wang Lin avait encore vieilli. Dix-neuf années avaient laissé des marques profondes sur ses traits.
 
-La dix-neuvième année après son arrivée au village de la Lune Déchue, il fit ses bagages et partit avec Wang Ping.
+La dix-neuvième année après son arrivée au village Luo Yue, il fit ses bagages et partit avec Wang Ping.
 
 Lors de leur départ, tous les amis d'enfance de Wang Ping vinrent leur dire adieu. La plupart étaient des filles, et leurs regards vers Wang Ping étaient empreints de ressentiment.
 

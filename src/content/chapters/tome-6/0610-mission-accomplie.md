@@ -46,7 +46,7 @@ Wang Lin frappa son sac de rangement, et l'étendard d'âme apparut dans sa main
 
 Dès que le drapeau toucha l'eau de la rivière, les cent millions de fragments d'âmes en jaillirent.
 
-Le regard de Wang Lin se glaça et il sortit le drapeau de restriction. Ce dernier avait été endommagé lorsqu'il l'avait utilisé contre la tribulation divine, brisant une grande partie des restrictions qu'il contenait. Bien qu'il n'en restât que peu, Wang Lin le jeta tout de même dans la rivière des enfers.
+Le regard de Wang Lin se glaça et il sortit le drapeau de restriction. Ce dernier avait été endommagé lorsqu'il l'avait utilisé contre la Tribulation Céleste, brisant une grande partie des restrictions qu'il contenait. Bien qu'il n'en restât que peu, Wang Lin le jeta tout de même dans la rivière des enfers.
 
 Après cela, vint l'épée céleste! Bien que Xu Liguo fût extrêmement réticent, il n'osait pas s'opposer à Wang Lin en cet instant. Il ne pouvait que soupirer sans fin dans son cœur: « Tant pis. Nous sommes déjà revenus à la Cité Tian Yao. Cette petite beauté m'attend depuis dix ans; je me demande si elle est restée fidèle... » Alors qu'il sombrait dans ses pensées, il fut projeté dans la rivière des enfers par Wang Lin, suivi de près par la lame demi-lune.
 

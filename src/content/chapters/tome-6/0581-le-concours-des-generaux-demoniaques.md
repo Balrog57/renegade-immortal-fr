@@ -66,7 +66,7 @@ Il resta ainsi toute la nuit!
 
 Au petit matin, le soleil se leva, chassant l'obscurité de la Cité Tian Yao. Tandis que les rayons frappaient la cité impériale, une puissante intention de combat émana des huit cités extérieures.
 
-À l'intérieur de la cité impériale, sur la place de 33 kilomètres, trônait un gigantesque tambour de guerre!
+À l'intérieur de la cité impériale, sur la place de cent mille pieds, trônait un gigantesque tambour de guerre!
 
 Ce tambour était d'un noir absolu et dégageait une aura antique qui s'étendait sur cinq mille kilomètres.
 
@@ -86,11 +86,11 @@ Un à un, les généraux démoniaques menèrent leurs serviteurs et assistants s
 
 Les huit portes de la cité impériale s'ouvrirent. De nombreux soldats démoniaques étaient postés aux entrées pour vérifier l'identité des généraux avant de les laisser passer.
 
-Aujourd'hui, la bataille se déroulerait sur la vaste place de 33 kilomètres, près de la Porte Tian Yao. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur près de 330 mètres de long. D'innombrables fonctionnaires de la Cité Tian Yao apparurent et prirent place derrière leurs tables.
+Aujourd'hui, la bataille se déroulerait sur la vaste place de cent mille pieds, près de la Porte Tian Yao. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur environ mille pieds de long. D'innombrables fonctionnaires de la Cité Tian Yao apparurent et prirent place derrière leurs tables.
 
 Il n'y avait qu'un seul siège au sommet, celui de l'Empereur Démon!
 
-Aux extrémités sud et nord de la place se trouvaient des tribunes de huit étages, longues d'environ 264 mètres, où étaient assis d'innombrables dames et de jeunes héritiers des grandes demeures. Les deux étages supérieurs de chaque tribune ne comportaient que quatre sièges chacun.
+Aux extrémités sud et nord de la place se trouvaient des tribunes de huit étages, longues d'environ huit cents pieds, où étaient assis d'innombrables dames et de jeunes héritiers des grandes demeures. Les deux étages supérieurs de chaque tribune ne comportaient que quatre sièges chacun.
 
 Sur ces 16 sièges, les huit du haut étaient réservés aux commandants en chef, et les huit du bas aux vice-commandants en chef.
 

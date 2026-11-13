@@ -53,12 +53,12 @@ Si ces vieux monstres étaient ainsi affectés, il n'était pas nécessaire de m
 
 Tout cela sembla s'étirer, mais tout se produisit à l'instant même où Wang Lin apparut, et les réactions de chacun furent captées par son regard. Il tapota ses vêtements, regarda calmement Tian Yunzi, puis joignit les mains et dit respectueusement: « Le disciple Wang Lin salue Maître! »
 
-Les yeux de Tian Yunzi brillèrent d'une lueur étrange en fixant la marque entre les sourcils de Wang Lin. Après un long moment, il sourit et dit avec bienveillance: « Il est bon que tu sois de retour. Wang Lin, ces anciens souhaitent te poser des questions, et tu devras y répondre avec sincérité. »
+Les yeux de Tian Yunzi brillèrent d'une lueur étrange en fixant la marque entre les sourcils de Wang Lin. Après un long moment, il sourit et dit avec bienveillance: « Il est bon que tu sois de retour. Wang Lin, ces Seniors souhaitent te poser des questions, et tu devras y répondre avec sincérité. »
 
 Un homme d'âge moyen derrière Ling Tianhou le pointa du doigt et s'écria: « Petit morveux, Wang Lin, tu as vraiment osé revenir!! »
 « Autrefois, tu as tué des membres de ma Secte Da Luo Jian dans la Terre Yao Ling. Aujourd'hui, tu vas payer en sang! »
 
-Wang Lin esquissa un sourire, mais ses yeux étaient aussi froids que la glace. Il regarda froidement l'homme et dit calmement: « Ancien Ling Tianhou, ce disciple a-t-il les qualifications pour me parler de la sorte? »
+Wang Lin esquissa un sourire, mais ses yeux étaient aussi froids que la glace. Il regarda froidement l'homme et dit calmement: « Senior Ling Tianhou, ce disciple a-t-il les qualifications pour me parler de la sorte? »
 
 L'expression de Ling Tianhou devint extrêmement sombre alors qu'il fixait la marque entre les sourcils de Wang Lin. Bien qu'il craignît quelque peu la marque de Suzaku, ce qui le stupéfiait véritablement, c'étaient les deux autres puissances situées entre les sourcils du jeune homme.
 
@@ -80,7 +80,7 @@ L'expression de Wang Lin resta neutre lorsqu'il répondit calmement: « Ce junio
 
 Les yeux du vieillard maigre brillèrent et il demanda froidement: « Quelle calamité? »
 
-Wang Lin répliqua avec calme: « Pour me défendre, ce junior a dû emprisonner la fille de Xue Zu! Ce jour-là, voyant les anciens et Xue Zu arriver à sa poursuite, ce junior devait naturellement fuir! »
+Wang Lin répliqua avec calme: « Pour me défendre, ce junior a dû emprisonner la fille de Xue Zu! Ce jour-là, voyant les Seniors et Xue Zu arriver à sa poursuite, ce junior devait naturellement fuir! »
 
 Après ces paroles, le vieil homme au corps de montagne de chair se redressa et demanda: « Le jeton de la grotte céleste est-il entre tes mains? »
 

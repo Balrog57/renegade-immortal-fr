@@ -88,17 +88,17 @@ Un rugissement de rage s'échappa de sa bouche, se propageant comme le tonnerre.
 
 Ses cheveux volèrent et les veines de son visage saillirent, féroce. Une lueur verte apparut sur son visage, et un second visage apparut au sein de cette lueur.
 
-C'était un visage démoniaque doté de deux cornes. Une fois apparu, il fixa les nuages de rétribution qui s'accumulaient et laissa échapper un rugissement silencieux.
+C'était un visage démoniaque doté de deux cornes. Une fois apparu, il fixa les nuages de Tribulation qui s'accumulaient et laissa échapper un rugissement silencieux.
 
-Ce cri n'avait aucun son, mais il fit trembler les nuages de rétribution et provoqua l'effondrement d'une partie d'entre eux. Cependant, les fragments qui tombaient se reformaient instantanément à une vitesse encore plus grande.
+Ce cri n'avait aucun son, mais il fit trembler les nuages de Tribulation et provoqua l'effondrement d'une partie d'entre eux. Cependant, les fragments qui tombaient se reformaient instantanément à une vitesse encore plus grande.
 
-En un clin d'œil, la zone fut saturée par un nuage de Tribulation Céleste de plus de 33 kilomètres de large. Un éclair rouge descendit du ciel à une vitesse inimaginable.
+En un clin d'œil, la zone fut saturée par un nuage de Tribulation Céleste de plus de cent mille pieds de large. Un éclair rouge descendit du ciel à une vitesse inimaginable.
 
 La douleur sur le visage de Yao Yun s'accentua. L'ombre démoniaque qui l'entourait bondit immédiatement hors de son corps, se précipitant vers l'éclair rouge pour tenter de le dévorer.
 
 Un fracas retentit alors que l'ombre démoniaque tremblait, frôlant l'effondrement. Simultanément, une quantité massive de foudre traversa l'ombre pour pénétrer dans le corps de Yao Yun, exacerbant sa souffrance.
 
-Une partie de la foudre de rétribution pénétra dans le miroir de bronze.
+Une partie de la foudre de la Tribulation pénétra dans le miroir de bronze.
 
 À cet instant précis, un léger craquement s'échappa du miroir. Puis, d'autres bruits de rupture se succédèrent.
 

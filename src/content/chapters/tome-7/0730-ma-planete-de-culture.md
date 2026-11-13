@@ -88,7 +88,7 @@ La scène précédente lui semblait être un rêve. Il toucha l'endroit entre se
 
 « Je dois faire de mon mieux pour accomplir la requête du Senior! » Zhang Xinhai se transforma en un rayon de lumière et fonça vers le domaine de la famille Zhang.
 
-Après avoir renvoyé Zhang Xinhai, Wang Lin réfléchit un instant avant de sortir l'Étendard des Mille Millions d'Âmes. Il planta délicatement l'étendard de trente pieds de haut dans la montagne.
+Après avoir renvoyé Zhang Xinhai, Wang Lin réfléchit un instant avant de sortir l'Étendard de l'Âme. Il planta délicatement l'étendard de trente pieds de haut dans la montagne.
 
 L'étendard se déploya sous l'effet du vent et les fragments d'âmes s'envolèrent, enveloppant tout le sommet. Les trois âmes primaires surgirent et encerclèrent la zone. La montagne entière fut immédiatement recouverte d'un dense brouillard noir.
 

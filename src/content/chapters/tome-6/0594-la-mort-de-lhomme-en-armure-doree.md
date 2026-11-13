@@ -82,6 +82,6 @@ Dao des Cieux, descends!
 
 Le Dao des Cieux est normalement invisible, mais lorsqu'il devient manifeste et qu'il descend, il ne porte qu'un seul nom... la Tribulation Céleste!!!
 
-Avec la destruction du Royaume Céleste, la Tribulation Céleste semblait avoir disparu. Mais ce qui s'était éclipsé n'était pas la véritable rétribution, mais seulement la rétribution céleste créée par les êtres célestes! La véritable Tribulation Céleste est un châtiment des cieux, et elle ne disparaît pas avec la destruction d'un royaume. Elle n'apparaîtra que lorsqu'elle devra apparaître!
+Avec la destruction du Royaume Céleste, la Tribulation Céleste semblait avoir disparu. Mais ce qui s'était éclipsé n'était pas la véritable Tribulation Céleste, mais seulement la tribulation des Immortels, provoquée par les Immortels! La véritable Tribulation Céleste est un châtiment des cieux, et elle ne disparaît pas avec la destruction d'un royaume. Elle n'apparaîtra que lorsqu'elle devra apparaître!
 
 L'émergence d'un véritable cultivateur défiant le ciel est la condition sine qua non de l'apparition de la Tribulation Céleste!

@@ -104,7 +104,7 @@ Da Tou haleta en contemplant l'indifférent Wang Lin. Son cœur était partagé 
 
 « L'écart entre nous ne cesse de croître... Ce voyage à l'Alliance a provoqué une progression fulgurante de son niveau de culture! »
 
-Une passion ardente brilla dans les yeux de Lei Ji, qui pensa: « Plus Maître est fort, plus je suis confiant pour reprendre la planète Géant Démon. »
+Une passion ardente brilla dans les yeux de Lei Ji, qui pensa: « Plus Maître est fort, plus je suis confiant pour reprendre la planète Ju Mo. »
 
 Ta Shan restait aussi impassible qu'auparavant.
 

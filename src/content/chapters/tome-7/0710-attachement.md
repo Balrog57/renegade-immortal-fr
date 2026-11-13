@@ -112,7 +112,7 @@ Parmi les étoiles étincelantes, de nombreuses nébuleuses parsemaient le ciel.
 
 « Si je réussis ce voyage, l'élément métal de la perle défiant le ciel sera complet. Après cela, elle devrait pouvoir reconnaître un maître. J'ignore simplement si elle possédera des pouvoirs. » Les attentes de Wang Lin commençaient à croître alors qu'il volait vers la planète Yun Xia.
 
-En chemin, il utilisa l'étendard d'âmes au milliard d'âmes pour sonder les souvenirs du vieillard expert en évasions. Il mémorisa tous ses sorts de fuite.
+En chemin, il utilisa l'Étendard de l'Âme pour sonder les souvenirs du vieillard expert en évasions. Il mémorisa tous ses sorts de fuite.
 
 Ces techniques avaient laissé une empreinte profonde dans sa mémoire. S'il n'avait pas eu tant de préoccupations, il les aurait étudiées bien plus tôt.
 

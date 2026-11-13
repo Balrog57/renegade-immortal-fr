@@ -48,7 +48,7 @@ En un seul rugissement, les cieux et la terre changèrent de couleur. Tous les �
 
 Les expressions de tous les cultivateurs alentour changèrent radicalement. Même les vieux monstres sur les tapis de prière furent stupéfaits.
 
-Même les yeux du Dieu de Sang s'illuminèrent d'une lueur froide.
+Même les yeux de Xue Shenzi s'illuminèrent d'une lueur froide.
 
 Pour la première fois, Qing Shui rit et s'exclama: « Bien! »
 

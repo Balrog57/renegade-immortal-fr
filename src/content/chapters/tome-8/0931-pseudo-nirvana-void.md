@@ -24,7 +24,7 @@ Lorsque Wang Lin vit ces quatre gardes célestes, ses pupilles se rétractèrent
 
 Wang Lin sentit clairement que ces quatre hommes dégageaient la même aura que Ta Shan. Ces quatre colosses étaient manifestement raffinés à l'aide de la méthode secrète créée par l'Empereur Céleste Qing Lin!
 
-« Les gardes célestes se divisent en rangs d'or, d'argent, de cuivre et de fer. Ces quatre colosses sont tous de rang or! » Wang Lin jeta un regard à l'Estimé Xuan Bao et se retira rapidement vers la lisière du vortex de cinq mille kilomètres.
+« Les gardes célestes se divisent en rangs d'or, d'argent, de cuivre et de fer. Ces quatre colosses sont tous de rang or! » Wang Lin jeta un regard à l'Estimé Xuan Bao et se retira rapidement vers la lisière du vortex de dix mille li en train de s'effondrer.
 
 Après l'apparition des quatre gardes célestes en armure dorée, l'expression de l'Estimé Xuan Bao resta impassible tandis qu'il levait sa main droite. En un éclair, les quatre gardes chargèrent le Serpent aux yeux de lune.
 
@@ -106,7 +106,7 @@ Les yeux de l'Estimé Xuan Bao s'illuminèrent et il pointa l'avant en riant. La
 
 Les quatre gardes célestes poussèrent des rugissements; leurs corps vibrèrent et grandirent soudainement pour devenir des géants de mille pieds. Ils lancèrent alors leurs attaques de concert.
 
-Un sourire étira le visage de l'Estimé Xuan Bao tandis qu'il tendait la main droite, provoquant une nouvelle fissure. Un gaz vert s'en échappa. Accompagné de cette brume émeraude, une aura fit trembler l'esprit de tous les cultivateurs dans un rayon de plus de dix mille kilomètres.
+Un sourire étira le visage de l'Estimé Xuan Bao tandis qu'il tendait la main droite, provoquant une nouvelle fissure. Un gaz vert s'en échappa. Accompagné de cette brume émeraude, une aura fit trembler l'esprit de tous les cultivateurs dans un rayon de plusieurs dizaines de milliers de li.
 
 Le corps de Wang Lin trembla. En regardant de plus près, il vit une flèche descendre lentement de la faille.
 

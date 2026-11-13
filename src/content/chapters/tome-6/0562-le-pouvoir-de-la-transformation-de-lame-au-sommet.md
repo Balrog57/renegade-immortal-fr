@@ -70,7 +70,7 @@ Finalement, alors que Wang Lin n'était plus qu'à vingt pas, le colosse, le fro
 
 Wang Lin répondit calmement tout en continuant sa progression: « C'est mon camp militaire; que pensez-vous que mes intentions soient?! »
 
-Le colosse ressentit alors une pression titanesque, comme si d'innombrables montagnes s'abattaient sur lui. Réprimant son urge de reculer, il cria: « Vous avez disparu depuis plus d'un an, et le général démon vous a depuis longtemps dépouillé de votre rang de commandant! »
+Le colosse ressentit alors une pression titanesque, comme si d'innombrables montagnes s'abattaient sur lui. Réprimant son envie de reculer, il cria: « Vous avez disparu depuis plus d'un an, et le général démon vous a depuis longtemps dépouillé de votre rang de commandant! »
 
 « Un an... Cela ne fait donc qu'un an! » Le cœur de Wang Lin ressentit un léger soulagement, mais son aura devint encore plus puissante.
 

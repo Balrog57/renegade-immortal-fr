@@ -58,7 +58,7 @@ Les étranges fissures sur le doigt étaient extrêmement nettes. Cette scène f
 
 « Ce Serpent aux yeux de lune diffère légèrement de ce que racontent les anciens registres! Cependant, je possède la Flèche du Pseudo-Vide du Nirvana; peu importe sa puissance, il ne pourra échapper à cette flèche! » L'Estimé Xuan Bao était extrêmement confiant en la force de son arme.
 
-« Bien que ma Flèche du Pseudo-Vide du Nirvana ne soit que de rang 9, si je parviens à capturer ce Serpent aux yeux de lune et à le raffiner, il deviendra un autre trésor du Pseudo-Vide du Nirvana. En fusionnant les deux, grâce aux dizaines de milliers d'années de préparation, j'ai 80 % de chances de créer un trésor de rang 8 du Pseudo-Vide du Nirvana! De cette façon, ma position parmi les Anciens progressera et je pourrai enfin rivaliser avec Zhong Xuan! »
+« Bien que ma Flèche du Pseudo-Vide du Nirvana ne soit que de rang 9, si je parviens à capturer ce Serpent aux yeux de lune et à le raffiner, il deviendra un autre trésor du Pseudo-Vide du Nirvana. En fusionnant les deux, grâce aux dizaines de milliers d'années de préparation, j'ai 80 % de chances de créer un trésor de rang 8 du Pseudo-Vide du Nirvana! De cette façon, ma position parmi les Anciens progressera et je pourrai enfin rivaliser avec Zhong Xuanzi! »
 
 La Flèche du Pseudo-Vide du Nirvana chargea jusqu'à percuter le doigt du dieu ancien qui venait de se reformer.
 

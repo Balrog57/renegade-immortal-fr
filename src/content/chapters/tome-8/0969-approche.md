@@ -16,7 +16,7 @@ Cependant, Tian Yunzi était très discret et peu d'étrangers connaissaient sa 
 
 Bien que son mouvement parût lent, il était en réalité d'une rapidité extrême. Une pression capable de faire trembler les cieux rugit à travers l'éther. Les cultivateurs de la planète Tian Yun ressentirent une majesté terrifiante descendre sur le monde.
 
-En raison de l'immense quantité d'énergie originelle accumulée devant le doigt, un immense arc de lumière, long de plus d'un kilomètre, apparut devant lui et toucha la planète Tian Yun en premier.
+En raison de l'immense quantité d'énergie originelle accumulée devant le doigt, un immense arc de lumière, long de plusieurs milliers de pieds, apparut devant lui et toucha la planète Tian Yun en premier.
 
 La planète entière sembla vaciller et une onde gigantesque se propagea dans l'atmosphère, comme si une force colossale s'y déplaçait. Cette énergie originelle précéda le doigt, provoquant même l'effondrement de certaines parties du ciel étoilé et une distorsion totale de l'espace.
 

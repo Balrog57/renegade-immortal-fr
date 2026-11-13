@@ -142,7 +142,7 @@ Quatre coups consécutifs!
 
 Ces quatre résonances jaillirent simultanément, rattrapant la première pour fusionner en un seul choc. Cela créa une tempête sonore dont le tambour démoniaque était l'épicentre.
 
-La place commença à se fissurer centimètre par centimètre, comme si un gigantesque dragon de terre s'agitait en dessous. Dans le ciel, le tonnerre généré par le tambour devint encore plus puissant. D'innombrables spectateurs dans les gradins crachèrent du sang, victimes de graves blessures internes causées par ce coup de tambour quintuple! Certains furent même instantanément évanouis par la puissance sonore!
+La place commença à se fissurer pouce par pouce, comme si un gigantesque dragon de terre s'agitait en dessous. Dans le ciel, le tonnerre généré par le tambour devint encore plus puissant. D'innombrables spectateurs dans les gradins crachèrent du sang, victimes de graves blessures internes causées par ce coup de tambour quintuple! Certains furent même instantanément évanouis par la puissance sonore!
 
 Hormis le Commandant Céleste, les sept autres commandants en chef s'étaient levés, affichant une incrédulité totale. Sur la place, l'expression de l'homme à l'armure dorée changea radicalement!
 

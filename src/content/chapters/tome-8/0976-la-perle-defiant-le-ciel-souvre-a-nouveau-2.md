@@ -54,7 +54,7 @@ Il serra les dents et se précipita vers la flamme. Il était extrêmement rapid
 
 Ling Tianhou cracha une large bouchée de sang, mais il accéléra encore davantage et vit enfin la flamme devant lui!
 
-La flamme avait la forme d'un Oiseau Vermillon noir!
+La flamme avait la forme d'un Suzaku noir!
 
 Ling Tianhou serra les dents avec acharnement pour charger Suzaku, mais alors qu'il approchait de la flamme, la main géante se referma doucement sur lui!
 

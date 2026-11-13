@@ -18,7 +18,7 @@ Les yeux de Wang Lin s'illuminèrent. Sans dire un mot, il recula rapidement. À
 
 Les disciples de la Secte Da Luo Jian battirent également en retraite précipitamment, tandis que Chen Long lançait un appel désespéré: « Daoïste Wang! »
 
-« Compagnon Chen Long, je n'ai même pas la capacité de me sauver moi-même, alors ne comptez pas sur moi! » répondit Wang Lin en secouant la tête avant de disparaître instantanément dans le brouillard. L'épée céleste de Zhou Yi tournait autour de son corps.
+« Daoïste Chen Long, je n'ai même pas la capacité de me sauver moi-même, alors ne comptez pas sur moi! » répondit Wang Lin en secouant la tête avant de disparaître instantanément dans le brouillard. L'épée céleste de Zhou Yi tournait autour de son corps.
 
 « Toi! » Chen Long eut une expression sombre et poussa un soupir. La Secte Tian Yun et la Secte Da Luo Jian étaient comme l'eau et le feu. Il comprenait pourquoi Wang Lin refusait d'aider.
 

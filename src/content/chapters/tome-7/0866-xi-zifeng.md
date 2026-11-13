@@ -74,7 +74,7 @@ Le champ de bataille pour le titre céleste fut fixé sur la place du lac de ton
 
 Tandis qu'ils discutaient, un homme vêtu de noir nommé Gongsun fit son apparition et s'assit.
 
-Peu après, la famille Yao et les trois autres familles dotées d'héritages célestes arrivèrent. Le représentant de la famille Yao était le Dieu de Sang. Il arriva accompagné des vieux monstres des trois autres lignées et prit place sur les tapis de prière. Ils ne daignèrent même pas regarder Qing Shui.
+Peu après, la famille Yao et les trois autres familles dotées d'héritages célestes arrivèrent. Le représentant de la famille Yao était Xue Shenzi. Il arriva accompagné des vieux monstres des trois autres lignées et prit place sur les tapis de prière. Ils ne daignèrent même pas regarder Qing Shui.
 
 Lorsque les familles Shengong et Zhan arrivèrent, l'ancêtre des Shengong et Lie Yunzi s'installèrent successivement sur leurs tapis respectifs. Bientôt, divers ancêtres de différentes familles de culture arrivèrent et prirent place.
 
@@ -82,9 +82,9 @@ Lorsque les familles Shengong et Zhan arrivèrent, l'ancêtre des Shengong et Li
 
 Wang Lin faisait partie des participants!
 
-Le Dieu de Sang leva la tête et fixa Wang Lin d'un regard sinistre. Il laissa échapper un reniflement méprisant avant de détourner les yeux, l'expression sombre.
+Xue Shenzi leva la tête et fixa Wang Lin d'un regard sinistre. Il laissa échapper un reniflement méprisant avant de détourner les yeux, l'expression sombre.
 
-Hormis le Dieu de Sang, un autre regard issu de la foule se posa sur lui. Xi Zifeng se mordit la lèvre inférieure en observant silencieusement Wang Lin suspendu dans le ciel. Elle poussa un soupir et ses yeux trahirent une pointe de confusion.
+Hormis Xue Shenzi, un autre regard issu de la foule se posa sur lui. Xi Zifeng se mordit la lèvre inférieure en observant silencieusement Wang Lin suspendu dans le ciel. Elle poussa un soupir et ses yeux trahirent une pointe de confusion.
 
 Depuis son retour du Royaume Céleste du Tonnerre, l'image de Wang Lin était restée gravée dans son cœur. Elle ne parvenait pas à se défaire de sa silhouette, et lorsqu'elle apprit que la famille Yao le traquait, son cœur trembla, mais elle fut impuissante. Chaque jour, elle manquait d'élan pour cultiver, mais l'annonce de l'évasion de Wang Lin lui apporta une immense joie, bien qu'une amertume profonde se cache derrière ce bonheur.
 

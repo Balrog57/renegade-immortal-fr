@@ -10,7 +10,7 @@ La silhouette de Wang Lin apparut devant Liu Qingyun. Il était calme et son cor
 
 Non seulement Liu Qingyun était plongé dans l'incrédulité, mais le garçon à la grosse tête, au loin, laissa échapper un halètement, ses yeux écarquillés par le choc. Il savait que Wang Lin était puissant, mais il n'imaginait pas qu'il puisse s'échapper sans une seule égratignure. Il n'osait plus défier Wang Lin; il éprouvait désormais une crainte encore plus profonde à son égard.
 
-Wang Lin lança un regard glacial à Liu Qingyun, fit un pas et disparut. Terrifié, Liu Qingyun s'exclama avec anxiété: « Camarade cultivateur, c'était un malentendu, un malentendu! Cette fois, je vous donnerai véritablement un trésor pour échanger ma vie. J'ai... »
+Wang Lin lança un regard glacial à Liu Qingyun, fit un pas et disparut. Terrifié, Liu Qingyun s'exclama avec anxiété: « Daoïste, c'était un malentendu, un malentendu! Cette fois, je vous donnerai véritablement un trésor pour échanger ma vie. J'ai... »
 
 Sans attendre qu'il termine sa phrase, la silhouette de Wang Lin apparut derrière Liu Qingyun alors que celui-ci se retournait pour s'enfuir. Les deux doigts de Wang Lin étaient imprégnés du tonnerre des cieux. Tandis que le tonnerre grondait dans les airs, Wang Lin pressa sa main contre le centre du dos de Liu Qingyun.
 

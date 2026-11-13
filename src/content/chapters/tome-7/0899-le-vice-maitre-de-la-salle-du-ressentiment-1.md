@@ -24,7 +24,7 @@ Le visage de ce dernier se voila d'ombre; il recula aussitôt tout en formant un
 
 L'ensemble de la caverne commença à s'effondrer massivement. L'homme en robe noire laissa échapper un gémissement étouffé et se retira précipitamment.
 
-« Cher cultivateur, si un malentendu nous oppose, nous pouvons en discuter! Ce vieil homme est Liu Qingyun, le Vice-Maître de la Salle du Ressentiment de la Secte Shi Yin! » L'homme en robe noire était sous le choc. Il venait de s'éveiller et son esprit était encore embrumé. Cependant, une fois lucide, il réalisa que celui qui l'avait réveillé était un cultivateur au stade Scruteur du Nirvana!
+« Cher Daoïste, si un malentendu nous oppose, nous pouvons en discuter! Ce vieil homme est Liu Qingyun, le Vice-Maître de la Salle du Ressentiment de la Secte Shi Yin! » L'homme en robe noire était sous le choc. Il venait de s'éveiller et son esprit était encore embrumé. Cependant, une fois lucide, il réalisa que celui qui l'avait réveillé était un cultivateur au stade Scruteur du Nirvana!
 
 S'il avait encore possédé un corps, il n'aurait pas eu peur, mais il n'était plus qu'une âme. De plus, il n'était pas le seul de ce niveau: le garçon à la grosse tête était également un expert du Scruteur du Nirvana et, bien que la marionnette ne le fût pas, elle se situait au sommet du stade Yang Corporel.
 
@@ -66,7 +66,7 @@ Un rire niais parvint soudain à ses oreilles. Le garçon à la grosse tête sec
 
 Au loin, Ta Shan accélérait sa course.
 
-Liu Qingyun eut un sourire amer. Il savait qu'il ne pourrait échapper à un maître du Repli Spatial. Il soupira et dit: « Camarade cultivateur, il n'y a aucune querelle de vie ou de mort entre nous. Pouvez-vous me laisser une issue? Je vous le revaudrai, je vous le promets! »
+Liu Qingyun eut un sourire amer. Il savait qu'il ne pourrait échapper à un maître du Repli Spatial. Il soupira et dit: « Daoïste, il n'y a aucune querelle de vie ou de mort entre nous. Pouvez-vous me laisser une issue? Je vous le revaudrai, je vous le promets! »
 
 Wang Lin le fixa et demanda lentement: « Comment comptez-vous me rembourser? »
 
@@ -74,7 +74,7 @@ Liu Qingyun serra les dents: « J'ai l'esprit originel d'un cultivateur du Scrut
 
 L'expression de Wang Lin resta impassible: « Oh? Apportez-le. »
 
-Les yeux de Liu Qingyun s'illuminèrent: « Camarade cultivateur, si je le sors et que vous refusez toujours de me laisser passer... »
+Les yeux de Liu Qingyun s'illuminèrent: « Daoïste, si je le sors et que vous refusez toujours de me laisser passer... »
 
 Avant qu'il ne puisse terminer, Wang Lin fronça les sourcils et lui lança un regard glacial: « Je vous accorde trois respirations pour y réfléchir! »
 
@@ -86,7 +86,7 @@ Après avoir examiné l'âme avec attention, Wang Lin hocha la tête. C'était b
 
 Wang Lin secoua la tête: « Ceci ne suffit pas pour acheter votre vie. »
 
-Liu Qingyun eut un sourire amer. Il savait que sa proposition était dérisoire face à ce que les autres Vice-Maîtres avaient dû dépenser. Après une hésitation, son visage se transforma; il redressa brusquement la tête et, les dents serrées, déclara: « Camarade cultivateur, il y a une chose dont je suis certain qu'elle vous comblera! »
+Liu Qingyun eut un sourire amer. Il savait que sa proposition était dérisoire face à ce que les autres Vice-Maîtres avaient dû dépenser. Après une hésitation, son visage se transforma; il redressa brusquement la tête et, les dents serrées, déclara: « Daoïste, il y a une chose dont je suis certain qu'elle vous comblera! »
 
 Une lueur de férocité passa dans ses yeux. Sa main droite effleura le miroir et une pression colossale en jaillit soudainement.
 

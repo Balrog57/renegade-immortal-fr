@@ -62,7 +62,7 @@ De loin, ce rouge était infini et semblait recouvrir l'immensité du ciel.
 
 L'expression du jeune homme sur le bateau changea soudainement. Puis il laissa échapper un rire amer: « Il semble que j'aie oublié ce détail, mais ce petit gars est un cultivateur, contrairement à moi. À l'époque, j'avais passé beaucoup de temps dans le lac du dragon et de nombreux Anciens m'avaient aidé. Finalement, en offrant des sacrifices aux anciens démons pendant plusieurs années, j'avais pu dissimuler cette aura défiante pour ne pas provoquer de Tribulation Céleste. »
 
-« Cependant, ceci est un test pour cet enfant. S'il parvient à résister à cette Tribulation Céleste, il n'aura plus, du moins au stade Ascendant, d'interférence du Dao des cieux... Et d'après ce que je vois, la puissance de cette rétribution n'est pas si grande... »
+« Cependant, ceci est un test pour cet enfant. S'il parvient à résister à cette Tribulation Céleste, il n'aura plus, du moins au stade Ascendant, d'interférence du Dao des cieux... Et d'après ce que je vois, la puissance de cette Tribulation Céleste n'est pas si grande... »
 
 Tous les habitants de la Cité Tian Yao remarquèrent le changement dans le ciel, et la foule sur la place fut totalement stupéfaite.
 
@@ -78,7 +78,7 @@ Le jeune homme sur le bateau observa l'éclair avant de pousser un soupir de sou
 
 Wang Lin fixait le ciel. À cet instant, il ignorait tout le reste pour ne se concentrer que sur l'éclair rouge céleste.
 
-« J'ai eu quelques rencontres avec la Tribulation Céleste au cours de mes 700 ans de culture... J'ai attiré la rétribution en raffinant le drapeau restrictif... J'ai changé le destin de Li Muwan et provoqué la descente du messager des cieux... Cette fois, j'ai conservé mes sentiments persistants et décidé de défier les cieux tout en continuant ma culture, ce qui a également attiré la Tribulation Céleste... » Les yeux de Wang Lin étaient calmes, mais empreints d'une détermination inébranlable.
+« J'ai eu quelques rencontres avec la Tribulation Céleste au cours de mes 700 ans de culture... J'ai attiré la Tribulation Céleste en raffinant le drapeau restrictif... J'ai changé le destin de Li Muwan et provoqué la descente du messager des cieux... Cette fois, j'ai conservé mes sentiments persistants et décidé de défier les cieux tout en continuant ma culture, ce qui a également attiré la Tribulation Céleste... » Les yeux de Wang Lin étaient calmes, mais empreints d'une détermination inébranlable.
 
 Les nuages rouges dans le ciel commencèrent soudainement à bouger et à se condenser frénétiquement. Le ciel ressemblait désormais à une mer rouge dont toutes les vagues convergeaient vers le centre. En un clin d'œil, l'éclair rouge au centre commença à briller intensément, illuminant le ciel et la terre!
 
@@ -128,6 +128,6 @@ Wang Lin se tenait au sommet de cette colline, le tambour démoniaque dans le do
 
 Les cent Doigts de la Mort fusionnèrent en un seul, se transformant en un rayon de lumière noire d'environ trente pieds de diamètre, et chargèrent directement l'éclair rouge!
 
-« J'ose défier les cieux pour continuer ma culture; garder mes sentiments persistants signifie que je souhaite lutter contre le destin. Tribulation Céleste, même si tu peux détruire mon corps, tu ne pourras jamais détruire mon cœur Dao! » Les yeux de Wang Lin s'illuminèrent et, à cet instant, la lumière de son regard perça l'éclair rouge pour pénétrer directement dans les nuages écarlates.
+« J'ose défier les cieux pour continuer ma culture; garder mes sentiments persistants signifie que je souhaite lutter contre les cieux. Tribulation Céleste, même si tu peux détruire mon corps, tu ne pourras jamais détruire mon cœur Dao! » Les yeux de Wang Lin s'illuminèrent et, à cet instant, la lumière de son regard perça l'éclair rouge pour pénétrer directement dans les nuages écarlates.
 
 Un tonnerre encore plus assourdissant retentit dans le ciel, comme s'il répondait au cœur Dao de Wang Lin!

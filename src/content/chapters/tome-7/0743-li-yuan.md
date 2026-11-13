@@ -60,7 +60,7 @@ De nouvelles ondulations apparurent sur le rocher situé à plusieurs dizaines d
 
 « Intéressant! » La silhouette de Wang Lin apparut non loin de là. Il n'était jamais parti, mais utilisait une illusion pour se dissimuler et avait assisté à un spectacle fort divertissant.
 
-L'expression de la femme changea lorsqu'elle se retourna et fixa Wang Lin, qui venait de surgir. Elle fronça les sourcils, prête à parler, mais Li Yuan s'avança pour faire écran. Il joignit les mains en signe de respect envers Wang Lin et dit lentement: « Camarade cultivateur, nous vous avons offensé tout à l'heure avec cette histoire de restriction. En ce moment... »
+L'expression de la femme changea lorsqu'elle se retourna et fixa Wang Lin, qui venait de surgir. Elle fronça les sourcils, prête à parler, mais Li Yuan s'avança pour faire écran. Il joignit les mains en signe de respect envers Wang Lin et dit lentement: « Daoïste, nous vous avons offensé tout à l'heure avec cette histoire de restriction. En ce moment... »
 
 « Pourquoi perdre ton temps avec lui? Le niveau de culture de cet homme est le même que le nôtre. Si nous attaquons ensemble, nous pourrons le donner en pâture à mon animal! » La femme laissa échapper un ricanement glacial et chargea. Elle frappa son sac de rangement et un éventail de plumes apparut instantanément, volant vers Wang Lin avec une intention meurtrière féroce.
 

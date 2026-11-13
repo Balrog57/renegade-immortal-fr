@@ -22,7 +22,7 @@ La zone environnante devint aussi lisse qu'un miroir. Toutes les roches saillant
 
 Wang Lin redescendit et s'assit au centre. Il frappa sa sacoche de stockage, et tout le jade céleste qu'il avait obtenu des trois familles s'en échappa pour retomber autour de lui en amas denses.
 
-Il frappa à nouveau sa sacoche, et l'Étendard des Mille Millions d'Âmes vola hors du sac. Tous les fragments fusionnèrent pour former les trois grandes âmes primaires qui commencèrent à patrouiller la zone. Le garde céleste s'éleva également dans les airs pour observer attentivement les environs. Quiconque tenterait de s'approcher serait instantanément tué.
+Il frappa à nouveau sa sacoche, et l'Étendard de l'Âme vola hors du sac. Tous les fragments fusionnèrent pour former les trois grandes âmes primaires qui commencèrent à patrouiller la zone. Le garde céleste s'éleva également dans les airs pour observer attentivement les environs. Quiconque tenterait de s'approcher serait instantanément tué.
 
 Une fois ces préparatifs achevés, Wang Lin prit une profonde inspiration, forma un sceau de la main et ferma les yeux.
 
