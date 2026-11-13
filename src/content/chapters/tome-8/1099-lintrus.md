@@ -52,11 +52,11 @@ De la lave rougeja également avec cette onde thermique. Mais d'un geste de la m
 
 Cette fois, Wang Lin était prêt à tout pour affiner totalement cette épée de massacre de Tian Yunzi en robe grise. Il utilisait sa seconde âme originelle, Xu Kongzi, Tian Yunzi, l'énergie originelle du feu planétaire et enfin la lave pour créer une enveloppe destinée à accélérer le processus.
 
-Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement; douze périodes de deux heures s'étaient déjà écoulées depuis le début de l'opération.
+Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement; douze heures s'étaient déjà écoulées depuis le début de l'opération.
 
 Wang Lin ne pouvait maintenir cette méthode d'affinage intense très longtemps. Si cela perdurait, non seulement son énergie originelle ne pourrait plus suivre, mais il consumerait également l'énergie originelle céleste obtenue en dévorant les âmes originelles de dizaines de Célestes.
 
-Après douze périodes de deux heures, les yeux de Wang Lin brillèrent d'un éclat vif et il poussa un rugissement. D'un revers de main, il fit éclater la sphère de magma en une multitude de débris brûlants. À cet instant, l'épée brisée ne put plus résister à la chaleur extrême et fondit complètement. La seconde âme originelle de Wang Lin dévora l'acier fondu et retourna dans son corps.
+Après douze heures, les yeux de Wang Lin brillèrent d'un éclat vif et il poussa un rugissement. D'un revers de main, il fit éclater la sphère de magma en une multitude de débris brûlants. À cet instant, l'épée brisée ne put plus résister à la chaleur extrême et fondit complètement. La seconde âme originelle de Wang Lin dévora l'acier fondu et retourna dans son corps.
 
 Les âmes de Xu Kongzi et de Tian Yunzi regagnèrent également le Sceau Céleste des 18 Enfers.
 

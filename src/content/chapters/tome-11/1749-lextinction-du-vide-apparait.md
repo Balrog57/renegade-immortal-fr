@@ -98,7 +98,7 @@ Soudain, il leva les yeux vers le ciel. Son expression devint féroce alors qu'i
 
 « L'aura d'Extinction du Vide!! C'est l'aura d'Extinction du Vide!!! Ce gamin peut générer l'aura d'Extinction du Vide, il... il... »
 
-Tandis que Xie Qing regardait Wang Lin, des larmes coulèrent sur ses joues. Il s'agenouilla et s'inclina une dernière fois en faisant un kowtow.
+Tandis que Xie Qing regardait Wang Lin, des larmes coulèrent sur ses joues. Il s'agenouilla et se prosterna une dernière fois, le front contre le sol.
 
 « Mon âme a été gravement endommagée en attendant le Maître. J'ai hésité, mais désormais je n'ai aucun regret... Il n'est pas nécessaire que le Maître agisse, je suis au seuil de la mort... C'est la dernière fois que je vous appelle... Maître... » Xie Qing regarda les orchidées devant lui et ferma les yeux. Les larmes qui devaient couler s'arrêtèrent alors qu'un sourire étirait ses lèvres; il prit son dernier souffle... Il était mort.
 

@@ -82,7 +82,7 @@ Le père de Tie Zhu se leva avec enthousiasme, prit la main de sa femme et s'app
 
 Le père de Tie Zhu éclata en sanglots. Il tapota lourdement le dos de son frère, hocha la tête et ordonna sévèrement à Tie Zhu: « Souviens-toi, Wang Lin, n'oublie jamais ce que ton quatrième oncle a fait pour nous, sinon je ne te considérerai plus comme mon fils! »
 
-Le cœur de Tie Zhu trembla. Bien qu'ignorant tout des immortels, il percevait à l'expression de ses parents l'immense importance de cet événement. Il se mit à genoux devant son oncle et lui adressa plusieurs kowtows.
+Le cœur de Tie Zhu trembla. Bien qu'ignorant tout des immortels, il percevait à l'expression de ses parents l'immense importance de cet événement. Il se mit à genoux devant son oncle et se prosterna plusieurs fois, le front contre le sol.
 
 L'homme releva l'enfant en le félicitant: « Bon enfant. Prépare-toi, je viendrai te chercher à la fin du mois. »
 

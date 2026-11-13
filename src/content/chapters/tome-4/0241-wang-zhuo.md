@@ -46,7 +46,7 @@ Du sang s'écoula de nouveau du coin des lèvres de Teng Xiu Xiu; elle regarda l
 
 Wang Zhuo vola durant plus de cinq kilomètres. Ses mains saignaient à force d'avoir serré les poings. Les visions de la mort de ses proches assaillirent son esprit, mais l'image de la tristesse et du désespoir de Teng Xiu Xiu finit par les occulter.
 
-Après un long moment, Wang Zhuo atterrit au sol. Il s'agenouilla face à sa terre natale, effectua des kowtows vigoureux et déclara: « Père, mère, votre fils est... sans piété filiale! »
+Après un long moment, Wang Zhuo atterrit au sol. Il s'agenouilla face à sa terre natale, se prosterna vigoureusement, le front contre le sol, et déclara: « Père, mère, votre fils est... sans piété filiale! »
 
 Une fois ses paroles achevées, il ferma les yeux et deux larmes coulèrent sur ses joues. Puis, il se redressa et partit à la hâte rejoindre Teng Xiu Xiu.
 
@@ -100,7 +100,7 @@ Teng Xiu Xiu mourut sans douleur, dans les bras de celui qu'elle aimait...
 
 Serrant le cadavre de sa femme, les yeux de Wang Zhuo étaient noyés de chagrin. Il regarda dans la direction où Wang Lin avait disparu et déclara: « Wang Lin, je ne deviendrai pas un traître à la famille Wang, et je ne permettrai pas qu'une seule trace du lignage des Teng subsiste! »
 
-Sur ces mots, il s'agenouilla face à sa demeure natale et effectua plusieurs kowtows. Il frappa violemment son front de la paume, brisant ainsi la vie qui l'habitait. Le sang s'échappa de sa bouche tandis qu'il s'effondrait aux côtés de sa femme.
+Sur ces mots, il s'agenouilla face à sa demeure natale et se prosterna plusieurs fois. Il frappa violemment son front de la paume, brisant ainsi la vie qui l'habitait. Le sang s'échappa de sa bouche tandis qu'il s'effondrait aux côtés de sa femme.
 
 « Xiu Xiu, n'aie pas peur, je te rejoins... »
 

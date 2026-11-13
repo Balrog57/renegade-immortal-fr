@@ -48,7 +48,7 @@ Wang Lin esquissa un léger sourire et, d'un mouvement de sa main droite, fit ap
 
 Treize attrapa le jade avec une expression de joie extrême. Il prit une profonde inspiration, pressa le jade contre son front et commença à visualiser, tel qu'Ouyang Hua le lui avait enseigné. Peu après, son corps trembla légèrement et ses yeux s'emplirent d'exaltation.
 
-Il regarda Wang Lin et se prosterna soudainement au sol, effectuant trois kowtows appuyés.
+Il regarda Wang Lin et se prosterna soudainement au sol, frappant trois fois la terre de son front.
 
 Wang Lin ferma les yeux et dit calmement: « Tu peux disposer. Concentre tous tes efforts sur la création du drapeau d'âmes. »
 

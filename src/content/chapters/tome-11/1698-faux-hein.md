@@ -64,7 +64,7 @@ Fan Shanmeng serra les dents et dit: « Quel est votre plan? Même si je le reti
 
 À peine eut-elle fini de parler qu'un grondement tonitruant retentit. Le pont supérieur commença à s'effondrer massivement. Environ 30 % des restrictions furent détruites.
 
-« J'ai besoin de six heures! » Wang Lin ouvrit les yeux et fixa Fan Shanmeng.
+« J'ai besoin de trois heures! » Wang Lin ouvrit les yeux et fixa Fan Shanmeng.
 
 « Vous!! » Fan Shanmeng laissa échapper un sourire furieux, puis se retourna férocement. Ses mains formèrent un sceau et une lumière aux sept couleurs jaillit de la deuxième couche.
 
@@ -74,7 +74,7 @@ Désormais, puisqu'il détenait l'initiative, il n'allait naturellement pas la l
 
 La majorité des restrictions sur la troisième couche étaient inédites pour Wang Lin. En les étudiant, sa compréhension de l'art des restrictions augmentait à pas de géant.
 
-Le temps passa lentement. Au bout de quatre heures, les grondements tonitruants de la deuxième couche continuaient de résonner. Des craquements se propagèrent et la deuxième couche finit par s'effondrer complètement!
+Le temps passa lentement. Au bout de deux heures, les grondements tonitruants de la deuxième couche continuaient de résonner. Des craquements se propagèrent et la deuxième couche finit par s'effondrer complètement!
 
 Le corps de Fan Shanmeng trembla et elle cracha du sang. Après avoir reculé de quelques pas, une lumière aux sept couleurs se propagea rapidement depuis la deuxième couche effondrée.
 
@@ -86,7 +86,7 @@ Au moment où il pénétra dans la quatrième couche, Fan Shanmeng le suivit.
 
 Une épaisse brume remplissait la quatrième couche du Navire Démon des Âmes. Ce brouillard entravait à la fois le Sens Divin et la vue.
 
-« Il brise la deuxième couche... Même si j'essaie de l'arrêter, je ne pourrai le retarder que quatre heures au maximum. Même s'il comprend la troisième couche, il ne lui faudra que deux heures pour la briser!
+« Il brise la deuxième couche... Même si j'essaie de l'arrêter, je ne pourrai le retarder que deux heures au maximum. Même s'il comprend la troisième couche, il ne lui faudra qu'une heure pour la briser!
 
 « Wang Lin, que veux-tu exactement? J'admets avoir comploté contre toi, mais c'était pour notre objectif commun. Bien que tu doives me remettre ton Serment de Sang, je te remettrai aussi le mien. Ce n'est pas comme si je voulais te nuire!
 
