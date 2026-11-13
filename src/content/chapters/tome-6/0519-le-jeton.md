@@ -32,7 +32,7 @@ Cette onde de choc formait un cercle qui se refermait inexorablement sur la Mer 
 
 Les pupilles de Wang Lin se rétractèrent soudainement, et ses yeux révélèrent un profond choc. La scène de la marée se propageant lui avait déjà donné l'impression que ce n'était pas réel; mais en voyant le reflux, il ne put s'empêcher de pousser un grand soupir.
 
-En fait, non seulement Wang Lin, mais tous ceux qui observaient cette phase de marée pour la première fois ressentirent le même effroi. Certains furent si fascinés qu'ils en perdirent le contrôle de leur cœur taoïste.
+En fait, non seulement Wang Lin, mais tous ceux qui observaient cette phase de marée pour la première fois ressentirent le même effroi. Certains furent si fascinés qu'ils en perdirent le contrôle de leur cœur dao.
 
 Un instant, la lumière rouge semblait encore lointaine, et l'instant d'après, elle avait déjà dépassé tous les cultivateurs.
 
@@ -88,7 +88,7 @@ Les visages des cultivateurs environnants étaient pâles; certains crachèrent 
 
 Simultanément, ces trois tatouages semblèrent fondre pour former un contour autour de ses yeux.
 
-Dès que ce contour fut formé, les yeux de Wang Lin brillèrent comme la lune dans la nuit, et cette lumière s'étendit d'environ seize centimètres au-delà de son regard.
+Dès que ce contour fut formé, les yeux de Wang Lin brillèrent comme la lune dans la nuit, et cette lumière s'étendit d'un demi-pied au-delà de son regard.
 
 Son regard semblait capable de percer le ciel et la terre. Il chargea directement à travers le vide, rattrapa le rayon de lumière rouge sur le point de disparaître et le transperça de part en part.
 

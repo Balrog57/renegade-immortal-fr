@@ -8,7 +8,7 @@ slug: lheritage-du-dieu-ancien-partie-3
 ---
 Le Magicien Démon Céleste fut stupéfait de constater que quelqu'un avait si aisément brisé ce qu'il considérait comme une restriction parfaite.
 
-Sans un mot, le visage résolu, il plongea la main droite dans le tunnel et en arracha de force un tiers du cristal de glace de trente-trois mètres. Puis, de la main gauche, il frappa le tunnel, qui se referma aussitôt et disparut en un clin d'œil, redevenant le vide, sans la moindre fissure.
+Sans un mot, le visage résolu, il plongea la main droite dans le tunnel et en arracha de force un tiers du cristal de glace de cent pieds. Puis, de la main gauche, il frappa le tunnel, qui se referma aussitôt et disparut en un clin d'œil, redevenant le vide, sans la moindre fissure.
 
 Le Magicien Démon Céleste eut l'impression que son cœur saignait. S'il avait disposé de quelques heures de plus, il aurait pu réduire la taille du cristal de glace pour qu'il puisse passer par le tunnel, mais désormais, il ne pouvait en récupérer que le tiers.
 
@@ -94,7 +94,7 @@ Wang Lin fronça fortement les sourcils. Alors qu'il s'élançait pour poursuivr
 
 La douleur fut d'abord légère et disparut aussi vite qu'elle était apparue. Mais quelques instants plus tard, une souffrance bien plus intense surgit. Ce cycle se répéta frénétiquement, transformant une simple gêne en une agonie atroce.
 
-Tout se passa trop vite. Wang Lin n'avait parcouru qu'une dizaine de mètres avant de pousser un cri déchirant, le corps secoué de tremblements. La douleur revenait sans cesse, plus violente à chaque fois. Il tenta immédiatement de toucher son front pour pénétrer dans l'espace de la Perle Défiant le Ciel afin de méditer, mais il découvrit que son Sens Divin était bloqué par une force surgie soudain de son cerveau, et qu'il lui était impossible d'entrer dans la perle.
+Tout se passa trop vite. Wang Lin n'avait parcouru que quelques dizaines de pieds avant de pousser un cri déchirant, le corps secoué de tremblements. La douleur revenait sans cesse, plus violente à chaque fois. Il tenta immédiatement de toucher son front pour pénétrer dans l'espace de la Perle Défiant le Ciel afin de méditer, mais il découvrit que son Sens Divin était bloqué par une force surgie soudain de son cerveau, et qu'il lui était impossible d'entrer dans la perle.
 
 Le visage de Wang Lin changea légèrement. Il s'assit rapidement en tailleur pour inspecter l'intérieur de son corps. Il constata que sa propre Mer de la Connaissance était entourée d'une lumière bleue. La douleur provenait de là. Quelle que soit la force de son esprit, il ne pouvait repousser cette douleur, seulement l'endurer.
 

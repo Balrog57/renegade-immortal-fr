@@ -38,7 +38,7 @@ Une fois la grande formation céleste brisée, une tempête de neige encore plus
 
 La femme vêtue de blanc n'était pas la seule à avoir apporté un puissant trésor magique. Ces cultivateurs de Xue Yu avaient manifestement établi un plan détaillé avant de venir: autour de chacune des quatre sectes, plusieurs d'entre eux s'avancèrent.
 
-Du côté de la Secte Bai Yun, une vieille femme aux cheveux blancs écarta les bras en récitant un sort complexe. Soudain, un vent impétueux s'engouffra depuis une faille et toute la neige dans un rayon de 330 mètres s'éleva dans les airs.
+Du côté de la Secte Bai Yun, une vieille femme aux cheveux blancs écarta les bras en récitant un sort complexe. Soudain, un vent impétueux s'engouffra depuis une faille et toute la neige dans un rayon de mille pieds s'éleva dans les airs.
 
 Sous l'effet de ce vent puissant, la neige scintilla et se mua en glace. Peu après, les yeux de la vieille femme s'illuminèrent et elle frappa son front. Son Âme Naissante quitta son corps pour pénétrer dans un gigantesque bloc de glace.
 
@@ -88,9 +88,9 @@ Après réflexion, le corps de Wang Lin s'enfonça silencieusement sous la neige
 
 Ne pouvant déployer toute sa puissance au sein de la neige, il lui fallut près de deux bâtons d'encens pour atteindre le sol. Une fois arrivé, il n'hésita pas et s'enfonça plus profondément grâce à sa technique d'évasion tellurique.
 
-À environ 13,2 kilomètres sous terre, Wang Lin s'arrêta. Son visage trahissait une inquiétude mêlée d'une pointe de surprise. Il remarqua qu'à 16,5 kilomètres de profondeur, quelqu'un avait réussi à creuser une grotte. Cette cavité semblait infinie; Wang Lin pressentit que cette grotte s'étendait sous toute l'Alliance des Quatre Sectes.
+À environ quarante mille pieds sous terre, Wang Lin s'arrêta. Son visage trahissait une inquiétude mêlée d'une pointe de surprise. Il remarqua qu'à cinquante mille pieds de profondeur, quelqu'un avait réussi à creuser une grotte. Cette cavité semblait infinie; Wang Lin pressentit que cette grotte s'étendait sous toute l'Alliance des Quatre Sectes.
 
-Tous les 3,3 kilomètres à l'intérieur de la grotte se trouvait une sculpture de glace. Chaque sculpture mesurait environ 33 mètres de haut et émettait une lueur étrange. Autre chose notable: toutes les sculptures étaient rigoureusement identiques. Leurs visages arboraient des expressions féroces, et elles possédaient une tête humaine ainsi qu'un corps de serpent.
+Tous les dix mille pieds à l'intérieur de la grotte se trouvait une sculpture de glace. Chaque sculpture mesurait environ cent pieds de haut et émettait une lueur étrange. Autre chose notable: toutes les sculptures étaient rigoureusement identiques. Leurs visages arboraient des expressions féroces, et elles possédaient une tête humaine ainsi qu'un corps de serpent.
 
 Wang Lin effectua un examen rapide et constata qu'il y avait une quantité immense de ces sculptures, et que leur disposition semblait avoir une signification précise.
 

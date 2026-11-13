@@ -44,7 +44,7 @@ Cependant, ces créatures n'étaient pas des démons et possédaient une certain
 
 Environ sept ou huit âmes avaient déjà pénétré son corps, provoquant un changement soudain dans ses traits. Il mordit sa langue et cracha un jet de sang qui se transforma instantanément en flammes. La chaleur l'enveloppa immédiatement alors qu'il s'asseyait pour tenter d'expulser les âmes errantes de son organisme.
 
-Autour de lui, une multitude d'âmes encerclèrent le brasier et s'y précipitèrent. Les flammes faiblissaient peu à peu, semblant sur le point de s'éteindre. Quant à la boule de feu qu'il avait lancée, elle était dévorée par les âmes; bien que quelques-unes y aient péri, la sphère disparut totalement à une dizaine de mètres de Wang Lin.
+Autour de lui, une multitude d'âmes encerclèrent le brasier et s'y précipitèrent. Les flammes faiblissaient peu à peu, semblant sur le point de s'éteindre. Quant à la boule de feu qu'il avait lancée, elle était dévorée par les âmes; bien que quelques-unes y aient péri, la sphère disparut totalement à trente pieds de Wang Lin.
 
 Les âmes errantes restantes cessèrent d'attaquer pour encercler Wang Lin, fixant froidement les personnes sur la plateforme.
 

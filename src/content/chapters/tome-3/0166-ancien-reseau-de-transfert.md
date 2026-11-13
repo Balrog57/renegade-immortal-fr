@@ -26,7 +26,7 @@ Wang Lin observa l'érudit avant de faire un pas et de grimper à son tour sur l
 
 À ce moment précis, il entendit soudain une transmission vocale de Duanmu Ji: « Cet homme est Wang Qingyue. C'est un messager envoyé par la Secte Yin et Yang d'un pays de culture de rang 4. Sa culture est terrifiante, alors ne le provoque pas. »
 
-L'expression de Wang Lin resta impassible, mais sa vigilance redoubla en son for intérieur. Les trois hommes s'élancèrent rapidement dans la Mer Xiu Mo. Wang Lin observait froidement Wang Qingyue tout au long du trajet. Ce dernier ne possédait aucun trésor sous ses pieds, et pourtant il se déplaçait aussi vite que la calebasse. Le brouillard situé à 10 mètres devant lui s'écartait automatiquement sur les côtés.
+L'expression de Wang Lin resta impassible, mais sa vigilance redoubla en son for intérieur. Les trois hommes s'élancèrent rapidement dans la Mer Xiu Mo. Wang Lin observait froidement Wang Qingyue tout au long du trajet. Ce dernier ne possédait aucun trésor sous ses pieds, et pourtant il se déplaçait aussi vite que la calebasse. Le brouillard situé à trente pieds devant lui s'écartait automatiquement sur les côtés.
 
 Peu de temps après, ils pénétrèrent dans les profondeurs de la Mer Xiu Mo. La ville de Nan Dou apparut rapidement devant eux, mais ils ne marquèrent pas d'arrêt.
 
@@ -76,7 +76,7 @@ Duanmu Ji fixa Wang Lin et grommela: « Ce réseau de transfert n'est pas ce que
 
 Duanmu Ji traça plusieurs sceaux et les projeta vers le réseau de transfert. La pierre de qualité supérieure au centre de la formation commença à luire. Peu après, les innombrables symboles s'illuminèrent tour à tour. Une fois que tous les symboles furent activés, la pierre de qualité supérieure vola en éclats.
 
-L'ensemble du réseau de transfert se mit soudain à vibrer, libérant une immense quantité d'énergie spirituelle. Cette énergie devint presque solide et se propagea comme un vent violent, emportant le brouillard dans son sillage. Bientôt, un gigantesque vortex d'énergie spirituelle, large d'une trentaine de mètres, apparut, grandissant de plus en plus.
+L'ensemble du réseau de transfert se mit soudain à vibrer, libérant une immense quantité d'énergie spirituelle. Cette énergie devint presque solide et se propagea comme un vent violent, emportant le brouillard dans son sillage. Bientôt, un gigantesque vortex d'énergie spirituelle, large de cent pieds, apparut, grandissant de plus en plus.
 
 Une scène aussi saisissante força Wang Lin à prendre une profonde inspiration alors qu'il fixait l'encoche au centre du réseau. La pierre de qualité supérieure n'était plus qu'une poussière emportée par les vents.
 

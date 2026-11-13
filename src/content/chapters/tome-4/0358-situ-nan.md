@@ -8,7 +8,7 @@ slug: situ-nan
 ---
 « Le Pays de Xue Yu... » Wang Lin sortit calmement de la vallée et vit un jeune homme vêtu de bleu l'attendre à l'extérieur. Bien que son apparence fût ordinaire, sa robe bleue lui donnait un air glacial.
 
-Le regard de cet homme était d'une grande vivacité et sa peau semblait glacée. Sa seule présence paraissait engendrer, dans un rayon de 330 mètres, une brise froide capable d'emporter toute chaleur.
+Le regard de cet homme était d'une grande vivacité et sa peau semblait glacée. Sa seule présence paraissait engendrer, dans un rayon de mille pieds, une brise froide capable d'emporter toute chaleur.
 
 En voyant Wang Lin sortir, un éclair de froideur traversa ses yeux. Il joignit les mains et dit: « Zeng Niu, remets-moi les trésors restants de l'éventail à plumes! »
 
@@ -34,7 +34,7 @@ Lorsque le vieillard ouvrit les yeux, les yeux de Wang Lin s'illuminèrent et il
 
 C'était l'un des usages de ce trésor que Wang Lin avait découvert après l'avoir étudié si longtemps.
 
-À mesure que les cloches tournaient et s'entrechoquaient, leur tintement devenait plus assourdissant. Liao Fan fut repoussé de quelques mètres avant de fixer les cloches et de hurler: « Tue! »
+À mesure que les cloches tournaient et s'entrechoquaient, leur tintement devenait plus assourdissant. Liao Fan fut repoussé de plusieurs dizaines de pieds avant de fixer les cloches et de hurler: « Tue! »
 
 L'image du vieil homme leva la main et pointa Wang Lin du doigt. Son image entière se transforma soudainement en gaz et chargea vers lui.
 
@@ -72,7 +72,7 @@ Wang Lin fronça les sourcils. À cet instant précis, un rugissement jaillit de
 
 Un nuage de gaz noir, se mouvant comme une flamme, s'échappa du bras qui flottait dans les airs.
 
-La main droite de Wang Lin forma un sceau et créa un vent étrange qui repoussa le gaz noir d'environ un mètre, révélant ce qu'il cachait.
+La main droite de Wang Lin forma un sceau et créa un vent étrange qui repoussa le gaz noir d'environ trois pieds, révélant ce qu'il cachait.
 
 Un bras desséché flottait là, et le gaz noir émanait de lui.
 
@@ -116,7 +116,7 @@ Wang Lin sentit son cuir chevelu s'engourdir. Cette voix lui était trop famili�
 
 « Peu importe comment tu l'as obtenue, tu dois mourir! Je suis Situ Nan! » La silhouette chargea avec acharnement vers la pagode, visant la tête de Wang Lin. Ce dernier réprima le choc dans son cœur et hurla: « Recule! »
 
-Une trace du sens divin d'Ascendant de Zhou Yi jaillit soudainement de la pagode et la silhouette fut frappée par une force puissante, s'arrêtant à peine à une dizaine de centimètres de Wang Lin. La figure laissa échapper un rugissement de frustration avant d'être projetée en arrière.
+Une trace du sens divin d'Ascendant de Zhou Yi jaillit soudainement de la pagode et la silhouette fut frappée par une force puissante, s'arrêtant à peine à trois pouces de Wang Lin. La figure laissa échapper un rugissement de frustration avant d'être projetée en arrière.
 
 Au moment où elle fut repoussée, le gaz noir disparut, ne laissant que le bras. Celui-ci s'empara de Liao Fan, stupéfait, et disparut.
 

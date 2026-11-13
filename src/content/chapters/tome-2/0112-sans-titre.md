@@ -56,7 +56,7 @@ Il prit une profonde inspiration, ferma les yeux et projeta son Sens Divin dans 
 
 C'était une fonction que Situ Nan avait découverte après que la perle défiant le ciel eut achevé son Élément Eau: utiliser la lumière environnante pour créer une formation permettant à Wang Lin de circuler librement au sein de l'espace du rêve.
 
-Wang Lin franchit la porte. Il se trouvait toujours dans l'espace de la perle défiant le ciel, mais le paysage avait changé. Devant lui flottait un géant d'environ neuf mètres de haut, assis en tailleur dans les airs. Une multitude d'objets luminescents entouraient cette silhouette colossale.
+Wang Lin franchit la porte. Il se trouvait toujours dans l'espace de la perle défiant le ciel, mais le paysage avait changé. Devant lui flottait un géant d'environ trente pieds de haut, assis en tailleur dans les airs. Une multitude d'objets luminescents entouraient cette silhouette colossale.
 
 En y regardant de plus près, les traits du géant étaient ordinaires, mais une énergie Yin semblait s'agglutiner autour de lui. Son corps n'était pas solide mais translucide, particulièrement sa poitrine, presque entièrement transparente, comme si elle allait se dissiper à tout instant. On y distinguait de denses ondes d'énergie spirituelle.
 

@@ -132,15 +132,15 @@ En entrant dans la porte de lumière, Wang Lin comprit qu'il s'agissait d'une ma
 
 Les environs étaient d'un calme plat et aucune lumière ne filtrait du ciel. Une aura irritante enveloppait le ciel.
 
-De gigantesques arbres antiques poussaient çà et là. À 33 mètres de lui, un python à motifs rouges, gros comme un seau, laissait pendre sa tête d'une fourche d'arbre et le fixait froidement en tirant la langue.
+De gigantesques arbres antiques poussaient çà et là. À cent pieds de lui, un python à motifs rouges, gros comme un seau, laissait pendre sa tête d'une fourche d'arbre et le fixait froidement en tirant la langue.
 
 Un cri retentit depuis le ciel: « Zeng Niu! »
 
 Wang Lin s'élança dans les airs et vit un rayon de lumière rouge foncer vers lui. Avant même qu'elle n'atteigne sa cible, une aura glaciale s'était déjà propagée.
 
-Cette aura se condensa en particules de glace de la taille d'un pouce qui, à 33 mètres de Wang Lin, formèrent une sculpture de glace monumentale.
+Cette aura se condensa en particules de glace de la taille d'un pouce qui, à cent pieds de Wang Lin, formèrent une sculpture de glace monumentale.
 
-Cette statue de glace mesurait plus de 33 mètres de haut et avait une forme humaine. Son visage était inexpressif tandis qu'elle projetait son poing gigantesque sur Wang Lin.
+Cette statue de glace mesurait plus de cent pieds de haut et avait une forme humaine. Son visage était inexpressif tandis qu'elle projetait son poing gigantesque sur Wang Lin.
 
 Le regard de Wang Lin s'aiguisa et il recula.
 

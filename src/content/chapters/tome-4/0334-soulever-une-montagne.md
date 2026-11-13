@@ -28,9 +28,9 @@ Resté en retrait derrière Wang Lin et Li Muwan, Lu Fei soupira: « Il semble q
 
 Tie Yan répondit: « C'est peut-être ainsi que le Maître de Secte et l'Aînée Li se sont rencontrés. Frère Lu, il semble que votre culture se soit un peu améliorée. »
 
-Lu Fei sourit: « Je ne peux m'approcher de la pagode qu'à environ 330 mètres. Je suis encore très loin du compte. »
+Lu Fei sourit: « Je ne peux m'approcher de la pagode qu'à environ mille pieds. Je suis encore très loin du compte. »
 
-Tie Yan resta silencieux. Lui n'avait pu s'approcher que d'environ 165 mètres. Il se jura, une fois de retour, de redoubler d'efforts.
+Tie Yan resta silencieux. Lui n'avait pu s'approcher que d'environ cinq cents pieds. Il se jura, une fois de retour, de redoubler d'efforts.
 
 Wang Lin volait à une vitesse supersonique tout en tenant Li Muwan. Les détonations soniques qu'il provoquait parcouraient de vastes distances, stupéfiant tous les cultivateurs qui les entendaient.
 
@@ -92,7 +92,7 @@ Dans la plus grande pagode à trois étages de la Cité Mo Ni, d'innombrables cu
 
 À l'arrivée du groupe de Wang Lin, deux disciples de l'Établissement des Fondations du Pavillon acceptèrent l'invitation et les conduisirent vers la grande salle.
 
-L'homme d'âge moyen qui avait accueilli Wang Lin deux mois plus tôt, lorsqu'il avait acheté la recette, se trouvait également dans la salle. Il discutait avec quelques cultivateurs familiers, mais son expression changea brusquement lorsqu'il aperçut Wang Lin. Il salua rapidement ses compagnons et se dirigea vers lui. Il s'arrêta à 10 mètres de Wang Lin, s'inclina et dit respectueusement: « C'est un honneur pour moi que Senior soit venu. Senior, cet endroit est trop désordonné; permettez-moi de vous conduire au troisième étage. »
+L'homme d'âge moyen qui avait accueilli Wang Lin deux mois plus tôt, lorsqu'il avait acheté la recette, se trouvait également dans la salle. Il discutait avec quelques cultivateurs familiers, mais son expression changea brusquement lorsqu'il aperçut Wang Lin. Il salua rapidement ses compagnons et se dirigea vers lui. Il s'arrêta à trente pieds de Wang Lin, s'inclina et dit respectueusement: « C'est un honneur pour moi que Senior soit venu. Senior, cet endroit est trop désordonné; permettez-moi de vous conduire au troisième étage. »
 
 Les cultivateurs environnants qui connaissaient cet homme furent stupéfaits. Ce dernier occupait une position très élevée au sein du Pavillon Lian Qi et avait un avenir radieux. Il ne s'adressait ainsi à personne; c'était un spectacle rare. Tous les regards se tournèrent vers Wang Lin.
 

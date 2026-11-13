@@ -80,7 +80,7 @@ Ses cheveux étaient ébouriffés alors qu'il fixait les cultivateurs de Xue Yu 
 
 Peu après, un rugissement monta de la Secte Shui Mo, au sud. Un colossal chaudron de bronze s'éleva lentement vers le ciel depuis la montagne arrière de la secte. D'innombrables sorts étaient gravés sur sa paroi, et une aura primitive s'en dégageait. Un vieil homme vêtu d'une robe rouge était assis au sommet du chaudron, observant le ciel avec calme.
 
-La Secte Qing Mu, à l'ouest, ne voulut pas non plus rester en retrait. Tandis que les rugissements venaient de l'est et du sud, une immense mare de boue noire, large d'environ 330 mètres, dégageant une odeur de pourriture, s'éleva dans les airs depuis la Secte Qing Mu. La boue bouillonnait, et par intermittence, des visages emplis de souffrance apparaissaient à sa surface. À l'apparition de cette substance, même la neige environnante sembla frémir.
+La Secte Qing Mu, à l'ouest, ne voulut pas non plus rester en retrait. Tandis que les rugissements venaient de l'est et du sud, une immense mare de boue noire, large d'environ mille pieds, dégageant une odeur de pourriture, s'éleva dans les airs depuis la Secte Qing Mu. La boue bouillonnait, et par intermittence, des visages emplis de souffrance apparaissaient à sa surface. À l'apparition de cette substance, même la neige environnante sembla frémir.
 
 L'instant suivant, un jeune homme à l'allure fragile de la Secte Hei Hun apparut au nord, accompagné par les cris nets et ordonnés d'une troupe de jeunes hommes. Il avait le teint légèrement pâle, comme s'il sortait à peine d'une grave maladie.
 

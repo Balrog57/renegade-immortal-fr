@@ -26,7 +26,7 @@ Il ne voyait plus Wang Lin comme un faible, contrairement à leur première renc
 
 Selon lui, si Wang Lin n'avait pas possédé ce drapeau des âmes d'un milliard, il n'aurait jamais pu être comparé à lui.
 
-Après avoir entendu la réponse de Wang Lin, Qian Feng réfléchit un instant et dit: « Cher cultivateur Ceng, nous deux irons en premier, puis ma Junior sœur prendra le relais. Qu'en pensez-vous? »
+Après avoir entendu la réponse de Wang Lin, Qian Feng réfléchit un instant et dit: « Daoïste Zeng, nous deux irons en premier, puis ma Junior sœur prendra le relais. Qu'en pensez-vous? »
 
 Le regard de Wang Lin restait calme tandis qu'il observait Qian Feng et Liu Mei. À ce moment précis, Liu Mei tourna également les yeux vers lui et esquissa un sourire, prête à prendre la parole, mais Wang Lin détourna son regard et trancha: « Inutile de compliquer les choses. J'irai en premier, et vous deux me suivrez. »
 
@@ -36,7 +36,7 @@ De plus, avec Liu Mei derrière eux, même si Wang Lin tentait une attaque secr�
 
 Qian Feng avait décidé que neutraliser l'énergie de l'épée était leur priorité absolue; s'occuper de Wang Lin pouvait attendre.
 
-Bien qu'un soupçon lui ait traversé l'esprit dès que Wang Lin s'était porté volontaire, ce n'était pas le moment de s'attarder sur de telles réflexions. Il répondit donc: « Si tel est votre souhait, nous compterons sur le cher cultivateur Ceng. »
+Bien qu'un soupçon lui ait traversé l'esprit dès que Wang Lin s'était porté volontaire, ce n'était pas le moment de s'attarder sur de telles réflexions. Il répondit donc: « Si tel est votre souhait, nous compterons sur le Daoïste Zeng. »
 
 Liu Mei fronça légèrement les sourcils. Elle sentait une anomalie. Après avoir pesé la situation, elle fixa Wang Lin du regard.
 
@@ -46,7 +46,7 @@ Wang Lin ne daigna même pas un regard à la jeune femme alors qu'il s'élançai
 
 Puis, il abattit violemment son arme.
 
-Une vague d'énergie de l'épée longue de 330 mètres, semblant capable de fendre les cieux, fonça sur eux dans un sifflement qui fendait l'air.
+Une vague d'énergie de l'épée longue de mille pieds, semblant capable de fendre les cieux, fonça sur eux dans un sifflement qui fendait l'air.
 
 Le seul bruit audible était celui de l'énergie de l'épée déchirant le ciel. Elle se déplaçait avec une célérité fulgurante et frappa sans délai.
 
@@ -64,7 +64,7 @@ En remarquant l'état de Wang Lin, Qian Feng marqua une pause pour réfléchir. 
 
 Cette idée traversa son esprit et il prit sa décision: il tuerait Wang Lin et prendrait le drapeau. Avec cet artefact, il disposerait de toute la puissance nécessaire pour repousser l'attaque de l'épée.
 
-Tout cela se passa en un éclair dans son esprit. Une fois sa décision prise, Qian Feng rit et s'exclama: « Ne paniquez pas, cher cultivateur Ceng. J'arrive! » Il s'élança comme l'éclair.
+Tout cela se passa en un éclair dans son esprit. Une fois sa décision prise, Qian Feng rit et s'exclama: « Ne paniquez pas, Daoïste Zeng. J'arrive! » Il s'élança comme l'éclair.
 
 Cette attaque devait impérativement réussir. Qian Feng n'était pas pressé; il voulait se rapprocher pour asséner à Wang Lin un coup qu'il n'oublierait jamais. Il savait qu'il devait réussir dès la première tentative, sans quoi Wang Lin aurait le temps d'invoquer son drapeau d'âme. Et si cela arrivait, la situation deviendrait incontrôlable.
 
@@ -78,9 +78,9 @@ Les yeux de ce dernier s'illuminèrent et il laissa échapper un reniflement mé
 
 Tout cela faisait partie de son plan.
 
-Dès l'instant où l'attaque fut lancée et que Qian Feng commença à voler, Wang Lin calculait secrètement la position de Qian Feng. Lorsque Qian Feng se trouva à trente-trois mètres de lui, Wang Lin laissa échapper un rire et frappa son sac de rangement. Une pagode en jaillit soudainement pour apparaître devant lui.
+Dès l'instant où l'attaque fut lancée et que Qian Feng commença à voler, Wang Lin calculait secrètement la position de Qian Feng. Lorsque Qian Feng se trouva à cent pieds de lui, Wang Lin laissa échapper un rire et frappa son sac de rangement. Une pagode en jaillit soudainement pour apparaître devant lui.
 
-Le sens divin de Zhou Yi, au stade initial de l'Ascendance, émana de la pagode. L'énergie de l'épée fut contrainte de marquer un temps d'arrêt après avoir rencontré ce sens divin. Profitant de cette brève hésitation, Wang Lin rit, rappela la pagode et fonça vers la mer. Toutefois, il maintint intentionnellement une vitesse assez basse pour rester à environ trente-trois mètres de Qian Feng.
+Le sens divin de Zhou Yi, au stade initial de l'Ascendance, émana de la pagode. L'énergie de l'épée fut contrainte de marquer un temps d'arrêt après avoir rencontré ce sens divin. Profitant de cette brève hésitation, Wang Lin rit, rappela la pagode et fonça vers la mer. Toutefois, il maintint intentionnellement une vitesse assez basse pour rester à environ cent pieds de Qian Feng.
 
 L'homme en armure dorée devint grave, mais au lieu d'attaquer Wang Lin, il fixa Qian Feng. Privée de l'interception par le sens divin de niveau Ascendant, l'énergie de l'épée s'abattit sur le corps de Qian Feng.
 
@@ -88,7 +88,7 @@ L'expression de Qian Feng changea radicalement. Il n'eut même pas le temps de s
 
 Le visage de Wang Lin affichait une pointe de dérision. Lorsqu'il avait vu le vieil homme et le singe résister à l'attaque, il avait senti que quelque chose clochait. Il en avait conclu que l'homme en armure dorée avait jugé que les deux étaient un groupe et n'avait envoyé qu'une seule vague d'énergie.
 
-Wang Lin avait calculé que la distance entre le vieil homme et le singe était de moins de trente-trois mètres; il avait supposé que s'il se trouvait à une telle proximité de Qian Feng, l'homme en armure dorée les considérerait comme un seul bloc.
+Wang Lin avait calculé que la distance entre le vieil homme et le singe était de moins de cent pieds; il avait supposé que s'il se trouvait à une telle proximité de Qian Feng, l'homme en armure dorée les considérerait comme un seul bloc.
 
 Si deux cibles étaient dans la même portée, l'énergie de l'épée frapperait la plus proche.
 
@@ -96,7 +96,7 @@ C'était précisément pour cela que Wang Lin avait refusé le plan initial où 
 
 C'est pourquoi il avait décidé d'avancer seul. Malgré ses soupçons, Qian Feng était tombé dans le piège.
 
-En réalité, même si Qian Feng n'avait pas accepté son plan ou n'avait pas proposé la coopération, Wang Lin l'aurait affronté seul de toute façon. Il ne croyait pas que Qian Feng s'abstiendrait de l'attaquer par surprise alors que lui-même affronterait la menace de l'épée. Certes, il aurait été plus difficile d'attirer Qian Feng à moins de trente-trois mètres, mais Wang Lin avait un plan B et était sûr à 80 % de réussir à l'approcher.
+En réalité, même si Qian Feng n'avait pas accepté son plan ou n'avait pas proposé la coopération, Wang Lin l'aurait affronté seul de toute façon. Il ne croyait pas que Qian Feng s'abstiendrait de l'attaquer par surprise alors que lui-même affronterait la menace de l'épée. Certes, il aurait été plus difficile d'attirer Qian Feng à moins de cent pieds, mais Wang Lin avait un plan B et était sûr à 80 % de réussir à l'approcher.
 
 La proposition de Qian Feng de travailler ensemble n'avait fait que confirmer les soupçons de Wang Lin: le cultivateur n'avait pas pu résister à la tentation et abandonnait toute idée de coopération. Il comptait utiliser l'excuse de « l'aide pour contrer l'épée » pour se rapprocher, sans réaliser que Wang Lin avait déjà tout lu en lui.
 
@@ -106,10 +106,10 @@ Bien que ces explications soient longues, tout cela s'était produit en un clin 
 
 Située en retrait, Liu Mei fut stupéfaite par ce changement soudain. Comprenant soudain ce qui se passait, elle se précipita vers Wang Lin.
 
-En voyant Liu Mei approcher, le regard de Wang Lin devint glacial et il s'élança. Cette fois, il s'éloigna à plus de trente-trois mètres de Qian Feng.
+En voyant Liu Mei approcher, le regard de Wang Lin devint glacial et il s'élança. Cette fois, il s'éloigna à plus de cent pieds de Qian Feng.
 
 Dès que la distance fut franchie, l'homme en armure dorée, les yeux graves, abattit son épée deux fois de suite, envoyant une vague d'énergie vers Wang Lin et une autre vers Liu Mei.
 
-Une intention meurtrière embrasa les yeux de Wang Lin. Il cessa sa course vers la mer et se téléporta à moins de trente-trois mètres de Liu Mei au moment même où l'énergie de l'épée allait le frapper.
+Une intention meurtrière embrasa les yeux de Wang Lin. Il cessa sa course vers la mer et se téléporta à moins de cent pieds de Liu Mei au moment même où l'énergie de l'épée allait le frapper.
 
 L'expression de Liu Mei se décomposa. Elle semblait avoir compris. Bien qu'incertaine, elle avait deviné le stratagème derrière les mouvements de Wang Lin. Elle s'apprêtait à se téléporter pour que Wang Lin se retrouve au-dessus d'elle, faisant de lui le seul rempart face à l'impact dévastateur de l'épée.

@@ -36,7 +36,7 @@ Dans un fracas retentissant, d'innombrables fissures apparurent sur les tatouage
 
 Le vieil homme voûté poussa un rugissement et chargea vers Wang Lin. Sa main s'étendit, et au centre de sa paume brillait un tatouage très ancien.
 
-Les yeux de Wang Lin s'illuminèrent. Sans un mot, il tendit la main et l'Étendard des Mille Millions d'Âmes apparut. Long d'une dizaine de mètres, ce drapeau suffisait à terrifier n'importe quel ennemi, même sans attaquer.
+Les yeux de Wang Lin s'illuminèrent. Sans un mot, il tendit la main et l'Étendard des Mille Millions d'Âmes apparut. Long de trente pieds, ce drapeau suffisait à terrifier n'importe quel ennemi, même sans attaquer.
 
 Le vieil homme voûté ne put s'empêcher de marquer un temps d'arrêt.
 

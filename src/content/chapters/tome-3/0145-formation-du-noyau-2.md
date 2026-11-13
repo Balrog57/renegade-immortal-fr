@@ -42,7 +42,7 @@ Il pointa le crâne du dragon et les fils le touchèrent. Ils fusionnèrent lent
 
 Mais peu de temps après, des fissures apparurent aux points de contact. Le crâne vola alors en éclats, ne laissant que les fils d'énergie spirituelle suspendus dans l'air.
 
-Wang Lin poussa un sombre soupir, mais son visage se mua rapidement en une expression de détermination mêlée de mécontentement. Il se leva, saisit les fils, sauta vers un autre cadavre et les pressa contre lui. Ce cadavre gris mesurait environ 500 ou 600 mètres de long. Sa tête était immense, presque de la même taille que le crâne du dragon.
+Wang Lin poussa un sombre soupir, mais son visage se mua rapidement en une expression de détermination mêlée de mécontentement. Il se leva, saisit les fils, sauta vers un autre cadavre et les pressa contre lui. Ce cadavre gris mesurait environ cinq ou six mille pieds de long. Sa tête était immense, presque de la même taille que le crâne du dragon.
 
 Dès que les fils atteignirent le corps, ils passèrent au travers. Wang Lin fut surpris. Il réessaya, mais les fils ne firent que traverser l'os une fois de plus.
 
@@ -76,15 +76,15 @@ Ses mains s'ouvraient et se fermaient sans cesse. À chaque mouvement, de nouvea
 
 Le nombre de fils croissait de manière prodigieuse; il ne s'arrêta pas, utilisant jusqu'à l'épuisement toute l'énergie spirituelle de son corps. Il prit rapidement quelques gorgées de liquide spirituel pour continuer à tisser ses filaments.
 
-Le temps passa lentement et la masse de fils devint gigantesque, atteignant plus de cent mètres de large.
+Le temps passa lentement et la masse de fils devint gigantesque, atteignant plus de mille pieds de large.
 
-Wang Lin contempla cette mer de cadavres et pensa: « Toujours pas assez. » Il but encore du liquide spirituel et intensifia sa production. Enfin, lorsque la masse de fils dépassa les mille mètres de large, il s'arrêta. Déployant son sens divin pour contrôler chaque filament, il les pressa vers le bas. Dans un même élan, des flammes bleues apparurent également.
+Wang Lin contempla cette mer de cadavres et pensa: « Toujours pas assez. » Il but encore du liquide spirituel et intensifia sa production. Enfin, lorsque la masse de fils dépassa les dix mille pieds de large, il s'arrêta. Déployant son sens divin pour contrôler chaque filament, il les pressa vers le bas. Dans un même élan, des flammes bleues apparurent également.
 
 Des grondements tonitruants retentirent alors que les fils s'abattaient sur le sol, soulevant des vagues de cendres. Cette onde de poussière rugit en avançant, transformant tous les os sur son passage en cendres qui rejoignirent la vague.
 
 Cette vague était accompagnée d'une masse de vapeur blanche. Le spectacle était saisissant. Une fois la vapeur dissipée, il ne restait rien. Wang Lin serra les dents, but davantage de liquide spirituel et créa de nouveaux fils avant de les projeter à nouveau, dans une autre direction.
 
-De nouvelles vagues de cendres déferlèrent sur la zone. Lorsque la brume se retira, le regard de Wang Lin se fixa sur le cadavre d'une petite bête de la taille d'un homme ordinaire, solitaire au milieu de cette zone dégagée de mille mètres de rayon.
+De nouvelles vagues de cendres déferlèrent sur la zone. Lorsque la brume se retira, le regard de Wang Lin se fixa sur le cadavre d'une petite bête de la taille d'un homme ordinaire, solitaire au milieu de cette zone dégagée de dix mille pieds de rayon.
 
 Un sourire de satisfaction apparut sur ses lèvres et il s'élança immédiatement vers la dépouille. En l'examinant de près, il ne vit rien d'inhabituel.
 
@@ -96,7 +96,7 @@ Les fils s'étaient totalement fusionnés avec l'os. Après ces neuf changements
 
 Wang Lin le récupéra et commença son examen.
 
-L'origine de la technique de raffinage du Temple Zhan Shen était très mystérieuse. La rumeur voulait qu'elle ait été découverte avec la Technique de la Voie Céleste par l'ancêtre du Sanctuaire. Après avoir pratiqué chacune séparément, les générations suivantes avaient consacré un temps infini à étudier cette technique de raffinage, puis l'avaient classée par catégories pour en tirer une série d'étapes bien ordonnée. Le fourneau de réaction en était une composante, classée selon dix rangs de qualité.
+L'origine de la technique de raffinage du Temple Zhan Shen était très mystérieuse. La rumeur voulait qu'elle ait été découverte avec la Technique de la Voie Céleste par l'ancêtre du Temple Zhan Shen. Après avoir pratiqué chacune séparément, les générations suivantes avaient consacré un temps infini à étudier cette technique de raffinage, puis l'avaient classée par catégories pour en tirer une série d'étapes bien ordonnée. Le fourneau de réaction en était une composante, classée selon dix rangs de qualité.
 
 Plus le rang est élevé, plus le fourneau est performant. Son identification est simple: lors de sa fabrication, le nombre de changements de couleur détermine son rang.
 
@@ -170,7 +170,7 @@ Après un certain temps de raffinage, la sphère rétrécit continuellement. Fin
 
 D'un mouvement du bras droit, il fit redescendre le tendon de dragon. Après l'avoir observé un moment, il le rangea. Il leva les yeux vers la paroi de glace bleue qui le surplombait. La Flamme des Enfers bleue apparut dans sa main et il s'élança vers le haut.
 
-Il jaillit tel un bambou qu'on fend, remontant de plusieurs milliers de mètres sous terre. Sa vitesse était telle que, combinée à la puissance destructrice de la Flamme des Enfers, elle fit trembler toute la Vallée Shi. Les cultivateurs présents dans la vallée virent leurs expressions changer radicalement; ils quittèrent précipitamment les lieux alors que les secousses s'intensifiaient.
+Il jaillit tel un bambou qu'on fend, remontant de plusieurs dizaines de milliers de pieds sous terre. Sa vitesse était telle que, combinée à la puissance destructrice de la Flamme des Enfers, elle fit trembler toute la Vallée Shi. Les cultivateurs présents dans la vallée virent leurs expressions changer radicalement; ils quittèrent précipitamment les lieux alors que les secousses s'intensifiaient.
 
 Quelques cultivateurs à la vue perçante virent une ombre noire jaillir de la quatorzième vallée pour charger vers le ciel avant de disparaître dans la brume.
 

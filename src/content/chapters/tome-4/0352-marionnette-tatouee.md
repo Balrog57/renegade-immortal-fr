@@ -76,13 +76,13 @@ Les chaînes retenant l'esprit bestial disparurent soudainement, mais le lien en
 
 L'esprit bestial fixa avec fureur le vieil homme à la silhouette voûtée. La bête voulait tout dévorer; ce n'était qu'après avoir assouvi cet appétit qu'elle pourrait apaiser sa rage.
 
-L'expression du vieil homme changea instantanément et il s'interrompit. Il toucha rapidement les tatouages sur son corps, qui s'envolèrent soudainement pour léviter à une dizaine de centimètres de sa peau.
+L'expression du vieil homme changea instantanément et il s'interrompit. Il toucha rapidement les tatouages sur son corps, qui s'envolèrent soudainement pour léviter à trois pouces de sa peau.
 
 C'est à ce moment précis que l'esprit bestial fondit sur lui en poussant un rugissement, mais il fut stoppé net à une courte distance du vieil homme.
 
 Ce qui l'arrêta, c'étaient divers tatouages brillant d'un éclat sauvage.
 
-Toutefois, le Char de Guerre Divin était si puissant que le vieil homme fut repoussé sur trois cent trente mètres. Ses yeux devinrent injectés de sang alors qu'il laissait échapper un rugissement; les tatouages s'écartèrent de son corps, passant de dix à seize centimètres de distance.
+Toutefois, le Char de Guerre Divin était si puissant que le vieil homme fut repoussé sur mille pieds. Ses yeux devinrent injectés de sang alors qu'il laissait échapper un rugissement; les tatouages s'écartèrent de son corps, passant de trois à cinq pouces de distance.
 
 L'esprit bestial rugit tout en étant lentement repoussé.
 
@@ -94,7 +94,7 @@ Wang Lin était coutumier de ce genre de manœuvres. Alors que l'épée descenda
 
 L'énergie de l'épée apparut soudainement devant le vieil homme et percuta son corps.
 
-Le vieil homme poussa un cri et les tatouages qui l'entouraient s'immobilisèrent brusquement avant de se rapprocher à nouveau de lui. Il tourna son regard vers Wang Lin, et une plante à sept feuilles apparut immédiatement sur le front de Wang Lin.
+Le vieil homme poussa un cri et les tatouages qui l'entouraient s'immobilisèrent brusquement avant de se rapprocher à nouveau de lui. Il tourna son regard vers Wang Lin, et une plante à sept feuilles apparut immédiatement sur le front du vieil homme.
 
 À l'instant où la plante surgit, les tatouages sur son corps s'agitèrent frénétiquement. Une intention meurtrière envahit le vieil homme alors qu'il levait la main pour pointer Wang Lin du doigt.
 

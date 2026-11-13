@@ -24,7 +24,7 @@ Lentement, alors que ses mouvements s'accéléraient, des points lumineux apparu
 
 Bientôt, ces points se multiplièrent et formèrent progressivement la silhouette d'un lotus. Wang Lin poussa un grognement, plaça ses mains de chaque côté de sa poitrine et les poussa lentement vers l'extérieur.
 
-Ces points de lumière s'extirpèrent lentement de son corps. Les lueurs s'entrelacèrent pour dessiner la forme d'un lotus blanc, semblant quitter peu à peu son organisme. Même lorsque les lumières flottèrent à dix centimètres de lui, des filaments lumineux continuaient de relier le lotus à son corps.
+Ces points de lumière s'extirpèrent lentement de son corps. Les lueurs s'entrelacèrent pour dessiner la forme d'un lotus blanc, semblant quitter peu à peu son organisme. Même lorsque les lumières flottèrent à trois pouces de lui, des filaments lumineux continuaient de relier le lotus à son corps.
 
 De larges perles de sueur apparurent sur le front de Wang Lin. Son corps entier était trempé, mais pour supprimer totalement cette restriction du lotus, il serra les dents et projeta soudainement ses mains vers l'avant.
 
@@ -72,7 +72,7 @@ Soudain, un cercle de lumière jaillit du mécanisme et s'éleva dans les airs, 
 
 Une fois Wang Lin disparu, les cercles de lumière cessèrent leur mouvement et retournèrent dans le dispositif, lequel reprit son aspect initial.
 
-Dans une chaîne de montagnes infinie, à des millions de kilomètres de la Mer Xiu Mo, un faisceau de lumière d'une trentaine de mètres de large tomba du ciel, propageant des ondes de choc dans les environs.
+Dans une chaîne de montagnes infinie, à des millions de kilomètres de la Mer Xiu Mo, un faisceau de lumière d'une centaine de pieds de large tomba du ciel, propageant des ondes de choc dans les environs.
 
 Au cœur de la montagne se trouvait un canyon, et au sein de ce canyon, une petite vallée abritait un réseau de transfert très ancien.
 

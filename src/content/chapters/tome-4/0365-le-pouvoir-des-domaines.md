@@ -30,7 +30,7 @@ Pa! Pa!
 
 Les coups de fouet incessants rendirent la bête spirituelle furieuse, mais elle ignora les assauts pour poursuivre sa voracité. La bête spirituelle traversa le corps du géant de glace.
 
-Le corps du géant trembla sous l'impact et de multiples fissures apparurent. Des fragments de glace se détachèrent et le géant rétrécit encore une fois; il ne mesurait plus que 6,6 mètres de haut, et la glace autour de son épaule droite commença à fondre.
+Le corps du géant trembla sous l'impact et de multiples fissures apparurent. Des fragments de glace se détachèrent et le géant rétrécit encore une fois; il ne mesurait plus que vingt pieds de haut, et la glace autour de son épaule droite commença à fondre.
 
 La bête spirituelle s'apprêtait à se retourner pour une nouvelle attaque quand Hongdie ouvrit les yeux. La malédiction fut refoulée, ne laissant qu'une unique ligne noire sur son front.
 
@@ -72,7 +72,7 @@ Mais à présent, après tant d'échanges, leur combat atteignait son point culm
 
 Surtout cette bête spirituelle; elle était d'une férocité inouïe. Si la bête n'avait pas manqué de force sur la durée, elle était certaine que, face à ses assauts répétés, elle aurait perdu sans le Fouet Kunji.
 
-À présent, elle n'avait d'autre choix que de fuir. Le Dieu de Glace était extrêmement affaibli. Suite aux dommages subis, il ne mesurait plus que 6,6 mètres de haut. S'il rétrécissait davantage, il s'effondrerait totalement.
+À présent, elle n'avait d'autre choix que de fuir. Le Dieu de Glace était extrêmement affaibli. Suite aux dommages subis, il ne mesurait plus que vingt pieds de haut. S'il rétrécissait davantage, il s'effondrerait totalement.
 
 Elle n'avait vécu une telle fuite que deux fois dans sa vie: la première fois lorsqu'elle avait été acculée par Wang Lin, et la seconde, c'était maintenant.
 

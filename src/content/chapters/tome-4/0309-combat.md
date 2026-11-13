@@ -30,7 +30,7 @@ Le visage de Hongdie devint froid alors qu'elle frappait le sol du pied pour s'e
 
 Bang
 
-L'impact violent provoqué par la collision entre l'empreinte et la boule de foudre créa une onde de choc d'un mètre de haut qui se propagea vers l'extérieur. La lumière bleue frappa la boule de foudre, provoquant une série de craquements alors que la glace commençait à s'y former. Le givre se propagea à une vitesse inimaginable.
+L'impact violent provoqué par la collision entre l'empreinte et la boule de foudre créa une onde de choc plus haute qu'un demi-homme qui se propagea vers l'extérieur. La lumière bleue frappa la boule de foudre, provoquant une série de craquements alors que la glace commençait à s'y former. Le givre se propagea à une vitesse inimaginable.
 
 En un clin d'œil, une boule de foudre gelée apparut dans les airs. L'extérieur était bleu et l'intérieur d'un violet sombre où palpitaient encore des éclairs. C'était une vision d'une grande beauté.
 
@@ -90,7 +90,7 @@ La puissance combinée de l'effondrement du ciel et de la déchirure de la terre
 
 Même Chi Hu recula involontairement de quelques pas, les yeux écarquillés par le choc. Il ne s'attendait pas à ce que Zeng Niu possède une technique aussi terrifiante.
 
-« L'union d'un homme et de son trésor magique! » Chi Hu était stupéfait. Ses yeux brillèrent d'intérêt, mais il réprima rapidement son envie de combattre. « Cet homme doit être un génie de la famille Ceng. Si c'était moi, à moins d'utiliser le trésor que ma famille m'a confié, il me serait difficile d'échapper à un tel désastre. Cependant, cette Hongdie est au stade avancé de la Formation de l'Âme... ce Zeng Niu est vraiment remarquable; il sait qu'il doit d'abord briser le cœur Dao de Hongdie. Ce Zeng Niu n'est vraiment pas de taille ordinaire. »
+« L'union d'un homme et de son trésor magique! » Chi Hu était stupéfait. Ses yeux brillèrent d'intérêt, mais il réprima rapidement son envie de combattre. « Cet homme doit être un génie de la famille Zeng. Si c'était moi, à moins d'utiliser le trésor que ma famille m'a confié, il me serait difficile d'échapper à un tel désastre. Cependant, cette Hongdie est au stade avancé de la Formation de l'Âme... ce Zeng Niu est vraiment remarquable; il sait qu'il doit d'abord briser le cœur Dao de Hongdie. Ce Zeng Niu n'est vraiment pas de taille ordinaire. »
 
 Hongdie était trop jeune, après tout. Comparée à un vieux monstre comme Wang Lin, qui avait vécu plus de 400 ans et percé les mystères de la nature humaine, sa force mentale était bien inférieure à celle de ce dernier. Les paroles de Wang Lin frappaient directement son cœur. Une lueur de rage apparut sur son visage alors qu'elle continuait de reculer.
 
@@ -120,13 +120,13 @@ Hongdie fixa Wang Lin qui se retirait. Elle grinça des dents et déclara: « Tu
 
 Sur ces mots, elle tendit la main et arracha un pétale de la fleur.
 
-Chi Hu poussa un rugissement et s'éleva dans les airs. « Arrêtez! Camarade Hongdie et Frère Ceng, c'est moi qui vous ai invités ici. Si vous persistez, ne me reprochez pas ma cruauté! »
+Chi Hu poussa un rugissement et s'éleva dans les airs. « Arrêtez! Daoïste Hongdie et Frère Zeng, c'est moi qui vous ai invités ici. Si vous persistez, ne me reprochez pas ma cruauté! »
 
-Wang Lin prit une profonde inspiration, concentrant toute son attention sur la résistance à l'invasion du domaine impitoyable, et dit froidement: « Camarade Chi Hu, ce n'est pas moi qui ai commencé tout ceci! »
+Wang Lin prit une profonde inspiration, concentrant toute son attention sur la résistance à l'invasion du domaine impitoyable, et dit froidement: « Daoïste Chi Hu, ce n'est pas moi qui ai commencé tout ceci! »
 
 Le visage de Hongdie resta glacial alors qu'elle lançait un regard à Chi Hu: « Cela n'a rien à voir avec toi! Retire-toi! »
 
-L'expression de Chi Hu changea. Il fixa Hongdie et éclata d'un rire sonore. « Camarade Hongdie, et si je décidais de m'en mêler? »
+L'expression de Chi Hu changea. Il fixa Hongdie et éclata d'un rire sonore. « Daoïste Hongdie, et si je décidais de m'en mêler? »
 
 Hongdie resta silencieuse et lança le pétale de fleur qui vola lentement vers Wang Lin. À cet instant, le sol trembla soudainement et des fissures déchirèrent le ciel. La puissance de ce simple pétale avait manifestement atteint les limites de ce fragment de Royaume Céleste.
 

@@ -24,17 +24,17 @@ L'expression de Xu Mu devint grave. Il ouvrit sa chemise, révélant un talisman
 
 Les Anciens de la Secte Heng Yue furent stupéfaits. Après avoir examiné attentivement le talisman, ils affichèrent tous des visages horrifiés.
 
-Huang Long dit, le visage blême: « Camarade cultivateur Ouyang, ce talisman... »
+Huang Long dit, le visage blême: « Daoïste Ouyang, ce talisman... »
 
 Le regard de l'Ancien Ouyang étincela. Il répondit avec indifférence: « Huang Long, j'en profite pour préciser une chose. Si notre Secte Xuan Dao l'emporte lors de l'échange d'aujourd'hui, il faudra, en plus des conditions précédentes, en ajouter une: ce Pic Heng Yue devra être prêté à notre Secte Xuan Dao pendant 500 ans! »
 
-Les visages de l'assistance changèrent radicalement. Huang Long plissa les yeux et rétorqua: « Plaisantez-vous, camarade cultivateur Ouyang? »
+Les visages de l'assistance changèrent radicalement. Huang Long plissa les yeux et rétorqua: « Plaisantez-vous, Daoïste Ouyang? »
 
 L'Ancien Ouyang secoua la tête. Il dit: « Huang Long, comme tu peux le voir, la force spirituelle qu'il contient ne peut être créée que par un ancêtre au stade de l'Âme Naissante. Pour te dire la vérité, un ancêtre de la Secte Xuan Dao est revenu du champ de bataille extérieur d'un pays de rang 4... Il a rapporté la nouvelle: tous les ancêtres de la Secte Heng Yue sont morts! »
 
-L'expression de Huang Long changea sans cesse. Après un long moment, il dit d'une voix grave: « Camarade cultivateur Ouyang, cessez vos fadaises, sinon ne blâmez pas la Secte Heng Yue pour son manque de clémence! »
+L'expression de Huang Long changea sans cesse. Après un long moment, il dit d'une voix grave: « Daoïste Ouyang, cessez vos fadaises, sinon ne blâmez pas la Secte Heng Yue pour son manque de clémence! »
 
-L'Ancien Ouyang sourit et dit: « Notre Secte Xuan Dao n'a pas encore pris cette montagne par la ruse ou la force en raison de notre amitié, nous vous laissons donc une chance de sauver la face lors de cet échange. Si la Secte Heng Yue gagne cette fois, alors nous vous laisserons tranquilles. Mon message est passé. Camarade cultivateur Huang Long, poursuivons cet échange. »
+L'Ancien Ouyang sourit et dit: « Notre Secte Xuan Dao n'a pas encore pris cette montagne par la ruse ou la force en raison de notre amitié, nous vous laissons donc une chance de sauver la face lors de cet échange. Si la Secte Heng Yue gagne cette fois, alors nous vous laisserons tranquilles. Mon message est passé. Daoïste Huang Long, poursuivons cet échange. »
 
 Les disciples internes de la Secte Heng Yue étaient tous confus, mais ils sentaient un poids immense peser sur leurs cœurs. Même le ciel semblait s'être assombri.
 

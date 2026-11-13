@@ -40,7 +40,7 @@ Wang Lin garda le silence, continuant de balayer la zone avec son Sens Divin. Ce
 
 L'homme âgé sembla se lasser de ses invectives. Il prit une autre grande gorgée de sa gourde et s'assit. Son regard se posa alors sur le bateau de Qiu Siping et Wang Lin.
 
-D'un geste de la main droite, il fit soudainement voler le bateau vers lui. Rapidement, l'embarcation ne se trouvait plus qu'à 33 mètres de lui.
+D'un geste de la main droite, il fit soudainement voler le bateau vers lui. Rapidement, l'embarcation ne se trouvait plus qu'à cent pieds de lui.
 
 Qiu Siping afficha immédiatement une expression respectueuse et dit: « Le junior Qiu Siping salue le Senior. »
 
@@ -218,7 +218,7 @@ Ses yeux brillèrent d'excitation. En dévorant cette âme, il devrait pouvoir f
 
 Après une journée de voyage, Wang Lin s'arrêta au milieu d'un désert, suivant un itinéraire volontairement désolé. Sachant qu'aucun être vivant ne se trouvait dans un rayon de 5 000 kilomètres, il enfonça son corps dans le sol.
 
-Il s'arrêta à une profondeur de 6,6 kilomètres, créa une grotte et s'assit en tailleur. Il fit apparaître Xu Liguo par un geste vers son front. Le démon présenta l'Âme Naissante sur le point de se dissiper et se tint en retrait, contemplant la proie.
+Il s'arrêta à une profondeur de vingt mille pieds, créa une grotte et s'assit en tailleur. Il fit apparaître Xu Liguo par un geste vers son front. Le démon présenta l'Âme Naissante sur le point de se dissiper et se tint en retrait, contemplant la proie.
 
 Wang Lin n'accorda aucune attention à Xu Liguo. Il ferma les yeux quelques instants avant de les rouvrir avec une détermination farouche. Il ouvrit la bouche et avala l'Âme Naissante.
 

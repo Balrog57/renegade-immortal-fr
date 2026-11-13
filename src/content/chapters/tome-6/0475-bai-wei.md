@@ -12,7 +12,7 @@ slug: bai-wei
 
 L'expression de Wang Lin resta imperturbable alors qu'il levait la main et l'agitait d'un geste nonchalant. Un coup de vent surgit soudainement, émettant un sifflement strident alors qu'il se précipitait vers les ondulations bleues.
 
-« Toi! » La voix monta brusquement dans les aigus, mais alors que la rafale approchait, les ondes bleues s'effondrèrent. La lumière bleue se rassembla rapidement à 330 mètres de Wang Lin pour former la silhouette d'un jeune homme vêtu de bleu. Il fixa Wang Lin avec une expression mécontente.
+« Toi! » La voix monta brusquement dans les aigus, mais alors que la rafale approchait, les ondes bleues s'effondrèrent. La lumière bleue se rassembla rapidement à mille pieds de Wang Lin pour former la silhouette d'un jeune homme vêtu de bleu. Il fixa Wang Lin avec une expression mécontente.
 
 Les yeux de Li Dannan s'illuminèrent. Cela faisait longtemps qu'il séjournait dans la ville de Ming Mei et il était déjà venu deux fois dans le secteur nord. Bien que des patrouilles y circulent, un tel incident ne s'était jamais produit avant même qu'une personne n'ait pu pénétrer dans la zone.
 
@@ -24,7 +24,7 @@ Le jeune homme lança un regard à Wang Lin, renifla froidement et cracha: « D�
 
 Une lueur de froideur passa dans les yeux de Wang Lin et il fit un pas en avant. Après s'être fusionné avec son corps originel et avoir combattu Situ Nan pendant un mois, son expérience au combat s'était considérablement accrue. Désormais, sa vitesse était tout simplement phénoménale.
 
-En un clin d'œil, Wang Lin franchit les 330 mètres de distance. D'un coup de poing, il libéra une force colossale.
+En un clin d'œil, Wang Lin franchit les mille pieds de distance. D'un coup de poing, il libéra une force colossale.
 
 Il n'y eut aucun fracas supersonique, mais d'innombrables fissures apparurent dans l'air, comme si l'espace lui-même s'effondrait.
 
@@ -40,7 +40,7 @@ Les yeux de Wang Lin s'illuminèrent. Sa main gauche traça un sceau et l'énerg
 
 Sous le mouvement du doigt de Wang Lin, l'arc commença à se densifier jusqu'à devenir un cercle parfait. Une fois le cercle achevé, il fut projeté vers la tasse à thé.
 
-La vitesse de la tasse ralentit et sa trajectoire dévia selon la rotation du cercle. Finalement, elle décrivit une courbe à une dizaine de mètres devant Wang Lin.
+La vitesse de la tasse ralentit et sa trajectoire dévia selon la rotation du cercle. Finalement, elle décrivit une courbe à trente pieds devant Wang Lin.
 
 Un cri de surprise s'éleva de l'intérieur de la boutique.
 

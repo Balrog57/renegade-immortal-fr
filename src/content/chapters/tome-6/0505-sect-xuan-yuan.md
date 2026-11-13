@@ -36,7 +36,7 @@ En y songeant, les yeux de Zhao Si se teintèrent de désir.
 
 Zhao Si esquissa un sourire amer, prit une profonde inspiration et s'apprêta à reprendre sa culture.
 
-Cependant, à cet instant précis, un rayon de lumière violette fendit le ciel tel un météore en brisant le mur du son. Rapidement, la lueur pourpre se rapprocha, n'étant plus qu'à 3,3 kilomètres.
+Cependant, à cet instant précis, un rayon de lumière violette fendit le ciel tel un météore en brisant le mur du son. Rapidement, la lueur pourpre se rapprocha, n'étant plus qu'à dix mille pieds.
 
 L'expression de Zhao Si devint grave. Sans se lever, il fixa froidement le rayon de lumière qui fonçait sur lui.
 
@@ -44,7 +44,7 @@ D'autres personnes utilisaient le réseau de transfert quotidiennement. Hormis q
 
 Au moment où le soleil commençait à poindre à l'horizon, le rayon de lumière violette ralentit, permettant à Zhao Si d'apercevoir l'individu qu'il transportait.
 
-L'homme avait de longs cheveux simplement noués derrière la tête. Vêtu d'une robe pourpre, il s'immobilisa à 33 mètres devant Zhao Si. Il lança ensuite un regard glacial au garde.
+L'homme avait de longs cheveux simplement noués derrière la tête. Vêtu d'une robe pourpre, il s'immobilisa à cent pieds devant Zhao Si. Il lança ensuite un regard glacial au garde.
 
 Le regard de Zhao Si tomba sur le jeton suspendu à la taille de l'inconnu. Sur ce jeton, un chiffre « sept » était clairement gravé.
 

@@ -66,7 +66,7 @@ Après un long moment, ses yeux emplis de mélancolie, il repartit.
 
 « Li Yuanfeng! » Dans la cour devant le palais, le vent hurlant faisait voler la neige.
 
-Une silhouette illusoire avançait lentement à travers la tempête de neige. Elle devint progressivement plus tangible et, lorsqu'elle fut à 33 mètres des portes du palais, elle révéla l'identité de Wang Lin.
+Une silhouette illusoire avançait lentement à travers la tempête de neige. Elle devint progressivement plus tangible et, lorsqu'elle fut à cent pieds des portes du palais, elle révéla l'identité de Wang Lin.
 
 Le Wang Lin actuel affichait une expression glaciale en contemplant le Li Yuanfeng stupéfait.
 
@@ -128,7 +128,7 @@ Les yeux de Wang Lin brillèrent d'une intention de combat féroce. Il leva prom
 
 Bang!
 
-La marque descendant du ciel s'effondra instantanément, et l'onde de choc força Li Yuanfeng à reculer de plus de trente mètres. Les yeux de Li Yuanfeng étaient empreints de choc, mais surtout de peur.
+La marque descendant du ciel s'effondra instantanément, et l'onde de choc força Li Yuanfeng à reculer de plus de cent pieds. Les yeux de Li Yuanfeng étaient empreints de choc, mais surtout de peur.
 
 Wang Lin recula de trois pas. Chaque pas provoquait d'innombrables fissures dans le sol.
 

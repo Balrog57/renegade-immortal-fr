@@ -8,15 +8,15 @@ slug: sans-nom-1
 ---
 Le vieil homme frappa la tortue-dragon, laquelle poussa un rugissement dont le son semblait pouvoir fendre les nuages et briser la pierre, en direction de l'anneau des Étoiles Brisées du Chaos.
 
-Bien que l'anneau fût silencieux, un vide d'une dizaine de mètres de profondeur s'y creusa et les débris furent écartés.
+Bien que l'anneau fût silencieux, un vide de plusieurs dizaines de pieds de profondeur s'y creusa et les débris furent écartés.
 
 Le vieil homme sauta sur la tête de la tortue-dragon. La créature prit une profonde inspiration, aspirant toute l'énergie spirituelle environnante dans sa gueule.
 
-Puis, la bête poussa un autre rugissement. Cette fois, une onde sonore visible apparut juste avant qu'elle ne percute l'anneau. Un tunnel large d'environ trois cents mètres se forma à l'intérieur de l'anneau et tous les débris furent réduits en poussière.
+Puis, la bête poussa un autre rugissement. Cette fois, une onde sonore visible apparut juste avant qu'elle ne percute l'anneau. Un tunnel large de près de mille pieds se forma à l'intérieur de l'anneau et tous les débris furent réduits en poussière.
 
 Les yeux de Wang Lin s'illuminèrent. Il était surpris par la puissance de cette bête, mais il n'en avait pas peur pour autant si un véritable combat devait éclater. Après tout, d'après ce qu'il avait vu, l'attaque était linéaire; avec l'agilité dont Wang Lin faisait preuve au combat, comment aurait-il laissé la bête le frapper avec une telle attaque?
 
-Le vieil homme chargea et suivit de près le rugissement tel une flèche. En un clin d'œil, il se trouvait à moins de trois cents mètres de l'anneau. Peu après, les débris à l'intérieur de l'anneau formèrent des clones du vieil homme.
+Le vieil homme chargea et suivit de près le rugissement tel une flèche. En un clin d'œil, il se trouvait à moins de mille pieds de l'anneau. Peu après, les débris à l'intérieur de l'anneau formèrent des clones du vieil homme.
 
 Ce dernier ne paniqua pas. Il frappa son sac de rangement et plus de dix morceaux de jade s'envolèrent. Les jades encerclèrent le vieil homme avant de foncer sur les clones au moment où ceux-ci chargeaient.
 
@@ -56,7 +56,7 @@ Les yeux du vieil homme brillèrent. Il était désormais certain que Wang Lin �
 
 Le vieil homme afficha un sourire espiègle et déclara: « Puisque tu ne veux pas faire équipe, je m'en vais. » Il frappa la bête sous ses pieds et, tandis que des nuages rouges se rassemblaient à nouveau, il disparut.
 
-Wang Lin réfléchit un instant, se leva et observa la ligne dorée. Mais à ce moment précis, la bête moustique apparut à une trentaine de mètres de lui et fixa la lueur avec insistance. Ses yeux trahissaient la peur autant que l'avidité.
+Wang Lin réfléchit un instant, se leva et observa la ligne dorée. Mais à ce moment précis, la bête moustique apparut à cent pieds de lui et fixa la lueur avec insistance. Ses yeux trahissaient la peur autant que l'avidité.
 
 C'était comme si elle voulait la dévorer sans oser s'y risquer.
 
@@ -74,7 +74,7 @@ La créature poussa quelques gémissements misérables avant de s'effondrer au s
 
 Wang Lin observa la bête avec stupéfaction. Après environ le temps de trois bâtons d'encens, les convulsions cessèrent. Des bruits de craquements émanèrent de son corps tandis qu'elle grandissait.
 
-La bête moustique mesurait désormais près de cent mètres de long, semblable à une petite colline. Sa trompe était devenue encore plus longue, lui donnant un aspect plus effrayant.
+La bête moustique mesurait désormais près de trois cents pieds de long, semblable à une petite colline. Sa trompe était devenue encore plus longue, lui donnant un aspect plus effrayant.
 
 En réalité, le Feu d'Aurore était un matériau de raffinement de trésors que seuls les cultivateurs de la Formation de l'Âme pouvaient manipuler, car il se nourrissait des Âmes Naissantes pour croître. Les bêtes fuyaient normalement ce feu.
 

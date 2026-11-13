@@ -100,7 +100,7 @@ Simultanément, au cœur de l'explosion, un éclair rouge chargea vers la vieill
 
 Cet éclair rouge était le Royaume Ji de Wang Lin. Bien que son effet sur les cultivateurs de la Formation de l'Âme fût limité, il suffisait à ébranler leur conscience.
 
-La vieille femme ne se soucia guère de l'éclair rouge, mais elle fronça légèrement les sourcils face à l'explosion de la marionnette d'Âme Naissante. Elle posa sa main sur la tour de glace, faisant jaillir des rayons de lumière blanche de toutes les fenêtres. Ces rayons se condensèrent devant elle, formant un bouclier de glace de 33 mètres de diamètre.
+La vieille femme ne se soucia guère de l'éclair rouge, mais elle fronça légèrement les sourcils face à l'explosion de la marionnette d'Âme Naissante. Elle posa sa main sur la tour de glace, faisant jaillir des rayons de lumière blanche de toutes les fenêtres. Ces rayons se condensèrent devant elle, formant un bouclier de glace de plus de cent pieds de diamètre.
 
 Cependant, la vieille femme n'aurait jamais imaginé que l'éclair rouge traverserait ce bouclier comme s'il n'existait pas. Son expression changea alors qu'elle tentait de bloquer l'attaque, mais l'éclair rouge pénétra soudainement son corps par le bras.
 

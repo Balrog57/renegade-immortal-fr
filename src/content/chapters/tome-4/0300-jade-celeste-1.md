@@ -20,7 +20,7 @@ Wang Lin flottait dans les airs tout en observant les environs. Ce fragment éta
 
 Wang Lin fronça les sourcils. Il ignorait pourquoi les matrices de transfert de la Secte Da Luo étaient toutes situées sur ces fragments dangereux. Cela signifiait-il que plus un fragment était périlleux, plus il recelait d'énergie spirituelle céleste?
 
-Wang Lin s'élança hors de la matrice de transfert, ces questions en tête. Il déploya son sens divin tout en descendant pour éviter les failles spatiales. Tout se déroulait normalement jusqu'à ce qu'il se trouve à moins de 330 mètres du sol lorsqu'une faille spatiale apparut silencieusement à ses côtés.
+Wang Lin s'élança hors de la matrice de transfert, ces questions en tête. Il déploya son sens divin tout en descendant pour éviter les failles spatiales. Tout se déroulait normalement jusqu'à ce qu'il se trouve à moins de mille pieds du sol lorsqu'une faille spatiale apparut silencieusement à ses côtés.
 
 Wang Lin fut surpris, car son sens divin ne l'avait absolument pas détectée. Cependant, il n'était pas novice dans le monde de la culture et réagit promptement. Au moment même où la faille surgissait, il parvint à forcer son corps à s'écarter sur le côté.
 
@@ -30,7 +30,7 @@ Le front de Wang Lin était couvert de sueur froide alors qu'il regardait sur le
 
 Il scruta attentivement les environs. À cet instant, le danger dans ce fragment pouvait rivaliser avec celui des terres de l'Ancien Dieu.
 
-La manière dont cette faille spatiale était apparue était tout simplement trop sinistre. Wang Lin n'avait même pas été capable de la détecter à l'avance. Après une courte réflexion, il reprit sa descente lente. Il lui fallut le temps d'un bâton d'encens pour se poser à une trentaine de mètres du sol.
+La manière dont cette faille spatiale était apparue était tout simplement trop sinistre. Wang Lin n'avait même pas été capable de la détecter à l'avance. Après une courte réflexion, il reprit sa descente lente. Il lui fallut le temps d'un bâton d'encens pour se poser à une centaine de pieds du sol.
 
 Cette altitude constituait un niveau relativement sûr. Peu de failles spatiales apparaissaient à cette hauteur et la chaleur de la lave n'était pas trop intense. Mais la prudence de Wang Lin ne diminua d'un iota tandis qu'il progressait lentement. Il voulait comprendre pourquoi la Secte Da Luo avait placé une matrice de transfert ici.
 
@@ -76,7 +76,7 @@ Wang Lin déploya son sens divin et fut stupéfait: l'endroit était une caverne
 
 Il réfléchit un instant avant de voler vers l'une des ouvertures, précisément celle empruntée par les deux hommes.
 
-En plein vol, il s'arrêta soudainement lorsqu'il perçut, grâce à son sens divin, que ses deux cibles s'étaient immobilisées à environ trois cents mètres devant lui. Devant eux se dressait une statue de pierre haute de plusieurs dizaines de pieds. Cette statue représentait une immense créature aviaire.
+En plein vol, il s'arrêta soudainement lorsqu'il perçut, grâce à son sens divin, que ses deux cibles s'étaient immobilisées à environ mille pieds devant lui. Devant eux se dressait une statue de pierre haute de plusieurs centaines de pieds. Cette statue représentait une immense créature aviaire.
 
 « Autrefois, l'Ancêtre a trouvé la bête céleste Qi Lin ici. Junior frère, protège-moi pendant que je rassemble l'énergie spirituelle céleste des environs. »
 

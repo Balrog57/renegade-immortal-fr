@@ -8,7 +8,7 @@ slug: ame-de-bataille-principale
 ---
 Alors que Wang Lin fixait l'endroit où Liu Mei avait disparu, son regard se glaça.
 
-« Je ne parviens pas à percer le niveau de culture de Liu Mei, elle doit donc avoir un niveau plus élevé que le mien; sinon, elle ne serait pas devenue la disciple de Zhu Quezi. Seulement, j'ignore pourquoi cette femme cherche à entrer en contact avec moi... » Wang Lin fronça les sourcils encore plus profondément. D'un revers de manche, il fit atterrir Xu Yun et Liu Wei à une centaine de mètres de là.
+« Je ne parviens pas à percer le niveau de culture de Liu Mei, elle doit donc avoir un niveau plus élevé que le mien; sinon, elle ne serait pas devenue la disciple de Zhu Quezi. Seulement, j'ignore pourquoi cette femme cherche à entrer en contact avec moi... » Wang Lin fronça les sourcils encore plus profondément. D'un revers de manche, il fit atterrir Xu Yun et Liu Wei à plusieurs centaines de pieds de là.
 
 Wang Lin n'était pas un homme de bien, mais constatant que l'inconscience des deux lui avait permis de déceler la nature de Liu Mei, il ne les chassa pas.
 
@@ -22,7 +22,7 @@ Peu après, il agita ses manches, pénétra dans sa grotte et s'assit en positio
 
 Il réapparut dans les profondeurs du sol, là où se trouvait la veine spirituelle de la Montagne Lian Hun.
 
-C'était la partie la plus basse de la veine spirituelle. À 990 mètres sur la gauche se trouvait le drapeau doré. À cette distance, le Qilin contenu dans le drapeau d'âmes ne pouvait pas le déranger.
+C'était la partie la plus basse de la veine spirituelle. À trois mille pieds sur la gauche se trouvait le drapeau doré. À cette distance, le Qilin contenu dans le drapeau d'âmes ne pouvait pas le déranger.
 
 Assis là, Wang Lin sentait la pression de l'énergie spirituelle environnante converger vers lui. Il prit une profonde inspiration et ferma lentement les yeux. Cette fois, il n'absorba aucune énergie spirituelle, mais utilisa la pression pour reformer rapidement son âme originelle.
 
@@ -32,11 +32,11 @@ Ce jour-là, alors que Wang Lin condensait son âme originelle avec acharnement 
 
 Bien que son âme originelle ne fût pas totalement rétablie, elle était dans un état bien meilleur qu'il y a quelques mois. Désormais, il ne restait plus que deux marques de thé sur son visage.
 
-Les yeux de Wang Lin étincelèrent. Il déploya son Sens Divin et verrouilla le drapeau d'âmes doré situé à 990 mètres de là.
+Les yeux de Wang Lin étincelèrent. Il déploya son Sens Divin et verrouilla le drapeau d'âmes doré situé à trois mille pieds de là.
 
 À cet instant, une illusion apparut soudainement près du drapeau et un rugissement en jaillit. Le gigantesque Qilin apparut aux côtés du drapeau, les yeux empreints de soif de sang.
 
-*Roar!*
+*Grrr!*
 
 L'illusion recula prestement après le rugissement pour prendre rapidement forme.
 
@@ -48,7 +48,7 @@ La bête Qilin n'attaqua pas activement le vieil homme comme elle l'avait fait a
 
 « Animal maudit! » cria le vieil homme. « L'ancêtre fondateur a décrété que les trois drapeaux d'âmes scellés sous les trois pics reviennent à celui qui en sera digne. Un jour, tu seras ma propriété! »
 
-« *Roar!* » Le Qilin poussa un grognement et le mépris dans ses yeux s'accentua.
+« *Grrr!* » Le Qilin poussa un grognement et le mépris dans ses yeux s'accentua.
 
 « Hmph! » Le vieil homme frappa son sac de rangement et un drapeau d'un or pâle apparut. Il agita l'objet et d'innombrables âmes en sortirent. En tête se trouvait une âme du stade avancé de l'Âme Naissante servant d'âme principale. Derrière elle se trouvaient plusieurs dizaines d'âmes des stades intermédiaire et initial de l'Âme Naissante, suivies d'une multitude d'autres âmes de divers niveaux de culture.
 
@@ -62,7 +62,7 @@ Avec son niveau de culture, il n'était normalement pas de taille face à ce Qil
 
 Peu après, les mains du vieil homme s'activèrent avec rapidité, formant divers sceaux. Bientôt, le sang commença à perler de ses pores. Son expression devint très grave alors qu'une sphère de sang apparaissait devant lui.
 
-Le vieil homme tonna: « Sacrifice de sang! » À peine eut-il fini de parler que la sphère de sang explosa en d'innombrables gouttelettes, recouvrant une zone de 330 mètres à la ronde.
+Le vieil homme tonna: « Sacrifice de sang! » À peine eut-il fini de parler que la sphère de sang explosa en d'innombrables gouttelettes, recouvrant une zone de mille pieds à la ronde.
 
 Les âmes dévorées par le Qilin commencèrent soudainement à s'agiter, comme si elles venaient de recevoir une immense dose de nutriments; elles tentaient de s'échapper du corps du Qilin. Parallèlement, une masse d'âmes attaquait le Qilin sous les ordres de l'âme principale.
 

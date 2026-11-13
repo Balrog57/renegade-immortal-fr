@@ -77,7 +77,7 @@ Le regard de Qian Feng était aussi tranchant que l'éclair alors qu'il fixait l
 
 « À quoi ce vieil homme pense-t-il? La situation devient trop périlleuse. Nous ferions mieux d'abandonner la planète Suzaku, de partir loin et de revenir quand nous aurons la puissance nécessaire pour vaincre. Si cette impasse perdure, le moral des troupes finira par s'effondrer. »
 
-Ses yeux brillèrent, il laissa échapper un reniflement froid et marmonna pour lui-même: « Je me demande où se cache ce Zeng Niu. Il a osé me blesser. Si je le rencontre, je dévorerai sans faute son domaine. Bien que l'Étendard de l'Âme d'un Milliard soit puissant, le vieil homme m'a remis un trésor. Vu à quel point il y tient, ce trésor doit être redoutable. Grâce à lui, j'ai une réelle confiance pour affronter l'Étendard de Zeng Niu.
+Ses yeux brillèrent, il laissa échapper un reniflement froid et marmonna pour lui-même: « Je me demande où se cache ce Zeng Niu. Il a osé me blesser. Si je le rencontre, je dévorerai sans faute son domaine. Bien que l'Étendard de l'Âme au Milliard d'Âmes soit puissant, le vieil homme m'a remis un trésor. Vu à quel point il y tient, ce trésor doit être redoutable. Grâce à lui, j'ai une réelle confiance pour affronter l'Étendard de Zeng Niu.
 
 « Cependant, il vaut mieux ne pas utiliser le trésor du vieil homme, sauf nécessité absolue. Ce vieux sac d'os a bien caché ses intentions, mais j'ai remarqué depuis longtemps que son attitude envers moi était singulière.
 
@@ -87,13 +87,13 @@ Un mois plus tard, une silhouette apparut près de la Secte Shi Yin, à Zhao. C'
 
 C'était Wang Lin.
 
-Après avoir quitté le Cimetière des Immortels, Wang Lin ne s'était pas reposé et avait utilisé la matrice de transfert de Chu pour entrer sur le champ de bataille extérieur. Il souhaitait utiliser les âmes errantes pour réparer l'Étendard de l'Âme d'un Milliard.
+Après avoir quitté le Cimetière des Immortels, Wang Lin ne s'était pas reposé et avait utilisé la matrice de transfert de Chu pour entrer sur le champ de bataille extérieur. Il souhaitait utiliser les âmes errantes pour réparer l'Étendard de l'Âme au Milliard d'Âmes.
 
 Malheureusement, bien qu'il eût trouvé des âmes errantes, celles-ci ne pouvaient servir à la réparation de l'étendard. Dès qu'une âme errante pénétrait dans l'étendard, elle devenait folle: soit elle dévorait les fragments d'âme pour s'en renforcer, soit elle était attaquée par de multiples fragments et finissait par être détruite.
 
 Les deux étaient ennemis naturels; comme le feu et l'eau, ils ne pouvaient se mélanger.
 
-Par conséquent, la tentative de réparer l'Étendard de l'Âme d'un Milliard avec des âmes errantes fut un échec. Quant aux dévoreurs d'âmes, Wang Lin en avait capturé un pour tester, mais le résultat fut identique; il abandonna donc cette méthode et quitta le champ de bataille extérieur.
+Par conséquent, la tentative de réparer l'Étendard de l'Âme au Milliard d'Âmes avec des âmes errantes fut un échec. Quant aux dévoreurs d'âmes, Wang Lin en avait capturé un pour tester, mais le résultat fut identique; il abandonna donc cette méthode et quitta le champ de bataille extérieur.
 
 La dernière tâche de Wang Lin consistait à se rendre auprès du corps gigantesque situé sous la Secte Shi Yin, à Zhao. Ce corps appartenait à l'ancêtre du Clan Ju Mo qui avait introduit son clan sur la planète Suzaku.
 

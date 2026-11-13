@@ -40,7 +40,7 @@ Cependant, ce n'était pas là l'enjeu principal. Son véritable but était de s
 
 Pourtant, ce qui déconcertait Wang Lin était le suivant: si le Temple Zhan Shen possédait réellement une telle méthode, entre l'avidité des habitants de leur propre pays et celle des nations de rang 4 ou 5, personne ne l'aurait laissé sans surveillance.
 
-Or, selon les souvenirs de Ma Liang, le Chemin Divin du Sanctuaire n'avait jamais suscité l'intérêt des puissances de culture supérieures. Cela troublait Wang Lin.
+Or, selon les souvenirs de Ma Liang, le Chemin Divin du Temple Zhan Shen n'avait jamais suscité l'intérêt des puissances de culture supérieures. Cela troublait Wang Lin.
 
 Néanmoins, ce Chemin Divin était son unique piste. Il décida qu'il devait s'en emparer, quel qu'en soit le prix. Le Chemin Divin que Ma Liang connaissait n'était qu'une contrefaçon, une version modifiée par les générations suivantes d'après leur propre compréhension. Ce que Wang Lin convoitait, c'était l'original.
 
@@ -56,7 +56,7 @@ Dans un lieu souterrain, une lueur multicolore jaillit alors que Wang Lin se man
 
 Simultanément, il déploya son Sens Divin pour observer attentivement les environs. C'était le cœur de la nuit et tout était calme. Wang Lin réfléchit un instant avant de foncer vers l'Union de Huo Fen.
 
-Mais avant d'avoir pu parcourir beaucoup de distance, son Sens Divin l'alerta d'un danger extrême. Sans réfléchir, il s'enfonça aussitôt sous terre, utilisant sa technique d'évasion terrestre à son paroxysme. De 99 mètres à 330 mètres en un instant, il continua sa descente sans ralentir.
+Mais avant d'avoir pu parcourir beaucoup de distance, son Sens Divin l'alerta d'un danger extrême. Sans réfléchir, il s'enfonça aussitôt sous terre, utilisant sa technique d'évasion terrestre à son paroxysme. De 300 pieds à 1 000 pieds en un instant, il continua sa descente sans ralentir.
 
 Une vieille voix résonna lentement dans son Sens Divin: « Ce vieillard t'attendait depuis 97 jours pleins, petit gars! »
 
@@ -64,7 +64,7 @@ Le crâne de Wang Lin picota, ses cheveux se hérissèrent et son visage s'assom
 
 « Hehe, heureusement que je suis allé emprunter à quelqu'un ce bateau de terre; sinon, si tu fuyais jusqu'aux abords du cœur de la terre, t'attraper sous cette résistance serait plutôt difficile! » La voix continuait de résonner, sans hâte, dans son Sens Divin.
 
-Wang Lin resta de marbre, changea brusquement de direction et commença à remonter. De 3,3 kilomètres sous terre à 330 mètres, il jaillit à la surface, avec le pic de l'Union de Huo Fen déjà devant lui.
+Wang Lin resta de marbre, changea brusquement de direction et commença à remonter. De 10 000 pieds sous terre à 1 000 pieds, il jaillit à la surface, avec le pic de l'Union de Huo Fen déjà devant lui.
 
 Dès son apparition, il chargea vers la montagne. Un écran de lumière enveloppait le massif. Au moment où il toucha la barrière, il sortit le jade d'identification qui lui avait été confié. Il traversa sans effort la lumière, puis jeta un regard en arrière.
 
@@ -92,7 +92,7 @@ Ce mot, en sortant de sa bouche, se changea en d'immenses vagues qui se propagè
 
 Une fois l'onde sonore dissipée, le vieil homme avait déjà disparu sans laisser de trace. Les cultivateurs se regardèrent, certains saignant du nez et de la bouche. Aucun ne pouvait plus articuler un mot.
 
-Mais le vieil homme revint bientôt. Son visage était sombre comme l'eau alors qu'il fixait la montagne. Il ferma les yeux puis les rouvrit brusquement, déployant son puissant Sens Divin. Il scruta chaque individu parmi plus de dix mille personnes sur la montagne et fouilla même jusqu'à 3,3 kilomètres sous terre. Plus il cherchait, plus il fronçait les sourcils. Finalement, son corps vacilla: d'un seul, il devint deux, puis, d'un nouveau vacillement, de deux il devint quatre.
+Mais le vieil homme revint bientôt. Son visage était sombre comme l'eau alors qu'il fixait la montagne. Il ferma les yeux puis les rouvrit brusquement, déployant son puissant Sens Divin. Il scruta chaque individu parmi plus de dix mille personnes sur la montagne et fouilla même jusqu'à 10 000 pieds sous terre. Plus il cherchait, plus il fronçait les sourcils. Finalement, son corps vacilla: d'un seul, il devint deux, puis, d'un nouveau vacillement, de deux il devint quatre.
 
 Quatre vieux hommes identiques se dispersèrent dans quatre directions, chacun scrutant avec son propre Sens Divin, mais ils ne trouvèrent toujours rien. Le vieil homme tapa du pied et, avec ses trois avatars, se téléporta : chacun alla s'asseoir en position du lotus en un point de l'est, du sud, de l'ouest et du nord de Xuan Wu. Aussitôt, une ligne de blocage de sens divin se forma, reliant les quatre.
 

@@ -88,7 +88,7 @@ Tenant l'épée céleste, il fixa le vieil homme Hu emprisonné et trancha l'air
 
 L'épée noire brilla d'un éclat profond et sembla s'allonger lors de sa descente. Le gaz de restriction s'écarta promptement sous la course de la lumière noire, laissant le vieil homme Hu sans protection. Les tatouages dans ses yeux clignotaient frénétiquement.
 
-En un clin d'œil, les marques disparurent des yeux du vieil homme et une goutte de sang perla de son front, coula le long de son nez et s'écrasa au sol. L'épée céleste s'immobilisa à peine une dizaine de centimètres au-dessus de sa tête.
+En un clin d'œil, les marques disparurent des yeux du vieil homme et une goutte de sang perla de son front, coula le long de son nez et s'écrasa au sol. L'épée céleste s'immobilisa à trois pouces au-dessus de sa tête.
 
 Les yeux de Wang Lin s'animèrent d'une lueur de satisfaction. D'un geste de la main, il fit disparaître l'épée. Sans dire un mot, le vieil homme Hu sortit une fiole, en versa quelques pilules qu'il avala, puis s'assit en tailleur pour méditer.
 
@@ -108,6 +108,6 @@ Le troisième étage était un monde d'un rouge ardent. La terre possédait une 
 
 Le vieil homme Hu déclara d'un ton grave: « Le Cimetière des Immortels est extrêmement dangereux en ce moment. Si le deuxième étage comptait des chamans à cinq feuilles, le troisième pourrait bien abriter des chamans à six feuilles. Nous devons avancer vite et quitter les lieux dès que nous aurons trouvé l'Arbre de Réincarnation. »
 
-Puis, il regarda Wang Lin et poursuivit: « Cultivateur Wang, pour être honnête, Xu Luo et Yun Meng sont les clés nécessaires pour faire apparaître le fruit de la réincarnation. Il reste à chacun d'eux cent ans d'espérance de vie; en sacrifiant soixante ans de leur existence, ils peuvent faire croître le fruit. C'est pour cela que je les ai amenés ici. Plus tard, chacun d'entre nous en prendra un pour trouver l'Arbre de Réincarnation au plus vite. »
+Puis, il regarda Wang Lin et poursuivit: « Daoïste Wang, pour être honnête, Xu Luo et Yun Meng sont les clés nécessaires pour faire apparaître le fruit de la réincarnation. Il reste à chacun d'eux cent ans d'espérance de vie; en sacrifiant soixante ans de leur existence, ils peuvent faire croître le fruit. C'est pour cela que je les ai amenés ici. Plus tard, chacun d'entre nous en prendra un pour trouver l'Arbre de Réincarnation au plus vite. »
 
 Qiu Siping maugréa intérieurement mais n'osa rien dire. Il savait qu'il ne représentait rien aux yeux du vieil homme Hu. Il n'avait plus qu'à faire de son mieux pour suivre le rythme, car s'il était laissé pour compte, sa mort serait certaine.

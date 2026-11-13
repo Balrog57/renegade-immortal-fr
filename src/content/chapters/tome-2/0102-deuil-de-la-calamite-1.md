@@ -14,7 +14,7 @@ Le froid de l'épée était d'une tyrannie absolue. Toutes les plantes environna
 
 Le cultivateur qui tenait le jade contenant l'étincelle d'âme de Wang Lin fut frappé de stupeur. Il n'eut pas le temps de broyer le jade; il ne put que reculer précipitamment. Mais même dans ses rêves les plus fous, il ne s'attendait pas à ce que l'épée volante se mette à bourdonner avant de disparaître soudainement de sa vue. Il lança rapidement des trésors magiques pour se défendre, mais il était déjà trop tard.
 
-L'épée volante réapparut à environ trois mètres du cultivateur et lui transperça la gorge. Le sang jaillit de la blessure. Il pressa ses deux mains contre son cou et s'effondra, le visage figé par l'incrédulité.
+L'épée volante réapparut à dix pieds du cultivateur et lui transperça la gorge. Le sang jaillit de la blessure. Il pressa ses deux mains contre son cou et s'effondra, le visage figé par l'incrédulité.
 
 Wang Lin bondit. Il saisit le jade et le projeta dans son sac de rangement.
 
@@ -78,7 +78,7 @@ Une lueur glaciale passa dans les yeux de Wang Lin. Il déploya son Sens Divin e
 
 Voyant Wang Lin reculer, le jeune homme afficha un regard de mépris. D'un geste de la main, il projeta l'éclat noir vers la poitrine de Wang Lin, visant le cœur.
 
-Wang Lin haussa les sourcils et agita ses manches; une technique d'attraction forma une main gigantesque devant lui. La lueur noire pénétra de quelques centimètres la barrière de la technique avant de se dissiper.
+Wang Lin haussa les sourcils et agita ses manches; une technique d'attraction forma une main gigantesque devant lui. La lueur noire pénétra de quelques pouces la barrière de la technique avant de se dissiper.
 
 Wang Lin lança un regard froid au jeune homme. Grâce à son Sens Divin, il nota que les trois individus cachés dans la jungle accéléraient pour converger vers eux. Ne voulant pas perdre de temps avec eux, il entreprit de s'éloigner rapidement.
 
@@ -86,7 +86,7 @@ Le jeune homme s'irrita. Bien que leurs niveaux de culture fussent tous deux au 
 
 Il faut dire que lors de cette compétition, toutes les sectes avaient distribué de nombreux trésors magiques afin d'accroître la puissance de leurs disciples au stade de l'Établissement des Fondations.
 
-En voyant que Wang Lin était seul, le jeune homme fut pris d'une pulsion meurtrière. Voyant maintenant sa proie tenter de fuir, il frappa son sac de rangement et une règle d'environ vingt-six centimètres s'en échappa.
+En voyant que Wang Lin était seul, le jeune homme fut pris d'une pulsion meurtrière. Voyant maintenant sa proie tenter de fuir, il frappa son sac de rangement et une règle de huit pouces s'en échappa.
 
 Cette règle était d'un vert éclatant et dégageait un parfum puissant dès son apparition. Le jeune homme prit une profonde inspiration et, sans un mot, pointa l'objet vers l'avant. La règle trembla et un énorme champignon noir en jaillit, se détachant pour flotter dans les airs.
 
@@ -112,10 +112,10 @@ Au même moment, trois silhouettes surgirent de la jungle: deux hommes et une fe
 
 Il se tenait actuellement à l'extérieur de la ville, un miroir antique à la main. Ses mains traçaient inlassablement des sceaux tandis qu'il effectuait des calculs.
 
-L'homme en robe noire, empreint d'une intention meurtrière, demanda: « Camarade cultivateur Qiming, avez-vous réussi vos calculs? »
+L'homme en robe noire, empreint d'une intention meurtrière, demanda: « Daoïste Qiming, avez-vous réussi vos calculs? »
 
 Le cultivateur fronça les sourcils: « Teng Huayuan, vous ne connaissez ni le nom ni l'apparence de cet individu. Comment suis-je censé le trouver avec la seule puissance d'une malédiction? »
 
-Le vieillard en robe noire était Teng Huayuan. Il fixa l'autre homme et déclara solennellement: « Camarade cultivateur Qiming, pour obtenir le jeton de qualification du champ de bataille étranger, je n'ai pas hésité à offenser la Vallée Wu Feng, et tout cela pour votre art de prédire les cieux. Si vous parvenez à retrouver les proches parents de cet homme, quelle que soit votre demande, tant que moi, Teng Huayuan, j'en suis capable, je ne froncerai pas même un sourcil. »
+Le vieillard en robe noire était Teng Huayuan. Il fixa l'autre homme et déclara solennellement: « Daoïste Qiming, pour obtenir le jeton de qualification du champ de bataille étranger, je n'ai pas hésité à offenser la Vallée Wu Feng, et tout cela pour votre art de prédire les cieux. Si vous parvenez à retrouver les proches parents de cet homme, quelle que soit votre demande, tant que moi, Teng Huayuan, j'en suis capable, je ne froncerai pas même un sourcil. »
 
-Le cultivateur réfléchit un instant, soupira, puis répondit: « Très bien, je ferai de mon mieux. Mais Camarade Teng, chaque rancune a son responsable. J'espère que vous ne tuerez pas trop... »
+Le cultivateur réfléchit un instant, soupira, puis répondit: « Très bien, je ferai de mon mieux. Mais Daoïste Teng, chaque rancune a son responsable. J'espère que vous ne tuerez pas trop... »

@@ -46,7 +46,7 @@ Une série de grondements s'échappa de la matrice alors qu'une force dévastatr
 
 Les vêtements des centaines de disciples furent violemment projetés en arrière dans un fracas de battements de tissu. Leurs visages étaient pâles, mais aucun ne bougea d'un pouce.
 
-Peu après, un arc-en-ciel large d'environ 330 mètres jaillit soudainement vers le haut, perçant les cieux. Des cercles de lumière commencèrent à se propager dans l'éther, et la majeure partie de la voûte céleste de la planète fut recouverte par cette ondulation de lumière.
+Peu après, un arc-en-ciel large d'environ mille pieds jaillit soudainement vers le haut, perçant les cieux. Des cercles de lumière commencèrent à se propager dans l'éther, et la majeure partie de la voûte céleste de la planète fut recouverte par cette ondulation de lumière.
 
 Les ondulations durèrent la moitié d'un bâton d'encens avant de s'estomper.
 
@@ -72,7 +72,7 @@ Même les vieux monstres qui apparaissaient rarement étaient présents devant l
 
 Mais plus ils se montraient imposants, moins les gens osaient les offenser.
 
-Heureusement, ces puissances se connaissaient toutes; ainsi, même si l'un d'eux revendiquait une zone, personne n'osait troubler son calme. À titre d'exemple, la fille de Xue Zu, Yao Xixue, imposait un respect tel que personne n'avait osé approcher à moins de 330 mètres d'elle.
+Heureusement, ces puissances se connaissaient toutes; ainsi, même si l'un d'eux revendiquait une zone, personne n'osait troubler son calme. À titre d'exemple, la fille de Xue Zu, Yao Xixue, imposait un respect tel que personne n'avait osé approcher à moins de mille pieds d'elle.
 
 Ce jour-là, il ne restait plus que deux jours avant l'ouverture du portail.
 

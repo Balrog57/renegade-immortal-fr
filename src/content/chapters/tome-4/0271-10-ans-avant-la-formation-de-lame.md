@@ -74,7 +74,7 @@ Bien qu'il ait échoué auparavant en tentant de saisir le cycle de la réincarn
 
 Mais une illumination soudaine ne signifie pas avoir tout percé à jour.
 
-On ne peut dire que l'état d'esprit de Wang Lin avait atteint un point tel qu'il pouvait contrôler sa culture. Il y avait une phrase que l'on prononçait souvent dans l'ancien monde de la culture:
+On peut seulement dire que l'état d'esprit de Wang Lin avait atteint un point tel qu'il pouvait contrôler sa culture. Il y avait une phrase que l'on prononçait souvent dans l'ancien monde de la culture:
 
 « Ce que tu vois comme une montagne est une montagne, et ce que tu vois comme de l'eau est de l'eau. »
 

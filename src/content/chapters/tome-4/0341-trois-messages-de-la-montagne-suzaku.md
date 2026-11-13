@@ -34,7 +34,7 @@ Tous suivirent le jeune homme, tout en maintenant une certaine distance. Ils le 
 
 Le vieil homme Hu songea secrètement: « Se pourrait-il qu'un trésor soit apparu dans le Cimetière des Immortels? »
 
-Mais alors même que cette pensée lui traversait l'esprit, son expression changea brusquement lorsqu'il vit le jeune homme survoler une vallée. Ce dernier sembla heurter une force puissante qui le repoussa de plus de trente mètres. Le visage du messager était marqué par la stupeur.
+Mais alors même que cette pensée lui traversait l'esprit, son expression changea brusquement lorsqu'il vit le jeune homme survoler une vallée. Ce dernier sembla heurter une force puissante qui le repoussa de plus de cent pieds. Le visage du messager était marqué par la stupeur.
 
 Le vieil homme Hu se posa sur une montagne voisine. Les autres firent de même et observèrent le jeune homme.
 

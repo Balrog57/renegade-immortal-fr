@@ -26,7 +26,7 @@ Les yeux de Wang Lin s'illuminèrent. Il ne leva pas le bras droit, mais agita d
 
 Le cœur de Wang Lin se calma. L'apparition de cette fissure signifiait qu'il pouvait utiliser sa méthode unique pour se déplacer grâce à sa part de l'héritage.
 
-Il scruta son propre sac de rangement avec son sens divin et eut un ricanement intérieur. Il possédait de nombreux sacs. Celui qui l'inquiétait le plus était celui contenant les instruments magiques vitaux des dix hommes, l'Anneau Hunyuan de Contrôle des Bêtes et les vingt pierres spirituelles de qualité supérieure. Il n'avait pas baissé sa garde une seule seconde depuis qu'il les avait reçus.
+Il scruta son propre sac de rangement avec son sens divin et eut un ricanement intérieur. Il possédait de nombreux sacs. Celui qui l'inquiétait le plus était celui contenant les instruments magiques vitaux des dix hommes, l'anneau de contrôle des bêtes et les vingt pierres spirituelles de qualité supérieure. Il n'avait pas baissé sa garde une seule seconde depuis qu'il les avait reçus.
 
 Il ne croyait pas que ces dix personnes lui permettraient si facilement de conserver ces objets. Ce qu'il avait affirmé auparavant n'était qu'un leurre pour les égarer.
 
@@ -88,7 +88,7 @@ Tuo Sen fit pivoter sa lance. Un sourire sarcastique étira ses lèvres et il di
 
 La tête reliée à la langue ricana: « Tu le découvriras! » Sur ce, elle communiqua avec la créature par un procédé inconnu. Soudain, le corps de cette dernière se mit à bouger et surgit frénétiquement de la Mer des Âmes Mortes. En se lovant, il forma autour de Tuo Sen, pris pour centre, une formation de serpent.
 
-À l'intérieur de cette formation de serpent, les dragons noirs formés par la lance bloquaient la figure irrégulière à plusieurs dizaines de pieds de distance.
+À l'intérieur de cette formation de serpent, les dragons noirs formés par la lance bloquaient la figure irrégulière à plusieurs centaines de pieds de distance.
 
 Tuo Sen se retrouvait ainsi complètement encerclé.
 

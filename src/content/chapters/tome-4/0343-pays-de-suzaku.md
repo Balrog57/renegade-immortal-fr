@@ -13,7 +13,7 @@ Après avoir terminé tout cela, d'un geste de la main droite, Wang Lin fit se c
 
 La zone était entourée d'eaux claires et bleues et d'une verdure luxuriante. Des bêtes spirituelles rôdaient même à proximité. Dans l'eau, quelques carpes aux moustaches très longues glissaient; leurs yeux brillaient d'une étincelle de vie, signe qu'elles avaient manifestement acquis une certaine intelligence.
 
-Hongdie portait une robe rouge dont seule la manche de son bras droit était vide. Assis sur un lotus à une dizaine de mètres face à elle se tenait un homme d'âge moyen, très beau. Il contemplait Hongdie avec tendresse et dit: « Junior sœur Hongdie, je t'ai offert l'esprit de la mer orientale pour que ton bras repousse. Pourquoi ne l'as-tu pas utilisé? »
+Hongdie portait une robe rouge dont seule la manche de son bras droit était vide. Assis sur un lotus à trente pieds face à elle se tenait un homme d'âge moyen, très beau. Il contemplait Hongdie avec tendresse et dit: « Junior sœur Hongdie, je t'ai offert l'esprit de la mer orientale pour que ton bras repousse. Pourquoi ne l'as-tu pas utilisé? »
 
 Hongdie ouvrit les yeux et répondit froidement: « Chaque fois que je contemple ma manche vide, mon envie de tuer Zeng Niu grandit! Tant que je ne l'aurai pas tué, mon bras restera manquant. Senior frère, n'essaie pas de me faire changer d'avis. »
 

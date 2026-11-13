@@ -88,7 +88,7 @@ La puissance de la lance pouvait ébranler les cieux et la terre.
 
 Bang!
 
-Dans un fracas assourdissant, la lance percuta le cocon de chair. Le brouillard de restriction s'y infiltra violemment. Le cocon s'effondra instantanément, et à cet instant précis, Zhan Bai parvint à se dégager précipitamment, en reculant de plus de trente mètres. Il cracha une large bouffée de sang.
+Dans un fracas assourdissant, la lance percuta le cocon de chair. Le brouillard de restriction s'y infiltra violemment. Le cocon s'effondra instantanément, et à cet instant précis, Zhan Bai parvint à se dégager précipitamment, en reculant de plus de cent pieds. Il cracha une large bouffée de sang.
 
 D'innombrables asticots grouillaient dans ce sang; la vue en était révoltante.
 
@@ -138,7 +138,7 @@ Les insectes aux côtés de Zhan Bai poussèrent tous des cris misérables avant
 
 Le regard injecté de sang de Zhan Bai trahissait une pointe de terreur profondément enfouie. Il poussa un rugissement et pointa son front. Le mille-pattes réapparut, et un gaz aux couleurs de l'arc-en-ciel émana du sommet de son crâne.
 
-Ce gaz se transforma presque instantanément en un mille-pattes d'environ 330 mètres de long. Le plus effrayant était qu'une autre tête se trouvait sous la première, et cette tête ressemblait trait pour trait à Zhan Bai.
+Ce gaz se transforma presque instantanément en un mille-pattes d'environ mille pieds de long. Le plus effrayant était qu'une autre tête se trouvait sous la première, et cette tête ressemblait trait pour trait à Zhan Bai.
 
 C'était son âme originelle!
 

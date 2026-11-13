@@ -19,7 +19,7 @@ Li Dannan afficha immédiatement une expression respectueuse et demanda: « Seni
 
 Wang Lin répondit calmement: « Je cherche la pierre Kunmu. En avez-vous entendu parler? »
 
-« La pierre Kunmu... » Li Dannan eut un air pensif avant que ses yeux ne s'illuminent: « S'agit-il de la pierre Kunmu qui possède l'élément bois, mais qui croît comme une pierre et ne gagne que 3,3 centimètres tous les mille ans? »
+« La pierre Kunmu... » Li Dannan eut un air pensif avant que ses yeux ne s'illuminent: « S'agit-il de la pierre Kunmu qui possède l'élément bois, mais qui croît comme une pierre et ne gagne qu'un pouce tous les mille ans? »
 
 Wang Lin fut très surpris que cet homme connaisse la pierre Kunmu. Cela prouvait qu'il en savait long. Cette pierre était l'un des matériaux mentionnés dans les souvenirs de Tu Si pour la fabrication de la boussole stellaire d'un Dieu Ancien.
 
@@ -45,7 +45,7 @@ Tout en marchant, Li Dannan expliqua à Wang Lin les règles du marché libre. N
 
 « Senior, regardez ce cultivateur chauve. Il vient ici tous les quelques années et propose toujours des objets rares. »
 
-« Senior, cet homme vêtu d'une robe de taoïste noire et blanche n'est pas là depuis longtemps, mais tout ce qu'il vend n'est que camelote; il a déjà trompé bien des gens. Il y a quelques jours, j'ai vu quelqu'un le traquer, je ne m'attendais donc pas à le revoir ici. Celui qui le poursuivait a soit échoué, soit péri. »
+« Senior, cet homme vêtu d'une robe de daoïste noire et blanche n'est pas là depuis longtemps, mais tout ce qu'il vend n'est que camelote; il a déjà trompé bien des gens. Il y a quelques jours, j'ai vu quelqu'un le traquer, je ne m'attendais donc pas à le revoir ici. Celui qui le poursuivait a soit échoué, soit péri. »
 
 Wang Lin observait chaque personne que Li Dannan désignait.
 

@@ -16,7 +16,7 @@ Sun Dazhu inspira une grande bouffée d'air froid et murmura pour lui-même: « 
 
 Wang Lin lança un regard profond à Liu Feng. Il avait tout vu de ses yeux. Bien qu'il ait pu déceler la culture de Liu Feng à l'instant où il avait utilisé l'écran d'eau, sans combat réel, Wang Lin restait tout de même stupéfait par cet écran d'eau.
 
-L'Ancien Ouyang de la Secte Xuan Dao sourit et déclara d'une voix forte: « Camarade cultivateur Huang Long, pour ce second tour, c'est à votre tour d'envoyer un disciple en premier. »
+L'Ancien Ouyang de la Secte Xuan Dao sourit et déclara d'une voix forte: « Daoïste Huang Long, pour ce second tour, c'est à votre tour d'envoyer un disciple en premier. »
 
 Le regard de Huang Long balaya les disciples internes. La plupart d'entre eux baissèrent aussitôt la tête, priant intérieurement de ne pas être choisis. Voyant cela, Huang Long fut irrité. Alors qu'il s'apprêtait à prendre la parole, Sun Hao serra les dents et dit: « Chef de secte, bien que ce disciple ne soit pas un génie, je suis prêt à me battre pour ce second tour. »
 

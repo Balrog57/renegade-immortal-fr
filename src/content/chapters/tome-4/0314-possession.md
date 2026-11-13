@@ -38,15 +38,15 @@ Les yeux du vieil homme brillèrent et il le suivit sans tarder.
 
 Hongdie serra les dents. Ses pertes étaient immenses cette fois et elle était très réticente à l'idée de repartir sans rien avoir gagné. Même s'il fallait affronter un repaire de dragons et de tigres, elle devait au moins essayer. Forte de cette résolution, elle se précipita dans le tunnel.
 
-Chi Hu regarda Wang Lin avec un sourire amer. « Frère Ceng, comptez-vous entrer ou allez-vous partir? »
+Chi Hu regarda Wang Lin avec un sourire amer. « Frère Zeng, comptez-vous entrer ou allez-vous partir? »
 
 Wang Lin resta impassible. Il ne répondit pas, mais demanda: « Frère Chi Hu, qui est Zhou Yi? »
 
-L'expression de Chi Hu devint étrange. Il hésita un instant avant de ne rien dire. Au lieu de cela, il envoya une transmission vocale: « Frère Ceng, cet homme est l'un des rares vieux monstres de la Transformation de l'Âme à Suzaku. Son niveau de culture est extrêmement élevé. Cependant, il a un surnom: l'Amoureux des Cadavres. »
+L'expression de Chi Hu devint étrange. Il hésita un instant avant de ne rien dire. Au lieu de cela, il envoya une transmission vocale: « Frère Zeng, cet homme est l'un des rares vieux monstres de la Transformation de l'Âme à Suzaku. Son niveau de culture est extrêmement élevé. Cependant, il a un surnom: l'Amoureux des Cadavres. »
 
 Wang Lin fut stupéfait. « L'Amoureux des Cadavres? »
 
-Chi Hu pressa: « Ne le dites pas à voix haute! S'il vous entend, vous êtes mort, c'est certain. » Il joignit les mains et ajouta: « Frère Ceng, je vais descendre voir par moi-même. Et si nous y allions ensemble? »
+Chi Hu pressa: « Ne le dites pas à voix haute! S'il vous entend, vous êtes mort, c'est certain. » Il joignit les mains et ajouta: « Frère Zeng, je vais descendre voir par moi-même. Et si nous y allions ensemble? »
 
 Wang Lin réfléchit un instant et hocha la tête. Les deux hommes s'élancèrent l'un après l'autre vers le tunnel situé sous le bassin d'eau.
 
@@ -86,7 +86,7 @@ L'expression du vieil homme changea brusquement alors qu'il agitait ses mains. U
 
 Dès que les deux combattants déployèrent leurs techniques, l'énergie spirituelle céleste environnante devint chaotique.
 
-Le vieil homme fixa le tourbillon et éclata d'un rire tonitruant. « La Loi Spirituelle Impériale! Haha, donc tu es Zhou Yi. Cet Amoureux des Cadavres, Zhou Yi. Je me demandais pourquoi tu dégageais une si puissante odeur de mort. »
+Le vieil homme fixa le tourbillon et éclata d'un rire tonitruant. « La Grande Méthode de Contrôle des Esprits! Haha, donc tu es Zhou Yi. Cet Amoureux des Cadavres, Zhou Yi. Je me demandais pourquoi tu dégageais une si puissante odeur de mort. »
 
 Puis il frappa le cercueil, qui émit un bruit strident, semblable à des ongles grattant un couvercle. Ce son était perçant, comme s'il contenait une puissance infinie. Simultanément, une fumée noire s'échappa du cercueil pour former une griffe gigantesque, comme venue des Neuf Abîmes.
 
@@ -144,7 +144,7 @@ Wang Lin, imperturbable, sortit son drapeau de restriction brisé et ricana: « 
 
 « Un drapeau de restriction! » Les yeux du vieil homme s'illuminèrent en fixant le petit drapeau dans la main de Wang Lin. Il prit une profonde inspiration.
 
-« Il ne lui manque qu'une seule restriction pour compléter un ensemble de 99. Cet homme ne ment pas; une fois l'ensemble de 99 atteint, cela attirera la foudre de la Tribulation Céleste... mais ici, ce sera la foudre de la rétribution céleste, encore plus puissante... Une fois qu'elle apparaîtra, personne ne survivra, lui compris. » Le vieil homme laissa transparaître une trace de crainte sur son visage et retira précipitamment sa main.
+« Il ne lui manque qu'une seule restriction pour compléter un ensemble de 99. Cet homme ne ment pas; une fois l'ensemble de 99 atteint, cela attirera la foudre de la Tribulation Céleste... mais ici, ce sera la foudre de la Tribulation Immortelle, encore plus puissante... Une fois qu'elle apparaîtra, personne ne survivra, lui compris. » Le vieil homme laissa transparaître une trace de crainte sur son visage et retira précipitamment sa main.
 
 Wang Lin resta calme et s'arrêta à l'entrée du tunnel, observant les quatre individus de loin.
 

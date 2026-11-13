@@ -82,7 +82,7 @@ Le corps de Teng Xiu Xiu fut secoué par un tressaillement. Le regard qu'elle la
 Wang Lin réfléchit un instant, regarda le soleil couchant à l'horizon et dit lentement: « Wang Hao est-il toujours à la Secte Xuan Dao? »
 Wang Zhuo secoua la tête et répondit amèrement: « Il n'a pas réussi à atteindre la Formation du Noyau... il est déjà... mort. »
 
-Wang Lin ferma les yeux et soupira: « Toi et elle devriez quitter l'État de Zhao. » Sur ce, sans même un regard en arrière, il remonta sur sa bête-moustique.
+Wang Lin ferma les yeux et soupira: « Toi et elle devriez quitter le Pays Zhao. » Sur ce, sans même un regard en arrière, il remonta sur sa bête-moustique.
 
 Chacun a sa propre volonté: la série d'actes de Wang Zhuo avait clairement exprimé sa pensée, il ne voulait pas la mort de Teng Xiu Xiu.
 

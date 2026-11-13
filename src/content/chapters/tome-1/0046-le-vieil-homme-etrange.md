@@ -6,13 +6,13 @@ bookTitle: The Mediocre Youth
 en: Chapter 46 - Strange Old Man
 slug: le-vieil-homme-etrange
 ---
-Wang Lin rangea la bombe puante et regarda Li Shan. Il dit: « Frère Li Shan, je ne vous dérangerai plus, je vous laisse continuer vos ventes. »
+Wang Lin rangea la bombe puante et regarda Li Shan. Il dit: « Senior frère Li Shan, je ne vous dérangerai plus, je vous laisse continuer vos ventes. »
 
-Li Shan hocha la tête. Un sourire amical aux lèvres, il répondit: « Frère, soyez prudent avec ces bombes. N'oubliez pas qu'elles ne fonctionnent pas à tous les coups, car elles exigent une certaine technique de lancer. Si vous échouez, ne dites pas que je vous ai menti! »
+Li Shan hocha la tête. Un sourire amical aux lèvres, il répondit: « Junior frère, soyez prudent avec ces bombes. N'oubliez pas qu'elles ne fonctionnent pas à tous les coups, car elles exigent une certaine technique de lancer. Si vous échouez, ne dites pas que je vous ai menti! »
 
 Sur ce, il reprit ses harangues auprès de la foule.
 
-« Chers frères, j'ai un autre trésor à vous proposer! Il s'agit d'un souvenir de la Secte He Huan. Avec lui, vous pourrez vous rendre à la Secte He Huan pour y trouver une magnifique partenaire de double culture. C'est un objet que j'ai obtenu au prix de lourds efforts, mais cette fois je m'en sépare à contrecœur. Chers frères de la Secte Heng Yue, ne laissez pas passer cette chance! »
+« Chers Senior frères, j'ai un autre trésor à vous proposer! Il s'agit d'un souvenir de la Secte He Huan. Avec lui, vous pourrez vous rendre à la Secte He Huan pour y trouver une magnifique partenaire de double culture. C'est un objet que j'ai obtenu au prix de lourds efforts, mais cette fois je m'en sépare à contrecœur. Chers Senior frères de la Secte Heng Yue, ne laissez pas passer cette chance! »
 
 Wang Lin eut un léger rire. Il fit volte-face et regagna le jardin des herbes médicinales. Peu de temps après, il y fut arrivé. Après avoir inspecté les lieux et constaté l'absence de Sun Dazhu, il s'assit en tailleur dans sa chambre et sortit les trois bombes puantes pour les examiner.
 

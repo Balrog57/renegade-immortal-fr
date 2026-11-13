@@ -14,7 +14,7 @@ Un éclair de froideur passa dans les yeux de Wang Zhuo. Il laissa échapper un 
 
 Le père de Tie Zhu eut soudain l'impression d'avoir vieilli de plus de dix ans et s'effondra sur sa chaise. La mère de Tie Zhu était également sous le choc; elle n'arrivait pas à croire ce qui se passait. Elle demanda d'une voix tremblante: « Tie Zhu, est-ce... est-ce vrai? »
 
-Tie Zhu se mordit les lèvres jusqu'au sang. Il s'effondra au sol et se prosterna plusieurs fois en faisant des kowtows. Il murmura: « Maman, Papa, Tie Zhu n'a pas été choisi par les immortels. Je suis désolé, je... Je vous revaudrai votre éducation dans une prochaine vie. »
+Tie Zhu se mordit les lèvres jusqu'au sang. Il s'effondra au sol et se prosterna plusieurs fois en frappant le sol du front. Il murmura: « Maman, Papa, Tie Zhu n'a pas été choisi par les immortels. Je suis désolé, je... Je vous revaudrai votre éducation dans une prochaine vie. »
 
 La mère de Tie Zhu réalisa que son fils sombrait dans le désespoir. Elle se précipita pour l'aider à se relever et lui murmura: « Mon enfant, ne t'inquiète pas. Et si tu n'as pas été choisi par les immortels? L'année prochaine, il y aura l'examen du district. Ne sois pas si dur envers toi-même. Et surtout, ne fais rien de stupide. Ton père et ta mère comptent encore sur ta présence à nos funérailles. »
 

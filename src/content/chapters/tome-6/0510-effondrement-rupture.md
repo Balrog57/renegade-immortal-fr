@@ -44,7 +44,7 @@ Aussitôt, le jade se mit à bourdonner et s'élança dans la vallée tel un ray
 
 Alors que le jade rouge plongeait dans la vallée, le bourdonnement redoubla d'intensité et des filaments de soie rouge s'en échappèrent. Après une brève suspension, un rugissement tonitruant retentit et le jade commença à se mouvoir de façon mystérieuse. En un instant, sa vitesse augmenta jusqu'à ce qu'il semble se dissoudre en d'innombrables filaments. Ces traînées écarlates chargèrent vers le jeune homme qui luttait encore faiblement.
 
-La soie rouge se déplaça avec une célérité extrême pour atteindre la proie en un clin d'œil. Au lieu de pénétrer le corps du jeune homme, les filaments s'entrelacèrent pour former un filet qui encercla l'homme et le sol sur plusieurs mètres autour de lui.
+La soie rouge se déplaça avec une célérité extrême pour atteindre la proie en un clin d'œil. Au lieu de pénétrer le corps du jeune homme, les filaments s'entrelacèrent pour former un filet qui encercla l'homme et le sol sur plusieurs dizaines de pieds autour de lui.
 
 À cet instant, les yeux de l'ancien Shi Fang s'illuminèrent et il cria: « Scelle! »
 
@@ -90,9 +90,9 @@ Dès l'apparition de ce gaz, le visage de Shi Fang devint extrêmement livide.
 
 Le petit ancien, le visage sombre, demanda en détachant chaque mot: « Monsieur, qui êtes-vous? »
 
-Sans attendre de réponse, il poussa un rugissement, sa main droite toucha son sac de rangement et un miroir de bronze apparut dans sa paume. Il lança le miroir en l'air, lequel grandit soudainement jusqu'à atteindre un mètre de large, libérant une lumière verte qui enveloppa le gaz gris.
+Sans attendre de réponse, il poussa un rugissement, sa main droite toucha son sac de rangement et un miroir de bronze apparut dans sa paume. Il lança le miroir en l'air, lequel grandit soudainement jusqu'à atteindre trois pieds de large, libérant une lumière verte qui enveloppa le gaz gris.
 
-Au moment où l'ancien lançait le miroir, Shi Fang, dont la coopération avec le petit ancien était parfaite après tant d'années, forma un sceau de ses deux mains sans hésiter. L'épée précieuse sur son dos s'élança dans les airs et flotta horizontalement au-dessus de sa tête, tandis qu'une illusion de lame gigantesque, longue d'une trentaine de mètres, apparaissait au-dessus d'elle.
+Au moment où l'ancien lançait le miroir, Shi Fang, dont la coopération avec le petit ancien était parfaite après tant d'années, forma un sceau de ses deux mains sans hésiter. L'épée précieuse sur son dos s'élança dans les airs et flotta horizontalement au-dessus de sa tête, tandis qu'une illusion de lame gigantesque, longue de cent pieds, apparaissait au-dessus d'elle.
 
 Shi Fang hurla: « Tranche! »
 

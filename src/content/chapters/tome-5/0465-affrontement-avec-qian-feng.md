@@ -58,7 +58,7 @@ Une bourrasque soudaine surgit et chargea en avant. Ce vent semblait capable de 
 
 Wang Lin laissa échapper un reniflement froid, frappa son sac de rangement et quatre fourreaux d'épée identiques apparurent devant lui.
 
-Une lueur de froideur traversa le regard de Wang Lin alors qu'il pointait l'avant; les quatre fourreaux s'élancèrent comme des météores. Quatre rayons d'énergie d'épée jaillirent des fourreaux, mesurant chacun plus d'un mètre de long et dégageant une intention d'épée capable de faire trembler le ciel.
+Une lueur de froideur traversa le regard de Wang Lin alors qu'il pointait l'avant; les quatre fourreaux s'élancèrent comme des météores. Quatre rayons d'énergie d'épée jaillirent des fourreaux, mesurant chacun plus de trois pieds de long et dégageant une intention d'épée capable de faire trembler le ciel.
 
 « Brisez! » Les yeux de Wang Lin devinrent glacials alors que les quatre fourreaux, chargés d'intention d'épée, fonçaient sur leur cible.
 
@@ -68,7 +68,7 @@ Privés de l'obstacle de l'éventail, les deux âmes primaires se déplacèrent 
 
 Le visage de Qian Feng était livide. Il se retourna brusquement et cria: « Zeng Niu, ne me force pas! » En rugissant, il expulsa un rayon de lumière verte qui se mua en un morceau de bois verdoyant.
 
-Ce bois dégageait une aura étrange, puis grandit soudainement pour atteindre une épaisseur d'environ trente-trois mètres.
+Ce bois dégageait une aura étrange, puis grandit soudainement pour atteindre une épaisseur d'environ cent pieds.
 
 Le visage de Qian Feng était pâle lorsqu'il hurla: « Sculpte! »
 

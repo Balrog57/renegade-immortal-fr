@@ -119,7 +119,7 @@ Le visage de Wang Lin se fit grave. Cette fois, le messager céleste semblait s'
 
 Les deux mains géantes arrivèrent rapidement. L'une tendit l'assaut vers Wang Lin, l'autre vers son corps originel.
 
-Le corps originel poussa un rugissement et grandit instantanément pour devenir un géant de plus de trente mètres. Les trois étoiles sur son front se mirent à tourner frénétiquement alors qu'il lançait un coup de poing.
+Le corps originel poussa un rugissement et grandit instantanément pour devenir un géant de plus de cent pieds de haut. Les trois étoiles sur son front se mirent à tourner frénétiquement alors qu'il lançait un coup de poing.
 
 Bang!
 

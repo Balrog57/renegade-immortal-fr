@@ -84,7 +84,7 @@ Il n'y avait pas qu'une seule fleur, mais tout un champ. On en comptait au moins
 
 Sous les fleurs se trouvaient des fruits ovales de la taille d'un pouce. Ces fruits étaient d'un or sombre et parsemés d'innombrables granules. De loin, reliés les uns aux autres, ils ressemblaient à des raisins. Ils paraissaient très ordinaires, sans distinction notable de fruits sauvages communs.
 
-« Le Fruit d'Or Brillant! C'est bel et bien le Fruit d'Or Brillant! » Les yeux des deux Anciens s'illuminèrent instantanément. Ils n'entrèrent pas immédiatement dans la vallée, préférant l'examiner avec prudence. Finalement, leurs regards se posèrent sur un buisson d'herbe sauvage situé à 3,3 mètres des fruits.
+« Le Fruit d'Or Brillant! C'est bel et bien le Fruit d'Or Brillant! » Les yeux des deux Anciens s'illuminèrent instantanément. Ils n'entrèrent pas immédiatement dans la vallée, préférant l'examiner avec prudence. Finalement, leurs regards se posèrent sur un buisson d'herbe sauvage situé à dix pieds des fruits.
 
 Une petite pile de feuilles pourries reposait sur ce buisson. À première vue, rien d'inhabituel; après tout, ces feuilles étaient omniprésentes ici. Soudain, un vent étrange souffla dans la vallée, faisant bruisser l'herbe.
 
@@ -96,7 +96,7 @@ Au moment où elles s'élevèrent, ce qui fut révélé sur leur revers était c
 
 « Cent Fruits d'Or Brillants ont naturellement des gardiens féroces. La présence de l'Insecte des Neuf Multitudes ici n'est guère surprenante! Cependant, pour traiter avec ces insectes, il faut deux appâts! » Les yeux du petit Ancien brillèrent tandis que son regard se posait sur Qian Qin et l'homme en robe blanche à ses côtés, affichant un sourire cruel.
 
-À cet instant, personne ne remarqua qu'une silhouette féroce flottait à 3,3 kilomètres de là, les observant. Sur le dos de cette silhouette siégeait une personne au regard glacial; sa froideur était telle qu'aucune trace de chaleur n'en émanait.
+À cet instant, personne ne remarqua qu'une silhouette féroce flottait à dix mille pieds de là, les observant. Sur le dos de cette silhouette siégeait une personne au regard glacial; sa froideur était telle qu'aucune trace de chaleur n'en émanait.
 
 « C'est clairement la Racine d'Esprit Dorée. Que signifie ce terme de Fruit d'Or Brillant? Je suppose que ces gens ne comprennent pas vraiment comment utiliser ce trésor et croient que le fruit en est l'essence. Ils ne réalisent pas que, comparé à la Racine d'Esprit Dorée, le fruit est insignifiant! » Les yeux de Wang Lin s'illuminèrent. Bien que le nom du Fruit d'Or Brillant lui soit inconnu, il parvint à retrouver sa trace dans les souvenirs de Tu Si après l'avoir vu.
 

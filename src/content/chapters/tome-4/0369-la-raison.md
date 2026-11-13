@@ -137,7 +137,7 @@ Sans un mot, Sun Tai fit volte-face et s'engouffra dans la faille.
 
 L'expression de l'homme d'âge moyen était troublée. Il hésita un instant, puis resta immobile.
 
-Comment l'ancêtre du Clan Ju Mo pouvait-il laisser ce "morceau de choix" lui être volé ainsi? Il poussa un rugissement alors que son corps craquait et qu'il grandissait soudainement pour atteindre plus de 33 mètres de haut. Une hache gigantesque apparut dans sa main. Après avoir poursuivi Sun Tai dans la faille, il abattit son arme, provoquant un grondement tonitruant dans le vide.
+Comment l'ancêtre du Clan Ju Mo pouvait-il laisser ce "morceau de choix" lui être volé ainsi? Il poussa un rugissement alors que son corps craquait et qu'il grandissait soudainement pour atteindre plus de cent pieds de haut. Une hache gigantesque apparut dans sa main. Après avoir poursuivi Sun Tai dans la faille, il abattit son arme, provoquant un grondement tonitruant dans le vide.
 
 Une immense vague d'énergie de hache jaillit, assombrissant le visage de Sun Tai. Il savait que le Clan Ju Mo était une puissance redoutable. Sa main droite traça un sceau qu'il projeta contre l'onde de choc.
 

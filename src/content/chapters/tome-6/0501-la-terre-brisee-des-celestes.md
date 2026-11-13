@@ -18,7 +18,7 @@ La montagne centrale était d'un blanc immaculé. Lorsque la lumière du soleil 
 
 Quelques taches de verdure étaient parsemées sur la montagne, ce qui la rendait encore plus magnifique!
 
-Aucun sentier ne marquait la montagne; elle n'était que pure blancheur. Cette neige était la Neige des Neuf Fantômes, qui ne fondrait pas avant cent mille ans. Il serait impossible pour un mortel de s'en approcher, car s'il pénétrait dans un rayon de 3,3 kilomètres, son corps gèlerait instantanément et deviendrait un cadavre de glace.
+Aucun sentier ne marquait la montagne; elle n'était que pure blancheur. Cette neige était la Neige des Neuf Fantômes, qui ne fondrait pas avant cent mille ans. Il serait impossible pour un mortel de s'en approcher, car s'il pénétrait dans un rayon de dix mille pieds, son corps gèlerait instantanément et deviendrait un cadavre de glace.
 
 Tandis que Wang Lin se trouvait dans le nuage aux sept couleurs, il pouvait clairement ressentir l'aura glaciale qui circulait à l'extérieur.
 
@@ -86,7 +86,7 @@ Le vent glacial hurlait et la neige le glaçait jusqu'aux os. À mesure que Wang
 
 Aucune empreinte ne se formait sur la neige blanche. Toute la montagne ressemblait à un gigantesque cristal blanc. Si un mortel possédait un trésor pour se protéger du froid, il n'aurait tout de même aucun moyen d'avancer, car il n'y aurait aucune prise pour ses pieds.
 
-Mais pour Wang Lin, ses pieds ne touchaient jamais la montagne. Il flottait à un mètre au-dessus de la surface en progressant vers le haut.
+Mais pour Wang Lin, ses pieds ne touchaient jamais la montagne. Il flottait à trois pieds au-dessus de la surface en progressant vers le haut.
 
 Il n'était pas impossible d'utiliser la téléportation ici, mais puisque Tian Yunzi avait déclaré qu'il s'agissait d'un test, utiliser la téléportation signifierait l'échec.
 
@@ -98,7 +98,7 @@ Néanmoins, ce genre d'épreuve n'était rien de nouveau pour Wang Lin. Dans la 
 
 Le temps passa lentement. À mesure qu'il approchait du sommet, l'aura glaciale devenait plus intense et la lumière autour du corps de Wang Lin s'intensifiait encore. Lorsqu'il fut à cent pas du sommet, il s'arrêta et cessa d'avancer.
 
-Il prit une profonde inspiration et, au moment où il expira, une série de craquements retentit. Son souffle se transforma en grains de glace à un mètre de sa bouche dans un crépitement net.
+Il prit une profonde inspiration et, au moment où il expira, une série de craquements retentit. Son souffle se transforma en grains de glace à trois pieds de sa bouche dans un crépitement net.
 
 Simultanément, l'aura glaciale s'engouffra dans sa bouche et son nez. Cette aura ne disparut que lentement, aidée par l'énergie spirituelle céleste à l'intérieur de son corps.
 
@@ -108,7 +108,7 @@ Wang Lin leva la tête. À cent pas de là, au sommet de la montagne, se dressai
 
 À l'instant où ses pieds rencontrèrent la roche, il sentit une absence totale de friction. Les yeux de Wang Lin se durcirent; il laissa échapper un reniflement de mépris et avança son pied droit d'un pas en apparence léger.
 
-Mais dans un grand fracas, le pied droit de Wang Lin s'enfonça de trente-trois centimètres dans le sol, créant une assise solide.
+Mais dans un grand fracas, le pied droit de Wang Lin s'enfonça d'un pied dans le sol, créant une assise solide.
 
 À cet instant précis, une aura glaciale inimaginable jaillit du sol. Cette froideur était plusieurs fois plus intense que tout ce qu'il avait connu jusqu'alors. L'aura pénétra son corps par son pied et se précipita vers sa poitrine à travers ses méridiens.
 
@@ -116,6 +116,6 @@ Mais alors que l'aura glaciale traversait le corps de Wang Lin, un sens divin é
 
 « Cette aura glaciale n'est pas plus froide que mon propre cœur. Si elle ne peut geler mon cœur, comment pourrait-elle geler mon âme ou mon corps? C'est une plaisanterie! » Wang Lin ricana en faisant un autre pas.
 
-La froideur sur son visage devint la chose la plus glaciale de toute la montagne. Le vent froid disparut à un mètre de lui, et la neige s'effaça à dix centimètres au-dessus de sa tête.
+La froideur sur son visage devint la chose la plus glaciale de toute la montagne. Le vent froid disparut à trois pieds de lui, et la neige s'effaça à trois pouces au-dessus de sa tête.
 
 Wang Lin ancra ses pas dans la glace, un à un, dans un bruit de chocs sourds, en marchant droit vers le sommet.

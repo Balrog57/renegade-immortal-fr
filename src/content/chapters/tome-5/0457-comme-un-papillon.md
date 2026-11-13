@@ -42,7 +42,7 @@ C'est pourquoi, dès son entrée, il ne perdit pas un instant et se précipita d
 
 À ce moment précis, un vieil homme se tenait déjà sur la montagne spirituelle. Bien qu'il paraisse ordinaire, ses yeux dégageaient une lueur rouge sang. Un petit singe était perché sur son épaule, et le reflet écarlate dans les yeux du singe était encore plus intense.
 
-Le vieil homme se tenait au sommet de la montagne spirituelle. Dans le vide surplombant la cime, une porte émettait une lumière dorée aveuglante. Cette porte mesurait plus de 300 mètres de haut et montait jusqu'au ciel; une fissure, semblable à une cicatrice, venait d'y apparaître.
+Le vieil homme se tenait au sommet de la montagne spirituelle. Dans le vide surplombant la cime, une porte émettait une lumière dorée aveuglante. Cette porte mesurait plus de mille pieds de haut et montait jusqu'au ciel; une fissure, semblable à une cicatrice, venait d'y apparaître.
 
 La rougeur dans les yeux du vieil homme s'intensifia alors qu'il contemplait la porte. Il esquissa un sourire sinistre, s'assit et commença à cultiver. Sur son épaule, le singe scrutait les environs d'un regard belliqueux.
 
@@ -72,7 +72,7 @@ La hache déchira le ciel, provoquant une bourrasque de vent titanesque et une s
 
 Bien que son orgueil eût déplu à beaucoup, bien que son impitoyabilité eût rendu tout rapprochement difficile, elle était Hongdie! L'orgueilleuse Hongdie!
 
-La hache convergeait vers elle. Lorsqu'elle fut à moins de trente-trois mètres, elle libéra une force destructrice. À cet instant, si Hongdie avait voulu résister ou esquiver, elle en avait le pouvoir. Pourtant, elle ne fit ni l'un ni l'autre. Ses yeux brillaient de plus en plus et la fierté qui les habitait se renforçait sans cesse.
+La hache convergeait vers elle. Lorsqu'elle fut à moins de cent pieds, elle libéra une force destructrice. À cet instant, si Hongdie avait voulu résister ou esquiver, elle en avait le pouvoir. Pourtant, elle ne fit ni l'un ni l'autre. Ses yeux brillaient de plus en plus et la fierté qui les habitait se renforçait sans cesse.
 
 Cependant, mêlée à cet orgueil, une pointe de regret subsistait. Bien qu'elle fût soigneusement dissimulée, Wang Lin la perçut malgré tout.
 

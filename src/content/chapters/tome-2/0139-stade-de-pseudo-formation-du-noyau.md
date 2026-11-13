@@ -136,7 +136,7 @@ Wang Lin fixa le corps, une idée lui traversant l'esprit. Il prit le sac de ran
 
 Wang Lin saisit le noyau doré et l'avala sans hésiter. Puis, il frappa légèrement le sol du pied, disparut de l'endroit et s'enfonça dans la terre.
 
-Il descendit à plus de 3 000 mètres sous terre et s'assit en tailleur pour digérer le noyau. Celui-ci se dissipa instantanément, libérant une vague d'énergie spirituelle dans son corps.
+Il descendit à dix mille pieds sous terre et s'assit en tailleur pour digérer le noyau. Celui-ci se dissipa instantanément, libérant une vague d'énergie spirituelle dans son corps.
 
 Cette énergie était trop puissante pour sa constitution actuelle; il se mit à saigner du nez et de la bouche. Wang Lin pressa son front et la perle défiant le ciel apparut. Il s'en saisit et disparut dans l'espace de la perle.
 

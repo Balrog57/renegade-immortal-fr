@@ -60,13 +60,13 @@ La femme hocha doucement sa jolie tête et demanda: « Est-ce bien le cultivateu
 
 Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mains et répondit: « Je suis Zeng Niu. »
 
-« Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte Ren Dao Xian. Mon nom de famille est Bai et mon prénom est Xue. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs d'un mètre, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
+« Cher Daoïste Zeng, cette jeune fille est une disciple de la Secte Ren Dao Xian. Mon nom de famille est Bai et mon prénom est Xue. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs de trois pieds, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
 
 « Mon maître m'a ordonné de vous attendre ici, afin de vous conduire jusqu'à lui. »
 
 L'expression de Wang Lin resta impassible. Il la regarda et demanda: « La Secte Ren Dao Xian? »
 
-Bai Xue acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Hongdie. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte Ren Dao Xian est chargée de votre accueil. »
+Bai Xue acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le Daoïste Zeng et Hongdie. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte Ren Dao Xian est chargée de votre accueil. »
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
@@ -80,17 +80,17 @@ Feng Yushan regarda la grue avec envie avant de quitter l'autel pour s'envoler v
 
 Bai Xue jetait parfois des regards furtifs à Wang Lin. Au cours des dernières années, le nom de Zeng Niu était devenu célèbre. En voyant Wang Lin, elle ne put s'empêcher d'éprouver une pointe de déception. Elle était certaine que ce Zeng Niu possédait un talent hors du commun, mais en le voyant ainsi, il paraissait extrêmement ordinaire.
 
-Après un long silence, Bai Xue demanda doucement: « Cher cultivateur Ceng, quelle est votre certitude quant à votre combat contre Hongdie? »
+Après un long silence, Bai Xue demanda doucement: « Cher Daoïste Zeng, quelle est votre certitude quant à votre combat contre Hongdie? »
 
 Wang Lin détourna son regard de la vue sur Suzaku et secoua la tête: « Aucune certitude! »
 
-Bai Xue fut stupéfaite, mais elle sourit: « Le cultivateur Ceng n'a pas besoin de faire preuve de modestie. »
+Bai Xue fut stupéfaite, mais elle sourit: « Le Daoïste Zeng n'a pas besoin de faire preuve de modestie. »
 
 Wang Lin ne prêta plus attention à la femme et observa attentivement le paysage en contrebas. Il mémorisa avec soin la configuration des lieux, car sa tablette de jade cartographique n'offrait qu'une description très vague de Suzaku.
 
 Bien que Wang Lin soupçonnât secrètement que Suzaku tentait de le recruter comme disciple central, il restait sur ses gardes.
 
-Il réfléchit un instant et demanda: « Chère cultivatrice Bai Xue, quelles sont les sectes présentes à Suzaku? »
+Il réfléchit un instant et demanda: « Chère Daoïste Bai Xue, quelles sont les sectes présentes à Suzaku? »
 
 La voix de Bai Xue était mélodieuse. Après ses explications, Wang Lin eut une vision globale du pays.
 
@@ -124,7 +124,7 @@ Peu de temps après, la grue pénétra dans une montagne dont la forme rappelait
 
 Wang Lin descendit de l'oiseau.
 
-Une fois au sol, Bai Xue murmura: « Cher cultivateur Ceng, ceci n'est pas la Secte Ren Dao Xian, mais la grotte immortelle personnelle de mon maître. Il est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Mon maître vous recevra lorsqu'il sera prêt. »
+Une fois au sol, Bai Xue murmura: « Cher Daoïste Zeng, ceci n'est pas la Secte Ren Dao Xian, mais la grotte immortelle personnelle de mon maître. Il est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Mon maître vous recevra lorsqu'il sera prêt. »
 
 Sur ces mots, elle joignit les mains devant Wang Lin et disparut parmi les habitations.
 

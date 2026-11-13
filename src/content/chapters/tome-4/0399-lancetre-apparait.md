@@ -54,7 +54,7 @@ Un rictus aux lèvres, Wang Lin poussa un rugissement, chargea son poing et frap
 
 Boum!
 
-Un bruit assourdissant fit trembler la terre et d'innombrables fissures apparurent. Cette brèche se propagea dans toutes les directions, sur 330 mètres à la ronde, et s'enfonça rapidement dans les profondeurs du sous-sol.
+Un bruit assourdissant fit trembler la terre et d'innombrables fissures apparurent. Cette brèche se propagea dans toutes les directions, sur mille pieds à la ronde, et s'enfonça rapidement dans les profondeurs du sous-sol.
 
 Des craquements sourds résonnèrent longtemps sous la terre avant de s'éteindre.
 
@@ -76,7 +76,7 @@ Wang Lin éclata de rire. Loin de reculer, il envoya son propre poing pour percu
 
 Boum!
 
-L'onde de choc projeta roches et sable dans toutes les directions. L'ancêtre fut repoussé d'une dizaine de mètres, ses os du poing droit fissurés par l'impact. Son visage était marqué par l'incrédulité.
+L'onde de choc projeta roches et sable dans toutes les directions. L'ancêtre fut repoussé de plusieurs dizaines de pieds, ses os du poing droit fissurés par l'impact. Son visage était marqué par l'incrédulité.
 
 Le corps de Wang Lin ne recula que de quelques pas et son bras trembla légèrement. Il sentit une force colossale pénétrer son corps pour tenter de le déchirer, mais celle-ci fut promptement dissipée par son âme originelle.
 
@@ -96,13 +96,13 @@ Un nouveau tonnerre assourdissant secoua tout le Clan Ju Mo.
 
 Le visage de l'ancêtre rougit légèrement. Il utilisa la force de l'impact pour s'éloigner rapidement.
 
-Wang Lin ressentit une douleur dans son poing droit et recula d'une dizaine de mètres avant de s'arrêter. Il prit une profonde inspiration. Cet ancêtre n'avait pas terminé sa possession et pourtant son corps était déjà presque comparable à celui d'un Dieu Ancien à trois étoiles. S'il parvenait à achever sa possession, sa puissance physique ne serait guère inférieure à celle d'un tel dieu.
+Wang Lin ressentit une douleur dans son poing droit et recula de plusieurs dizaines de pieds avant de s'arrêter. Il prit une profonde inspiration. Cet ancêtre n'avait pas terminé sa possession et pourtant son corps était déjà presque comparable à celui d'un Dieu Ancien à trois étoiles. S'il parvenait à achever sa possession, sa puissance physique ne serait guère inférieure à celle d'un tel dieu.
 
 Le visage de l'ancêtre était sombre. Lorsqu'il avait vu Wang Lin détruire les douze piliers, il avait choisi de rester caché. Mais maintenant que Wang Lin l'avait débusqué, le combat était inévitable.
 
 Wang Lin fixa l'ancêtre du regard et chargea une nouvelle fois.
 
-L'ancêtre poussa un rugissement alors que son corps grandissait pour devenir un géant de plus de trente mètres de haut. Sans hésiter, il mobilisa l'énergie spirituelle céleste, enveloppant son corps d'une lueur dorée. La quantité d'énergie spirituelle céleste que Li Yuanfeng pouvait manipuler n'était rien en comparaison; après tout, l'ancêtre du Clan Ju Mo avait atteint le stade initial de la Transformation de l'Âme par ses propres moyens.
+L'ancêtre poussa un rugissement alors que son corps grandissait pour devenir un géant de plus de cent pieds de haut. Sans hésiter, il mobilisa l'énergie spirituelle céleste, enveloppant son corps d'une lueur dorée. La quantité d'énergie spirituelle céleste que Li Yuanfeng pouvait manipuler n'était rien en comparaison; après tout, l'ancêtre du Clan Ju Mo avait atteint le stade initial de la Transformation de l'Âme par ses propres moyens.
 
 « Ce vieil homme ne voulait pas utiliser l'énergie spirituelle céleste, car cela perturberait ma possession. Autrement, je t'aurais tué instantanément! Puisque tu me forces à l'utiliser, tu ne fais que réclamer la mort! » hurla l'ancêtre, tandis que la lumière dorée sur son corps devenait aveuglante comme un soleil.
 

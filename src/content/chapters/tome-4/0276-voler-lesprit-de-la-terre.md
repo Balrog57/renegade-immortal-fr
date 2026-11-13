@@ -76,7 +76,7 @@ Caché dans une montagne de neige, Wang Lin vérifia la perle défiant le ciel e
 
 À cet instant précis, le sol trembla et d'innombrables sculptures de glace représentant des serpents dotés de têtes humaines émergèrent de la terre.
 
-Ces sculptures étaient les objets mystérieux que Wang Lin avait découverts enfouis à plus de 16,5 kilomètres sous la surface.
+Ces sculptures étaient les objets mystérieux que Wang Lin avait découverts enfouis à 50 000 pieds sous la surface.
 
 Une à une, les sculptures s'élevèrent à travers le sol enneigé. Si l'on observait la scène d'en haut, on aurait remarqué que ces statues formaient un dessin cohérent. Cette image était identique aux serpents à tête humaine dépeints sur les sculptures de glace elles-mêmes.
 

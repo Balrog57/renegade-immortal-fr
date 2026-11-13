@@ -30,7 +30,7 @@ Un fracas capable de briser le ciel et la terre, résonnant jusqu'aux plus haute
 
 Wang Lin sentit la puissance dévastatrice de la hache. Son corps trembla, du sang s'échappa de sa bouche et il recula prestement.
 
-Il recula de trois cent trente mètres.
+Il recula de mille pieds.
 
 L'ancêtre du Clan Ju Mo cracha une bouchée de sang, mais ses pieds semblaient enracinés au sol, le maintenant immobile. Cependant, son corps se rétracta rapidement en perdant un tiers de sa taille initiale.
 
@@ -42,7 +42,7 @@ Un rugissement jaillit de la bouche de l'ancêtre du Clan Ju Mo. Il était déso
 
 Tout en reculant, le regard de Wang Lin devint glacial. Sa main traça un sceau et il s'écria: « Étendard de l'Âme! »
 
-Le ciel s'obscurcit comme si toute la lumière s'était concentrée devant Wang Lin. Un drapeau d'âme d'une dizaine de mètres de haut, brillant comme une flamme dans les ténèbres, apparut dans sa main.
+Le ciel s'obscurcit comme si toute la lumière s'était concentrée devant Wang Lin. Un drapeau d'âme de trente pieds de haut, brillant comme une flamme dans les ténèbres, apparut dans sa main.
 
 La bannière elle-même était bien plus large. Elle ondulait dans l'air sans qu'aucun vent ne souffle, parsemée de douze points d'un or violacé.
 

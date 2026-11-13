@@ -40,7 +40,7 @@ Cependant, à cet instant précis, une salve de symboles dorés jaillit comme l'
 
 La jeune fille en violet regarda les cultivateurs de la Formation du Noyau, le visage blême. Elle agita son étendard et le brouillard dissimula sa silhouette.
 
-Simultanément, les dix cultivateurs de la Formation du Noyau de la Secte Dou Xie arrivèrent devant la brume. L'un des vieillards, de petite taille, dont la tête était nettement plus massive que celle d'un homme ordinaire, se frotta le crâne et ricana d'un ton sinistre: « Cette petite fille appartient à ce vieil homme. Il ne me manquait qu'un fourneau de culture. » Sur ces mots, il lécha ses lèvres, forma une main gigantesque et tenta de saisir la brume. Pourtant, au moment où sa main toucha le brouillard, celui-ci se mit à rouler avec densité et un immense dragon de plus de 3,3 kilomètres de long en jaillit d'un bond.
+Simultanément, les dix cultivateurs de la Formation du Noyau de la Secte Dou Xie arrivèrent devant la brume. L'un des vieillards, de petite taille, dont la tête était nettement plus massive que celle d'un homme ordinaire, se frotta le crâne et ricana d'un ton sinistre: « Cette petite fille appartient à ce vieil homme. Il ne me manquait qu'un fourneau de culture. » Sur ces mots, il lécha ses lèvres, forma une main gigantesque et tenta de saisir la brume. Pourtant, au moment où sa main toucha le brouillard, celui-ci se mit à rouler avec densité et un immense dragon de plus de dix mille pieds de long en jaillit d'un bond.
 
 Le cultivateur à la tête imposante poussa un cri et recula brusquement, les yeux écarquillés par la surprise. Les autres cultivateurs de la Formation du Noyau manifestèrent également leur étonnement en fixant le brouillard.
 

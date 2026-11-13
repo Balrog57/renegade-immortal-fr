@@ -26,9 +26,9 @@ Le tourbillon tournait de plus en plus vite, signe que la percée était imminen
 
 Wang Lin en était encore à la phase finale de sa progression. Le tourbillon pivotait avec une telle célérité qu'il ressemblait à une nébuleuse. Bien qu'il paraisse très lent de l'extérieur, il tournait en réalité trop vite pour que l'œil puisse le percevoir.
 
-Jusqu'à minuit, moment où l'énergie Yin est la plus dense, le corps de Wang Lin demeura tel un trou noir. Sous l'effet de la rotation du tourbillon en lui, toute l'énergie Yin dans un rayon de trente-trois mètres autour de son corps était aspirée avec frénésie.
+Jusqu'à minuit, moment où l'énergie Yin est la plus dense, le corps de Wang Lin demeura tel un trou noir. Sous l'effet de la rotation du tourbillon en lui, toute l'énergie Yin dans un rayon de cent pieds autour de son corps était aspirée avec frénésie.
 
-Dans un rayon de trente-trois mètres autour de Wang Lin, c'était un véritable broyeur pour l'énergie Yin. Toute cette énergie était dévorée à une vitesse folle.
+Dans un rayon de cent pieds autour de Wang Lin, c'était un véritable broyeur pour l'énergie Yin. Toute cette énergie était dévorée à une vitesse folle.
 
 La masse colossale d'énergie Yin était absorbée par Wang Lin et instantanément ajoutée au tourbillon en son sein. Celui-ci grandissait de plus en plus, jusqu'à presque dépasser les limites du corps de Wang Lin, croissant sans mesure. Wang Lin fut aussitôt pris de court; il voulut l'arrêter, mais s'aperçut que le tourbillon en lui échappait déjà à son contrôle et qu'il ne pouvait que le regarder grossir sans cesse. Une pointe d'inquiétude l'envahit, car le phénomène qui se produisait dans son corps n'était nullement consigné dans la Méthode d'Ascension des Enfers.
 
@@ -36,25 +36,25 @@ Wang Lin ignorait que si la Méthode d'Ascension des Enfers était appelée tech
 
 Situ Nan étant toujours endormi, Wang Lin devait faire face à cette situation seul.
 
-À mesure que le tourbillon s'étirait, la force d'aspiration augmentait proportionnellement, et le rayon de trente-trois mètres s'élargit rapidement. C'était un cercle vicieux: plus la portée était grande, plus l'énergie Yin absorbée l'était massive, et plus l'énergie Yin était abondante, plus le tourbillon croissait vite, accélérant encore l'absorption.
+À mesure que le tourbillon s'étirait, la force d'aspiration augmentait proportionnellement, et le rayon de cent pieds s'élargit rapidement. C'était un cercle vicieux: plus la portée était grande, plus l'énergie Yin absorbée l'était massive, et plus l'énergie Yin était abondante, plus le tourbillon croissait vite, accélérant encore l'absorption.
 
-Soixante-six mètres, quatre-vingt-dix-neuf mètres, cent soixante-cinq mètres, deux cent trente et un mètres, trois cent trente mètres...
+Deux cents pieds, trois cents pieds, cinq cents pieds, sept cents pieds, mille pieds...
 
-Toute l'énergie Yin dans un rayon de trois cent trente mètres se mit à s'agiter violemment en se précipitant vers Wang Lin. Ce mouvement massif affecta toute l'énergie Yin dans un rayon de 3,3 kilomètres, la faisant bouger comme si une main géante la guidait.
+Toute l'énergie Yin dans un rayon de mille pieds se mit à s'agiter violemment en se précipitant vers Wang Lin. Ce mouvement massif affecta toute l'énergie Yin dans un rayon de dix mille pieds, la faisant bouger comme si une main géante la guidait.
 
 Wang Lin avait déjà totalement perdu le contrôle du tourbillon et, après un temps indéterminé, son dantian s'ouvrit dans un grondement sourd.
 
-C'était la deuxième fois que son dantian s'ouvrait et, tout comme la première fois, un trou noir apparut aussitôt en son sein, dans lequel le tourbillon d'énergie Yin s'enfonça. Cette anomalie dans le corps de Wang Lin provoqua immédiatement un changement dans toute l'énergie Yin attirée dans un rayon de trois cent trente mètres.
+C'était la deuxième fois que son dantian s'ouvrait et, tout comme la première fois, un trou noir apparut aussitôt en son sein, dans lequel le tourbillon d'énergie Yin s'enfonça. Cette anomalie dans le corps de Wang Lin provoqua immédiatement un changement dans toute l'énergie Yin attirée dans un rayon de mille pieds.
 
 Si Wang Lin absorbait auparavant l'énergie Yin environnante de manière continue, cette aspiration la dévorait désormais avec une faim insatiable.
 
-En un instant, toute l'énergie Yin dans un rayon de trois cent trente mètres fut engloutie par le trou noir et devint une zone de vide; ce changement soudain provoqua une perturbation encore plus vaste. Bientôt, le tourbillon passa de trois cent trente à quatre cent quatre-vingt-quinze mètres, puis six cent soixante, neuf cent quatre-vingt-dix, un kilomètre six cent cinquante, deux kilomètres trois cent dix mètres, pour finalement dépasser les trois kilomètres.
+En un instant, toute l'énergie Yin dans un rayon de mille pieds fut engloutie par le trou noir et devint une zone de vide; ce changement soudain provoqua une perturbation encore plus vaste. Bientôt, le tourbillon passa de mille à quinze cents pieds, puis deux mille, trois mille, cinq mille, sept mille, pour finalement dépasser les dix mille pieds.
 
 Si l'on observait la scène depuis le ciel, on aurait été témoin d'un spectacle terrifiant: toute l'énergie Yin convergeait violemment vers un point central unique.
 
 Dans les profondeurs des ruines, l'étrange être à la peau bleue tenait le cadavre d'une bête et en arrachait la chair à belles dents. Il venait d'avaler un morceau de viande encore relié à des vaisseaux sanguins lorsqu'il tourna soudainement la tête vers Wang Lin, affichant une expression d'effroi. Il jeta précipitamment sa nourriture et courut vers Wang Lin comme un lapin terrifié.
 
-Après quelques pas seulement, il ralentit, remarquant que toute l'énergie Yin des environs filait vers l'avant. Il hésita un instant, puis reprit sa course, avant de s'immobiliser à près de dix kilomètres de Wang Lin, le visage plus pétrifié encore.
+Après quelques pas seulement, il ralentit, remarquant que toute l'énergie Yin des environs filait vers l'avant. Il hésita un instant, puis reprit sa course, avant de s'immobiliser à trente mille pieds de Wang Lin, le visage plus pétrifié encore.
 
 Quant à Wang Lin, dès qu'il eut réussi sa percée, toute l'énergie spirituelle transformée se rassembla rapidement dans le trou noir de son dantian pour fusionner.
 
@@ -84,7 +84,7 @@ La masse d'énergie Yin s'éleva lentement du dantian en forme de tourbillon et,
 
 La Mer de Qi était comme un puits sans fond qui absorbait rapidement l'énergie Yin du tourbillon. Wang Lin tenta de percer encore et encore, mais échoua à chaque fois, le temps s'allongeant peu à peu. Le ciel commençait doucement à s'éclaircir.
 
-L'énergie Yin dans un rayon de 3,3 kilomètres se dissipa lentement jusqu'à disparaître totalement.
+L'énergie Yin dans un rayon de dix mille pieds se dissipa lentement jusqu'à disparaître totalement.
 
 La Mer de Qi dans sa poitrine demeurait close. Wang Lin garda désormais une impression très profonde de la difficulté extrême du taux de réussite de la percée, décrite dans la Méthode d'Ascension des Enfers. Il avait tenté d'ouvrir sa Mer de Qi plus de cent fois, échouant systématiquement et perdant à chaque échec une partie de l'énergie Yin.
 

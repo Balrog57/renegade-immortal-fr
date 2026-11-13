@@ -14,7 +14,7 @@ Boum! Boum! Boum!
 
 Le visage de l'ancêtre du Clan Ju Mo pâlit tandis qu'il crachait une large bouchée de sang, son corps s'affaiblissant. Sans la moindre hésitation, il frappa son sac de rangement, faisant apparaître l'épée céleste. Son expression devint féroce lorsqu'il hurla: « Wang Lin, accepte ta mort! » Puis, il projeta l'épée céleste et la pointa du doigt.
 
-Le corps de Wang Lin fut projeté en arrière comme une météorite. Tout son bras droit était douloureux et engourdi; il avait totalement perdu toute sensation dans ce membre. La force combinée du corps de l'ancêtre du Clan Ju Mo et de l'énergie spirituelle céleste lui infligea de lourds dommages, faisant passer son corps d'un géant d'une trentaine de mètres à sa taille normale, bien que ses yeux brillaient toujours intensément.
+Le corps de Wang Lin fut projeté en arrière comme une météorite. Tout son bras droit était douloureux et engourdi; il avait totalement perdu toute sensation dans ce membre. La force combinée du corps de l'ancêtre du Clan Ju Mo et de l'énergie spirituelle céleste lui infligea de lourds dommages, faisant passer son corps d'un géant d'une centaine de pieds à sa taille normale, bien que ses yeux brillaient toujours intensément.
 
 Au moment où l'épée céleste apparut, un gaz noir s'en échappa, prenant la forme de Xu Liguo. Le visage de l'ancêtre du Clan Ju Mo était féroce lorsqu'il cria: « Tranche! »
 
@@ -74,7 +74,7 @@ Dans un fracas assourdissant, les 3,3 kilomètres environnants se transformèren
 
 « Bête de flammes noires! » cria-t-il tout en enfonçant la torche dans le sol. Il activa ensuite l'énergie céleste de son corps et commença à tracer des sceaux qu'il projeta tous sur la torche.
 
-La torche noire se mit rapidement à émettre une lumière démoniaque. Toutes les flammes environnantes commencèrent à converger mystérieusement vers elle, s'accumulant au-dessus de la torche pour former une bête d'une trentaine de mètres de haut.
+La torche noire se mit rapidement à émettre une lumière démoniaque. Toutes les flammes environnantes commencèrent à converger mystérieusement vers elle, s'accumulant au-dessus de la torche pour former une bête d'une centaine de pieds de haut.
 
 Cette créature possédait une tête massive et un corps couvert d'épines enflammées. Elle ressemblait quelque peu à un ours, sans toutefois en être un véritablement.
 

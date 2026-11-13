@@ -48,7 +48,7 @@ Wang Lin observa le vieillard, ferma le poing de sa main droite et lança un cou
 
 Boum!
 
-Dans un fracas assourdissant, le vieil homme fut repoussé de plus de dix mètres. Son visage pâlit, marqué par l'incrédulité. Les autres anciens pourpres virent leurs expressions changer radicalement, maudissant intérieurement la scène.
+Dans un fracas assourdissant, le vieil homme fut repoussé de plusieurs dizaines de pieds. Son visage pâlit, marqué par l'incrédulité. Les autres anciens pourpres virent leurs expressions changer radicalement, maudissant intérieurement la scène.
 
 Wang Lin n'avait même pas bougé. Il regarda le vieillard et reprit: « Tu n'en es toujours pas digne! »
 
@@ -116,7 +116,7 @@ Les yeux de Wang Lin s'illuminèrent. Il apparut soudainement devant l'un des pi
 
 Boum!
 
-Le pilier noir vola en éclats, créant une onde de choc dévastatrice. Le corps de Wang Lin fut repoussé de plus de dix mètres et son poing droit commença à saigner.
+Le pilier noir vola en éclats, créant une onde de choc dévastatrice. Le corps de Wang Lin fut repoussé de plusieurs dizaines de pieds et son poing droit commença à saigner.
 
 « Le premier pilier! » Les yeux de Wang Lin étincelèrent. Lors de son combat contre Li Yuanfeng, il n'avait pas pu utiliser toute la puissance de son corps de Dieu Ancien à trois étoiles. À cet instant, ses yeux étaient empreints d'une intention de combat pure. Il lécha le sang sur son poing droit et chargea vers le pilier suivant.
 
@@ -138,7 +138,7 @@ Wang Lin poussa un rugissement et se déplaça comme l'éclair pour asséner d'a
 
 « Le dernier pilier. Chi Hu, regarde bien! » Alors que la voix de Wang Lin résonnait dans les cieux, le dernier pilier frappa.
 
-Cette fois, Wang Lin ne lança pas un coup de poing; dans un rugissement, son corps grandit soudainement pour devenir un géant de plus de trente mètres de haut.
+Cette fois, Wang Lin ne lança pas un coup de poing; dans un rugissement, son corps grandit soudainement pour devenir un géant de plus de cent pieds de haut.
 
 Boum!
 

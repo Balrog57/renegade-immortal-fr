@@ -116,7 +116,7 @@ D'une voix pesante, Yun Quezi dit: « Zhu Quezi! »
 
 Au moment où il prononça ces mots, le corps de Qian Feng se mit à trembler violemment et des filaments de lumière blanche s'échappèrent de ses orifices, hors de son contrôle. Cette lumière fut aussitôt absorbée par la poupée de bronze.
 
-Les yeux de Qian Feng étaient pétris de terreur. Il leva soudainement sa main droite, qui tenait un morceau de jade, et l'écrasa avec force. Une puissance mystérieuse jaillit du jade et le projeta à plus de trente mètres en arrière. Les filaments de lumière blanche se brisèrent instantanément, et un peu moins de la moitié d'entre eux retourna dans son corps.
+Les yeux de Qian Feng étaient pétris de terreur. Il leva soudainement sa main droite, qui tenait un morceau de jade, et l'écrasa avec force. Une puissance mystérieuse jaillit du jade et le projeta à cent pieds en arrière. Les filaments de lumière blanche se brisèrent instantanément, et un peu moins de la moitié d'entre eux retourna dans son corps.
 
 La poupée de bronze, ayant absorbé une quantité massive de lumière blanche, fondit pour devenir un bassin de bronze liquide. Cependant, le métal semblait bouillir, dégageant des volutes de gaz rouge qui prirent la forme de Zhu Quezi.
 

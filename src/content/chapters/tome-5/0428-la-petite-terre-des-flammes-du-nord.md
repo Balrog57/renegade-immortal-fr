@@ -96,7 +96,7 @@ Les yeux de Situ Nan s'illuminèrent. Il s'arrêta, laissa échapper un rire et 
 
 Le sol trembla instantanément alors qu'une lumière cristalline commençait à s'accumuler avant de s'élancer.
 
-Situ Nan rit en saisissant Wang Lin, puis il se déplaça à 330 mètres de là et fixa le quatrième ancêtre.
+Situ Nan rit en saisissant Wang Lin, puis il se déplaça à mille pieds de là et fixa le quatrième ancêtre.
 
 Au moment où le quatrième ancêtre arriva, tout le ciel fut recouvert d'une lumière blanche. Cette lueur, très brillante, portait une puissance mystérieuse qui frappa le corps du quatrième ancêtre. Une lumière rouge apparut aussitôt sous sa peau.
 

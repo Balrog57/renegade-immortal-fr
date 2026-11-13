@@ -14,7 +14,7 @@ Sur la cinquième couche, Wang Lin remarqua trois Arbres de Réincarnation, au s
 
 Le regard de Wang Lin se glaça, puis il se téléporta vers l'un d'eux.
 
-Cependant, dès qu'il apparut près de l'Arbre de Réincarnation, son expression changea et il disparut. Lorsqu'il réapparut, il se trouvait à 330 mètres de là.
+Cependant, dès qu'il apparut près de l'Arbre de Réincarnation, son expression changea et il disparut. Lorsqu'il réapparut, il se trouvait à mille pieds de là.
 
 Les plantes semblables à des algues avaient commencé à bouger dès son apparition, pour finir par s'entrechoquer à l'endroit où Wang Lin se tenait précédemment.
 
@@ -74,7 +74,7 @@ Même le Clan Xian Yi n'aurait jamais imaginé qu'un cultivateur Ascendant puiss
 
 Après tout, hormis Yun Quezi, il n'y avait que trois cultivateurs Ascendants sur la planète. Zhu Quezi se trouvait au Mont Suzaku, Chu Yunfei avait fui la planète, et le dernier Ascendant de la Secte Di Po était gravement blessé et se remettait dans un lieu secret.
 
-S'il n'y avait pas eu de cultivateurs Ascendants, les défenses préparées pour la Nécropole Immortelle auraient suffi à repousser toute intrusion.
+S'il n'y avait pas eu de cultivateurs Ascendants, les défenses préparées pour le Cimetière des Immortels auraient suffi à repousser toute intrusion.
 
 De la sixième à la dixième couche, Wang Lin fit une récolte prodigieuse. S'il ignorait l'utilité des crânes, il n'avait pas prévu que le Clan Xian Yi possédât de telles réserves de pierres spirituelles.
 
@@ -96,7 +96,7 @@ Pour élever une race en captivité, il faut naturellement la nourrir...
 
 Wang Lin possédait désormais 19 crânes. Après les avoir soigneusement rangés, il contempla l'entrée de la onzième couche et commença à hésiter.
 
-Il ignorait combien de couches composaient la Nécropole Immortelle et, sans son âme Ascendante, il n'aurait jamais pu progresser autant. Il manquait de confiance pour affronter cette onzième étape.
+Il ignorait combien de couches composaient le Cimetière des Immortels et, sans son âme Ascendante, il n'aurait jamais pu progresser autant. Il manquait de confiance pour affronter cette onzième étape.
 
 Pourtant, un sentiment mystérieux lui soufflait que quelque chose dans cette couche l'appelait. Wang Lin eut un sourire froid; au lieu de s'élancer tête baissée, il entreprit de dresser une formation.
 

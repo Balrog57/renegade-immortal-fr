@@ -36,7 +36,7 @@ Alors que les membres des sectes et familles environnantes s'apprêtaient à exp
 
 Song Qing et Liu Fei échangèrent un regard, puis se tournèrent vers les Anciens. Tous les Anciens tentèrent de réfléchir à qui pourrait être en train de briser le goulot d'étranglement de l'Âme Naissante en ce moment même, mais ne trouvèrent personne; ils secouèrent tous la tête.
 
-En conséquence, le visage des deux hommes s'assombrit lentement. Song Qing, le teint sombre, déclara d'une voix lente: « Je vous prie de m'excuser, camarade cultivateur Sima. Même moi, je suis curieux de savoir qui est ce cultivateur. Si nous pouvons l'inviter, nous ne manquerons pas de le présenter à tous. » Une pointe d'obscurité perçait dans sa voix, particulièrement sur le mot « inviter », qui résonnait avec une lourdeur menaçante.
+En conséquence, le visage des deux hommes s'assombrit lentement. Song Qing, le teint sombre, déclara d'une voix lente: « Je vous prie de m'excuser, Daoïste Sima. Même moi, je suis curieux de savoir qui est ce cultivateur. Si nous pouvons l'inviter, nous ne manquerons pas de le présenter à tous. » Une pointe d'obscurité perçait dans sa voix, particulièrement sur le mot « inviter », qui résonnait avec une lourdeur menaçante.
 
 Dès que ces mots furent lâchés, les sourcils de tous les cultivateurs se relevèrent. S'il n'y avait personne au sein de la Secte Yun Tian tentant d'atteindre l'Âme Naissante, la situation allait devenir très intéressante.
 
@@ -54,7 +54,7 @@ Une épaisse couche d'air glacial s'échappa des crevasses, plongeant soudaineme
 
 Il se tourna vers les autres sur la place. Bien qu'une douzaine de cultivateurs de l'Âme Naissante affichassent des visages calmes, leurs regards trahissaient leur gravité.
 
-Liu Fei laissa échapper un grognement glacial. Il se déplaça comme l'éclair pour s'engouffrer dans les fissures en criant: « Ce cultivateur utilise ma Secte Yun Tian pour atteindre l'Âme Naissante? Pense-t-il que nous nous laissons marcher dessus? »
+Liu Fei laissa échapper un grognement glacial. Il se déplaça comme l'éclair pour s'engouffrer dans les fissures en criant: « Quel Daoïste utilise ma Secte Yun Tian pour atteindre l'Âme Naissante? Pense-t-il que nous nous laissons marcher dessus? »
 
 À peine eut-il pénétré dans la faille qu'un cri retentit de l'intérieur. Ce cri, émis par Liu Fei juste après avoir fini sa phrase, était empreint de terreur et de panique. En conséquence, tous les cultivateurs de l'Âme Naissante environnants reculèrent. Ils fixaient la fissure avec gravité, comme si un démon antique se tapissait en dessous.
 
@@ -78,7 +78,7 @@ Song Qing prit une inspiration sifflante. Il fit signe à un Ancien. Au moment o
 
 Le cœur de Song Qing tressaillit soudainement. Il eut la sensation d'être totalement percé à jour. Il n'avait ressenti cela que face aux ancêtres de la secte. Terrifié, il ne put s'empêcher de reculer de quelques pas. Quant à l'Ancien, son sort était pire encore: il lâcha le jade et n'osa plus bouger, sentant que toute tentative supplémentaire entraînerait des conséquences inimaginables.
 
-Song Qing prit une grande inspiration. Il regarda Liu Fei, retenu par la main droite du jeune homme, puis se força au calme: « Camarade cultivateur, tout ceci est un malentendu! Un simple malentendu! »
+Song Qing prit une grande inspiration. Il regarda Liu Fei, retenu par la main droite du jeune homme, puis se força au calme: « Daoïste, tout ceci est un malentendu! Un simple malentendu! »
 
 Ce jeune homme aux cheveux blancs était Wang Lin. Son regard balaya la foule. Lorsqu'il posa les yeux sur Li Muwan, une lueur de tendresse traversa son regard. Il leva sa main gauche et ordonna: « Viens! »
 

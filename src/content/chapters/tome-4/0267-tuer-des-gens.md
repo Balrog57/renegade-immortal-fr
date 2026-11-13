@@ -88,7 +88,7 @@ Sa main droite bougea d'un mouvement qui semblait lent, mais qui fut en réalit�
 
 Wang Lin ne daigna même pas un regard à la fuite; il se retourna et poussa un rugissement silencieux. Sous l'effet de ce cri, une fumée noire apparut au-dessus de sa tête. Sa forme de dévoreur d'âmes jaillit et engloutit immédiatement l'Âme Naissante qui tentait de s'enfuir.
 
-La neige tombante n'osait plus approcher Wang Lin: dans un rayon de 330 mètres autour de lui, chaque flocon semblait s'écarter, comme si aucun ne voulait défier ce démon.
+La neige tombante n'osait plus approcher Wang Lin: dans un rayon de mille pieds autour de lui, chaque flocon semblait s'écarter, comme si aucun ne voulait défier ce démon.
 
 Cet homme en noir n'aurait pas dû mourir, mais il n'aurait pas dû s'en prendre à un démon vieux de quatre cents ans. S'il l'avait su, il aurait amèrement regretté sa décision.
 

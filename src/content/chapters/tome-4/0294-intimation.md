@@ -16,7 +16,7 @@ C'était la Porte du Royaume Céleste de la Pluie; cependant, une empreinte de m
 
 Sous la porte se trouvaient d'innombrables plateformes brisées. Plusieurs personnes étaient déjà là, occupant presque chacune sa propre plateforme.
 
-À l'arrivée des six compagnons, les lumières qui les entouraient disparurent, les projetant en avant. Wang Lin recula légèrement et se posa sur une plateforme d'une trentaine de mètres de large. Quant aux cinq autres, chacun choisit également une plateforme pour s'y établir.
+À l'arrivée des six compagnons, les lumières qui les entouraient disparurent, les projetant en avant. Wang Lin recula légèrement et se posa sur une plateforme d'une centaine de pieds de large. Quant aux cinq autres, chacun choisit également une plateforme pour s'y établir.
 
 Il observa les environs et son cœur ne put s'empêcher de rater un battement lorsqu'il remarqua que toutes ces plateformes, malgré leurs tailles différentes, présentaient la même texture. En examinant attentivement les bords de certaines d'entre elles, il vit qu'elles s'emboîtaient parfaitement.
 
@@ -30,7 +30,7 @@ Après un moment, plusieurs autres personnes apparurent et se posèrent sur dive
 
 Peu à peu, à mesure que les arrivées se multipliaient, les plateformes manquèrent.
 
-L'un des jeunes vêtus de noir regarda autour de lui et constata qu'aucune autre plateforme n'était disponible; il se posa donc sur l'une d'elles, aux côtés d'une vieille femme. Cette plateforme mesurait environ cent mètres de large. Loin de ne pouvoir accueillir que deux personnes, elle avait assez d'espace pour en loger vingt.
+L'un des jeunes vêtus de noir regarda autour de lui et constata qu'aucune autre plateforme n'était disponible; il se posa donc sur l'une d'elles, aux côtés d'une vieille femme. Cette plateforme mesurait plus de trois cents pieds de large. Loin de ne pouvoir accueillir que deux personnes, elle avait assez d'espace pour en loger vingt.
 
 Mais dès que le jeune homme eut atterri, les yeux de la vieille femme s'illuminèrent et elle lança d'une voix rauque: « Dégage! »
 

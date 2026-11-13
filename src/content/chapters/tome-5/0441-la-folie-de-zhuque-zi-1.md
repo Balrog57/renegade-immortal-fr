@@ -72,7 +72,7 @@ Liu Mei était toujours aussi belle. Sa robe de gaze blanche lui donnait l'allur
 
 La silhouette de Zhu Quezi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « La planète Suzaku ne peut repousser le Clan Xian Yi. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
 
-À ce moment précis, les nuages noirs se refermèrent comme des vagues furieuses. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 330 mètres de Zhu Quezi. « Zhu Quezi, je suis le cinquième ancêtre du Clan Xian Yi. »
+À ce moment précis, les nuages noirs se refermèrent comme des vagues furieuses. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 1 000 pieds de Zhu Quezi. « Zhu Quezi, je suis le cinquième ancêtre du Clan Xian Yi. »
 
 Une autre personne émergea du nuage noir de l'ouest. Cet homme paraissait très jeune et son corps entier était couvert de tatouages; cependant, ces derniers n'étaient pas noirs, mais dorés!
 
@@ -80,7 +80,7 @@ Si Wang Lin avait été présent, il l'aurait reconnu d'un seul coup d'œil.
 
 L'individu dit lentement: « Le jeune maître du Clan Xian Yi salue Zhu Quezi. »
 
-Trois personnes sortirent du nuage noir du sud. Elles comblèrent la distance en un pas et s'arrêtèrent à 330 mètres de Zhu Quezi.
+Trois personnes sortirent du nuage noir du sud. Elles comblèrent la distance en un pas et s'arrêtèrent à 1 000 pieds de Zhu Quezi.
 
 Deux d'entre elles étaient dans un état illusoire. Elles fixaient Zhu Quezi sans dire un mot. La troisième était une femme. Elle était très belle et son regard exhalait un certain charme. Elle regarda Zhu Quezi, esquissa un sourire et dit: « Cette jeune fille est la troisième ancêtre du Clan Xian Yi, et ces deux-là sont les esprits ancestraux de mon clan. »
 
@@ -116,7 +116,7 @@ L'expression de Zhu Quezi devint sombre alors qu'il se mouvait. Sa vitesse étai
 
 « Sceau de Suzaku, attaque! » La voix antique de Zhu Quezi résonna depuis le vide.
 
-Lorsqu'il réapparut, il se trouvait déjà dans les airs, la main droite pointée vers l'avant. Le ciel s'obscurcit tandis qu'une immense quantité de flammes jaillit de son corps. Les flammes recouvrirent tout dans un rayon de 3 300 mètres autour de lui, et le sol commença à montrer des signes de calcination.
+Lorsqu'il réapparut, il se trouvait déjà dans les airs, la main droite pointée vers l'avant. Le ciel s'obscurcit tandis qu'une immense quantité de flammes jaillit de son corps. Les flammes recouvrirent tout dans un rayon de 10 000 pieds autour de lui, et le sol commença à montrer des signes de calcination.
 
 À l'exception d'Yun Quezi et du premier ancêtre, tous reculèrent rapidement pour éviter l'impact des flammes.
 

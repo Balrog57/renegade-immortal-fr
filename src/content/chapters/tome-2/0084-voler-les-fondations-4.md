@@ -36,7 +36,7 @@ Situ Nan hurla: « Fou! Tu es complètement fou! » Sans tenir compte de l'oppos
 
 Un regard féroce s'empara de son visage. Sans accorder un regard à la grande épée, il contrôla sa petite épée pour contourner les couches défensives et la fit surgir devant Teng Li.
 
-Teng Li paniqua. Sa grande épée se trouvait déjà à moins de dix centimètres au-dessus de la tête de Wang Lin. Un filet de sang coula du front de ce dernier. Wang Lin ne cilla même pas; il eut un rictus féroce et lâcha: « Meurs! »
+Teng Li paniqua. Sa grande épée se trouvait déjà à moins de trois pouces au-dessus de la tête de Wang Lin. Un filet de sang coula du front de ce dernier. Wang Lin ne cilla même pas; il eut un rictus féroce et lâcha: « Meurs! »
 
 L'épée verte fulgura. Elle perça l'armure et le corps de Teng Li, ressortant par son dos en laissant derrière elle une traînée de sang.
 

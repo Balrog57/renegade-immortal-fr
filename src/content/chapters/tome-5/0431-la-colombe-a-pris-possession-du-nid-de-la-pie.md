@@ -26,7 +26,7 @@ Ce jour-là, Wang Lin émergea d'un réseau de transfert dans la partie ouest du
 
 Le ciel au-dessus du pays était sombre. Bien qu'il fût en plein jour, la lumière semblait être totalement absorbée par les nuages noirs. De loin, on ne pouvait faire la différence avec la nuit.
 
-Ce qui frappait véritablement le regard, c'était cette plante surgissant de la Nécropole Immortelle et perçant les cieux. En l'observant de si près, elle était terrifiante et donnait un sentiment d'insignifiance absolue.
+Ce qui frappait véritablement le regard, c'était cette plante surgissant du Cimetière des Immortels et perçant les cieux. En l'observant de si près, elle était terrifiante et donnait un sentiment d'insignifiance absolue.
 
 On pouvait voir des membres du Clan Xian Yi planer dans le ciel, suivis par des cultivateurs. Tous ces derniers arboraient des tatouages sur leur corps et leurs yeux étaient ternes. En plus de cela, d'innombrables plantes mystérieuses poussaient à travers le pays. Ces végétaux se déplaçaient d'une manière sinistre et croissaient à une vitesse fulgurante.
 
@@ -46,9 +46,9 @@ Initialement, Wang Lin voulait quitter ces lieux pour se rendre sur le champ de 
 
 « En ce moment, la majorité des membres du Clan Xian Yi sont concentrés sur le continent Suzaku. Je crains qu'il n'en reste plus beaucoup ici… »
 
-« La dernière fois que j'y suis allé, je n'ai atteint que la troisième couche. Ce Clan Xian Yi doit avoir accumulé énormément de richesses au cours de ces dizaines de milliers d'années. Puisque je m'apprête à quitter cette planète, je devrais aller vérifier cela pour préparer l'avenir! » Les yeux de Wang Lin s'illuminèrent et il se tourna soudainement vers la Nécropole Immortelle.
+« La dernière fois que j'y suis allé, je n'ai atteint que la troisième couche. Ce Clan Xian Yi doit avoir accumulé énormément de richesses au cours de ces dizaines de milliers d'années. Puisque je m'apprête à quitter cette planète, je devrais aller vérifier cela pour préparer l'avenir! » Les yeux de Wang Lin s'illuminèrent et il se tourna soudainement vers le Cimetière des Immortels.
 
-Il vola à toute allure et, en un clin d'œil, arriva au-dessus de l'orifice menant à la Nécropole Immortelle. L'aura de la plante était encore plus puissante de près. Elle était si immense qu'elle recouvrait entièrement l'entrée de la Nécropole. Wang Lin ne semblait qu'une insignifiante fourmi face à cette plante.
+Il vola à toute allure et, en un clin d'œil, arriva au-dessus de l'orifice menant au Cimetière des Immortels. L'aura de la plante était encore plus puissante de près. Elle était si immense qu'elle recouvrait entièrement l'entrée du Cimetière. Wang Lin ne semblait qu'une insignifiante fourmi face à cette plante.
 
 En contemplant ce végétal gigantesque, il eut soudain une pensée. Il forma alors un sceau de la main droite et se dissimula.
 
@@ -82,7 +82,7 @@ D'une simple pensée, tous les fragments se rassemblèrent autour de lui pour fo
 
 Wang Lin chargea alors la plante sans aucune hésitation. Cette fois, il sentit une sensation de froid balayer son corps en traversant le végétal pour pénétrer à l'intérieur.
 
-L'intérieur de la plante était un monde éclatant et scintillant. Un gaz noir s'échappait de la Nécropole Immortelle et était absorbé par la plante.
+L'intérieur de la plante était un monde éclatant et scintillant. Un gaz noir s'échappait du Cimetière des Immortels et était absorbé par la plante.
 
 Les environs étaient d'un silence absolu. Wang Lin leva les yeux et constata que plus il montait dans la plante, plus les éclats cristallins se multipliaient. Cela semblait infini; il ne pouvait voir le sommet, n'apercevant que des structures semblables à des grottes dans les branches de ce végétal.
 
@@ -102,7 +102,7 @@ Le chaman à six feuilles sauta dans l'entrée et les cultivateurs le suivirent 
 
 Cette strate était plus lumineuse que les précédentes. Le chaman à six feuilles reprit sa forme de visage géant, enveloppa tous les cultivateurs dans une brume noire et s'envola au loin. Wang Lin fut lui aussi emporté avec eux. Grâce à son niveau de culture, le chaman ne remarqua rien.
 
-Le chaman se déplaçait très vite; après le temps d'écoulement d'un bâton d'encens, ils arrivèrent au centre de la quatrième couche. Un Arbre de la Réincarnation, d'environ un mètre d'épaisseur et dix mètres de haut, s'y trouvait.
+Le chaman se déplaçait très vite; après le temps d'écoulement d'un bâton d'encens, ils arrivèrent au centre de la quatrième couche. Un Arbre de la Réincarnation, épais comme un homme et haut de plus de trente pieds, s'y trouvait.
 
 Cependant, cet arbre était étrange: au lieu de branches, une lumière ovale flottait au sommet. À l'intérieur de cette lumière était assis un vieil homme aux yeux clos, totalement nu, présentant un trou de la taille d'un poing dans la poitrine. Son corps était couvert de tatouages et une plante à huit feuilles scintillait lentement sur son front.
 

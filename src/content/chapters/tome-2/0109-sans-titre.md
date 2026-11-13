@@ -24,9 +24,9 @@ L'expression du vieil homme laissait transparaître son mépris pour Wang Lin. I
 
 En voyant que Wang Lin ne sortait qu'un insignifiant petit point de lumière, un sourire condescendant s'étira sur son visage. Il cria à ses disciples: « Reculez tous, et regardez comment je vais détruire cet insolent gamin! »
 
-Il agita la main, et une petite ombrelle d'environ dix centimètres apparut dans sa paume. De nombreux symboles de flammes dorées ornaient l'objet, lui conférant une beauté singulière.
+Il agita la main, et une petite ombrelle d'environ trois pouces apparut dans sa paume. De nombreux symboles de flammes dorées ornaient l'objet, lui conférant une beauté singulière.
 
-À ces mots et en voyant l'ombrelle, les visages des autres disciples de la Vallée Wu Feng changèrent. Ils reculèrent instinctivement; certains s'éloignèrent même de plus de dix mètres avant de se détendre légèrement.
+À ces mots et en voyant l'ombrelle, les visages des autres disciples de la Vallée Wu Feng changèrent. Ils reculèrent instinctivement; certains s'éloignèrent même de plus de cent pieds avant de se détendre légèrement.
 
 Wang Lin fit un mouvement brusque et saisit le stupéfait Li Shan alors qu'il reculait rapidement. Tout en s'éloignant, il utilisa sa technique d'attraction pour diriger le grain de riz vers le vieillard.
 
@@ -40,7 +40,7 @@ L'expression de Wang Lin resta impassible. Ses pas ne s'arrêtèrent pas tandis 
 
 Au cœur du vent étrange et des flammes dorées, une lueur cyan jaillit. Lorsque cette lumière atteignit son apogée, elle explosa dans un fracas assourdissant, formant un anneau de lumière bleu profond qui se propagea telle une vague déferlante.
 
-Le spectacle était aussi impétueux que dix mille chevaux au galop. En un instant, la déflagration balaya tout dans un rayon de plus de 300 mètres.
+Le spectacle était aussi impétueux que dix mille chevaux au galop. En un instant, la déflagration balaya tout dans un rayon de plus de 3 000 pieds.
 
 Le vent est normalement intangible, mais sous la puissance du Royaume Ji, il se mua en éclats de glace bleue qui s'écrasèrent au sol. Les flammes dorées suivirent: elles n'eurent même pas le temps de s'éteindre qu'elles furent figées. Pour qui regardait de près, on aurait dit que les flammes brûlaient encore prisonnières de la glace.
 
@@ -48,13 +48,13 @@ Quant au trésor de la Vallée Wu Feng, l'Ombrelle de Foudre Céleste, de Vent e
 
 Le vieillard au stade pseudo-Formation du Noyau n'eut même pas le temps de réagir. Son visage, encore empreint de dédain et de fierté, fut instantanément pétrifié par la glace.
 
-Derrière lui se trouvaient dix-sept disciples de la Vallée Wu Feng. Même ceux qui s'étaient éloignés de plus de dix mètres ne purent s'échapper; ils furent tous transformés en sculptures de glace.
+Derrière lui se trouvaient dix-sept disciples de la Vallée Wu Feng. Même ceux qui s'étaient éloignés de plus de cent pieds ne purent s'échapper; ils furent tous transformés en sculptures de glace.
 
-Dans un rayon de 300 mètres, plus rien de vivant ne subsistait. Tout ce qui respirait fut anéanti. La zone était devenue une terre interdite à toute forme de vie.
+Dans un rayon de 3 000 pieds, plus rien de vivant ne subsistait. Tout ce qui respirait fut anéanti. La zone était devenue une terre interdite à toute forme de vie.
 
 L'esprit de Li Shan devint vide alors qu'il contemplait, hébété, la scène qui s'offrait à lui. Son cœur était frappé d'un choc immense. Il ouvrit la bouche, mais fut incapable de prononcer le moindre mot. Son regard envers Wang Lin devint infiniment plus respectueux.
 
-Les disciples de la Secte He Huan avaient réussi à échapper au désastre car ils se trouvaient à 500 mètres de là, mais ils n'osaient plus bouger, le regard glacial de Wang Lin les clouant sur place.
+Les disciples de la Secte He Huan avaient réussi à échapper au désastre car ils se trouvaient à 5 000 pieds de là, mais ils n'osaient plus bouger, le regard glacial de Wang Lin les clouant sur place.
 
 Voir les disciples de la Vallée Wu Feng se transformer ainsi en statues de glace plongea les membres de la Secte He Huan dans un état de stupeur totale. En observant la dizaine de sculptures de glace aux postures variées qui se trouvaient non loin, la disciple féminine qui dirigeait le groupe pâlit et sortit le jeton. Une fois le jeton déposé avec précaution au sol, Wang Lin lança: « Combien y a-t-il de jetons au total? »
 
@@ -68,4 +68,4 @@ Avant d'entrer dans la Vallée Jue Ming, Ye Zizai lui avait expliqué que la com
 
 La jeune femme fut surprise. Elle hésita, mais face au regard froid de Wang Lin, elle frissonna et répondit précipitamment: « Trois. Il n'y a que trois places. » Craignant que ses explications ne soient insuffisantes et qu'elles ne provoquent la colère de Wang Lin, elle ajouta aussitôt: « Il y a sept jetons au total, mais lorsque le passage vers le champ de bataille étranger s'ouvrira, si plus de trois jetons subsistent sans avoir été détruits, le pays de Zhao perdra son droit d'entrer sur le champ de bataille étranger. »
 
-Wang Lin lui lança un regard et la disciple fut immédiatement saisie par l'effroi. Elle dit d'un ton anxieux: « Camarade... camarade cultivateur, parmi les trois jetons restants, je sais où se trouve l'un d'eux. Si vous m'épargnez, je vous dirai tout sans rien cacher. »
+Wang Lin lui lança un regard et la disciple fut immédiatement saisie par l'effroi. Elle dit d'un ton anxieux: « Daoïste... Daoïste, parmi les trois jetons restants, je sais où se trouve l'un d'eux. Si vous m'épargnez, je vous dirai tout sans rien cacher. »

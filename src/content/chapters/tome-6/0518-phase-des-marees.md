@@ -34,7 +34,7 @@ Cependant, le gaz vert commença aussitôt à bouillir avant de se concentrer en
 
 L'espace tout entier trembla soudainement tandis que le gaz vert et les objets flottants convergeaient pour former l'ouverture mystérieuse d'une source.
 
-Cette gueule de source n'était pas statique; elle continuait de croître à mesure que les éléments convergeaient de toutes les directions, s'élargissant et s'élevant jusqu'à frôler 3,3 kilomètres de hauteur.
+Cette gueule de source n'était pas statique; elle continuait de croître à mesure que les éléments convergeaient de toutes les directions, s'élargissant et s'élevant jusqu'à frôler dix mille pieds de hauteur.
 
 Les yeux du Saint de l'Épée Ling Tianhou brillèrent d'une lueur mystérieuse tandis qu'il murmurait: « Cela a commencé... »
 

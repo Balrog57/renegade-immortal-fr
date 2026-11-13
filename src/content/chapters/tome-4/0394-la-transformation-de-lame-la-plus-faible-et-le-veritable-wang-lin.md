@@ -36,7 +36,7 @@ En s'avançant, il lança froidement: « Li Yuanfeng, est-ce là le pouvoir d'un
 
 Li Yuanfeng regarda Wang Lin tout en reculant et poussa un rugissement. Ses deux mains formèrent un sceau qu'il pressa contre sa poitrine. Il cracha soudainement un rayon de lumière cristalline.
 
-Cette lumière se transforma rapidement en un géant de glace de trente-trois mètres de haut, dans lequel Li Yuanfeng disparut.
+Cette lumière se transforma rapidement en un géant de glace de cent pieds de haut, dans lequel Li Yuanfeng disparut.
 
 Le géant poussa un rugissement qui se propagea instantanément aux quatre vents.
 

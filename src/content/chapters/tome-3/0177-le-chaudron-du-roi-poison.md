@@ -166,7 +166,7 @@ Toutefois, si on en utilise trop, elle finit par abaisser la température au lie
 
 L'intérieur du fourneau atteignait une température terrifiante, mais le chaudron vert restait simplement rouge vif, sans signe de fusion.
 
-Wang Lin réfléchit un instant avant de lancer des Vignes de Lune Violette, des Pierres de Fleurs Brisées, du Bois de Lune Bleue et des dizaines d'autres matériaux d'affinement du Sanctuaire. À mesure que ces éléments étaient introduits, un nuage multicolore s'éleva du fourneau, prenant la forme d'un chaudron.
+Wang Lin réfléchit un instant avant de lancer des Vignes de Lune Violette, des Pierres de Fleurs Brisées, du Bois de Lune Bleue et des dizaines d'autres matériaux d'affinement du Temple Zhan Shen. À mesure que ces éléments étaient introduits, un nuage multicolore s'éleva du fourneau, prenant la forme d'un chaudron.
 
 Ce nuage de fumée brisa le vortex vert avant de retourner mystérieusement à l'intérieur du fourneau, entraînant le gaz avec lui.
 

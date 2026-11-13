@@ -58,7 +58,7 @@ Finalement, à force de trop se téléporter, l'épée volante commença à se d
 
 Wang Lin réalisa que ce n'était pas une solution viable sur le long terme alors que les bêtes se multipliaient. Malgré ses réserves de liquide spirituel, s'il venait à en manquer et qu'il ne pouvait plus se régénérer assez vite, il mourrait.
 
-Il serra les dents et changea de trajectoire. Il ne se dirigea plus vers Xuan Wu, mais vers le Temple Zhan Shen. Il ne croyait pas que ce sanctuaire avait été anéanti par ces premières bêtes. S'il avait été lui-même l'ancêtre du Sanctuaire, il aurait certainement choisi de migrer en bloc, et une telle chose ne se faisait pas sur un coup de tête : cela prendrait forcément du temps.
+Il serra les dents et changea de trajectoire. Il ne se dirigea plus vers Xuan Wu, mais vers le Temple Zhan Shen. Il ne croyait pas que ce sanctuaire avait été anéanti par ces premières bêtes. S'il avait été lui-même l'ancêtre du Temple Zhan Shen, il aurait certainement choisi de migrer en bloc, et une telle chose ne se faisait pas sur un coup de tête : cela prendrait forcément du temps.
 
 Et même s'ils étaient déjà partis, ils ne pouvaient aller trop vite : une migration de toute la secte impliquait beaucoup trop de monde. Or il n'était resté en retraite dans la grotte que huit jours; même si les bêtes de feu étaient apparues dès le premier jour de sa retraite, le Temple Zhan Shen n'aurait pas pu déménager aussi vite.
 
@@ -76,7 +76,7 @@ Les bêtes de feu qui poursuivaient Wang Lin s'arrêtèrent soudainement, et les
 
 L'armée ne ralentit pas. Plusieurs milliers d'éclats d'épées s'élancèrent sans un mot, menés par dix cultivateurs de l'Âme Naissante, pour engager le combat avec les bêtes de feu. Aussitôt après, deux autres groupes sortirent des rangs, ajoutant environ deux mille combattants supplémentaires à la bataille.
 
-Avant même que Wang Lin n'entre dans l'armée, plus d'une dizaine d'éclats d'épées jaillirent des rangs et s'arrêtèrent à cent pieds devant lui. La personne au centre était une jeune femme d'apparence ordinaire, mais une intention meurtrière pesante émanait d'entre ses sourcils. Elle lança un regard de haine aux bêtes de feu derrière Wang Lin puis lui dit d'une voix claire: « Camarade cultivateur, de quelle secte es-tu? Déclame ton nom, et vite! »
+Avant même que Wang Lin n'entre dans l'armée, plus d'une dizaine d'éclats d'épées jaillirent des rangs et s'arrêtèrent à cent pieds devant lui. La personne au centre était une jeune femme d'apparence ordinaire, mais une intention meurtrière pesante émanait d'entre ses sourcils. Elle lança un regard de haine aux bêtes de feu derrière Wang Lin puis lui dit d'une voix claire: « Daoïste, de quelle secte es-tu? Déclame ton nom, et vite! »
 
 Wang Lin, l'air encore tremblant de peur, joignit précipitamment les poings et répondit: « Je suis Ma Liang, disciple du Temple Zhan Shen. »
 
@@ -94,7 +94,7 @@ Comparé à l'effondrement du champ de bataille étranger, on sentait ici en plu
 
 Wang Lin ne put s'empêcher d'entrer en transe devant tant de grandeur. Lorsqu'il reprit ses esprits, il était déjà arrivé au centre de l'armée avec le jeune homme.
 
-Qingxuan cria: « L'éclaireur de la Secte Luo He, Qingxuan, a ramené le disciple Ma Liang du Temple Zhan Shen! Que les camarades cultivateurs du Sanctuaire vérifient son identité afin que je puisse faire mon rapport! »
+Qingxuan cria: « L'éclaireur de la Secte Luo He, Qingxuan, a ramené le disciple Ma Liang du Temple Zhan Shen! Que les Daoïstes du Temple Zhan Shen vérifient son identité afin que je puisse faire mon rapport! »
 
 L'expression de Wang Lin resta impassible. Ce jour-là, la femme de l'Âme Naissante ne s'en était pas prise à lui et ses paroles laissaient entendre une certaine volonté de le recruter. Mais même sans cela, Wang Lin serait venu ici; c'était son seul refuge face à la poursuite des bêtes de feu.
 

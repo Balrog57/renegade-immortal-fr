@@ -98,7 +98,7 @@ Il n'avait aucun doute: si le noble messager n'était pas intervenu, il serait d
 
 L'homme d'âge moyen fixa Wang Lin et déclara lentement: « Je ne peux croire que tu sois encore en vie et qu'en seulement quatre cents ans, tu aies atteint un si haut niveau de culture. Très bien! Remets-moi la perle défiant le ciel et je t'épargnerai la vie! Je te permettrai de devenir l'homme numéro un à Zhao. Qu'en dis-tu? »
 
-L'expression de Wang Lin resta calme. L'apparition de cet homme faisait partie de ses calculs. Il avait senti sa présence dès qu'il se trouvait à cinq mille kilomètres. Cet individu était le messager de la Tour Céleste, un habitant d'un pays de rang 4. Wang Lin devina que son niveau de culture était celui de la Formation de l'Âme.
+L'expression de Wang Lin resta calme. L'apparition de cet homme faisait partie de ses calculs. Il avait senti sa présence dès qu'il se trouvait à cinq mille kilomètres. Cet individu était le messager de la Tour Tong Tian, un habitant d'un pays de rang 4. Wang Lin devina que son niveau de culture était celui de la Formation de l'Âme.
 
 S'il n'était pas au stade de la Formation de l'Âme, comment aurait-il pu détruire si aisément l'éclair du Royaume Ji?
 

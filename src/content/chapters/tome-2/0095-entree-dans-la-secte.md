@@ -90,7 +90,7 @@ Wang Lin utilisa son sens divin et découvrit que l'homme se trouvait au stade i
 
 À cet instant, le jeune homme entra précipitamment dans la grotte et s'adressa au vieil homme: « Ancien, ce senior vient de sortir de la formation de transfert. Quarante-trois anneaux se sont allumés à son arrivée, et il souhaite voir l'ancêtre Ye. »
 
-À ces mots, l'expression du vieil homme changea, son indifférence disparut. Il fixa Wang Lin avec un regard étrange et demanda d'une voix grave: « Camarade cultivateur, qui vous a ouvert la formation de ma Secte Shi Yin? »
+À ces mots, l'expression du vieil homme changea, son indifférence disparut. Il fixa Wang Lin avec un regard étrange et demanda d'une voix grave: « Daoïste, qui vous a ouvert la formation de ma Secte Shi Yin? »
 
 Wang Lin répondit calmement: « Wu Yu. »
 

@@ -58,11 +58,11 @@ Après une courte réflexion, Wang Lin s'engagea sur le petit sentier entre les 
 
 En progressant, Wang Lin observa la surface des deux montagnes qui bordaient ce passage étroit. Des zones humides marquaient les parois lisses, et parfois, des gouttes d'eau s'en écoulaient.
 
-Après avoir parcouru plusieurs dizaines de mètres, l'expression de Wang Lin changea: il réalisa que quelque chose clochait! Il examina attentivement les parois rocheuses et ses yeux s'illuminèrent.
+Après avoir parcouru plusieurs centaines de pieds, l'expression de Wang Lin changea: il réalisa que quelque chose clochait! Il examina attentivement les parois rocheuses et ses yeux s'illuminèrent.
 
 « Si cet endroit est humide toute l'année, de la mousse devrait y pousser. Après tout, le reste du lieu ressemble à la planète extérieure. Pourtant, ici, on dirait que l'humidité n'est apparue que récemment! »
 
-La main droite de Wang Lin pointa vers la paroi de l'une des montagnes et son doigt s'y enfonça instantanément, creusant un trou de trente-trois centimètres de profondeur. La moitié superficielle du trou était humide, mais la partie profonde était sèche.
+La main droite de Wang Lin pointa vers la paroi de l'une des montagnes et son doigt s'y enfonça instantanément, creusant un trou d'un pied de profondeur. La moitié superficielle du trou était humide, mais la partie profonde était sèche.
 
 Sans la moindre hésitation, Wang Lin recula promptement. En un clin d'œil, il fut hors du sentier; et au moment même où il se retirait, l'eau sur les parois commença à s'agiter. L'humidité jaillit des murs et des milliers de gouttelettes cristallines commencèrent à flotter au-dessus du passage.
 
@@ -100,7 +100,7 @@ Dès qu'il pénétra dans le passage, la femme qui l'avait bloqué reprit forme 
 
 Les yeux de Wang Lin se firent sombres. Sans un mot, il sortit son épée céleste sans ralentir sa course et la projeta en avant dans un cri. Puis, il plaça sa main gauche entre ses sourcils.
 
-Le corps de Wang Lin trembla un instant, les yeux clos, tandis que son âme originelle émergeait de lui. Son âme originelle, haute d'une trentaine de mètres, rattrapa l'épée céleste en un instant et continua sa charge.
+Le corps de Wang Lin trembla un instant, les yeux clos, tandis que son âme originelle émergeait de lui. Son âme originelle, haute d'une centaine de pieds, rattrapa l'épée céleste en un instant et continua sa charge.
 
 En un clin d'œil, l'âme originelle de Wang Lin traversa le corps de la femme tandis que l'épée céleste la transperçait.
 

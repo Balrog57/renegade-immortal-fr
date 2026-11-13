@@ -116,13 +116,13 @@ Un air glacial enveloppa les environs et même de la neige commença à tomber a
 
 Les yeux de Chi Hu s'illuminèrent et il pensa: « C'est elle! »
 
-Il laissa échapper un rire et joignit les mains en signe de respect. « Je vous attendais depuis longtemps, estimée cultivatrice Hongdie! »
+Il laissa échapper un rire et joignit les mains en signe de respect. « Je vous attendais depuis longtemps, Daoïste Hongdie! »
 
 Cette femme était le génie de Xue Yu, Hongdie!
 
 Elle lança un regard glacial à Chi Hu alors qu'elle sortait de la formation et déclara: « Si vos paroles sont mensongères, je ne laisserai pas les choses se terminer aussi facilement! »
 
-Chi Hu afficha un sourire confiant. « Soyez sereine, cultivatrice Hongdie. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement copié par l'ancêtre de mon Clan Ju Mo, Xi Zu. Il n'aurait aucune raison de mentir. »
+Chi Hu afficha un sourire confiant. « Soyez sereine, Daoïste Hongdie. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement copié par l'ancêtre de mon Clan Ju Mo, Xi Zu. Il n'aurait aucune raison de mentir. »
 
 « Xi Zu... » Le visage de Hongdie se détendit légèrement. Ce Xi Zu était un Senior de son maître et ils entretenaient des liens. Après tout, il n'existait que deux nations de cultivation organisées en tribus sur Suzaku: le Clan Ju Mo et Xue Yu.
 
@@ -132,6 +132,6 @@ Naturellement, les deux clans restaient en contact; on pouvait dire que le Clan 
 
 Chi Hu fronça les sourcils, pensant intérieurement que cette Hongdie était bien trop autoritaire. Bien qu'il fût lui aussi intéressé par le cercueil de jade, ces trois épées célestes étaient son véritable objectif. Si l'on n'était que deux, cela aurait pu convenir, mais il ne resterait rien pour Zeng Niu si le butin était partagé entre eux deux.
 
-Chi Hu réfléchit un instant avant de dire lentement: « Estimée cultivatrice Hongdie, cette affaire ne se décide pas aussi aisément. Après tout, en plus de nous deux, une troisième personne va se joindre à notre expédition. »
+Chi Hu réfléchit un instant avant de dire lentement: « Daoïste Hongdie, cette affaire ne se décide pas aussi aisément. Après tout, en plus de nous deux, une troisième personne va se joindre à notre expédition. »
 
 Hongdie demanda calmement: « Oh? Qui est-ce? »

@@ -70,7 +70,7 @@ L'expression du troisième Senior frère changea radicalement. Sans la moindre h
 
 Son épée s'élança dans les airs et frappa violemment vers le bas. Le sixième Junior frère serra les dents et envoya lui aussi son épée pour trancher la menace.
 
-Soudain, deux rayons d'énergie d'épée fusionnèrent comme deux dragons entrelacés, détruisant toutes les nourritures qui chargeaient vers eux. L'impact percuta le trou dans le mur, ouvrant une brèche d'une dizaine de mètres. Cette puissance provoqua l'effondrement de nombreuses parties de ce Temple Xian Shou déjà instable.
+Soudain, deux rayons d'énergie d'épée fusionnèrent comme deux dragons entrelacés, détruisant toutes les nourritures qui chargeaient vers eux. L'impact percuta le trou dans le mur, ouvrant une brèche de trente pieds. Cette puissance provoqua l'effondrement de nombreuses parties de ce Temple Xian Shou déjà instable.
 
 De nouveaux filaments sortirent de la brèche. Parmi eux, une ligne noire était extrêmement frappante.
 

@@ -84,7 +84,7 @@ Un gaz gris se mua en une flèche qui fonça vers Chi Hu. Dès l'apparition de c
 
 « Un domaine de mort? » D'un seul regard, Wang Lin reconnut le type de domaine utilisé par cet homme. Hormis son corps original, qui n'était pas inférieur, il n'avait que rarement vu une intention meurtrière aussi puissante.
 
-« Domaine de mort! » rugit Chi Hu en frappant sa poitrine du poing. Une soudaine vague de fierté émana de lui tandis que son corps se mettait à crépiter. Sa stature s'élargit brusquement, devenant un géant d'une dizaine de mètres de haut. La hache sur son front scintillait frénétiquement.
+« Domaine de mort! » rugit Chi Hu en frappant sa poitrine du poing. Une soudaine vague de fierté émana de lui tandis que son corps se mettait à crépiter. Sa stature s'élargit brusquement, devenant un géant haut de plusieurs dizaines de pieds. La hache sur son front scintillait frénétiquement.
 
 Cette hache était un trésor crucial de son clan. Elle différait grandement de la boussole stellaire qui n'avait que peu d'utilités. Ce n'était pas un objet solide; bien qu'elle eût été brisée lorsque Zhou Yi, qui le possédait, combattit Hongdie, elle pouvait se reformer. Cependant, chaque fragmentation l'affaiblissait légèrement.
 
@@ -92,7 +92,7 @@ Dès que la hache apparut, Chi Hu la saisit d'une main et, tel un dieu démon, f
 
 *Bang!*
 
-Le gaz gris s'effondra et la hache dans la main de Chi Hu trembla; il dut reculer de plusieurs mètres. La puissance injectée dans ce coup fit saillir les veines de son bras. Il rit et lança: « C'était amusant! Recommence! »
+Le gaz gris s'effondra et la hache dans la main de Chi Hu trembla; il dut reculer de plusieurs dizaines de pieds. La puissance injectée dans ce coup fit saillir les veines de son bras. Il rit et lança: « C'était amusant! Recommence! »
 
 L'homme d'âge moyen s'interrompit. Il ricana en frappant son sac de rangement, d'où surgit un cristal. Il pointa la pierre qui se transforma soudainement en liquide. Il serra le poing pour lui donner une forme de diamant, puis la projeta en criant: « Essaie donc de toucher à ça! »
 

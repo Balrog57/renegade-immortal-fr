@@ -46,7 +46,7 @@ Celle du bas indiquait: « Fils aîné: Wang Lin »
 
 Sous les deux tablettes se trouvait un brûle-encens avec quelques bâtons d'encens inutilisés à ses côtés.
 
-Les yeux de Wang Lin étaient emplis de tristesse lorsqu'il alluma trois bâtons d'encens et les disposa dans le brûle-encens. Il s'agenouilla lentement sur le sol. Il effectua plusieurs kowtows appuyés et murmura: « Ce fils ingrat est venu offrir l'encens cette fois. La prochaine fois, je construirai une tour faite des têtes de la famille Teng pour mes parents. » Une aura d'intention meurtrière s'échappa de Wang Lin. La pièce devint instantanément plus glaciale que la nuit pluvieuse à l'extérieur.
+Les yeux de Wang Lin étaient emplis de tristesse lorsqu'il alluma trois bâtons d'encens et les disposa dans le brûle-encens. Il s'agenouilla lentement sur le sol. Il effectua plusieurs prosternations appuyées et murmura: « Ce fils ingrat est venu offrir l'encens cette fois. La prochaine fois, je construirai une tour faite des têtes de la famille Teng pour mes parents. » Une aura d'intention meurtrière s'échappa de Wang Lin. La pièce devint instantanément plus glaciale que la nuit pluvieuse à l'extérieur.
 
 Une fois ses paroles achevées, il réfléchit un moment, puis, dans un mouvement soudain, disparut sur place.
 
@@ -82,7 +82,7 @@ La jeune femme prit une profonde inspiration. Alors que la servante s'apprêtait
 
 La servante fit la moue mais acquiesça docilement.
 
-La jeune femme sourit, toussa quelques fois, puis marcha lentement vers le hall principal. Une fois à l'intérieur, elle regarda les deux tablettes. Elle disposa une natte devant elles et s'agenouilla. Après avoir effectué ses kowtows, elle s'apprêta à sortir de l'encens, mais ses yeux se figèrent sur les trois bâtons presque consumés. Au moment où elle allait pousser un cri, elle sentit une bourrasque d'air glacial envahir la pièce. Elle se pétrifia, le front couvert de sueur froide; elle sentit que le moindre mouvement entraînerait sa mort instantanée.
+La jeune femme sourit, toussa quelques fois, puis marcha lentement vers le hall principal. Une fois à l'intérieur, elle regarda les deux tablettes. Elle disposa une natte devant elles et s'agenouilla. Après avoir effectué ses prosternations, elle s'apprêta à sortir de l'encens, mais ses yeux se figèrent sur les trois bâtons presque consumés. Au moment où elle allait pousser un cri, elle sentit une bourrasque d'air glacial envahir la pièce. Elle se pétrifia, le front couvert de sueur froide; elle sentit que le moindre mouvement entraînerait sa mort instantanée.
 
 Elle vit alors un jeune homme aux cheveux blancs entrer lentement dans la pièce.
 

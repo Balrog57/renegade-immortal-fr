@@ -56,7 +56,7 @@ Wang Lin se frotta le menton et observa la créature un long moment. Il sortit u
 
 Une lueur de frénésie passa dans les yeux de la bête alors qu'elle dévorait les noyaux avec empressement. À chaque noyau consommé, elle augmentait de volume. En particulier, lorsqu'elle avala le noyau d'une bête spirituelle de qualité moyenne, son corps grossit encore, de plus du double.
 
-Après avoir englouti des dizaines de noyaux, le corps de la bête moustique atteignait environ la taille d'un veau. Par conséquent, les minuscules poils de son corps noir étaient devenus bien plus visibles. Ses ailes mesuraient plus de trois mètres de long et généraient des rafales de vent à chaque battement.
+Après avoir englouti des dizaines de noyaux, le corps de la bête moustique atteignait environ la taille d'un veau. Par conséquent, les minuscules poils de son corps noir étaient devenus bien plus visibles. Ses ailes mesuraient plus de dix pieds de long et généraient des rafales de vent à chaque battement.
 
 Son proboscis devenait de plus en plus fin et acéré, dégageant une aura profondément sinistre. Même Wang Lin, en la regardant, sentit les poils de ses bras se hérisser.
 

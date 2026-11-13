@@ -35,7 +35,7 @@ Le vieil homme hocha la tête et se tut.
 
 « Les membres de la Secte Shi Yin sont là. » L'homme d'âge moyen regarda au loin.
 
-Un immense cercueil, long d'une centaine de mètres, approchait rapidement de la bordure est du continent Suzaku. Trois personnes étaient assises sur le couvercle. Elles avaient toutes les cheveux blancs. À l'exception de celui de devant, qui se trouvait au début du stade de Transformation de l'Âme, les deux autres étaient à la fin de la Formation de l'Âme.
+Un immense cercueil, long de plusieurs centaines de pieds, approchait rapidement de la bordure est du continent Suzaku. Trois personnes étaient assises sur le couvercle. Elles avaient toutes les cheveux blancs. À l'exception de celui de devant, qui se trouvait au début du stade de Transformation de l'Âme, les deux autres étaient à la fin de la Formation de l'Âme.
 
 Assis sur ce cercueil qui filait à toute allure, ils arrivèrent en un clin d'œil devant le nuage noir. Les symboles de tatouage dans le nuage scintillèrent pour leur barrer la route.
 

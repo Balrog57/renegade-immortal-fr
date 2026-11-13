@@ -86,11 +86,11 @@ Alors que l'onde s'apprêtait à frapper le quatrième oncle de Wang Lin, celui-
 
 Teng Huayuan se retourna et fixa le cultivateur aux allures d'immortel.
 
-Ce dernier soupira: « Camarade cultivateur Teng, laissez cet homme en vie. Il me sera utile. »
+Ce dernier soupira: « Daoïste Teng, laissez cet homme en vie. Il me sera utile. »
 
 Teng Huayuan ricana en désignant Wang Zhuo et Wang Hao: « Vous n'interviendrez donc pas pour ces deux-là? »
 
-Le cultivateur esquissa un léger sourire face à lui: « Camarade cultivateur Teng, pourquoi posez-vous une question si évidente? Si vous les tuez devant moi, je ne m'en mêlerai pas sur le moment, mais si le Senior Pu Nanzi de la Secte Xuan Dao me pose la question, je devrai naturellement lui dire la vérité. »
+Le cultivateur esquissa un léger sourire face à lui: « Daoïste Teng, pourquoi posez-vous une question si évidente? Si vous les tuez devant moi, je ne m'en mêlerai pas sur le moment, mais si le Senior Pu Nanzi de la Secte Xuan Dao me pose la question, je devrai naturellement lui dire la vérité. »
 
 Teng Huayuan dévisagea le cultivateur. Après un long silence, il frappa le sol de ses pieds et tout le domaine de la famille Wang fut réduit en gravats.
 
@@ -122,6 +122,6 @@ Cette souffrance submergeait Wang Lin comme un déluge. Les cultivateurs étant 
 
 Peu après, Wang Lin fut témoin d'une scène dont il se souviendrait pour le reste de sa vie.
 
-« Non! » Deux traînées de larmes de sang coulèrent de ses yeux. Son expression était suppliciée, son corps tremblait et des filaments d'énergie spirituelle Yin s'agitaient violemment en lui, totalement hors de contrôle. Chaque plante dans un rayon de trente-trois mètres autour de lui fut instantanément changée en cristaux bleus. Cette aura glaciale ne cessait de gagner en puissance.
+« Non! » Deux traînées de larmes de sang coulèrent de ses yeux. Son expression était suppliciée, son corps tremblait et des filaments d'énergie spirituelle Yin s'agitaient violemment en lui, totalement hors de contrôle. Chaque plante dans un rayon de cent pieds autour de lui fut instantanément changée en cristaux bleus. Cette aura glaciale ne cessait de gagner en puissance.
 
 C'est à cet instant précis que le « Ji » à l'intérieur de Wang Lin grimpa sans fin, atteignant le Royaume Ji, le Ji où l'on pousse toute chose à l'extrême!

@@ -94,7 +94,7 @@ La lance de l'étendard de restriction, la sculpture en bois du domaine temporel
 
 Après tout, depuis le début de sa culture, il n'avait jamais été dans une situation où il pouvait utiliser ses trésors aussi librement.
 
-L'épée céleste fut utilisée si souvent qu'il parvint à la contrôler comme une épée volante grâce à l'âme de Xu Liguo qu'elle renfermait, sans avoir besoin de la tenir, tant qu'elle se trouvait à moins de dix mètres de lui.
+L'épée céleste fut utilisée si souvent qu'il parvint à la contrôler comme une épée volante grâce à l'âme de Xu Liguo qu'elle renfermait, sans avoir besoin de la tenir, tant qu'elle se trouvait à moins de trente pieds de lui.
 
 Par conséquent, bien que la puissance de l'épée n'ait pas augmenté, elle était devenue bien plus agile. Tout cela grâce au vieil homme.
 

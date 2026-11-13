@@ -10,7 +10,7 @@ Au moment où la main géante s'approcha, le sol se mit à trembler. Un homme au
 
 Bang!
 
-La main fut repoussée de plusieurs mètres. Les yeux nichés dans les nuages rouges se fixèrent sur l'homme aux cheveux roux.
+La main fut repoussée de plusieurs dizaines de pieds. Les yeux nichés dans les nuages rouges se fixèrent sur l'homme aux cheveux roux.
 
 L'expression du corps original demeura inchangée, comme si cette attaque n'avait été qu'une simple brise légère. Cependant, les deux étoiles violettes sur son front tournaient à une vitesse effrénée.
 
@@ -24,7 +24,7 @@ Cette fois, alors que la main approchait, ses cinq griffes ouvrirent cinq déchi
 
 Wang Lin poussa un rugissement. Il frappa son sac et en sortit le drapeau de restriction. Une lance se matérialisa rapidement et il la projeta contre la main.
 
-Simultanément, la rotation des étoiles violettes sur le corps original s'interrompit brusquement, et des craquements secs parcoururent tout son être. Il se métamorphosa en un géant de près de dix mètres de haut, une lueur violette irradiant sous sa peau. Son corps dégageait une aura sauvage et primitive.
+Simultanément, la rotation des étoiles violettes sur le corps original s'interrompit brusquement, et des craquements secs parcoururent tout son être. Il se métamorphosa en un géant de trente pieds de haut, une lueur violette irradiant sous sa peau. Son corps dégageait une aura sauvage et primitive.
 
 Le corps original commençait à ressembler à un Dieu Ancien.
 
@@ -54,7 +54,7 @@ La main géante s'étira une fois de plus. Le corps original surgit du sol dans 
 
 Bang!
 
-Le corps original cracha un filet de sang et se mit à rire maniaquement. La main géante avait été repoussée de plusieurs mètres.
+Le corps original cracha un filet de sang et se mit à rire maniaquement. La main géante avait été repoussée de plusieurs dizaines de pieds.
 
 Dans un grand éclat de rire, le corps original avança et continua de marteler la main géante.
 
@@ -128,7 +128,7 @@ Ce coup était une punition pour avoir entravé la volonté céleste!
 
 Au moment où le poing s'élança, le corps original arriva. Un rayon de lumière rouge sang chargea depuis la distance et fusionna avec Wang Lin.
 
-Wang Lin et son corps original disparurent soudainement. Ils furent remplacés par une figure de 3,3 mètres de haut aux cheveux qui lui arrivaient aux pieds.
+Wang Lin et son corps original disparurent soudainement. Ils furent remplacés par une figure de dix pieds de haut aux cheveux qui lui arrivaient aux pieds.
 
 L'œil gauche de cet être était semblable à la lune, et son œil droit à celui du soleil. Il était enveloppé d'une aura mêlant le pouvoir du Dieu Ancien et le domaine de la vie et de la mort.
 

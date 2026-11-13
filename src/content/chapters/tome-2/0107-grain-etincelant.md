@@ -40,9 +40,9 @@ La sphère de glace avait rétréci jusqu'à la taille d'un grain de riz et sa c
 
 Les yeux de Wang Lin s'illuminèrent; il saisit le grain et quitta la grotte. Il resta un instant en suspension dans les airs, puis fondit vers la jungle la plus proche. Arrivé à la lisière, il agita la main et le grain percuta un arbre voisin.
 
-Instantanément, une faible lueur cyan jaillit et l'arbre se changea en glace. Une ondulation bleu foncé se propagea. L'expression de Wang Lin changea brusquement et il recula d'un bond. En un clin d'œil, tout dans un rayon de 300 mètres fut transformé en un monde de givre bleu.
+Instantanément, une faible lueur cyan jaillit et l'arbre se changea en glace. Une ondulation bleu foncé se propagea. L'expression de Wang Lin changea brusquement et il recula d'un bond. En un clin d'œil, tout dans un rayon de 3 000 pieds fut transformé en un monde de givre bleu.
 
-Dans ce périmètre de 300 mètres, qu'il s'agisse d'arbres, d'animaux, de fleurs, d'insectes ou de créatures souterraines, tout être vivant avait péri.
+Dans ce périmètre de 3 000 pieds, qu'il s'agisse d'arbres, d'animaux, de fleurs, d'insectes ou de créatures souterraines, tout être vivant avait péri.
 
 Même Wang Lin fut touché par la lumière bleue. Son corps se raidit, comme si une vague d'énergie glaciale l'avait pénétré. Heureusement, cette énergie était identique à celle qu'il possédait déjà; une fois absorbée, il retrouva sa mobilité.
 
@@ -76,9 +76,9 @@ Mais peu après, les deux grains fusionnèrent sans aucun bruit. Le nouveau grai
 
 Surpris, Wang Lin réfléchit un instant, puis entreprit de fusionner ce nouveau grain avec le dernier restant.
 
-Lorsque ces deux grains se touchèrent, un éclair cyan jaillit. L'expression de Wang Lin changea brusquement et il utilisa l'une des rares téléportations qui lui restaient pour disparaître sur place. À l'instant même où il disparut, la lumière cyan s'étendit et tout dans un rayon d'un kilomètre fut transformé en un monde de glace.
+Lorsque ces deux grains se touchèrent, un éclair cyan jaillit. L'expression de Wang Lin changea brusquement et il utilisa l'une des rares téléportations qui lui restaient pour disparaître sur place. À l'instant même où il disparut, la lumière cyan s'étendit et tout dans un rayon de dix mille pieds fut transformé en un monde de glace.
 
-Wang Lin réapparut à un kilomètre de là. Bien qu'il fût hors de portée de la lueur cyan, il sentait encore le froid lui remonter par les pieds.
+Wang Lin réapparut à dix mille pieds de là. Bien qu'il fût hors de portée de la lueur cyan, il sentait encore le froid lui remonter par les pieds.
 
 Observant le désastre devant lui, Wang Lin se mit à méditer. Bien qu'il eût dû gaspiller une téléportation, cela en valait la peine. Il semblait que la fusion de deux grains était la limite; tenter d'en ajouter un troisième provoquait une explosion immédiate.
 

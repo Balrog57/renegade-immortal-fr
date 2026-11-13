@@ -62,7 +62,7 @@ Le regard de Wang Lin balaya les cultivateurs de la Formation du Noyau situés �
 
 Parmi les quatre cultivateurs restés au stade intermédiaire de la Formation du Noyau à mille lieues de là, le vieillard aux cheveux blancs et au visage d'enfant, imprégné d'une aura maléfique, secoua la tête. Il se retourna pour partir, mais ses pupilles se contractèrent soudainement.
 
-Un homme et une femme se tenaient à 33 mètres derrière lui. Au-dessus de la tête de l'homme flottait le symbole rouge sang « Punir ». Les autres cultivateurs remarquèrent le danger et sortirent leurs trésors comme face à un ennemi redoutable, mais aucun n'osa passer à l'acte en premier.
+Un homme et une femme se tenaient à cent pieds derrière lui. Au-dessus de la tête de l'homme flottait le symbole rouge sang « Punir ». Les autres cultivateurs remarquèrent le danger et sortirent leurs trésors comme face à un ennemi redoutable, mais aucun n'osa passer à l'acte en premier.
 
 Wang Lin les scruta et ordonna froidement: « Fichez le camp! »
 

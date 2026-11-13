@@ -98,7 +98,7 @@ Le bâton pourpre qu'il utilisait était une branche de l'Arbre de la Réincarna
 
 Les yeux de Wang Lin restaient calmes. Il leva tranquillement sa main droite et ordonna: « Absorbe! »
 
-En prenant le vieil homme comme centre, tous les nuages dans un rayon de 330 mètres convergèrent pour former un anneau qui se contracta rapidement jusqu'à n'atteindre que dix mètres de large.
+En prenant le vieil homme comme centre, tous les nuages dans un rayon de mille pieds convergèrent pour former un anneau qui se contracta rapidement jusqu'à n'atteindre que trente pieds de large.
 
 Le visage du vieil homme fut envahi par la terreur. L'ondulation spatiale qui devait lui permettre de fuir perdit son effet et s'effondra. Une pression écrasante surgit de toutes parts et s'abattit sur son corps en un instant.
 
@@ -108,7 +108,7 @@ Une quantité massive de sang jaillit, puis la plante sur son front l'absorba av
 
 Le visage du vieil homme devint féroce alors qu'il hurlait: « Si tu me tues, une malédiction runique persistera sur toi! Si les Seniors de mon clan la voient, ils te tueront! » Les veines de son front battaient violemment. Bien que sa plante vitale fût déjà déployée, elle ne parvenait toujours pas à résister à la pression de l'anneau.
 
-Des bruits de craquements retentirent alors que l'anneau de dix mètres se réduisait à 3,3 mètres. Les branches de la plante se brisaient une à une. À chaque rupture, le vieil homme crachait du sang et son visage pâlissait davantage.
+Des bruits de craquements retentirent alors que l'anneau de trente pieds se réduisait à dix pieds. Les branches de la plante se brisaient une à une. À chaque rupture, le vieil homme crachait du sang et son visage pâlissait davantage.
 
 Wang Lin demeurait serein et esquissa même un sourire. « J'ai déjà tué pas mal de membres du Clan Xian Yi. Est-ce là la malédiction dont tu parles? »
 

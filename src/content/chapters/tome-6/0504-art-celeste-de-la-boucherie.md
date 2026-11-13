@@ -34,7 +34,7 @@ Il se tenait silencieusement devant Tian Yunzi qui démontrait le sort aux sept 
 
 Wang Lin fut surpris et se retourna lentement.
 
-Tian Yunzi aux robes grises était apparu tel un fantôme, à trente-trois mètres derrière lui.
+Tian Yunzi aux robes grises était apparu tel un fantôme, à cent pieds derrière lui.
 
 Au même instant, Tian Yunzi qui pratiquait le sort aux sept couleurs cessa sa démonstration et leva la tête pour regarder l'inconnu. Tian Yunzi aux robes grises fixa l'autre avec intensité, forçant ce dernier à reculer et à disparaître au loin, comme s'il craignait Tian Yunzi aux robes grises.
 
@@ -74,7 +74,7 @@ Les yeux de Tian Yunzi aux robes grises s'illuminèrent. Il agita sa main droite
 
 Wang Lin se retourna brusquement. Son regard était calme tandis qu'il fixait l'homme aux robes grises.
 
-Le gaz gris dépassa Wang Lin et frappa un Tian Yunzi qui pratiquait un sort à 3,3 kilomètres de là. L'homme n'eut même pas le temps d'esquiver; le gaz le percuta de plein fouet. Son corps trembla, puis il disparut dans un nuage de fumée.
+Le gaz gris dépassa Wang Lin et frappa un Tian Yunzi qui pratiquait un sort à dix mille pieds de là. L'homme n'eut même pas le temps d'esquiver; le gaz le percuta de plein fouet. Son corps trembla, puis il disparut dans un nuage de fumée.
 
 Simultanément, un rayon de lumière grise retourna vers Tian Yunzi aux robes grises depuis le nuage de fumée, révélant être un sceau complexe.
 

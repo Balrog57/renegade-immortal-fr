@@ -100,7 +100,7 @@ Un rayon de lumière pourpre et dorée jaillit de son front. Le drapeau des âme
 
 Bien que le drapeau des âmes d'un milliard ait perdu un tiers de ses fragments d'âme, dix âmes primaires et la quatrième âme, il restait le drapeau des âmes d'un milliard!
 
-Ce drapeau de près de dix mètres représentait la lignée du Dao de la Secte Lian Hun. Il semblait posséder sa propre volonté alors qu'il flottait vers Wang Lin.
+Ce drapeau de trente pieds représentait la lignée du Dao de la Secte Lian Hun. Il semblait posséder sa propre volonté alors qu'il flottait vers Wang Lin.
 
 Wang Lin leva la main droite et saisit le drapeau, puis il regarda Dun Tian qui souriait avec une expression empreinte de mélancolie et de complexité. Il s'agenouilla et se prosterna trois fois devant lui.
 

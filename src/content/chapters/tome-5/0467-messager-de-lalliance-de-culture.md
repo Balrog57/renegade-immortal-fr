@@ -32,9 +32,9 @@ Le corps de Tuo Sen resta immobile alors qu'il fixait l'endroit où Wang Lin ava
 
 Un vortex gigantesque apparut soudainement dans le ciel et commença à tourner lentement. Une force d'aspiration dépassant l'entendement émanait de son centre.
 
-Alors qu'il tentait de fuir, le corps de Wang Lin s'arrêta brusquement et fut aspiré en arrière à une vitesse prodigieuse. En un clin d'œil, il fut ramené à environ trois cent trente mètres de Tuo Sen.
+Alors qu'il tentait de fuir, le corps de Wang Lin s'arrêta brusquement et fut aspiré en arrière à une vitesse prodigieuse. En un clin d'œil, il fut ramené à environ mille pieds de Tuo Sen.
 
-« Je t'ai dit que tu ne pourrais pas t'enfuir! » Tuo Sen franchit les trois cent trente mètres en un seul pas et lança un coup de poing.
+« Je t'ai dit que tu ne pourrais pas t'enfuir! » Tuo Sen franchit les mille pieds en un seul pas et lança un coup de poing.
 
 L'expression de Wang Lin était affreuse, une sensation de mort imminente lui glaçant le cœur. Cette intuition était si puissante qu'il prit une décision radicale.
 
@@ -52,7 +52,7 @@ Il retira immédiatement son poing et s'apprêta à battre en retraite.
 
 Cependant, il était trop tard; les innombrables fragments d'âme et les âmes primaires explosèrent tous. Cette déflagration fut encore plus puissante que l'explosion d'un fragment d'âme Ascendant fusionné!
 
-Le symbole noir fendit l'air comme un éclair et se brisa à une dizaine de mètres de Tuo Sen. Une onde noire apparut soudainement, semblant douée d'une intelligence propre; elle ne se propagea pas de manière aléatoire, mais chargea droit sur Tuo Sen.
+Le symbole noir fendit l'air comme un éclair et se brisa à plusieurs dizaines de pieds de Tuo Sen. Une onde noire apparut soudainement, semblant douée d'une intelligence propre; elle ne se propagea pas de manière aléatoire, mais chargea droit sur Tuo Sen.
 
 Un son fracassant, capable de déchirer les cieux, ébranla l'intégralité du Tombeau Zhu Que.
 
@@ -60,7 +60,7 @@ Un son fracassant, capable de déchirer les cieux, ébranla l'intégralité du T
 
 Dans un fracas retentissant, la silhouette de Tuo Sen fut projetée en arrière telle une météorite.
 
-À trois cent trente mètres de là, le corps de Tuo Sen s'effondrait. Les yeux du petit singe à l'intérieur de son être s'obscurcirent, puis il ferma les paupières et mourut. Pourtant, la lumière rouge qui composait le corps de Tuo Sen se reforma après s'être dissipée!
+À mille pieds de là, le corps de Tuo Sen s'effondrait. Les yeux du petit singe à l'intérieur de son être s'obscurcirent, puis il ferma les paupières et mourut. Pourtant, la lumière rouge qui composait le corps de Tuo Sen se reforma après s'être dissipée!
 
 Bien qu'il semblât aussi fragile qu'un souffle de vent, il dégageait toujours l'aura terrifiante d'un expert puissant.
 
@@ -72,7 +72,7 @@ Wang Lin ressentit une amertume profonde; il laissa échapper un soupir et porta
 
 « Je veux voir où tu pourras courir cette fois! » Le corps de Tuo Sen se solidifia lentement, puis il fit un pas en avant.
 
-Mais à cet instant précis, un rayon de lumière jaillit de la mer. Sa vitesse était telle qu'en un battement de cils, il atteignit l'homme à 33 mètres de Tuo Sen.
+Mais à cet instant précis, un rayon de lumière jaillit de la mer. Sa vitesse était telle qu'en un battement de cils, il atteignit l'homme à cent pieds de Tuo Sen.
 
 La lumière se dissipa, révélant l'homme portant le masque. Il leva la main et pointa Tuo Sen du doigt. Ses yeux brillaient d'une lueur mystérieuse lorsqu'il prononça: « Sceau! »
 

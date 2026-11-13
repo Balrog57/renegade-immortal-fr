@@ -8,7 +8,7 @@ slug: dragon-noir
 ---
 La jeune femme vêtue de blanc ferma les yeux et utilisa une méthode spéciale pour ressentir les batailles qui se déroulaient au sein des quatre sectes. Esquissant un sourire glacial, elle forma un sceau de sa main droite et une lumière blanche jaillit de sa paume pour s'engouffrer dans une déchirure céleste.
 
-Dans un rugissement tonnerre, toutes les déchirures situées dans un rayon de 5 000 000 mètres autour de la femme fusionnèrent pour former une unique et gigantesque brèche dans le ciel.
+Dans un rugissement tonnerre, toutes les déchirures situées dans un rayon de dix mille li autour de la femme fusionnèrent pour former une unique et gigantesque brèche dans le ciel.
 
 Des tours de glace descendirent du gouffre, l'une après l'autre.
 
@@ -58,7 +58,7 @@ Ce conflit entre deux nations se scinda en deux champs de bataille distincts: l'
 
 C'était la bataille la plus féroce que Wang Lin ait jamais vue. Caché dans la montagne de neige, il observait attentivement ces puissants combattants utiliser des techniques imprégnées de leurs domaines respectifs, étudiant chaque mouvement avec soin.
 
-Les affrontements entre cultivateurs de la Formation de l'Âme ne restaient jamais statiques, car ils pouvaient parcourir 5 000 000 mètres en un clin d'œil. Peu de temps après, ces experts s'éparpillèrent, transformant toute l'Alliance des Quatre Sectes en un immense terrain de combat à mort.
+Les affrontements entre cultivateurs de la Formation de l'Âme ne restaient jamais statiques, car ils pouvaient parcourir dix mille li en un clin d'œil. Peu de temps après, ces experts s'éparpillèrent, transformant toute l'Alliance des Quatre Sectes en un immense terrain de combat à mort.
 
 Le dédain dans le regard de la femme vêtue de blanc s'intensifia tandis qu'elle formait un sceau, faisant apparaître une lumière blanche au creux de sa main. Cependant, à cet instant précis, neuf points lumineux surgirent soudainement autour d'elle.
 
@@ -98,7 +98,7 @@ Cette femme n'était peut-être pas le véritable génie.
 
 À la base de chaque pilier de lumière, d'innombrables cultivateurs étaient assis au sol. Les yeux clos, ils déversaient toute leur culture et leur énergie spirituelle dans cette formation.
 
-La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes Tian Yun. Bien que recouverte de neige, la montagne fut secouée de tremblements si puissants que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon azur de 33 kilomètres de long.
+La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes Tian Yun. Bien que recouverte de neige, la montagne fut secouée de tremblements si puissants que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon azur long de cent mille pieds.
 
 Alors que le dragon redressait la tête, la neige et la glace tombèrent de ses écailles, et ses immenses yeux de dragon se fixèrent sur les cultivateurs de Xue Yu.
 

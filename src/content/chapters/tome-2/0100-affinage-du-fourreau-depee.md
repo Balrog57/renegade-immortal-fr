@@ -18,7 +18,7 @@ Dans sa propre grotte, le regard de Wang Lin s'illumina d'une détermination far
 
 Malgré sa condition physique actuelle, Wang Lin ne put s'empêcher de frissonner. Tout son corps devint glacé, il perdit rapidement toute sensation et s'engourdit. Sans perdre un instant, il fit circuler son énergie spirituelle et, au rythme de sa respiration, son sens divin devint encore plus dense. Porté par ce flux constant, son sens divin, tel un poinçon, s'enfonça violemment dans le trou du cercueil.
 
-Son sens divin avança péniblement dans l'ouverture, et à plusieurs reprises, l'énergie Yin faillit le disperser. Lorsqu'il atteignit une profondeur d'environ mille trois cents mètres, l'énergie Yin devint dense à l'extrême et forma de nouveau une « porte ».
+Son sens divin avança péniblement dans l'ouverture, et à plusieurs reprises, l'énergie Yin faillit le disperser. Lorsqu'il atteignit une profondeur d'environ quatre mille pieds, l'énergie Yin devint dense à l'extrême et forma de nouveau une « porte ».
 
 Wang Lin serra les dents et prit une immense gorgée de la rosée Yin. Puis son sens divin fonça d'un coup, enfonça la porte et entra; à cet instant, il fut stupéfait par ce qu'il découvrit.
 

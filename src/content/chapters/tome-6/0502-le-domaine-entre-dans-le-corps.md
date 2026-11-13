@@ -53,7 +53,7 @@ Il avait fait cinq pas d'affilée, et chaque foulée provoquait un écho de gron
 
 Vingt-sept pas!
 
-Le parchemin de la vie et de la mort flottant au-dessus de Wang Lin passa d'une position à dix centimètres au-dessus de sa tête à une fusion complète avec son âme originelle.
+Le parchemin de la vie et de la mort flottant au-dessus de Wang Lin passa d'une position à trois pouces au-dessus de sa tête à une fusion complète avec son âme originelle.
 
 À cet instant, une aura terrifiante émana soudainement du corps de Wang Lin. Ses longs cheveux s'agitèrent sans qu'aucun vent ne soufflât, et la neige autour de lui se mit à tourbillonner, repoussée par sa présence.
 

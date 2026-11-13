@@ -18,7 +18,7 @@ Ce jade céleste était incomplet, mais l'énergie céleste qu'il dégageait n'�
 
 Une douleur inimaginable se propagea soudainement dans tout son corps.
 
-À cet instant, dans une vallée du pays de Chu, à l'extérieur des Roches Brisées (terre des reliques immortelles), on pouvait entendre des rires cristallins et les cris d'un tigre empreints de ressentiment.
+À cet instant, dans une vallée du pays de Chu, à l'extérieur de la terre des reliques immortelles, on pouvait entendre des rires cristallins et les cris d'un tigre empreints de ressentiment.
 
 Le printemps régnait dans la vallée et le sol était recouvert d'herbe verte. La petite Zhou Ru portait un manteau brodé d'une pivoine, un pantalon rouge, et ses cheveux étaient coiffés en deux petites nattes. Elle était assise sur le dos d'un tigre aux rayures noires, affichant un immense sourire. « Petit Blanc, tu n'as pas écouté ce qu'on t'a dit, alors je te punis en te faisant manger avec des baguettes ce soir! »
 

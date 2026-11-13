@@ -44,7 +44,7 @@ Qian Kun ricana. Il fit s'abattre de nouveau le pic et déclara: « Ce gamin n'e
 
 Le cultivateur à la grosse tête se sentit profondément contrarié. Lorsqu'il avait aperçu la jeune fille pour la première fois, ce n'était qu'un bref instant, mais son désir s'était éveillé et il avait laissé échapper ces paroles. Il pensait que personne ne l'oserait, mais il n'imaginait pas que le Grand Ancien, qui n'avait jamais porté d'intérêt aux femmes, réagirait ainsi. Pour évacuer sa frustration, il attaqua avec rage en utilisant son trésor.
 
-Le brouillard généré par la formation était devenu très ténu. Des dix dragons de 333 mètres, il n'en subsistait plus qu'un, qui ne mesurait plus qu'une centaine de mètres de long. Qian Kun lança le pic de la main; il se réduisit en sceau et retourna entre les mains de son propriétaire, Kun Sang.
+Le brouillard généré par la formation était devenu très ténu. Des dix dragons de mille pieds, il n'en subsistait plus qu'un, qui ne mesurait plus qu'un peu plus de trois cents pieds de long. Qian Kun lança le pic de la main; il se réduisit en sceau et retourna entre les mains de son propriétaire, Kun Sang.
 
 Après avoir rendu le sceau, Qian Kun poussa un cri bref et bondit près du dragon. Il joignit les mains et, en les écartant, fit apparaître un filet électrique qui enveloppa la tête de la créature de brume. Avec un rictus féroce, il hurla: « Brise-toi! »
 
@@ -52,7 +52,7 @@ Le dragon de brouillard poussa un cri déchirant avant de se dissiper. Avec lui,
 
 Si Li Muwan n'avait pas été occupée à raffiner sa pilule et qu'elle avait pu contrôler la formation, celle-ci ne serait pas tombée si facilement.
 
-La formation brisée exposa l'entrée d'une grotte délabrée. Les dix cultivateurs de la Formation du Noyau de la Secte Dou Xie s'élancèrent, mais alors qu'ils approchaient à moins d'une soixantaine de mètres, des éclairs tombèrent du ciel. Bien que peu puissants individuellement, leur nombre était tel qu'ils semblaient menaçants.
+La formation brisée exposa l'entrée d'une grotte délabrée. Les dix cultivateurs de la Formation du Noyau de la Secte Dou Xie s'élancèrent, mais alors qu'ils approchaient à moins de deux cents pieds, des éclairs tombèrent du ciel. Bien que peu puissants individuellement, leur nombre était tel qu'ils semblaient menaçants.
 
 Les centaines de formations de base que Wang Lin avait disposées s'activèrent. Cependant, n'étant que des protections élémentaires, elles furent systématiquement balayées par les rugissements furieux des experts de la Formation du Noyau.
 

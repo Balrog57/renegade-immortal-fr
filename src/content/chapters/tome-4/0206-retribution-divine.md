@@ -188,7 +188,7 @@ Il s'apprêtait à bondir quand il s'arrêta de nouveau: Qiu Siping se retourna 
 
 Le démon Xu Liguo était perplexe: « Je suis juste là, ne m'as-tu pas vu à l'instant? Pourquoi dis-tu que je ne me montre pas? »
 
-Enragé, il se dirigea vers Qiu Siping. À moins de trois mètres, il pensa: « Agis! Dès que tu feras un geste, je te dévorerai. Même si je ne peux pas tout prendre, j'en prendrai la moitié, alors agis! »
+Enragé, il se dirigea vers Qiu Siping. À moins de dix pieds, il pensa: « Agis! Dès que tu feras un geste, je te dévorerai. Même si je ne peux pas tout prendre, j'en prendrai la moitié, alors agis! »
 
 Cependant, après avoir attendu un moment, Qiu Siping se retourna à nouveau.
 
@@ -294,7 +294,7 @@ Il leva les yeux vers les nuages comme s'il pouvait voir à travers eux, perceva
 
 Dans l'extrême ouest de la Mer Xiu Mo se trouvait un bassin rempli d'eau de mer. Comme ce n'était pas encore la saison pour que la brume se transforme en mer, le spectacle était prodigieux.
 
-L'eau commença soudainement à s'agiter violemment. Un homme vêtu d'une robe bleue surgit des profondeurs, provoquant de grandes vagues. Marchant sur l'écume, il flotta lentement vers le ciel. Il fixa les cieux avec un air de choc: « Tribulation Céleste? Depuis quand de tels événements se produisent-ils dans la Mer Xiu Mo? Cette rétribution devrait attirer tous les vieux monstres qui se cachent. » Un léger sourire étira ses lèvres. Son corps plana au-dessus de l'eau et, d'un geste de la main, il fit s'élever l'eau du bassin dans les airs.
+L'eau commença soudainement à s'agiter violemment. Un homme vêtu d'une robe bleue surgit des profondeurs, provoquant de grandes vagues. Marchant sur l'écume, il flotta lentement vers le ciel. Il fixa les cieux avec un air de choc: « Tribulation Céleste? Depuis quand de tels événements se produisent-ils dans la Mer Xiu Mo? Cette Tribulation Céleste devrait attirer tous les vieux monstres qui se cachent. » Un léger sourire étira ses lèvres. Son corps plana au-dessus de l'eau et, d'un geste de la main, il fit s'élever l'eau du bassin dans les airs.
 
 La scène était saisissante. L'homme replongea dans les eaux. D'un mouvement de la main, il projeta l'eau vers le nuage rouge avec une force irrésistible.
 

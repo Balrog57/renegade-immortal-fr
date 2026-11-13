@@ -20,7 +20,7 @@ Le regard de Wang Lin devint intense alors qu'il lâchait froidement: « Ignoran
 
 Être traitée d'ignorante une fois de plus fit s'emparer l'intention meurtrière des yeux de Hongdie, qui fixa Wang Lin avec hostilité.
 
-Chi Hu esquissa un sourire amer, leva rapidement la tête et dit: « Frère Ceng, il s'agit bien de la deuxième couche, mais mon ancêtre Xi Zu avait spéculé qu'il pourrait y avoir une troisième couche en dessous. »
+Chi Hu esquissa un sourire amer, leva rapidement la tête et dit: « Frère Zeng, il s'agit bien de la deuxième couche, mais mon ancêtre Xi Zu avait spéculé qu'il pourrait y avoir une troisième couche en dessous. »
 
 Hongdie fut stupéfaite. Ses yeux vacillèrent et elle resta silencieuse.
 
@@ -70,7 +70,7 @@ Plus les trois descendaient, plus la force de résistance s'intensifiait. Une fo
 
 Après un long moment, la résistance devint encore plus forte. Wang Lin prit une profonde inspiration et enveloppa son corps d'énergie spirituelle pour contrer la pression.
 
-Il calcula mentalement qu'ils avaient déjà descendu plus de trente-trois kilomètres sans que le fond n'apparaisse. Lorsqu'il déployait son sens divin vers le bas, une force mystérieuse l'empêchait de voir au-delà de trois kilomètres.
+Il calcula mentalement qu'ils avaient déjà descendu plus de cent mille pieds sans que le fond n'apparaisse. Lorsqu'il déployait son sens divin vers le bas, une force mystérieuse l'empêchait de voir au-delà de dix mille pieds.
 
 Wang Lin jeta un coup d'œil à Hongdie. Le corps de la femme dégageait une lueur bleue et son visage restait impassible. Quant à Chi Hu, la marque de hache sur son front clignotait rapidement. À chaque éclat, la force environnante diminuait légèrement. C'était un phénomène très mystérieux.
 
@@ -80,7 +80,7 @@ Wang Lin sortit son drapeau restrictif. En s'appuyant sur le drapeau pour braver
 
 Au moment où ils émergèrent, une explosion de lumière aveugla Wang Lin. Il se protégea rapidement avec le drapeau restrictif pour bloquer l'éclat, puis observa les environs avec son sens divin. Son expression devint soudainement très étrange.
 
-L'endroit n'était pas vaste, ne mesurant qu'environ 330 mètres de large. Au centre de cet espace se trouvait effectivement une mare d'eau.
+L'endroit n'était pas vaste, ne mesurant qu'environ mille pieds de large. Au centre de cet espace se trouvait effectivement une mare d'eau.
 
 Cependant...
 
@@ -122,11 +122,11 @@ Hongdie laissa échapper un léger renâcle. Elle se déplaça discrètement pr�
 
 Une force puissante les enveloppa instantanément. Le visage de Chi Hu devint livide et il cracha une bouffée de sang avant d'être projeté en arrière par l'onde de choc. Quant à Hongdie, elle laissa échapper un petit cri délicat tout en reculant brusquement, les yeux écarquillés par la surprise.
 
-Wang Lin, qui était déjà sur ses gardes car il sentait une présence les suivre, recula rapidement dès l'apparition de l'inconnu. Bien que la pression l'affectât, il ne fut pas blessé; seul son visage devint rouge et il fut repoussé d'une dizaine de mètres.
+Wang Lin, qui était déjà sur ses gardes car il sentait une présence les suivre, recula rapidement dès l'apparition de l'inconnu. Bien que la pression l'affectât, il ne fut pas blessé; seul son visage devint rouge et il fut repoussé de plusieurs dizaines de pieds.
 
 « Eh bien? » L'individu regarda Wang Lin et prit une longue gorgée de sa gourde.
 
-Chi Hu s'écria: « Zhou Yi, de la Secte des Cinq Éléments! »
+Chi Hu s'écria: « Zhou Yi, de la Secte Wu Xing! »
 
 L'homme d'âge moyen esquissa un sourire et demanda: « Petit gars du Clan Ju Mo, tu me connais? »
 

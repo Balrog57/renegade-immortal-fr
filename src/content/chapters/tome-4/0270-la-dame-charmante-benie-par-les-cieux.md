@@ -80,7 +80,7 @@ Seule cette neige était très étrange. Bien que le vent fût puissant, peu de 
 
 Aucune trace de panique ne se lisait sur le visage de Wang Lin. Il resta immobile dans les airs, le regard calme.
 
-Graduellement, un tourbillon de 330 mètres de diamètre apparut dans la forêt enneigée et la neige commença à s'écarter lentement.
+Graduellement, un tourbillon de mille pieds de diamètre apparut dans la forêt enneigée et la neige commença à s'écarter lentement.
 
 Wang Lin était resté ainsi pendant longtemps. Certains cultivateurs qui passaient par là remarquèrent sa présence.
 
@@ -96,7 +96,7 @@ Malheureusement, tenter de trouver ce type de bois dans cette neige revenait à 
 
 Dans le tourbillon, Wang Lin déploya son Sens Divin pour débusquer les branches dont il avait besoin. Après avoir récupéré tout ce qu'il pouvait, il sortit du tourbillon et appliqua la même technique sur la neige environnante.
 
-Peu à peu, à mesure que des tourbillons de 330 mètres apparaissaient dans la neige, la quantité de bois dans le sac de rangement de Wang Lin augmentait. Cela dura sept jours.
+Peu à peu, à mesure que des tourbillons de mille pieds apparaissaient dans la neige, la quantité de bois dans le sac de rangement de Wang Lin augmentait. Cela dura sept jours.
 
 Durant ces sept jours, toute cette zone fut défrichée. Une fois qu'il eut obtenu suffisamment de bois, Wang Lin jeta un dernier regard sur les lieux, puis partit.
 

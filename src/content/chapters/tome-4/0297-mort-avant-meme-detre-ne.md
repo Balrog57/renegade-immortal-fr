@@ -14,7 +14,7 @@ Le cultivateur aux robes vertes posa un pied dans la formation, puis se retourna
 
 Cependant, à cet instant précis, la silhouette de Wang Lin apparut soudainement au-dessus de la formation; et dès son apparition, il lança une cloche.
 
-Le visage du cultivateur aux robes vertes pâlit brusquement. Il n'aurait jamais imaginé que Wang Lin fût aussi rapide. Cette brève hésitation permit à la cloche, agrandie à plusieurs mètres de haut, d'envelopper le cultivateur et de l'emprisonner.
+Le visage du cultivateur aux robes vertes pâlit brusquement. Il n'aurait jamais imaginé que Wang Lin fût aussi rapide. Cette brève hésitation permit à la cloche, agrandie à plusieurs dizaines de pieds, d'envelopper le cultivateur et de l'emprisonner.
 
 Sur ce, Wang Lin tendit la main droite et le drapeau de restriction retomba dans sa paume. D'une secousse, il l'étendit pour envelopper la cloche avec lui, puis ils disparurent sur place et, lorsqu'il réapparut, il était déjà au sol.
 

@@ -42,7 +42,7 @@ L'homme étrange finit par réagir, ses yeux empreints d'anxiété. Il fixa Wang
 
 Wang Lin était stupéfait. C'est alors qu'une voix pressante émana de la sphère de lumière.
 
-« Jeune ami, je t'en prie, ne sois pas impulsif. Je ne te veux aucun mal. Je suis le maître de la personne qui se trouve dehors... » Au même moment, d'innombrables rayons de lumière convergèrent de toutes les directions vers la sphère. Lentement, celle-ci prit la forme d'un petit être d'une trentaine de centimètres de haut.
+« Jeune ami, je t'en prie, ne sois pas impulsif. Je ne te veux aucun mal. Je suis le maître de la personne qui se trouve dehors... » Au même moment, d'innombrables rayons de lumière convergèrent de toutes les directions vers la sphère. Lentement, celle-ci prit la forme d'un petit être d'un pied de haut.
 
 Ce petit personnage semblait très faible. Son corps entier était terne et sans éclat, et il avait l'apparence d'un enfant. Il esquivait sans cesse l'épée verte tout en saluant Wang Lin à plusieurs reprises, mains jointes, le visage empreint de crainte.
 

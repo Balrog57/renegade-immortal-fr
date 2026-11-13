@@ -126,7 +126,7 @@ Le vieil homme leva la tête et regarda au loin. Ses yeux semblaient capables de
 
 Liu Mei se leva. Ses vêtements fins collaient à sa peau, révélant une silhouette aux courbes parfaites et exquises. Elle soupira, sortit du bassin froid et, d'un geste de la main droite, fit monter une brume blanche autour de son corps. Lorsque la brume se dissipa, une beauté incomparable apparut.
 
-Elle portait une robe intérieure rose pâle sous une robe blanche qui laissait entrevoir son cou gracieux. Les plis de sa jupe, traînant sur plus d'un mètre, flottaient avec légèreté, tels des reflets de lune splendides sur le sol.
+Elle portait une robe intérieure rose pâle sous une robe blanche qui laissait entrevoir son cou gracieux. Les plis de sa jupe, traînant sur plus de trois pieds, flottaient avec légèreté, tels des reflets de lune splendides sur le sol.
 
 Trois mille mèches de ses cheveux étaient attachées par un ruban, tandis qu'une seule retombait devant sa poitrine. Sa peau était aussi blanche que la neige et le léger fard rouge qui colorait son visage lui donnait une aura charmante et délicate. Elle ressemblait à un magnifique papillon flottant dans le vent, tout en étant aussi froide que la glace...
 
@@ -142,7 +142,7 @@ Cependant, les yeux de Hongdie étaient comme des trous noirs; elle ne présenta
 
 Liu Mei regarda calmement Hongdie sans prononcer un mot.
 
-Qian Feng s'arrêta à 10 mètres de Liu Mei. Il afficha un sourire révélant ses dents blanches et dit: « Junior sœur, t'en vas-tu déjà? »
+Qian Feng s'arrêta à trente pieds de Liu Mei. Il afficha un sourire révélant ses dents blanches et dit: « Junior sœur, t'en vas-tu déjà? »
 
 Liu Mei hocha la tête et murmura: « Senior frère Qian Feng, la personne derrière vous est-ce Hongdie? »
 

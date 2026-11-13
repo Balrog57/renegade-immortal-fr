@@ -50,7 +50,7 @@ Non seulement l'aura de la bête spirituelle changea avec la levée du premier s
 
 La lueur noire glissa le long des chaînes pour pénétrer dans le corps de la bête spirituelle.
 
-Celle-ci poussa un rugissement maniaque et son corps grandit soudainement de plusieurs multiples, passant d'une centaine de mètres à plus de trois cents mètres. Elle se dressa telle une bête titanesque avant de secouer violemment son corps.
+Celle-ci poussa un rugissement maniaque et son corps grandit soudainement de plusieurs multiples, passant de plusieurs centaines de pieds à plus de mille pieds. Elle se dressa telle une bête titanesque avant de secouer violemment son corps.
 
 Pour la première fois, Chen Tao, qui se tenait sur elle, vit son expression changer brusquement!
 
@@ -60,7 +60,7 @@ Des vagues de lumière noire jaillirent de la bête et se précipitèrent vers C
 
 À cet instant, le corps gigantesque de la bête fut enveloppé par l'obscurité noire, avant qu'elle ne se disperse soudainement en rayons de lumière, comme si son essence même s'était effondrée.
 
-Au final, il ne restait que le tendon de dragon tenant le vide, et Chen Tao, dont le visage était déformé par une expression disgracieuse. Devant lui, des rayons de lumière noire tourbillonnaient en cercle. En un clin d'œil, ces rayons se reformèrent pour reconstituer la bête spirituelle géante à plus de trois cents mètres de distance de Chen Tao!
+Au final, il ne restait que le tendon de dragon tenant le vide, et Chen Tao, dont le visage était déformé par une expression disgracieuse. Devant lui, des rayons de lumière noire tourbillonnaient en cercle. En un clin d'œil, ces rayons se reformèrent pour reconstituer la bête spirituelle géante à mille pieds de distance de Chen Tao!
 
 Après l'ouverture du premier sceau, la bête ne comptait plus uniquement sur la dévoration pour attaquer; elle pouvait désormais utiliser certaines de ses capacités innées.
 
@@ -84,7 +84,7 @@ Cette scène stupéfia la majorité des cultivateurs environnants. Même Tian Yu
 
 Parmi les spectateurs, un vieil homme au visage rubicond, portant une immense gourde rouge dans le dos, laissa échapper un rot d'ivrogne en murmurant: « Pourquoi ce sort ressemble-t-il exactement à celui utilisé par ce fou que j'ai croisé en chemin? »
 
-Lorsque Chen Tao fut à 16 mètres de Wang Lin, il fut soudainement envahi par un sentiment de danger qu'il n'éprouvait presque plus ces dernières années, sauf face à de vieux monstres. À cet instant précis, toute l'aura vitale de Wang Lin disparut. Seuls ses yeux brillaient, mais ils étaient empreints de la froideur de la mort. Ce regard glaça Chen Tao!
+Lorsque Chen Tao fut à cinquante pieds de Wang Lin, il fut soudainement envahi par un sentiment de danger qu'il n'éprouvait presque plus ces dernières années, sauf face à de vieux monstres. À cet instant précis, toute l'aura vitale de Wang Lin disparut. Seuls ses yeux brillaient, mais ils étaient empreints de la froideur de la mort. Ce regard glaça Chen Tao!
 
 « Quel genre de regard est-ce là?! Même ceux qui cultivent le Dao impitoyable ne peuvent posséder une telle expression! »
 
@@ -106,7 +106,7 @@ L'intention de combat dans les yeux de Chen Tao s'intensifia; son corps vacilla 
 
 Un bruit fracassant, capable de briser le ciel, résonna devant Chen Tao. Le firmament sembla être déchiré par une tornade et le domaine de la vie et de la mort se dissipa.
 
-Le corps de Wang Lin fut projeté en arrière d'une centaine de mètres, puis recula encore de plus de trois cents mètres avant de cracher une gorgée de sang. L'énergie spirituelle céleste dans son corps était totalement déréglée. Il leva les yeux vers Chen Tao et dit d'un ton sombre: « J'abandonne! »
+Le corps de Wang Lin fut projeté en arrière de plusieurs centaines de pieds, puis recula encore de mille pieds avant de cracher une gorgée de sang. L'énergie spirituelle céleste dans son corps était totalement déréglée. Il leva les yeux vers Chen Tao et dit d'un ton sombre: « J'abandonne! »
 
 Quant à Chen Tao, son expression était redevenue normale alors qu'il baissait ses bras, fixant Wang Lin d'un regard indifférent. Son intention de combat ne faiblit pas, elle s'intensifia même lorsqu'il déclara solennellement: « Une fois que tu auras atteint le stade Ascendant, nous nous battrons à nouveau, Septième Frère! »
 
@@ -124,7 +124,7 @@ Tian Yunzi hocha la tête, puis son regard parcourut les cultivateurs présents.
 
 De nombreux cultivateurs répondirent poliment, mais la plupart partirent aussitôt. En une seule journée, des dizaines de milliers de rayons de lumière quittèrent la Secte Tian Yun pour s'enfoncer dans l'horizon.
 
-Le Saint de l'Épée, Ling Tianhou, sourit et, d'un pas de trente-trois mètres, se transforma en un rayon de lumière pour s'éloigner. En partant, il lança: « Vieux Tian Yunzi, comme convenu, nous nous retrouverons dans trois mois devant la porte de la Mer Yao Ling. Tu ferais mieux d'avoir déjà choisi les hommes que tu enverras! »
+Le Saint de l'Épée, Ling Tianhou, sourit et, d'un pas de cent pieds, se transforma en un rayon de lumière pour s'éloigner. En partant, il lança: « Vieux Tian Yunzi, comme convenu, nous nous retrouverons dans trois mois devant la porte de la Mer Yao Ling. Tu ferais mieux d'avoir déjà choisi les hommes que tu enverras! »
 
 Les yeux de Tian Yunzi devinrent sérieux et il hocha la tête. Il se tourna vers Wang Lin et dit: « Wang Lin, suis-moi pour vénérer l'esprit ancestral. Ensuite, Maître t'enseignera un sort interdit et te remettra un trésor de protection. Après cela, tu seras considéré comme mon véritable disciple! »
 

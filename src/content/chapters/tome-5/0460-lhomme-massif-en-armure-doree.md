@@ -56,7 +56,7 @@ Au bout de cette mer se trouvait une île d'un or sombre. Un bâtiment s'y dress
 
 Une fois la porte franchie, les yeux d'Yun Quezi brillèrent d'une lueur mystérieuse et il fonça rapidement vers cette île.
 
-Le vieil homme le suivit de près. Ses pieds s'activèrent et il vola prestement vers le palais, n'étant qu'à moins de cent mètres derrière Yun Quezi. Les yeux du singe sur son épaule brillèrent intensément, révélant une expression d'excitation.
+Le vieil homme le suivit de près. Ses pieds s'activèrent et il vola prestement vers le palais, n'étant qu'à moins de trois cents pieds derrière Yun Quezi. Les yeux du singe sur son épaule brillèrent intensément, révélant une expression d'excitation.
 
 Quant aux autres, Qian Feng et Liu Mei volaient également vers l'île à toute vitesse.
 
@@ -76,7 +76,7 @@ Le visage d'Yun Quezi s'assombrit. Il laissa échapper un grognement et chargea 
 
 Cependant, au même instant, le palais trembla soudainement et des rayons de lumière éblouissants en jaillirent. Yun Quezi fut expulsé du palais avec une expression de dépit. Il était sous le choc.
 
-Le petit singe poussa quelques couinements tandis qu'il était lui aussi repoussé. La lueur rouge dans ses yeux s'étira comme une lame de lumière de plus de trente centimètres de long, un spectacle impressionnant. Le singe ne retourna pas vers le vieil homme; il resta là, immobile, fixant le palais d'un regard féroce.
+Le petit singe poussa quelques couinements tandis qu'il était lui aussi repoussé. La lueur rouge dans ses yeux s'étira comme une lame de lumière de plus d'un pied de long, un spectacle impressionnant. Le singe ne retourna pas vers le vieil homme; il resta là, immobile, fixant le palais d'un regard féroce.
 
 Simultanément, des grondements profonds émanèrent du palais alors qu'un homme massif en armure dorée en sortit.
 
@@ -86,7 +86,7 @@ Une chevelure noire flottait dans son dos. D'un bond, il atteignit le sommet du 
 
 En un clin d'œil, l'île fut submergée par la mer dorée et disparut.
 
-L'expression d'Yun Quezi était mécontente. Alors qu'il était sur le point de sombrer dans la mer dorée, l'homme massif en armure dorée fit tournoyer son épée. Une vague d'énergie de sabre de 330 mètres de long s'abattit sur lui.
+L'expression d'Yun Quezi était mécontente. Alors qu'il était sur le point de sombrer dans la mer dorée, l'homme massif en armure dorée fit tournoyer son épée. Une vague d'énergie de sabre de mille pieds de long s'abattit sur lui.
 
 Yun Quezi poussa un rugissement. Ses cheveux se mirent à onduler sans vent et il pointa le vide. Une lueur rouge se condensa dans sa main et entra en collision avec l'énergie de l'épée.
 
@@ -94,13 +94,13 @@ Dans un fracas, le corps d'Yun Quezi fut projeté comme une météorite dans la 
 
 L'homme massif en armure dorée ne le poursuivit pas, mais tourna son regard vers le petit singe. L'énergie de l'épée se concentra sur sa lame dorée et il s'apprêta à frapper.
 
-Les yeux du petit singe devinrent encore plus rouges. La lumière rouge mesurait désormais plus d'un mètre de long, lui donnant un aspect extrêmement féroce.
+Les yeux du petit singe devinrent encore plus rouges. La lumière rouge mesurait désormais plus de trois pieds de long, lui donnant un aspect extrêmement féroce.
 
 L'homme massif fut surpris et interrompit son geste.
 
 Le petit singe sourit et rejoignit le vieil homme. Ils s'apprêtaient à plonger dans la mer.
 
-Lorsque l'homme massif regarda le vieil homme, ses yeux s'illuminèrent et l'énergie de l'épée, interrompue plus tôt, se remit en mouvement. Une vague d'énergie de sabre de 330 mètres de long jaillit vers le vieil homme, mais avant même qu'elle ne puisse l'atteindre, la mer sous ses pieds se fendit.
+Lorsque l'homme massif regarda le vieil homme, ses yeux s'illuminèrent et l'énergie de l'épée, interrompue plus tôt, se remit en mouvement. Une vague d'énergie de sabre de mille pieds de long jaillit vers le vieil homme, mais avant même qu'elle ne puisse l'atteindre, la mer sous ses pieds se fendit.
 
 Le vieil homme poussa un rugissement et ses yeux brillèrent de rouge. Dès que l'énergie de l'épée approcha, une image illusoire rouge émana de son corps.
 
@@ -120,7 +120,7 @@ Mais lorsqu'ils agirent ensemble, il n'attaqua qu'une seule fois.
 
 Il semblait que l'homme massif les avait testés en tant qu'unité.
 
-À cet instant précis, les yeux de l'homme massif s'illuminèrent et il abattit son épée. Un rayon d'énergie de sabre frappa la mer, provoquant une série de grondements qui se propagèrent sous l'eau. Une immense vague surgit des profondeurs, propulsant Zhou Wutai et Zi Xin dans les airs. Ils s'arrêtèrent à plus de trois cents mètres de là. Le visage de Zhou Wutai était livide et il commença à cracher du sang.
+À cet instant précis, les yeux de l'homme massif s'illuminèrent et il abattit son épée. Un rayon d'énergie de sabre frappa la mer, provoquant une série de grondements qui se propagèrent sous l'eau. Une immense vague surgit des profondeurs, propulsant Zhou Wutai et Zi Xin dans les airs. Ils s'arrêtèrent à plus de mille pieds de là. Le visage de Zhou Wutai était livide et il commença à cracher du sang.
 
 Quant à Zi Xin, son visage était marqué par le choc.
 

@@ -14,7 +14,7 @@ En plus de ces douze fragments de la Transformation de l'Âme, il y avait plusie
 
 Alors que les douze fragments de la Transformation de l'Âme s'inclinaient, tous les autres fragments à l'intérieur du drapeau se turent. Une force spirituelle émana de chaque fragment sous forme de gaz noir et se rassembla devant l'âme originelle de Wang Lin.
 
-Des volutes de gaz noir convergèrent de toutes les directions; même les douze fragments de la Transformation de l'Âme se transformèrent en brins de fumée noire. Tout ce gaz s'agglutina pour former un drapeau de plus de dix mètres de haut devant l'âme originelle de Wang Lin.
+Des volutes de gaz noir convergèrent de toutes les directions; même les douze fragments de la Transformation de l'Âme se transformèrent en brins de fumée noire. Tout ce gaz s'agglutina pour former un drapeau de plus de trente pieds de haut devant l'âme originelle de Wang Lin.
 
 Tout ce que Wang Lin voyait se trouvait à l'intérieur du drapeau de l'âme. Le drapeau qui apparaissait devant lui était l'esprit même de l'artefact. S'il parvenait à le maîtriser, il pourrait véritablement contrôler ce drapeau d'un milliard d'âmes.
 
@@ -32,7 +32,7 @@ Le Clan Ju Mo.
 
 Le territoire du Clan Ju Mo était vaste. Lorsqu'ils avaient migré depuis une autre planète, ils avaient conclu un accord avec celui qui occupait alors la fonction de Suzaku, et ce territoire leur avait été octroyé pour qu'ils puissent y prospérer.
 
-Au sein du Clan Ju Mo se trouvaient douze Palais Ju Mo. Les douze palais étaient identiques et d'une taille immense, hauts d'environ 330 mètres.
+Au sein du Clan Ju Mo se trouvaient douze Palais Ju Mo. Les douze palais étaient identiques et d'une taille immense, hauts d'environ mille pieds.
 
 Depuis deux ans, lorsque l'ancêtre avait perdu son corps pour en posséder un autre, plus personne au sein du clan ne savait où il se trouvait.
 
@@ -74,13 +74,13 @@ Chi Hu soupira et disparut du palais.
 
 Après avoir lancé son message, Wang Lin resta là, calme.
 
-En un clin d'œil, d'innombrables rayons de lumière surgirent de toutes les directions pour s'immobiliser à 330 mètres de lui. Hommes et femmes, vieillards et jeunes gens; tous le fixaient avec des expressions sombres.
+En un clin d'œil, d'innombrables rayons de lumière surgirent de toutes les directions pour s'immobiliser à mille pieds de lui. Hommes et femmes, vieillards et jeunes gens; tous le fixaient avec des expressions sombres.
 
 Outre ces individus, une multitude d'autres arrivaient en volant.
 
 À cet instant, un vieil homme apparut de nulle part et tous les autres membres du clan s'écartèrent pour lui laisser le passage.
 
-Le vieil homme s'arrêta à 330 mètres de Wang Lin. Il fronça les sourcils et cria: « Daoïste, qui êtes-vous? »
+Le vieil homme s'arrêta à mille pieds de Wang Lin. Il fronça les sourcils et cria: « Daoïste, qui êtes-vous? »
 
 Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha: « Zeng Niu! »
 
@@ -94,7 +94,7 @@ Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha
 
 « La rumeur dit qu'il a déjà atteint le stade de la Transformation de l'Âme, sans quoi il n'aurait jamais pu tuer Li Yuanfeng. »
 
-Même le vieillard qui avait pris la parole prit une profonde inspiration. Il regarda Zeng Niu et demanda lentement: « Camarade cultivateur Zeng Niu, que cherchez-vous auprès de l'ancêtre de mon clan? »
+Même le vieillard qui avait pris la parole prit une profonde inspiration. Il regarda Zeng Niu et demanda lentement: « Daoïste Zeng Niu, que cherchez-vous auprès de l'ancêtre de mon clan? »
 
 Les yeux de Wang Lin étaient glacials lorsqu'il répondit: « Tuer! »
 
@@ -106,11 +106,11 @@ Sur ces mots, le vieillard frappa son sac de rangement et un jeton noir en émer
 
 Chaque membre du clan ressentit l'appel de cette force occulte.
 
-Sous les ordres de l'Ancien, les centaines de membres entourant Wang Lin poussèrent des rugissements et leurs corps se mirent à croître de façon spectaculaire. En un instant, ils s'étaient tous transformés en géants de plus de dix mètres de haut. Ils touchèrent leur front et des haches de guerre apparurent dans leurs mains.
+Sous les ordres de l'Ancien, les centaines de membres entourant Wang Lin poussèrent des rugissements et leurs corps se mirent à croître de façon spectaculaire. En un instant, ils s'étaient tous transformés en géants hauts de dizaines de pieds. Ils touchèrent leur front et des haches de guerre apparurent dans leurs mains.
 
 L'aura qu'ils dégageaient était capable de briser les cieux!
 
-« Tuez! » rugit l'Ancien, tandis que des craquements tonnerre secouaient son corps. Il devint un géant de 33 mètres de haut et abattit une hache parcourue d'éclairs pourpres sur Wang Lin.
+« Tuez! » rugit l'Ancien, tandis que des craquements tonnerre secouaient son corps. Il devint un géant de cent pieds de haut et abattit une hache parcourue d'éclairs pourpres sur Wang Lin.
 
 « Tuez!!! » Les membres du clan environnants chargèrent Wang Lin dans un fracas de hurlements. Leurs cris fusionnèrent en une onde sonore qui accompagnait leur assaut.
 
@@ -148,7 +148,7 @@ Surpris par cette résistance, Wang Lin lança un coup de poing fulgurant à dis
 
 Bang!
 
-L'Ancien cracha du sang et fut projeté en arrière de plus de dix mètres avant de percuter un autre membre du clan. Ce dernier cracha également du sang et, ensemble, ils furent repoussés sur plusieurs dizaines de mètres avant de s'immobiliser.
+L'Ancien cracha du sang et fut projeté en arrière de plusieurs dizaines de pieds avant de percuter un autre membre du clan. Ce dernier cracha également du sang et, ensemble, ils furent repoussés sur plusieurs centaines de pieds avant de s'immobiliser.
 
 À cet instant, deux brins de gaz gris les rattrapèrent et pénétrèrent dans leurs corps.
 

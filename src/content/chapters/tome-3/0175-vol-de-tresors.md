@@ -114,7 +114,7 @@ Le tourbillon où se trouvait Wang Lin étant loin derrière, cela ne l'affecta 
 
 Quant à la lance de sens divin, Meng Tuozi lui jeta un seul regard avant de former un sceau avec ses mains et de lancer un chant complexe. Soudain, un petit chaudron quadrupède enveloppé de gaz jaillit de sa bouche.
 
-Dès l'apparition du chaudron, un épais gaz vert commença à s'en échapper. La lance percuta le petit objet. La collision provoqua un grondement de tonnerre et une onde de choc d'une épaisseur de 33 mètres se propagea rapidement. Même les tourbillons furent contraints de s'écarter; ceux qui ne furent pas assez rapides furent frappés par l'onde, transformant les petites créatures à l'intérieur en poussière.
+Dès l'apparition du chaudron, un épais gaz vert commença à s'en échapper. La lance percuta le petit objet. La collision provoqua un grondement de tonnerre et une onde de choc de plus de cent pieds d'épaisseur se propagea rapidement. Même les tourbillons furent contraints de s'écarter; ceux qui ne furent pas assez rapides furent frappés par l'onde, transformant les petites créatures à l'intérieur en poussière.
 
 Les yeux de Wang Lin brillèrent tandis qu'il reculait avec les autres tourbillons, mais son regard restait verrouillé sur Meng Tuozi sans ciller.
 

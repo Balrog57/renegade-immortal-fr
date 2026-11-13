@@ -48,7 +48,7 @@ Teng Huayuan fronça les sourcils en observant Chen Huan, Chen Yan et Xin Hai. I
 
 Même les petites familles, les petites sectes et les cultivateurs indépendants remarquèrent l'anomalie; ils se rassemblèrent et commencèrent à s'interroger.
 
-C'est alors que le ciel s'obscurcit soudainement et qu'un cercle de lumière apparut silencieusement. Ce cercle flotta jusqu'au milieu du ciel, avant de s'étendre pour atteindre un diamètre d'une trentaine de mètres. Quatre personnes en sortirent.
+C'est alors que le ciel s'obscurcit soudainement et qu'un cercle de lumière apparut silencieusement. Ce cercle flotta jusqu'au milieu du ciel, avant de s'étendre pour atteindre un diamètre de cent pieds. Quatre personnes en sortirent.
 
 À la tête du groupe se trouvait un homme corpulent comme une boule, arborant un sourire constant. Mais dès son apparition, tous les cultivateurs de l'Âme Naissante s'élancèrent dans les airs pour se tenir respectueusement à ses côtés.
 

@@ -8,7 +8,7 @@ slug: zhao-xinmeng
 ---
 Bai Wei hocha la tête et dit respectueusement: « Ce disciple abandonne! »
 
-La quatrième sœur, Zhao Xinmeng, regarda Wang Lin avec une expression sérieuse et dit doucement: « Septième frère, si je devais moi aussi abandonner, il serait trop facile pour toi d'obtenir ce titre. La bataille entre nous aura lieu aujourd'hui! »
+La Quatrième Senior sœur, Zhao Xinmeng, regarda Wang Lin avec une expression sérieuse et dit doucement: « Septième frère, si je devais moi aussi abandonner, il serait trop facile pour toi d'obtenir ce titre. La bataille entre nous aura lieu aujourd'hui! »
 
 L'image des yeux terrifiés de Yundao Zi apparut dans l'esprit de Wang Lin, et un air d'hésitation se lut sur son visage.
 
@@ -18,7 +18,7 @@ Tian Yunzi fut surpris. C'était la première fois que Wang Lin voyait une telle
 
 L'expression calme de Zhao Xinmeng disparut, remplacée par un air étrange. Elle fixa Wang Lin et réfléchit en silence.
 
-La peur inscrite sur le visage de Yundao Zi n'avait toujours pas quitté l'esprit de Wang Lin. Après avoir entendu les paroles de Tian Yunzi, il réfléchit un instant avant de répondre: « Le niveau de culture de ce disciple n'est pas assez élevé pour rivaliser avec celui de la quatrième sœur... »
+La peur inscrite sur le visage de Yundao Zi n'avait toujours pas quitté l'esprit de Wang Lin. Après avoir entendu les paroles de Tian Yunzi, il réfléchit un instant avant de répondre: « Le niveau de culture de ce disciple n'est pas assez élevé pour rivaliser avec celui de la Quatrième Senior sœur... »
 
 « Wang Lin! » Tian Yunzi l'interrompit, lui lança un regard plein de sens et déclara d'un ton solennel: « Ton Maître souhaite que tu te battes pour l'obtenir, ne serait-ce qu'une fois! Mes disciples ne doivent pas être des lâches. De plus, tu ne dois pas te laisser envoûter par les autres au point d'avoir le cœur rempli de pensées inutiles. Souviens-toi simplement que tu dois suivre tes propres désirs en toute chose. Je te donne le temps d'un demi-bâton d'encens pour y réfléchir sérieusement. Si tu décides toujours d'abandonner, je ne t'en empêcherai pas! » Tian Yunzi fronça les sourcils, puis il tourna un regard sombre vers Yundao Zi.
 
@@ -70,7 +70,7 @@ La perle, initialement blanche et immaculée, était désormais d'un noir profon
 
 Zhao Xinmeng tint la perle en souriant: « Septième frère, je ne me battrai pas contre toi pour le titre de disciple véritable, mais cette énergie démoniaque doit m'appartenir! »
 
-Wang Lin observa la perle et dit d'un ton sérieux: « Tu as créé la Main Démoniaque Violette pour me forcer à utiliser le Doigt Démoniaque afin d'en absorber l'énergie. Quatrième sœur, si tu m'avais demandé directement, je n'y aurais vu d'inconvénient, mais maintenant, il te sera impossible de t'emparer de cette énergie! »
+Wang Lin observa la perle et dit d'un ton sérieux: « Tu as créé la Main Démoniaque Violette pour me forcer à utiliser le Doigt Démoniaque afin d'en absorber l'énergie. Quatrième Senior sœur, si tu m'avais demandé directement, je n'y aurais vu d'inconvénient, mais maintenant, il te sera impossible de t'emparer de cette énergie! »
 
 À l'instant où Wang Lin eut fini de parler, l'énergie démoniaque contenue dans la perle de Zhao Xinmeng disparut comme si elle n'avait jamais existé. En un instant, la perle sombre redevint d'un blanc pur.
 
@@ -80,7 +80,7 @@ Ce type d'énergie spirituelle céleste modifiée ne pouvait être transmis à a
 
 Le visage de Zhao Xinmeng s'assombrit et ses sourcils se froncèrent. Elle regarda la perle dans sa main et la broya d'une pression brutale. Puis, elle leva les yeux vers Wang Lin et dit doucement: « Septième frère, je ne veux qu'un peu de ton énergie démoniaque. Si tu me la donnes, j'abandonne. Sinon... »
 
-Wang Lin la regarda. Bien qu'ils aient eu des interactions par le passé, ils ne se devaient rien l'un à l'autre. Il répondit calmement: « Quatrième sœur, je ne peux pas t'aider en cela. »
+Wang Lin la regarda. Bien qu'ils aient eu des interactions par le passé, ils ne se devaient rien l'un à l'autre. Il répondit calmement: « Quatrième Senior sœur, je ne peux pas t'aider en cela. »
 
 Zhao Xinmeng fixa Wang Lin. Un instant plus tard, elle leva la main droite et déclara doucement: « Tactique de Raffinement Céleste en Neuf Cycles! »
 

@@ -90,7 +90,7 @@ Il fixa Wang Lin et dit d'une voix basse: « Vous devriez vous sentir honoré. V
 
 Une fois son discours terminé, le visage de Ji Mo était empreint de fierté. Les mains derrière le dos et la tête haute vers le ciel, sa silhouette dégageait l'assurance d'un être invincible, teintée d'une pointe de solitude.
 
-Après un soupir, il jeta un dernier regard à Wang Lin, puis s'éloigna lentement. À environ 330 mètres de distance, il accéléra soudainement et disparut sans même se retourner.
+Après un soupir, il jeta un dernier regard à Wang Lin, puis s'éloigna lentement. À environ mille pieds de distance, il accéléra soudainement et disparut sans même se retourner.
 
 Wang Lin afficha une expression étrange. Ses yeux brillèrent d'un rouge éclatant tandis que le Sens Divin du Royaume Ji s'anima brusquement et jaillit en une série d'éclairs rouges.
 
@@ -122,7 +122,7 @@ Un silence pesant s'installa. Après un moment, les yeux d'Yin Yang s'illuminèr
 
 L'homme hocha la tête, mais hésita: « Senior frère, et si Teng Huayuan... finissait par mourir? »
 
-Les yeux d'Yin Yang brillèrent d'un éclat malicieux: « Ne sous-estime pas Pu Nanzi. Il interviendra à coup sûr. Et même si son propre niveau n'est pas suffisant, la présence de la personne de la Tour Céleste ne suffira-t-elle pas? »
+Les yeux d'Yin Yang brillèrent d'un éclat malicieux: « Ne sous-estime pas Pu Nanzi. Il interviendra à coup sûr. Et même si son propre niveau n'est pas suffisant, la présence de la personne de la Tour Tong Tian ne suffira-t-elle pas? »
 
 L'homme fut stupéfait, avant d'acquiescer d'un regard comprenant la situation.
 

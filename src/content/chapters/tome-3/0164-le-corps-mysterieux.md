@@ -128,11 +128,11 @@ Une pensée supplémentaire le traversa: le gaz noir entrant dans le corps de ce
 
 Le visage de Wang Lin se remplit d'effroi. Il était désormais convaincu à 90 % que sa théorie était juste. Cette personne pratiquait une technique occulte en utilisant les cadavres des centaines de salles environnantes comme réserve.
 
-Wang Lin commença à suspecter que cet individu n'était pas un membre du Temple Zhan Shen. Il est probable que le Sanctuaire ignore même son existence, sans quoi l'Ancien au visage rouge ne serait pas si nonchalant, et surtout, il n'aurait pas laissé Wang Lin seul ici.
+Wang Lin commença à suspecter que cet individu n'était pas un membre du Temple Zhan Shen. Il est probable que le Temple Zhan Shen ignore même son existence, sans quoi l'Ancien au visage rouge ne serait pas si nonchalant, et surtout, il n'aurait pas laissé Wang Lin seul ici.
 
-Bien sûr, une intention malveillante de l'Ancien était possible, mais après réflexion, la mort de Wang Lin n'apporterait aucun bénéfice au Sanctuaire. Il n'y avait aucune raison d'engager de tels efforts pour cela.
+Bien sûr, une intention malveillante de l'Ancien était possible, mais après réflexion, la mort de Wang Lin n'apporterait aucun bénéfice au Temple Zhan Shen. Il n'y avait aucune raison d'engager de tels efforts pour cela.
 
-Plus il analysait, plus ses spéculations s'affirmaient. Cet endroit devait être le lieu de repos des ancêtres du Sanctuaire, et pour une raison inconnue, cela avait attiré cet intrus qui venait y cultiver sa technique.
+Plus il analysait, plus ses spéculations s'affirmaient. Cet endroit devait être le lieu de repos des ancêtres du Temple Zhan Shen, et pour une raison inconnue, cela avait attiré cet intrus qui venait y cultiver sa technique.
 
 Wang Lin recula de quelques pas. Il ressentit une vague d'air froid passer près de lui, comme si un regard l'observait depuis plusieurs jours.
 

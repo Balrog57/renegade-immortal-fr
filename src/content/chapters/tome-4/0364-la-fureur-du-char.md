@@ -12,7 +12,7 @@ Cette souffrance était telle qu'il eut l'impression que son cœur était transp
 
 Sans la moindre hésitation, il mobilisa son énergie spirituelle pour se stabiliser et, par une téléportation, regagna son corps.
 
-Wang Lin ouvrit les yeux et s'éloigna brusquement de plus de 330 mètres, le regard chargé de choc. L'attaque du géant venait d'être d'une étrangeté sans précédent.
+Wang Lin ouvrit les yeux et s'éloigna brusquement de mille pieds, le regard chargé de choc. L'attaque du géant venait d'être d'une étrangeté sans précédent.
 
 « Quel genre de fouet est-ce là? » Les yeux de Wang Lin brillèrent tandis qu'il fixait le géant de glace.
 
@@ -20,7 +20,7 @@ Par chance, l'énergie de son épée avait atteint le géant et la foudre de la 
 
 Au moment même où l'énergie de l'épée frappait la taille du géant, la foudre de la Tribulation Céleste détruisit les derniers vestiges des gaz restrictifs et disparut soudainement. Les nuages rouges s'évanouirent aussi vite qu'ils étaient apparus, et le ciel retrouva son aspect normal, comme si ces nuages n'avaient jamais existé.
 
-Le géant de glace secoua son corps, faisant tomber des fragments de glace au sol. Il ne mesurait plus que la moitié de sa taille initiale, soit 16,5 mètres de haut.
+Le géant de glace secoua son corps, faisant tomber des fragments de glace au sol. Il ne mesurait plus que la moitié de sa taille initiale, soit cinquante pieds de haut.
 
 La blessure à sa taille se referma rapidement pour finir par disparaître. Cependant, l'image du fouet restait gravée sur sa poitrine, dégageant une lueur démoniaque.
 
@@ -96,7 +96,7 @@ Après l'impact, le géant recula encore davantage. Hongdie lutta pour ouvrir le
 
 Le corps du colosse s'anima. Il abattit son poing, et l'image du fouet apparut instantanément.
 
-Sans hésiter, Wang Lin utilisa l'épée céleste pour parer le coup. Dans un fracas assourdissant, Wang Lin fut repoussé de plus de 33 mètres. Bien que l'épée céleste fût intacte, Wang Lin cracha du sang sous la violence du choc.
+Sans hésiter, Wang Lin utilisa l'épée céleste pour parer le coup. Dans un fracas assourdissant, Wang Lin fut repoussé de plus de cent pieds. Bien que l'épée céleste fût intacte, Wang Lin cracha du sang sous la violence du choc.
 
 À cet instant précis, le géant de glace bondit devant lui et abattit son poing, lequel était encore imprégné de l'image du fouet.
 
@@ -104,7 +104,7 @@ Le visage de Wang Lin devint grave alors qu'il lançait rapidement l'épée cél
 
 Au moment où le poing percuta Wang Lin, l'épée passa près du bras droit et sectionna l'intégralité du membre.
 
-L'épée céleste différait grandement de la simple énergie d'épée. Elle retomba à 330 mètres de là, s'enfonçant profondément dans le sol.
+L'épée céleste différait grandement de la simple énergie d'épée. Elle retomba à mille pieds de là, s'enfonçant profondément dans le sol.
 
 Le sang jaillit de tout le corps de Wang Lin et nombre de ses os furent brisés. Pourtant, il éclata de rire: « Hongdie, j'ai pris l'un de tes bras, et maintenant je prends l'un des bras de cet inutile géant de glace. Vous voilà assortis! »
 
@@ -134,7 +134,7 @@ Mais à cet instant précis, le fouet apparut soudainement sur la poitrine du g�
 
 *Bang!*
 
-Wang Lin cracha du sang et fut projeté en arrière de plus de 33 mètres. Son âme originelle fut une fois de plus expulsée de son corps, s'envolant à 330 mètres de distance.
+Wang Lin cracha du sang et fut projeté en arrière de plus de cent pieds. Son âme originelle fut une fois de plus expulsée de son corps, s'envolant à mille pieds de distance.
 
 Les yeux du géant de glace projetèrent une lueur spectrale. Il ignora l'âme originelle de Wang Lin pour se diriger vers son corps physique.
 

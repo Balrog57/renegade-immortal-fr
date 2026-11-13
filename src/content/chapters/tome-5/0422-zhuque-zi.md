@@ -110,7 +110,7 @@ Les épées rouge et blanche se percutèrent comme des météores. Après une s�
 
 L'être de nuages fixa Zhu Quezi avec un léger sourire. Soudain, son corps se désagrégea pour former huit copies identiques de l'épée. Chacune d'elles recelait une quantité phénoménale d'énergie spirituelle céleste. Les huit épées s'élancèrent simultanément: trois poursuivirent l'Épée de Suzaku, tandis que les cinq autres foncèrent sur Zhu Quezi.
 
-L'expression de Zhu Quezi se crispa alors qu'il reculait d'une dizaine de mètres. Il frappa son sac de rangement pour en sortir une gourde et marmonna: « Collecte! »
+L'expression de Zhu Quezi se crispa alors qu'il reculait de plusieurs dizaines de pieds. Il frappa son sac de rangement pour en sortir une gourde et marmonna: « Collecte! »
 
 Une force puissante enveloppa les cinq épées qui, en un éclair, furent piégées à l'intérieur de la gourde.
 

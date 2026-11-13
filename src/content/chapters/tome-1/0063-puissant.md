@@ -36,13 +36,13 @@ Pu Nanzi laissa échapper un rire dément. Son visage se crispa et il hurla: « 
 
 « Descends! » Le sceau manuel de Pu Nanzi changea et il ordonna à la montagne de s'abattre.
 
-La montagne gigantesque émit un bourdonnement sourd et s'enfonça lentement de 3,3 cm.
+La montagne gigantesque émit un bourdonnement sourd et s'enfonça lentement d'un pouce.
 
 Dans un craquement sinistre, les fissures sur l'écran lumineux s'étendirent; un autre pilier blanc se brisa et un autre ancien de l'Établissement des Fondations s'effondra.
 
-La montagne descendit encore de 3,3 cm, et le dernier ancien de l'Établissement des Fondations cracha un jet de sang avant de s'écrouler.
+La montagne descendit encore d'un pouce, et le dernier ancien de l'Établissement des Fondations cracha un jet de sang avant de s'écrouler.
 
-« Brise-toi! » Sur le cri de Pu Nanzi, la montagne s'abattit avec une force telle qu'elle s'enfonça de 10 cm. Le Pic Cang Song trembla. Dans un grondement de tonnerre, des rochers dévalèrent et la poussière s'éleva; le pic entier s'enfonça de dizaines de mètres dans le sol.
+« Brise-toi! » Sur le cri de Pu Nanzi, la montagne s'abattit avec une force telle qu'elle s'enfonça de trois pouces. Le Pic Cang Song trembla. Dans un grondement de tonnerre, des rochers dévalèrent et la poussière s'éleva; le pic entier s'enfonça de dizaines de mètres dans le sol.
 
 Le pont de pierre relié au Pic Heng Yue se brisa en deux et bascula dans le précipice.
 

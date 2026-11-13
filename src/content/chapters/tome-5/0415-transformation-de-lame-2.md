@@ -25,7 +25,7 @@ Des vagues de hurlements s'échappaient par intermittence du nuage. L'endroit pa
 
 Aucun des cultivateurs de Pilu ne voulait s'en approcher et ils prenaient systématiquement un détour pour l'éviter.
 
-En voyant la formation de protection, Wang Lin poussa un soupir de soulagement. Cela signifiait que tout ce qui se trouvait à l'intérieur de la secte était encore en sécurité. Il activa sa technique de scellement de l'âme et cracha un filet de gaz noir qui se mua en un drapeau d'âmes long de dix mètres.
+En voyant la formation de protection, Wang Lin poussa un soupir de soulagement. Cela signifiait que tout ce qui se trouvait à l'intérieur de la secte était encore en sécurité. Il activa sa technique de scellement de l'âme et cracha un filet de gaz noir qui se mua en un drapeau d'âmes long de trente pieds.
 
 « Entre! » ordonna Wang Lin en pointant le drapeau, qui se mit en mouvement. Il enveloppa rapidement Wang Lin et l'entraîna à travers la formation.
 
@@ -85,7 +85,7 @@ Wang Lin s'inclina également.
 
 Une lueur de joie passa dans les yeux de Dun Tian et il hocha discrètement la tête. Puis, il se déplaça sur le côté et pressa sa main contre une paroi. Peu après, des grondements retentirent de toutes parts.
 
-« Zeng Niu, assieds-toi en position du lotus. Ma Secte Lian Hun ne dispose plus de beaucoup de jades célestes. Bien que nous en ayons accumulé une grande quantité lors de notre transfert depuis la Planète Sisheng, après des dizaines de milliers d'années et plus de trente cultivateurs de la Transformation de l'Âme, nos réserves sont épuisées depuis longtemps. Les jades restants sont ceux que mon Senior frère et moi avons obtenus du Royaume Céleste dans notre jeunesse. Je crains qu'ils ne suffisent pas à tes besoins. Cependant, ne t'en fais pas; même si cela s'avère insuffisant, je n'aurai qu'à t'emmener en voler d'autres. Quoi qu'il en soit, tu dois atteindre le stade de la Transformation de l'Âme sans tarder.
+« Zeng Niu, assieds-toi en position du lotus. Ma Secte Lian Hun ne dispose plus de beaucoup de jades célestes. Bien que nous en ayons accumulé une grande quantité lors de notre transfert depuis la Planète Si Sheng, après des dizaines de milliers d'années et plus de trente cultivateurs de la Transformation de l'Âme, nos réserves sont épuisées depuis longtemps. Les jades restants sont ceux que mon Senior frère et moi avons obtenus du Royaume Céleste dans notre jeunesse. Je crains qu'ils ne suffisent pas à tes besoins. Cependant, ne t'en fais pas; même si cela s'avère insuffisant, je n'aurai qu'à t'emmener en voler d'autres. Quoi qu'il en soit, tu dois atteindre le stade de la Transformation de l'Âme sans tarder.
 
 « Ma Secte Lian Hun n'a jamais eu à craindre la pénurie de jades célestes car, dès que quelqu'un est prêt pour la Transformation de l'Âme, nous choisissons une secte et emmenons le drapeau d'âmes d'un milliard pour ravir ce qui nous est nécessaire. Si une seule secte ne suffit pas, nous en pillerons deux; si deux ne suffisent pas, nous en pillerons une troisième. Tôt ou tard, nous obtiendrons assez de jades célestes. »
 

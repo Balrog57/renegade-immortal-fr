@@ -10,7 +10,7 @@ Zhao, à l'extérieur de la vallée Jue Ming. Tout était calme. On aurait dit q
 
 Dans quelques décennies, la vallée Jue Ming rouvrira pour permettre aux gens de rechercher des trésors dans le champ de bataille étranger.
 
-La silhouette de Wang Lin apparut à l'extérieur de la vallée et il la contempla. Il poussa un soupir, agita sa main droite et une faille d'une dizaine de mètres de long s'ouvrit devant lui.
+La silhouette de Wang Lin apparut à l'extérieur de la vallée et il la contempla. Il poussa un soupir, agita sa main droite et une faille de plus de trente pieds de long s'ouvrit devant lui.
 
 Si l'on regardait attentivement, on remarquerait que cette faille se trouvait exactement à l'endroit même où Wang Lin s'était autodétruit.
 

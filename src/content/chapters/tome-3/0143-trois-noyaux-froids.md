@@ -8,7 +8,7 @@ slug: trois-noyaux-froids
 ---
 Il fallut dix jours entiers à Wang Lin, avançant lentement grâce à la technique de fuite par la terre, pour regagner la grotte depuis la Vallée Shi. Une fois devant l'entrée, il inspecta attentivement les environs. Lorsqu'il fut certain qu'aucun danger ne rôdait, il sortit et fit sortir le dragon avec lui.
 
-Le sol trembla, alertant Li Muwan. À l'appel de Wang Lin, elle ouvrit la formation et passa la tête dehors. Cependant, dès qu'elle apparut, son regard fut captivé par le dragon de 3,3 kilomètres de long. Elle resta stupéfaite pendant un long moment.
+Le sol trembla, alertant Li Muwan. À l'appel de Wang Lin, elle ouvrit la formation et passa la tête dehors. Cependant, dès qu'elle apparut, son regard fut captivé par le dragon de dix mille pieds de long. Elle resta stupéfaite pendant un long moment.
 
 Wang Lin traîna le dragon jusque dans la formation et demanda à Li Muwan: « Les os de ce dragon suffiront-ils pour la formation? »
 

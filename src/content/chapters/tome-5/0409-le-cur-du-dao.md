@@ -12,17 +12,17 @@ Petit Blanc secoua sa grosse tête et émit un grognement en guise de réponse.
 
 Depuis que Zhou Ru s'était réveillée il y a un an, elle n'avait pas revu Wang Lin. Seul Petit Blanc l'accompagnait.
 
-Alors que Petit Blanc portait Zhou Ru à travers une chaîne de montagnes, le sol se mit soudain à trembler. Petit Blanc émit un grognement sourd et recula d'une vingtaine de mètres.
+Alors que Petit Blanc portait Zhou Ru à travers une chaîne de montagnes, le sol se mit soudain à trembler. Petit Blanc émit un grognement sourd et recula de plusieurs dizaines de pieds.
 
 Les secousses s'intensifièrent violemment, puis une créature ressemblant à un ver, mais d'une taille colossale, jaillit du sol. Elle poussa un rugissement et pointa sa tête vers Zhou Ru.
 
-La partie de la créature dépassant du sol mesurait déjà plus de trente mètres de haut. Son corps entier était rouge et divisé en sections semblables à du bambou; elle était absolument terrifiante.
+La partie de la créature dépassant du sol mesurait déjà plus de cent pieds de long. Son corps entier était rouge et divisé en sections semblables à du bambou; elle était absolument terrifiante.
 
 Pourtant, aucune trace de peur ne marquait le visage de Zhou Ru; au contraire, elle semblait excitée. Elle jeta ses fruits, frappa la tête de Petit Blanc et s'exclama: « Petit Blanc, tu dois regarder attentivement; c'est ainsi que nous pourrons retrouver l'oncle! »
 
 Petit Blanc roula des yeux et poussa un rugissement vers le ver géant.
 
-Le ver, long de plus de trente mètres, s'anima. Il ouvrit sa gueule béante et chargea vers Zhou Ru. Sa progression était rapide et son haleine fétide les atteignit avant même qu'il n'arrive. Sa bouche était tapissée d'innombrables dents acérées; si quelqu'un se faisait capturer par cette mâchoire, il n'en resterait pas même un fragment d'os.
+Le ver, long de plus de cent pieds, s'anima. Il ouvrit sa gueule béante et chargea vers Zhou Ru. Sa progression était rapide et son haleine fétide les atteignit avant même qu'il n'arrive. Sa bouche était tapissée d'innombrables dents acérées; si quelqu'un se faisait capturer par cette mâchoire, il n'en resterait pas même un fragment d'os.
 
 Loin d'être effrayée, Zhou Ru ne faisait que s'enthousiasmer davantage. Ses grands yeux ne fixaient même pas le monstre, mais elle leva la tête vers le ciel.
 

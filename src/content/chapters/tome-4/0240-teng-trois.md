@@ -118,7 +118,7 @@ Teng Hai était le véritable nom de Teng San.
 
 Lorsqu'un individu devenait un membre éminent de la famille Teng, il laissait une trace de son âme dans un jade spécial. En l'espace de deux jours seulement, nombre de ces jades s'étaient brisés, et à chaque fois, Teng Huayuan avait ressenti une douleur au cœur.
 
-Particulièrement pour Teng Wu. Il l'avait pratiquement vu mourir sous ses yeux. Bien qu'ils n'aient été séparés que par une trentaine de mètres, il lui sembla qu'un gouffre infranchissable les divisait.
+Particulièrement pour Teng Wu. Il l'avait pratiquement vu mourir sous ses yeux. Bien qu'ils n'aient été séparés que par une centaine de pieds, il lui sembla qu'un gouffre infranchissable les divisait.
 
 Teng Wu, hormis Teng Yi, était celui qui ressemblait le plus à Teng Li, et avait donc reçu beaucoup d'attention de la part de Teng Huayuan.
 

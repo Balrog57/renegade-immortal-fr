@@ -34,7 +34,7 @@ Bien que la foule fût dense, chaque fois que les cultivateurs apercevaient Wang
 
 Wang Lin passait devant les cultivateurs un à un lorsqu'une voix extrêmement arrogante retentit devant lui: « Arrête! »
 
-Au son de cette voix, la foule se dispersa tandis que Wang Lin continuait d'avancer. À 330 mètres du mont Suzaku siégeaient cinq cultivateurs. Aucun ne s'aventurait à moins de 33 mètres de ces cinq-là. Parmi eux se trouvaient trois hommes et deux femmes d'âges très variés: deux jeunes femmes, deux jeunes hommes et un vieil homme. Tous étaient au sommet du stade avancé de la Formation de l'Âme. Le vieil homme possédait même une trace d'énergie spirituelle céleste en lui; il était manifestement prêt à raffiner son corps pour atteindre le stade de la Transformation de l'Âme.
+Au son de cette voix, la foule se dispersa tandis que Wang Lin continuait d'avancer. À 1 000 pieds du mont Suzaku siégeaient cinq cultivateurs. Aucun ne s'aventurait à moins de 100 pieds de ces cinq-là. Parmi eux se trouvaient trois hommes et deux femmes d'âges très variés: deux jeunes femmes, deux jeunes hommes et un vieil homme. Tous étaient au sommet du stade avancé de la Formation de l'Âme. Le vieil homme possédait même une trace d'énergie spirituelle céleste en lui; il était manifestement prêt à raffiner son corps pour atteindre le stade de la Transformation de l'Âme.
 
 Cependant, ne disposant pas de suffisamment de jades célestes, il n'avait pu raffiner qu'une infime partie de son corps. Mais même ainsi, cela rendait ce vieillard bien plus puissant que les habituels cultivateurs de la Formation de l'Âme.
 
@@ -52,7 +52,7 @@ Les yeux du vieil homme s'illuminèrent et il tonna: « Silence! » Tandis que l
 
 À l'annonce de ces paroles, les quatre personnes à ses côtés furent stupéfaites, mais elles se levèrent rapidement pour s'écarter avec respect.
 
-Wang Lin adressa un signe de tête au vieil homme en passant devant lui, puis atteignit la zone située à 330 mètres du mont Suzaku. Dès qu'il posa le pied dans ce périmètre, hormis le seul cultivateur de la Transformation de l'Âme au stade avancé, quinze regards se braquèrent sur lui.
+Wang Lin adressa un signe de tête au vieil homme en passant devant lui, puis atteignit la zone située à 1 000 pieds du mont Suzaku. Dès qu'il posa le pied dans ce périmètre, hormis le seul cultivateur de la Transformation de l'Âme au stade avancé, quinze regards se braquèrent sur lui.
 
 « Maître, quel est le niveau de culture de cet homme? Pourrait-il s'agir d'un vieux monstre de la Transformation de l'Âme? Pourtant, je n'ai détecté aucune trace d'énergie spirituelle céleste dans son corps », envoya le jeune homme arrogant par transmission vocale après le départ de Wang Lin.
 
@@ -76,7 +76,7 @@ L'homme sourit légèrement. Caressant le petit singe à ses côtés, il répond
 
 Wang Lin cessa de parler et ferma les yeux pour se reposer.
 
-Les yeux de l'homme d'âge moyen brillèrent d'un éclat subtil et il eut un sourire ténu. « Le compagnon Zeng Niu possède une volonté exemplaire; vous avez utilisé la méthode de raffinage céleste pour laver vos racines mortelles en une seule fois. Cela vous rend bien plus puissant que ceux qui doivent attendre les stades intermédiaire ou avancé de la Transformation de l'Âme pour le faire. Si quiconque d'autre que nous, experts de la Transformation de l'Âme, observait le compagnon Ceng, il croirait que vous êtes au stade avancé plutôt qu'au stade initial. »
+Les yeux de l'homme d'âge moyen brillèrent d'un éclat subtil et il eut un sourire ténu. « Le Daoïste Zeng Niu possède une volonté exemplaire; vous avez utilisé la méthode de raffinage céleste pour laver vos racines mortelles en une seule fois. Cela vous rend bien plus puissant que ceux qui doivent attendre les stades intermédiaire ou avancé de la Transformation de l'Âme pour le faire. Si quiconque d'autre que nous, experts de la Transformation de l'Âme, observait le Daoïste Zeng, il croirait que vous êtes au stade avancé plutôt qu'au stade initial. »
 
 « Peu de gens ont utilisé cette méthode pour atteindre la Transformation de l'Âme; il n'est pas étonnant que vous ayez pu terrasser Li Yuanfeng et l'ancêtre du Clan Ju Mo! »
 

@@ -10,7 +10,7 @@ Teng Huayuan afficha un sourire sinistre alors qu'il dégageait une immense aura
 
 Après la mort de Teng Li, Teng Huayuan avait mené l'enquête pour découvrir la vérité. Outre Wang Lin, tous ceux qui avaient été impliqués furent inscrits sur sa liste noire.
 
-L'autre cultivateur soupira et dit: « Camarade cultivateur Teng, d'après mes calculs, cet individu se trouve dans la Vallée Jue Ming. Pourquoi vouloir s'en prendre à sa famille? Laissez tomber. Chaque rancune a son responsable. Si la rumeur se répand que vous réglez vos comptes avec des mortels, cela ne fera pas bonne figure. »
+L'autre cultivateur soupira et dit: « Daoïste Teng, d'après mes calculs, cet individu se trouve dans la Vallée Jue Ming. Pourquoi vouloir s'en prendre à sa famille? Laissez tomber. Chaque rancune a son responsable. Si la rumeur se répand que vous réglez vos comptes avec des mortels, cela ne fera pas bonne figure. »
 
 Le visage de Teng Huayuan s'assombrit tandis qu'il fixait l'autre cultivateur sans dire un mot.
 
@@ -22,7 +22,7 @@ Il se mordit le doigt et traça rapidement un symbole avec son propre sang sur l
 
 Le miroir s'inclina et fit face à Teng Huayuan.
 
-D'un ton solennel, le cultivateur déclara: « Ne soyez pas surpris, camarade cultivateur Teng. Mon miroir antique doit absorber l'aura de la malédiction qui existe entre vous et cet homme. »
+D'un ton solennel, le cultivateur déclara: « Ne soyez pas surpris, Daoïste Teng. Mon miroir antique doit absorber l'aura de la malédiction qui existe entre vous et cet homme. »
 
 Des traces de gaz noir s'échappèrent du front de Teng Huayuan pour être absorbées par le miroir. Les ondulations à sa surface s'intensifièrent jusqu'à ce que l'image d'une vaste demeure s'y imprime.
 
@@ -86,7 +86,7 @@ Une expression complexe traversa le visage de Wang Zhuo: « Depuis qu'il a quitt
 
 Wang Hao soupira et demanda: « À quel niveau de culture es-tu arrivé? Avec ton talent, tu devrais déjà avoir attiré l'attention de nombreux Anciens à la Secte Xuan Dao. »
 
-Wang Zhuo répondit amèrement: « C'est difficile à expliquer. Je suis au 11ème niveau de Condensation de Qi, et ce n'est qu'après ma victoire chanceuse au concours de l'année dernière, une fois entré dans la montagne arrière, que j'ai pu percer. »
+Wang Zhuo répondit amèrement: « C'est difficile à expliquer. Je suis au 11ème niveau de Condensation du Qi, et ce n'est qu'après ma victoire chanceuse au concours de l'année dernière, une fois entré dans la montagne arrière, que j'ai pu percer. »
 
 Soudain, le ciel s'obscurcit et la chaleur ambiante disparut instantanément. Un immense miroir apparut silencieusement dans les airs. Des ondulations parcoururent sa surface tandis que deux silhouettes en émergèrent: l'une dégageait une aura pure de type immortel, l'autre était enveloppée d'une aura maléfique.
 

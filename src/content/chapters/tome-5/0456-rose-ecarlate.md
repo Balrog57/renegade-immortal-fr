@@ -8,9 +8,9 @@ slug: rose-ecarlate
 ---
 Si Hongdie était là, alors Qian Feng ne devait pas être loin non plus. Les yeux de Wang Lin s'illuminèrent et son sens divin se déploya. Qian Feng se trouvait au stade intermédiaire de la Transformation de l'Âme; si celui-ci cherchait à se dissimuler, il serait difficile pour Wang Lin de le débusquer.
 
-Le regard de Wang Lin demeura calme alors qu'il joignit les mains en signe de salut vers Hongdie et lança d'une voix forte: « Cela fait longtemps, chercheuse de voie Hongdie. »
+Le regard de Wang Lin demeura calme alors qu'il joignit les mains en signe de salut vers Hongdie et lança d'une voix forte: « Cela fait longtemps, Daoïste Hongdie. »
 
-La silhouette rouge sur le sommet non loin de là semblait empreinte d'un profond vide. Elle jeta un regard intense à Wang Lin, puis, en un clin d'œil, disparut du sommet pour réapparaître à trois cent trente mètres de lui.
+La silhouette rouge sur le sommet non loin de là semblait empreinte d'un profond vide. Elle jeta un regard intense à Wang Lin, puis, en un clin d'œil, disparut du sommet pour réapparaître à mille pieds de lui.
 
 Lorsqu'elle fut à sa hauteur, l'image de ses yeux creux et évidés s'imprima dans l'esprit de Wang Lin. Son expression devint très sombre. Il avait entendu ce qui était arrivé à Hongdie et avait même perçu sa présence lors de son combat contre Qian Feng aux confins du continent Suzaku.
 
@@ -78,7 +78,7 @@ Cette parcelle de conscience qu'elle gardait si précieusement préférait mouri
 
 Wang Lin prit une profonde inspiration et fit face à Hongdie. Sa main droite s'avança, et des filaments de gaz de restriction commencèrent à briller en se concentrant dans sa paume.
 
-Une lance noire d'une dizaine de mètres se matérialisa dans sa main.
+Une lance noire de trente pieds se matérialisa dans sa main.
 
 Tenant la lance d'une seule main, les yeux de Wang Lin brillèrent comme des éclairs; il fixa Hongdie, son corps se changea en un trait d'ombre et il projeta une estocade.
 
@@ -102,7 +102,7 @@ L'onde de choc résultant de l'impact fut si violente qu'on aurait dit que le ci
 
 Tout cela se joua en un éclair. Au moment où le Fouet Kunji percuta la lance, il fut expulsé de la main de la jeune femme. Il fendit l'onde de choc comme un éclair noir pour charger sur Wang Lin.
 
-Dans un fracas, Wang Lin recula brusquement de plus de trois cents mètres. Ses yeux brillaient d'une lueur étrange alors qu'il grommela: « Fouet Kunji! »
+Dans un fracas, Wang Lin recula brusquement de plus de mille pieds. Ses yeux brillaient d'une lueur étrange alors qu'il grommela: « Fouet Kunji! »
 
 Ce fouet lui avait appartenu autrefois, mais il avait finalement dû le rendre. Maintenant qu'il le revoyait, il ne comptait pas le laisser repartir!
 

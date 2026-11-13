@@ -28,25 +28,25 @@ Qian Kun la poursuivait avec désinvolture. Il n'avait qu'une idée en tête: l'
 
 La voix sombre de Qian Kun résonna lentement: « Yun Fei, devant toi se trouvent les Étoiles Brisées du Chaos. Dans la Mer Xiu Mo, cet endroit est extrêmement dangereux. Jusqu'à présent, personne n'a jamais réussi à le traverser par simple chance. Veux-tu tenter l'expérience? »
 
-Le visage de la femme devint plus pâle et l'amertume dans son cœur s'intensifia. Lorsqu'elle fut à 16 mètres des étoiles brisées, elle s'arrêta brusquement et se retourna. Elle fixa Qian Kun d'un regard désespéré. Serrant les dents, elle dit: « Senior, cette junior est une malheureuse; elle a eu la chance de s'échapper de là-bas. Pourquoi devez-vous absolument me tuer? »
+Le visage de la femme devint plus pâle et l'amertume dans son cœur s'intensifia. Lorsqu'elle fut à cinquante pieds des étoiles brisées, elle s'arrêta brusquement et se retourna. Elle fixa Qian Kun d'un regard désespéré. Serrant les dents, elle dit: « Senior, cette junior est une malheureuse; elle a eu la chance de s'échapper de là-bas. Pourquoi devez-vous absolument me tuer? »
 
-La bouche de Qian Kun eut un tressaillement. L'épée sous ses pieds s'immobilisa à 33 mètres de la femme. Il jeta un coup d'œil vers les étoiles brisées derrière elle, esquissa un sourire et dit: « Je n'agis que sur ordre. Tu devrais te blâmer d'avoir pris ce qui ne t'appartenait pas. »
+La bouche de Qian Kun eut un tressaillement. L'épée sous ses pieds s'immobilisa à cent pieds de la femme. Il jeta un coup d'œil vers les étoiles brisées derrière elle, esquissa un sourire et dit: « Je n'agis que sur ordre. Tu devrais te blâmer d'avoir pris ce qui ne t'appartenait pas. »
 
-La femme eut un rire amer. Elle sortit un morceau de jade de son sac de rangement. En regardant Qian Kun, elle murmura: « Ceci appartient à mon maître. Comment cela pourrait-il être quelque chose que je ne devrais pas prendre? Senior, il existe une réplique au sein du Palais Enchanté. Même si je prends ceci, cela n'affectera absolument pas le Palais Enchanté. »
+La femme eut un rire amer. Elle sortit un morceau de jade de son sac de rangement. En regardant Qian Kun, elle murmura: « Ceci appartient à mon maître. Comment cela pourrait-il être quelque chose que je ne devrais pas prendre? Senior, il existe une réplique au sein du Palais Démoniaque. Même si je prends ceci, cela n'affectera absolument pas le Palais Démoniaque. »
 
 Le regard de Qian Kun se posa sur le jade. Son expression était empreinte d'avidité. Sa mission consistait à tuer cette femme et à récupérer le jade.
 
-Un sceau placé par le Palais Enchanté marquait ce morceau de jade. Qian Kun savait que même s'il s'en emparait, il ne pourrait pas l'examiner; il ne pourrait que le remettre à ses supérieurs. Mais cette femme nommée Yun Fei, bien que son statut d'alors fût ambigu, pouvait lire ce jade, sans quoi elle n'aurait jamais eu la chance de le dérober.
+Un sceau placé par le Palais Démoniaque marquait ce morceau de jade. Qian Kun savait que même s'il s'en emparait, il ne pourrait pas l'examiner; il ne pourrait que le remettre à ses supérieurs. Mais cette femme nommée Yun Fei, bien que son statut d'alors fût ambigu, pouvait lire ce jade, sans quoi elle n'aurait jamais eu la chance de le dérober.
 
 C'est précisément pour cette raison qu'il n'avait pas porté de coup mortel auparavant, mais la pressait pas à pas.
 
-Qian Kun déclara d'un ton sombre: « J'ignore si le fait de prendre ce jade affectera ou non le Palais Enchanté, je sais seulement que s'il m'appartient, il me sera extrêmement bénéfique. »
+Qian Kun déclara d'un ton sombre: « J'ignore si le fait de prendre ce jade affectera ou non le Palais Démoniaque, je sais seulement que s'il m'appartient, il me sera extrêmement bénéfique. »
 
 Le visage de la femme prit une expression résolue. Elle dit: « Senior, si vous avez quelque chose à dire, parlez franchement. Voulez-vous que je reproduise le contenu de ce morceau de jade? »
 
 Qian Kun ne répondit rien, mais une lueur de joie apparut dans ses yeux. Il savait déjà que cette Yun Fei était la successeure de la célèbre Secte Qi Huang. Bien que la Secte Qi Huang ait été détruite en une nuit par une force mystérieuse, cette femme avait réussi miraculeusement à s'échapper indemne.
 
-Par la suite, la femme qui détenait ce jade contenant les recettes de pilules les plus précieuses de la Secte Qi Huang fut capturée par les gens du Palais Enchanté. Endurant l'humiliation, elle devint l'une des concubines du maître du palais. Aujourd'hui, après de nombreuses années, elle avait enfin trouvé l'occasion de s'enfuir avec le jade.
+Par la suite, la femme qui détenait ce jade contenant les recettes de pilules les plus précieuses de la Secte Qi Huang fut capturée par les gens du Palais Démoniaque. Endurant l'humiliation, elle devint l'une des concubines du maître du palais. Aujourd'hui, après de nombreuses années, elle avait enfin trouvé l'occasion de s'enfuir avec le jade.
 
 Qian Kun était au stade intermédiaire de la Formation du Noyau. Bien qu'il ne fût plus séparé du stade avancé que par un fil, ses aptitudes étaient limitées et sa technique de culture n'était pas exceptionnelle. Il craignait de ne jamais pouvoir franchir ce palier.
 
@@ -56,19 +56,19 @@ La femme poussa un lourd soupir. Sans dire un mot, elle sortit un morceau de jad
 
 Qian Kun rit et répondit: « Très bien. D'abord, remets-moi le jade. Une fois que j'aurai confirmé les informations qu'il contient, je te laisserai partir. » Sur ces mots, il commença à avancer.
 
-La femme cria brusquement: « Arrêtez! » Elle tenait le jade de sa main droite. Avec un peu de puissance spirituelle, elle pouvait briser cette réplique. Simultanément, elle recula de 7 mètres. Tout en fixant Qian Kun, elle dit: « Le Senior est déjà au stade intermédiaire de la Formation du Noyau, alors que je viens tout juste d'entrer dans ce stade. Je suis un niveau en dessous de vous; je ne peux donc m'empêcher de craindre que le Senior ne rompe sa promesse après avoir obtenu le jade. »
+La femme cria brusquement: « Arrêtez! » Elle tenait le jade de sa main droite. Avec un peu de puissance spirituelle, elle pouvait briser cette réplique. Simultanément, elle recula de vingt pieds. Tout en fixant Qian Kun, elle dit: « Le Senior est déjà au stade intermédiaire de la Formation du Noyau, alors que je viens tout juste d'entrer dans ce stade. Je suis un niveau en dessous de vous; je ne peux donc m'empêcher de craindre que le Senior ne rompe sa promesse après avoir obtenu le jade. »
 
 Qian Kun fronça légèrement les sourcils. Ses yeux froids se fixèrent sur le jade qu'elle tenait et il demanda: « Que voulez-vous dire par là? »
 
-Yun Fei prit une profonde inspiration et déclara simplement: « Je demande au Senior de reculer de 3,3 kilomètres. Je déposerai le jade ici. Une fois que je serai partie, le Senior pourra venir le récupérer; sinon, je le broierai immédiatement pour me suicider. Dans ce cas, le Senior n'aura absolument rien gagné. »
+Yun Fei prit une profonde inspiration et déclara simplement: « Je demande au Senior de reculer de dix mille pieds. Je déposerai le jade ici. Une fois que je serai partie, le Senior pourra venir le récupérer; sinon, je le broierai immédiatement pour me suicider. Dans ce cas, le Senior n'aura absolument rien gagné. »
 
 Qian Kun eut un sourire glacial: « Quelle plaisanterie! Comment saurais-je si le jade que vous me remettez est authentique? Et si vous essayez de me tromper? »
 
-À cet instant, aucun des deux ne remarqua qu'au sein des Étoiles Brisées du Chaos se trouvait une fissure d'environ 10 mètres de long, d'où émanaient des ondes d'énergie noire.
+À cet instant, aucun des deux ne remarqua qu'au sein des Étoiles Brisées du Chaos se trouvait une fissure de plus de trente pieds de long, d'où émanaient des ondes d'énergie noire.
 
 Le visage de Yun Fei se durcit et elle s'apprêtait à parler, mais Qian Kun poursuivit: « Je n'ai pas de temps à perdre avec vous. Remettez-moi le jade et je vous laisserai vivre. Sinon, ne me reprochez pas mon impitoyabilité. Quant au jade, au pire je m'en passerai. » Sur ces mots, il commença à flotter lentement vers l'avant.
 
-La distance de 33 mètres pouvait être parcourue en un éclair, mais Qian Kun avançait avec lenteur, craignant qu'elle ne brise le jade par réflexe, ce qui lui ferait perdre tout espoir.
+La distance de cent pieds pouvait être parcourue en un éclair, mais Qian Kun avançait avec lenteur, craignant qu'elle ne brise le jade par réflexe, ce qui lui ferait perdre tout espoir.
 
 Yun Fei serra la mâchoire. Elle jeta le jade sur le côté et s'enfuit rapidement pour échapper à Qian Kun.
 
@@ -88,7 +88,7 @@ Alors que Qian Kun finissait sa phrase, ses yeux se fixèrent brusquement vers l
 
 Qian Kun s'interrompit soudainement. Yun Fei renonça à arrêter son cœur. Elle tourna les yeux vers les Étoiles Brisées du Chaos. Sa mâchoire décrocha, le visage pétrifié par la stupeur.
 
-Elle vit qu'au sein de l'anneau des étoiles brisées, une fissure était apparue mystérieusement. La faille s'élargissait rapidement. En un clin d'œil, elle mesurait déjà plus de cent soixante mètres de large. La fissure formait un arc, semblable à la gueule d'une bête, provoquant un frisson glacial chez quiconque la contemplait.
+Elle vit qu'au sein de l'anneau des étoiles brisées, une fissure était apparue mystérieusement. La faille s'élargissait rapidement. En un clin d'œil, elle mesurait déjà plus de cinq cents pieds de large. La fissure formait un arc, semblable à la gueule d'une bête, provoquant un frisson glacial chez quiconque la contemplait.
 
 Dans la Mer Xiu Mo, les mers intérieure et extérieure étaient séparées par une brume rouge et des fissures qui apparaissaient par intermittence; les fissures spatiales y avaient donc une signification immense et on n'en parlait qu'avec effroi. Mais même entre les deux mers, il ne s'agissait que de petites fissures.
 
@@ -120,7 +120,7 @@ Qian Kun savait que même s'il s'enfuyait, si le jeune homme parvenait à franch
 
 De plus, si le jeune homme ne pouvait pas sortir de l'anneau, il serait en sécurité quoi qu'il fasse.
 
-Pensant cela, Qian Kun s'arrêta brusquement et joignit les mains. Il dit respectueusement: « Ce junior est un disciple de la cinquième génération du Palais Enchanté du Roi Poison. Qian Kun salue le Senior. »
+Pensant cela, Qian Kun s'arrêta brusquement et joignit les mains. Il dit respectueusement: « Ce junior est un disciple de la cinquième génération du Palais Démoniaque du Roi Poison. Qian Kun salue le Senior. »
 
 Mille pensées tourbillonnaient dans l'esprit de Yun Fei, qui venait de frôler la mort et assistait maintenant à ce spectacle saisissant. Sa conclusion rejoignait celle de Qian Kun, mais elle se disait que si elle fuyait, Qian Kun la tuerait, alors qu'en restant, elle avait peut-être une chance de survivre.
 
@@ -154,7 +154,7 @@ Cependant, tout cela n'était que spéculation de la part de Wang Lin. Quant à 
 
 Wang Lin réfléchit un instant. Ses yeux brillèrent de détermination et il chargea vers l'anneau.
 
-Au moment où Wang Lin entra dans l'anneau, bien que Qian Kun gardât une expression calme, son cœur se crispa. Ce n'était pas la première fois qu'il voyait quelqu'un charger ainsi. Des années auparavant, il avait vu un expert de l'Âme Naissante du Palais Enchanté s'élancer dans l'anneau. Cet homme était mort si tragiquement que même son Âme Naissante n'avait pu s'échapper et fut engloutie par la force mystérieuse.
+Au moment où Wang Lin entra dans l'anneau, bien que Qian Kun gardât une expression calme, son cœur se crispa. Ce n'était pas la première fois qu'il voyait quelqu'un charger ainsi. Des années auparavant, il avait vu un expert de l'Âme Naissante du Palais Démoniaque s'élancer dans l'anneau. Cet homme était mort si tragiquement que même son Âme Naissante n'avait pu s'échapper et fut engloutie par la force mystérieuse.
 
 C'est pourquoi, en voyant Wang Lin charger, il concentra toute son attention.
 

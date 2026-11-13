@@ -82,7 +82,7 @@ L'expression de Wang Lin resta inchangée tandis qu'il inspectait les lieux. L'e
 
 « Senior sœur, pensez-vous vraiment qu'une simple formation peut me piéger? » Les yeux de Wang Lin brillèrent et il agita sa main droite. Un rayon de lumière blanche apparut et se mua en une épée. Wang Lin saisit l'arme et la projeta vers un rocher au sol.
 
-Mais avant que l'épée n'ait parcouru 330 mètres, elle ralentit, se brisa en éclats de lumière et disparut.
+Mais avant que l'épée n'ait parcouru mille pieds, elle ralentit, se brisa en éclats de lumière et disparut.
 
 Wang Lin fronça les sourcils.
 

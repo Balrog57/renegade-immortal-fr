@@ -138,7 +138,7 @@ Il ne posa pas davantage de questions. Avec son tempérament, à moins que l'aid
 
 Au deuxième étage, ils apercevaient occasionnellement des ossements ou même des cadavres de bêtes en décomposition. Ils différaient tous de ceux de la Mer Xiu Mo; Wang Lin n'en reconnut aucun.
 
-Alors qu'ils pénétraient dans ce niveau, Wang Lin fut surpris par une lueur sombre apparue à une trentaine de mètres d'eux. La lumière ne chercha pas à s'approcher, mais se mua en un sauvage.
+Alors qu'ils pénétraient dans ce niveau, Wang Lin fut surpris par une lueur sombre apparue à cent pieds d'eux. La lumière ne chercha pas à s'approcher, mais se mua en un sauvage.
 
 Ce dernier était très différent de ceux du premier étage. Un quart de son corps était couvert de tatouages noirs et floraux. Ses yeux n'étaient pas rouges mais d'une grande clarté; pourtant, si l'on regardait de près, on y percevait une lueur mystérieuse.
 

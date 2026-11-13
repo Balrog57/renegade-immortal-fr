@@ -76,7 +76,7 @@ Peu après, il frappa son sac de rangement et une épée volante apparut. Il la 
 
 Le bruit de la pierre fracassée emplit la pièce et, bientôt, un passage assez large pour qu'un homme puisse passer apparut. Wang Lin s'engouffra dans le trou à la suite de l'épée.
 
-L'épée volante lui ouvrant la voie, il suivit le sentier. Le tunnel s'étirait sur plus de cent mètres, et au bout se trouvait une salle baignant dans une lueur dorée.
+L'épée volante lui ouvrant la voie, il suivit le sentier. Le tunnel s'étirait sur plus de trois cents pieds, et au bout se trouvait une salle baignant dans une lueur dorée.
 
 « Un gisement de minerai de veine spirituelle! » Les yeux de Wang Lin s'illuminèrent de joie.
 

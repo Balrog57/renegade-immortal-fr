@@ -24,7 +24,7 @@ Une puissance immense surgit soudain de Wang Lin et se rassembla devant lui.
 
 Wang Lin murmura: « Brise! » Son corps brilla d'une lueur cristalline et les yeux de la silhouette de feu s'illuminèrent soudainement. La créature recula précipitamment, décroisa aussitôt les bras et frappa vers l'avant.
 
-Dans un fracas assourdissant, le sable fut balayé et des fissures apparurent sur la terre, se propageant rapidement à travers le sol. La silhouette de feu recula brusquement sur plus d'une centaine de mètres. Ses deux mains étaient dans un état lamentable, couvertes de sang. Une fois stabilisée, elle fixa Wang Lin de ses yeux ardents.
+Dans un fracas assourdissant, le sable fut balayé et des fissures apparurent sur la terre, se propageant rapidement à travers le sol. La silhouette de feu recula brusquement de plusieurs centaines de pieds. Ses deux mains étaient dans un état lamentable, couvertes de sang. Une fois stabilisée, elle fixa Wang Lin de ses yeux ardents.
 
 Wang Lin s'arrêta et plaça sa main derrière son dos. Il regarda la silhouette et dit calmement: « Retirez-vous! »
 

@@ -20,7 +20,7 @@ Sa peau n'était plus aussi pâle qu'autrefois sur la planète Suzaku, mais un p
 
 Quant au dragon argenté, il s'agissait de la boussole stellaire, une fois raffinée.
 
-Grâce aux souvenirs de l'Ancien Dieu Tu Si, il avait utilisé une technique spéciale, combinée à la pierre de bois du vide, pour en modifier la forme et parachever la fusion avec l'encre de neige. Tout cela avait engendré un changement mystérieux.
+Grâce aux souvenirs de l'Ancien Dieu Tu Si, il avait utilisé une technique spéciale, combinée à la pierre Kunmu, pour en modifier la forme et parachever la fusion avec l'encre de neige. Tout cela avait engendré un changement mystérieux.
 
 Quant à cette forme de dragon argenté, elle était inspirée d'une créature antique appelée Qiu He, issue des souvenirs de l'Ancien Dieu. La vitesse de cette créature était prodigieuse; la boussole avait donc emprunté sa forme pour en capturer une partie de la célérité. Bien qu'elle ne puisse égaler la créature réelle, la boussole atteignait désormais une vitesse inimaginable.
 
@@ -96,7 +96,7 @@ Wang Lin s'arrêta à la lisière de ce brouillard. En l'observant, il ressentit
 
 « Et les cinq planètes qui l'entourent possèdent également leurs propres formations, sans parler des astres encore plus lointains. »
 
-Tandis que Wang Lin méditait, ses yeux s'illuminèrent soudainement; il recula de 330 mètres et observa le gaz vert avec une expression grave.
+Tandis que Wang Lin méditait, ses yeux s'illuminèrent soudainement; il recula de mille pieds et observa le gaz vert avec une expression grave.
 
 Le brouillard mouvait comme si d'immenses mains le manipulaient, se scindant sous cette force. Au même moment, un jeune homme vêtu d'une robe noire apparut. Son visage était ordinaire et son regard calme alors qu'il interrogeait Wang Lin: « Avez-vous un message diplomatique? »
 

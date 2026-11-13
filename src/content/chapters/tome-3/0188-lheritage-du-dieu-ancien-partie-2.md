@@ -40,7 +40,7 @@ Cependant, avant que le Seigneur Démon des Six Désirs ne puisse s'abandonner �
 
 « Vieux bonhomme, puisque tu ne tiens aucun compte de notre relation de maître et de disciple, ne me reproche pas de tuer mon maître et d'anéantir ma lignée! » ricana le Seigneur Démon des Six Désirs. Il ne bougea pas d'un pouce, fixant l'ombre qui approchait.
 
-En un clin d'œil, l'ombre arriva et s'arrêta à trente-trois mètres devant le Seigneur Démon des Six Désirs, révélant le Magicien Démon Céleste.
+En un clin d'œil, l'ombre arriva et s'arrêta à cent pieds devant le Seigneur Démon des Six Désirs, révélant le Magicien Démon Céleste.
 
 Il fixa le Seigneur Démon des Six Désirs avec des yeux qui contenaient à peine son extase et éclata de rire: « Bien! Comme on peut s'y attendre de mon disciple. Tu as osé absorber le désir du Dieu Ancien. Yi Er, ton maître doit vraiment te remercier. »
 
@@ -132,7 +132,7 @@ Dans la brume sanglante, un dragon rouge apparut. Il engloutit un sixième de l'
 
 Par la suite, les désirs d'Illusion, de Plaisir, de Jalousie et d'Obsession se manifestèrent à leur tour, chacun sous la forme d'un dragon, frappant l'anneau doré au même endroit. Lorsque le dernier dragon, celui de l'Obsession, percuta la fissure déjà au bord de l'effondrement, celle-ci vola en éclats, révélant un tunnel.
 
-Le Magicien Démon Céleste éclata d'un rire sauvage. Sa main s'enfonça dans le tunnel et en extirpa un cristal de glace circulaire bleu clair. Le cristal mesurait environ trente-trois mètres de large, alors que le tunnel ne faisait même pas dix mètres de large.
+Le Magicien Démon Céleste éclata d'un rire sauvage. Sa main s'enfonça dans le tunnel et en extirpa un cristal de glace circulaire bleu clair. Le cristal mesurait environ cent pieds de large, alors que le tunnel ne faisait même pas trente pieds de large.
 
 Wang Lin fixa le tunnel. Après avoir hésité, il renonça finalement au plan risqué de sortir.
 

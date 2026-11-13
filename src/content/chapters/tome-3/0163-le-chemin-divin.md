@@ -28,7 +28,7 @@ Wang Lin observa la pièce un instant avant de détourner le regard. Ils étaien
 
 Le regard de Wang Lin se posa sur la tablette du sommet. On pouvait y lire: « Ancêtre fondateur du Temple Zhan Shen — Gong Mo ».
 
-« L'Ancêtre Gong est le fondateur de mon Sanctuaire et celui qui a découvert le Chemin Divin. » Le vieil homme au visage rouge s'inclina devant la tablette avant de se tourner vers Wang Lin.
+« L'Ancêtre Gong est le fondateur de mon Temple Zhan Shen et celui qui a découvert le Chemin Divin. » Le vieil homme au visage rouge s'inclina devant la tablette avant de se tourner vers Wang Lin.
 
 Wang Lin réfléchit un instant, puis s'inclina à son tour.
 
@@ -42,7 +42,7 @@ Cependant, en lisant plus bas, son cœur sombra en découvrant ces lignes: « Le
 
 « Le talent de l'Ancêtre Chen Chong était très ordinaire; il était le plus faible des disciples de l'Ancêtre Gong. Pourtant, il parvint à utiliser sa mémoire pour accomplir ce que nul ne croyait possible: graver le Chemin Divin. Une fois son œuvre achevée, il mourut. Juste avant son dernier souffle, il affirma que cette méthode était extrêmement puissante. Sa propre durée de vie n'étant pas suffisante, il n'avait pu en graver que 10 %; d'où l'avertissement aux futurs disciples de cultiver avec prudence. »
 
-« En vérité, l'Ancêtre Chen Chong s'inquiétait trop. Comment ce Chemin Divin pourrait-il être si facilement compris? Depuis des milliers d'années, mon Sanctuaire n'a compté que moins de trente personnes capables de le percer, et parmi elles, la moitié seulement est finalement parvenue à former son Âme Naissante. »
+« En vérité, l'Ancêtre Chen Chong s'inquiétait trop. Comment ce Chemin Divin pourrait-il être si facilement compris? Depuis des milliers d'années, mon Temple Zhan Shen n'a compté que moins de trente personnes capables de le percer, et parmi elles, la moitié seulement est finalement parvenue à former son Âme Naissante. »
 
 « Quant au Chemin Divin que les autres sectes de Huo Fen ont contemplé, il s'agissait d'une contrefaçon; le nombre de ceux qui ont pu le percer est donc encore plus infime. »
 

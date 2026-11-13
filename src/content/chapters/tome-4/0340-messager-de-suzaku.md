@@ -81,7 +81,7 @@ Xu Luo esquissa un léger sourire. Il était certain que la Secte Yun Tian leur 
 
 Alors qu'ils volaient, un pilier de lumière jaillit dans le ciel. De leur position, le pilier ne semblait pas plus épais que le bras d'un nourrisson, mais s'ils avaient été plus proches, il aurait été infiniment plus imposant.
 
-L'Ancien Hu se tourna brusquement vers la colonne lumineuse. Malgré son expérience, il fut frappé de stupeur. Le vieil homme qui suivait la femme eut également les yeux illuminés par la surprise en contemplant le phénomène. Ce pilier de lumière émanait du centre de Chu, là où se trouvait la Tour Céleste.
+L'Ancien Hu se tourna brusquement vers la colonne lumineuse. Malgré son expérience, il fut frappé de stupeur. Le vieil homme qui suivait la femme eut également les yeux illuminés par la surprise en contemplant le phénomène. Ce pilier de lumière émanait du centre de Chu, là où se trouvait la Tour Tong Tian.
 
 « C'est un messager descendant d'un pays de culture supérieur... Pourtant, un messager d'un pays de rang 4 ne provoquerait pas une telle agitation! » Plus il observait, plus son choc grandissait.
 
@@ -97,9 +97,9 @@ Qiu Siping, Xu Luo et la belle femme étaient tous sous le choc. Qiu Siping, par
 
 La belle femme prit une profonde inspiration et demanda doucement: « Ancêtre, pourquoi un messager de Suzaku est-il venu à Chu? »
 
-« Camarade cultivateur Gong Sun, qu'en pensez-vous? » demanda l'Ancien Hu en se tournant vers le vieil homme à la veste de toile bleue.
+« Daoïste Gong Sun, qu'en pensez-vous? » demanda l'Ancien Hu en se tournant vers le vieil homme à la veste de toile bleue.
 
-Ce dernier répondit lentement: « Camarade cultivateur Hu, je viens tout juste d'atteindre le stade de la Formation de l'Âme, je ne connais donc que peu de choses sur Suzaku. Cependant, je crois qu'un événement majeur se prépare. J'ignore ce que c'est, mais pourquoi un messager de Suzaku viendrait-il à Chu autrement? »
+Ce dernier répondit lentement: « Daoïste Hu, je viens tout juste d'atteindre le stade de la Formation de l'Âme, je ne connais donc que peu de choses sur Suzaku. Cependant, je crois qu'un événement majeur se prépare. J'ignore ce que c'est, mais pourquoi un messager de Suzaku viendrait-il à Chu autrement? »
 
 L'Ancien Hu pensa intérieurement: « Balivernes! » et reporta son regard sur le pilier de lumière.
 

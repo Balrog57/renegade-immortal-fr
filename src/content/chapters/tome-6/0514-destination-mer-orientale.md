@@ -8,7 +8,7 @@ slug: destination-mer-orientale
 ---
 Après avoir vu Wang Lin arriver, le vieil homme poussa un soupir de soulagement.
 
-« Cher cultivateur Wang Lin, s'il y a le moindre problème, nous pouvons en discuter. Ce vieil homme vous dira tout ce que vous voulez savoir sans le moindre mensonge! »
+« Daoïste Wang, s'il y a le moindre problème, nous pouvons en discuter. Ce vieil homme vous dira tout ce que vous voulez savoir sans le moindre mensonge! »
 
 Le vieil homme trapu était impuissant, car sa culture était plus faible et ses trésors de moindre qualité. Wang Lin n'avait même pas besoin de le poursuivre; il lui suffisait de lui lancer deux trésors pour le rendre fou de rage.
 

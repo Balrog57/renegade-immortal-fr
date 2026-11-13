@@ -16,7 +16,7 @@ Wang Lin poussa un soupir de soulagement. D'un geste de la main droite, il sorti
 
 Le Sens Divin du sac de rangement bloquait celui de Wang Lin. Cela signifiait que l'Empereur Antique était toujours en vie, bien que Wang Lin n'en fût pas tout à fait certain: à l'époque, le sac de rangement de Meng Tuozi avait perdu son Sens Divin, ce qui aurait dû signifier sa mort, et pourtant Meng Tuozi était réapparu.
 
-Désormais, Wang Lin possédait deux sacs de rangement qu'il ne pouvait ouvrir. L'un appartenait à l'Empereur Antique, l'autre provenait d'un squelette mystérieux trouvé dans une grotte du Sanctuaire de la Guerre Shinto.
+Désormais, Wang Lin possédait deux sacs de rangement qu'il ne pouvait ouvrir. L'un appartenait à l'Empereur Antique, l'autre provenait d'un squelette mystérieux trouvé dans une grotte du Temple Zhan Shen.
 
 Les deux sacs conservaient encore le Sens Divin de leurs anciens maîtres. Tant que cela perdurait, Wang Lin ne pouvait y accéder. Sans se précipiter, il toucha le sac et l'entoura de son propre Sens Divin afin d'empêcher l'Empereur Antique de le détecter.
 
@@ -46,7 +46,7 @@ Après environ dix respirations, la vague de Qi rugit en passant là où Wang Li
 
 Après un moment de réflexion, il reprit sa course vers l'avant.
 
-À 3,3 kilomètres de la sortie du troisième essai, la lumière rouge sang qui entourait le Seigneur Démon des Six Désirs s'estompa, révélant un visage décharné comme un fagot. Dans sa main, il tenait un squelette auquel manquait la moitié d'un bras.
+À dix mille pieds de la sortie du troisième essai, la lumière rouge sang qui entourait le Seigneur Démon des Six Désirs s'estompa, révélant un visage décharné comme un fagot. Dans sa main, il tenait un squelette auquel manquait la moitié d'un bras.
 
 Des taches dorées parsemaient le squelette, libérant de ténus rayons de lumière d'or.
 

@@ -24,7 +24,7 @@ Stupéfait, le sauvage à trois feuilles recula promptement et disparut dans l'o
 
 Quant aux autres sauvages qui les attaquaient, ils avaient tous été tués par le vieil homme Hu d'un simple revers de manche.
 
-Wang Lin revint, tenant le sauvage à trois feuilles, et le jeta au sol. Il lança un regard froid à la femme au voile blanc et dit: « Confrère cultivateur Zi Xin, puisque vous avez pu identifier le rang de ce sauvage, veuillez nous révéler tout ce que vous savez. »
+Wang Lin revint, tenant le sauvage à trois feuilles, et le jeta au sol. Il lança un regard froid à la femme au voile blanc et dit: « Daoïste Zi Xin, puisque vous avez pu identifier le rang de ce sauvage, veuillez nous révéler tout ce que vous savez. »
 
 La femme au voile blanc hocha la tête et répondit: « Ce n'est pas que je ne voulais pas parler auparavant, mais depuis que je suis entrée ici, certains souvenirs me reviennent. Les sauvages de ce lieu sont différents des cultivateurs. Ils se divisent en deux types: les chamans et les guerriers. »
 
@@ -72,7 +72,7 @@ Les yeux de Wang Lin s'illuminèrent. Il ne détectait aucune énergie spirituel
 
 La main droite de l'homme balaya les tatouages sur son corps. Ces derniers se détachèrent et se mirent à tournoyer frénétiquement autour de son bras droit.
 
-De sa main gauche, il pointa rapidement certains tatouages de son bras droit. Les motifs touchés se mirent à briller et s'étendirent brusquement, encerclant une zone d'environ 330 mètres de rayon.
+De sa main gauche, il pointa rapidement certains tatouages de son bras droit. Les motifs touchés se mirent à briller et s'étendirent brusquement, encerclant une zone d'environ mille pieds de rayon.
 
 Soudain, les tatouages se resserrèrent et chargèrent vers Wang Lin.
 

@@ -90,7 +90,7 @@ Le corps de Wang Lin apparut devant la Secte Yun Tian.
 
 « Tie Yan, viens me voir! » La voix de Wang Lin résonna à travers toute la secte.
 
-Un rayon de lumière s'élança rapidement de la secte et s'arrêta à 33 mètres de Wang Lin, révélant un vieil homme: c'était Tie Yan.
+Un rayon de lumière s'élança rapidement de la secte et s'arrêta à cent pieds de Wang Lin, révélant un vieil homme: c'était Tie Yan.
 
 Tie Yan avait atteint la Formation de l'Âme, et le pays de Chu était devenu un pays de culture de rang 4.
 

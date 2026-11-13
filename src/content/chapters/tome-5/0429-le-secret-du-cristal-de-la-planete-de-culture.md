@@ -115,7 +115,7 @@ Cependant, quelqu'un trouva Wang Lin avant Yun Quezi. Ce jour-là, Wang Lin vena
 
 Au moment où il pénétra dans le réseau, Wang Lin s'arrêta et se retourna pour regarder au loin, où il vit un homme corpulent portant un chapeau de paille et irradiant une lueur dorée approcher.
 
-« Frère Wang, cela fait bien des années que nous ne nous sommes vus. Vous souvenez-vous encore de moi? » L'homme corpulent s'arrêta à 33 mètres de lui et retira son chapeau.
+« Frère Wang, cela fait bien des années que nous ne nous sommes vus. Vous souvenez-vous encore de moi? » L'homme corpulent s'arrêta à cent pieds de lui et retira son chapeau.
 
 Du côté est du continent Suzaku, l'expression de Chu Yunfei, ancêtre Ascendant de la Secte Tian Yu, était exécrable. Plus tôt, il avait été frappé par l'onde de choc de l'Esprit Ancestral, subissant des blessures qu'il avait dû réprimer. Puis, la bataille contre le Clan Xian Yi avait éclaté, ne lui laissant aucun répit avant de retourner au combat.
 
@@ -125,7 +125,7 @@ Lors de la bataille d'il y a trois jours, le cinquième ancêtre était apparu u
 
 Voyant la Secte Tian Yu approcher, Chu Yunfei s'arrêta brusquement et scruta l'horizon.
 
-Un homme marchait vers lui. Vêtu d'une robe rouge, le visage marqué par l'âge, il dégageait une aura antique et une pression écrasante. Il s'arrêta à 66 mètres de Chu Yunfei et le fixa intensément.
+Un homme marchait vers lui. Vêtu d'une robe rouge, le visage marqué par l'âge, il dégageait une aura antique et une pression écrasante. Il s'arrêta à deux cents pieds de Chu Yunfei et le fixa intensément.
 
 « Frère Chu, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours la même prestance. »
 

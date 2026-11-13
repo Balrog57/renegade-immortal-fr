@@ -100,13 +100,13 @@ Situ Nan jeta un dernier regard vers la direction prise par Wang Lin et murmura:
 
 L'espace était si vaste que sans carte stellaire, on risquait de s'y perdre pour toujours. Tian Yunzi avait laissé une carte très détaillée à Wang Lin, indiquant le chemin de la planète Suzaku vers la planète Tian Yun.
 
-Wang Lin, assis en position du lotus sur la boussole stellaire, voyagea rapidement vers la planète Tian Yun. Durant ce trajet, il ne resta pas inactif; il utilisa la pierre de bois du vide et l'encre de neige pour raffiner à nouveau la boussole stellaire en utilisant la technique secrète de l'ancien dieu. Le processus fut lent et dura tout le voyage.
+Wang Lin, assis en position du lotus sur la boussole stellaire, voyagea rapidement vers la planète Tian Yun. Durant ce trajet, il ne resta pas inactif; il utilisa la pierre Kunmu et l'encre de neige pour raffiner à nouveau la boussole stellaire en utilisant la technique secrète de l'ancien dieu. Le processus fut lent et dura tout le voyage.
 
-La boussole stellaire était désormais enveloppée d'une lumière verte. À l'intérieur de cette lueur, on pouvait voir d'innombrables branches s'agiter et se tordre autour de l'objet. C'était la substance mystérieuse raffinée à partir de la pierre de bois du vide.
+La boussole stellaire était désormais enveloppée d'une lumière verte. À l'intérieur de cette lueur, on pouvait voir d'innombrables branches s'agiter et se tordre autour de l'objet. C'était la substance mystérieuse raffinée à partir de la pierre Kunmu.
 
 Ce processus dura trois mois!
 
-Trois mois ne suffirent qu'à amener la fusion entre la pierre de bois du vide et la boussole stellaire au stade de la petite complétion. Les anciens dieux ne se souciaient guère du temps; lorsqu'ils raffinaient un trésor, le processus durait généralement cent ans. Un ancien dieu à neuf étoiles mettrait mille ans pour affiner un trésor, et ces mille années passeraient aussi vite qu'un battement de cils.
+Trois mois ne suffirent qu'à amener la fusion entre la pierre Kunmu et la boussole stellaire au stade de la petite complétion. Les anciens dieux ne se souciaient guère du temps; lorsqu'ils raffinaient un trésor, le processus durait généralement cent ans. Un ancien dieu à neuf étoiles mettrait mille ans pour affiner un trésor, et ces mille années passeraient aussi vite qu'un battement de cils.
 
 Wang Lin calcula que, si cela continuait ainsi, l'intégration ne serait pas terminée à son arrivée sur la planète Tian Yun. Après réflexion, il décida d'abandonner une intégration plus poussée pour utiliser l'encre de neige et entamer le processus de raffinage final dès ce stade de petite complétion.
 

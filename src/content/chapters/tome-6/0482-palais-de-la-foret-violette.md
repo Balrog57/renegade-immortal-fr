@@ -76,13 +76,13 @@ L'expression de la femme changea radicalement. En un éclair, elle disparut. Sa 
 
 Wang Lin laissa échapper un reniflement méprisant, puis pointa le ciel et hurla: « Rassemblement! »
 
-L'énergie spirituelle céleste contenue dans son corps se concentra dans sa paume. Une immense sphère de lumière de 3,3 mètres de large apparut soudainement au-dessus de sa main.
+L'énergie spirituelle céleste contenue dans son corps se concentra dans sa paume. Une immense sphère de lumière de dix pieds de large apparut soudainement au-dessus de sa main.
 
 Sans hésiter, Wang Lin pressa la sphère vers le bas en ordonnant: « Sors! »
 
 La sphère plongea du ciel avec la rapidité de la foudre. Elle percuta le sol dans un rugissement tonitruant avant de fusionner avec la terre. À cet instant, le sol trembla comme si un dragon gigantesque s'agitait en son sein.
 
-À plus de trois cents mètres de là, un rayon de lumière blanche jaillit du sol, révélant l'expression terrifiée de la femme.
+À mille pieds de là, un rayon de lumière blanche jaillit du sol, révélant l'expression terrifiée de la femme.
 
 Le regard de Wang Lin restait glacial tandis qu'il fixait la femme et déclarait: « À partir d'aujourd'hui, ce Pavillon Zi Yun sera renommé le Pavillon Zi Lin! » Sur ces mots, Wang Lin fit un geste de la main.
 
@@ -96,7 +96,7 @@ Sur ces mots, elle s'élança et disparut totalement. Une brise souffla et Wang 
 
 Alors que Wang Lin s'éloignait, la femme en pourpre surgit de la brise. Ses yeux étaient injectés de sang et brûlaient d'une soif de sang dévorante. Elle toucha son sac de rangement et un rayon de lumière rouge en jaillit. En montant dans les airs, cette lueur se mua en un phénix rouge flamboyant. Le phénix poussa un cri strident et soudain, les environs furent engloutis par une mer de feu. Cependant, aucune flamme ne toucha le Pavillon Zi Lin; elles foncèrent toutes vers Wang Lin comme de la lave tombant du ciel.
 
-Les yeux de Wang Lin s'illuminèrent. Il tendit la main et l'épée céleste apparut dans sa paume. L'énergie spirituelle céleste se concentra sur la lame avant qu'il ne porte un coup. Un rayon d'énergie de l'épée, long d'une dizaine de mètres, jaillit et percuta la mer de flammes dans une explosion sourde.
+Les yeux de Wang Lin s'illuminèrent. Il tendit la main et l'épée céleste apparut dans sa paume. L'énergie spirituelle céleste se concentra sur la lame avant qu'il ne porte un coup. Un rayon d'énergie de l'épée, long de plusieurs dizaines de pieds, jaillit et percuta la mer de flammes dans une explosion sourde.
 
 Le bruit fut assourdissant, résonnant à travers toute la montagne. Ce rayon d'énergie fendit la mer de feu. Alors que Wang Lin sortait calmement des flammes, il pointa son pouce vers l'avant.
 

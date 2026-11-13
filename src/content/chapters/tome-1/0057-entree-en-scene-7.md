@@ -56,7 +56,7 @@ D'un mouvement de sa technique d'attraction, il saisit Li Shan comme un petit po
 
 L'Ancien Ouyang et les deux autres anciens étaient furieux. Ils auraient aimé que la terre s'ouvre pour pouvoir s'y terrer.
 
-Le visage de Huang Long rayonnait de joie lorsqu'il demanda: « Ami Ouyang, qui est le vainqueur de cet échange entre nos deux sectes? »
+Le visage de Huang Long rayonnait de joie lorsqu'il demanda: « Daoïste Ouyang, qui est le vainqueur de cet échange entre nos deux sectes? »
 
 L'Ancien Ouyang renifla et répondit: « Votre Secte Heng Yue a la chance d'avoir un si bon disciple. Cet échange est votre victoire! Mais ce que j'ai dit précédemment est vrai: tous les ancêtres de l'Âme Naissante de votre Secte Heng Yue sont morts! Tout ce que vous désirez se trouve dans ce sac de rangement. Adieu! »
 
@@ -86,9 +86,9 @@ Les deux autres anciens ne purent s'empêcher de ricaner avec dédain.
 
 L'Ancien Ouyang fixa Wang Lin avec un sourire sinistre: « Junior, disparais. Je n'ai pas de temps à perdre avec toi! »
 
-Huang Long et les autres anciens de la Secte Heng Yue montèrent sur leurs épées volantes et rejoignirent Wang Lin. Huang Long déclara d'une voix forte: « Ami Ouyang, votre Secte Xuan Dao est bien avare. Il ne s'agit que du poison du centipède; il ne demande pas sa vie! »
+Huang Long et les autres anciens de la Secte Heng Yue montèrent sur leurs épées volantes et rejoignirent Wang Lin. Huang Long déclara d'une voix forte: « Daoïste Ouyang, votre Secte Xuan Dao est bien avare. Il ne s'agit que du poison du centipède; il ne demande pas sa vie! »
 
-Le visage de l'Ancien Ouyang s'assombrit. Il balaya les environs du regard avant de fixer Huang Long: « Ami Huang Long, prendre un peu de poison n'est pas une chose grave, mais qu'un junior ose faire preuve d'une telle arrogance est un manque de respect inacceptable envers notre Secte Xuan Dao! »
+Le visage de l'Ancien Ouyang s'assombrit. Il balaya les environs du regard avant de fixer Huang Long: « Daoïste Huang Long, prendre un peu de poison n'est pas une chose grave, mais qu'un junior ose faire preuve d'une telle arrogance est un manque de respect inacceptable envers notre Secte Xuan Dao! »
 
 Huang Long hésita un instant. Il ne voulait vraiment pas trop humilier la Secte Xuan Dao, car les nouvelles qu'ils apportaient étaient trop stupéfiantes. Si ces informations étaient vraies, l'équilibre des pouvoirs dans le pays de culture de Zhao allait être totalement bouleversé.
 

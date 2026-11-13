@@ -30,7 +30,7 @@ Le visage de Chi Hu devint pourpre. Du sang s'échappait du coin de ses lèvres 
 
 Hongdie paraissait également très débraillée; ses yeux trahissaient un choc rare.
 
-Après un temps indéterminé, Chi Hu prit une profonde inspiration et envoya un message: « Merci, frère Ceng, pour l'avertissement. Sans vous, nous serions tous morts aujourd'hui. »
+Après un temps indéterminé, Chi Hu prit une profonde inspiration et envoya un message: « Merci, frère Zeng, pour l'avertissement. Sans vous, nous serions tous morts aujourd'hui. »
 
 Hongdie demanda: « Quel genre de bête était-ce? »
 
@@ -38,7 +38,7 @@ Hongdie demanda: « Quel genre de bête était-ce? »
 
 Wang Lin dit lentement: « Cette bête s'appelle le Xu. »
 
-Chi Hu fut surpris: « Le frère Ceng connaît cette créature? »
+Chi Hu fut surpris: « Le frère Zeng connaît cette créature? »
 
 Wang Lin expliqua: « Ce Xu est considéré comme une bête destructrice mineure. Il naît en dévorant la terre et vit en exhalant de l'énergie Yin. Même à l'époque ancienne, les cultivateurs devaient être nombreux pour parvenir à le vaincre. »
 
@@ -48,7 +48,7 @@ Les membres du clan des Dieux Anciens appréciaient par-dessus tout cette créat
 
 Wang Lin ne partagea pas ces informations.
 
-Chi Hu déclara: « Le frère Ceng est véritablement érudit, je suis impressionné. »
+Chi Hu déclara: « Le frère Zeng est véritablement érudit, je suis impressionné. »
 
 Hongdie renifla et dit d'une voix glaciale: « Qui sait si c'est vrai ou faux? Ne nous invente pas des noms au hasard. »
 
@@ -62,7 +62,7 @@ Chi Hu fut stupéfait. S'ils continuaient vers le nord, ils seraient totalement 
 
 Wang Lin soupira intérieurement. Il se leva et sauta de la boussole. Le drapeau de restriction enveloppa son corps alors qu'il s'élançait prestement vers le nord.
 
-« Frère Ceng! » Chi Hu fut sous le choc.
+« Frère Zeng! » Chi Hu fut sous le choc.
 
 Hongdie ajouta froidement: « Qu'il parte, cela m'est égal. Je ne crois pas qu'il ait vraiment reconnu cette créature. »
 
@@ -112,11 +112,11 @@ Le visage de Hongdie était marqué par l'amertume. Les pétales pouvaient être
 
 En plein vol, Wang Lin s'arrêta soudainement et regarda derrière lui. Après un instant, il vit la boussole approcher. En voyant Wang Lin flotter ainsi, Chi Hu ne put s'empêcher de laisser échapper un sourire amer. À cet instant, l'utilité de Wang Lin avait crû indéfiniment, surpassant largement celle de Hongdie.
 
-Chi Hu prit une profonde inspiration. La boussole s'arrêta près de Wang Lin et il dit: « Frère Ceng, entrez, nous pourrons discuter ensuite. »
+Chi Hu prit une profonde inspiration. La boussole s'arrêta près de Wang Lin et il dit: « Frère Zeng, entrez, nous pourrons discuter ensuite. »
 
 Sans hésiter, Wang Lin s'assit à l'extrémité est de la boussole. L'engin avait désormais un coin manquant; seuls les coins est, ouest et nord subsistaient.
 
-Chi Hu, mal à l'aise, dit: « Frère Ceng, je reconnais mes torts. Y a-t-il d'autres menaces après cette aura rouge? Comment choisirons-nous notre direction après cela? »
+Chi Hu, mal à l'aise, dit: « Frère Zeng, je reconnais mes torts. Y a-t-il d'autres menaces après cette aura rouge? Comment choisirons-nous notre direction après cela? »
 
 Hongdie garda le silence, le visage fermé.
 
@@ -136,7 +136,7 @@ Chi Hu sourit: « Mon Clan Ju Mo n'est pas originaire de Suzaku. Mes ancêtres s
 
 Wang Lin acquiesça intérieurement.
 
-Le temps passa rapidement. Wang Lin cultivait tout en surveillant les âmes errantes, lorsqu'il ouvrit soudainement les yeux. Grâce à elles, il percevait un objet d'une dizaine de mètres de large flottant au loin. Cet objet ressemblait à un immense rocher parcouru de deux éclairs pourpres et dorés.
+Le temps passa rapidement. Wang Lin cultivait tout en surveillant les âmes errantes, lorsqu'il ouvrit soudainement les yeux. Grâce à elles, il percevait un objet de plusieurs dizaines de pieds de large flottant au loin. Cet objet ressemblait à un immense rocher parcouru de deux éclairs pourpres et dorés.
 
 Le cœur de Wang Lin tressaillit: « La Pierre Pourpre Dorée! »
 

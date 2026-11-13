@@ -24,7 +24,7 @@ Le regard de la femme s'éteignit soudainement; son corps trembla et, sous une c
 
 Le nuage de poussière se dissipa. Wang Lin flottait toujours dans les airs. Il porta son pouce à sa bouche et, d'une inspiration profonde, aspira l'âme originelle pour la sceller à l'intérieur du drapeau des âmes.
 
-Des traînées de lumière traversèrent le ciel et quatre silhouettes apparurent à 330 mètres de Wang Lin.
+Des traînées de lumière traversèrent le ciel et quatre silhouettes apparurent à mille pieds de Wang Lin.
 
 Parmi les quatre, trois étaient des hommes et une était une femme.
 
@@ -36,7 +36,7 @@ Derrière eux se tenait une femme d'une grande beauté, dotée d'une silhouette 
 
 D'innombrables autres lueurs de lumière arrivèrent derrière le groupe. Wang Lin déploya son sens divin et comprit qu'il s'agissait de disciples de la division violette, attirés par l'intensité du combat.
 
-Ces personnes ne s'approchèrent pas, mais restèrent à 3,3 kilomètres de distance.
+Ces personnes ne s'approchèrent pas, mais restèrent à dix mille pieds de distance.
 
 Peu à peu, les rangs s'épaissirent jusqu'à ce que le ciel entier soit couvert par les disciples de la division violette. Tous leurs regards étaient braqués sur Wang Lin.
 
@@ -56,7 +56,7 @@ Face à la question de Zhao Xingsha, Wang Lin demanda calmement: « Qui est Sun 
 
 À ces mots, les visages de l'assistance changèrent instantanément. Zhao Xingsha fixa Wang Lin un moment avant de dire: « Septième frère, tu as tort. Ton Senior frère ne peut rien pour toi ici! » Sur ce, il relâcha l'homme d'âge moyen.
 
-En une seule enjambée, l'homme franchit près de 330 mètres pour s'arrêter à 33 mètres de Wang Lin. Il se dressa devant lui et cracha: « Cultivateur autochtone d'une planète de culture stérile, aujourd'hui, je vais te montrer ce qu'est un véritable sort! »
+En une seule enjambée, l'homme franchit près de mille pieds pour s'arrêter à cent pieds de Wang Lin. Il se dressa devant lui et cracha: « Cultivateur autochtone d'une planète de culture stérile, aujourd'hui, je vais te montrer ce qu'est un véritable sort! »
 
 Une aura meurtrière émanait de cet homme. Wang Lin le dévisagea et posa la main sur son sac de rangement.
 
@@ -88,7 +88,7 @@ Wang Lin esquissa un sourire moqueur, retira promptement son pouce et effleura s
 
 Dans un grand « pa », le fouet frappa l'homme d'âge moyen. Son visage devint livide; son âme originelle fut presque arrachée de son corps et sa lumière dorée disparut totalement.
 
-Comprenant qu'un troisième coup approchait, l'homme recula précipitamment sur plus d'une centaine de mètres. Le visage sombre, il s'écria: « Quel est ce trésor magique?!!! »
+Comprenant qu'un troisième coup approchait, l'homme recula précipitamment de plusieurs centaines de pieds. Le visage sombre, il s'écria: « Quel est ce trésor magique?!!! »
 
 Wang Lin le fixa avec un sourire ténu: « Il reste encore une attaque! »
 

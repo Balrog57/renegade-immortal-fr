@@ -96,13 +96,13 @@ Il savait qu'il tenait un trésor. Pour une raison inconnue, l'âme de cette pet
 
 En y regardant de plus près, il réalisa que cette onde sonore était conçue pour attaquer l'âme elle-même. Une fois l'onde propagée, toutes les âmes qui fonçaient vers elle ralentirent, comme si elles mouraient.
 
-À cet instant précis, l'âme de la petite créature jaillit. En moins d'un demi-bâton d'encens, elle avait complètement dévoré ces cent âmes. Peu après, l'âme explosa en un brouillard rouge d'environ trois mètres de large qui retomba lentement.
+À cet instant précis, l'âme de la petite créature jaillit. En moins d'un demi-bâton d'encens, elle avait complètement dévoré ces cent âmes. Peu après, l'âme explosa en un brouillard rouge d'environ dix pieds de large qui retomba lentement.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il agitait le drapeau d'âmes. Les dix-neuf âmes restantes furent aspirées dans le drapeau avant que celui-ci ne soit rangé dans son sac de rangement. Il se retourna et fixa le brouillard rouge, sentant les fragments de sens divin qu'il avait marqués fusionner lentement avec l'âme de la petite créature.
 
 Le démon, resté en retrait, observait la scène, abasourdi. Il pensa secrètement: « Violent! Ce petit frère est bien trop violent! Je vais devoir redoubler d'efforts, sinon ce monstre finira par me servir de nourriture! » Le corps du démon trembla tandis qu'il reculait. Flottant dans les airs, il commença à digérer rapidement les âmes qu'il avait dévorées.
 
-Cette attente dura trois jours. Durant cette période, le brouillard rouge ne montra aucun changement. En plus de l'observer, Wang Lin vit passer d'innombrables tornades noires. L'une d'elles mesurait environ 3,3 kilomètres de large; c'était comme si le roi des tornades passait devant la tour noire.
+Cette attente dura trois jours. Durant cette période, le brouillard rouge ne montra aucun changement. En plus de l'observer, Wang Lin vit passer d'innombrables tornades noires. L'une d'elles mesurait environ dix mille pieds de large; c'était comme si le roi des tornades passait devant la tour noire.
 
 Alors que la plus immense tornade passait, elle marqua un léger temps d'arrêt tandis qu'une multitude de sens divins s'en déversaient. Leur cible n'était pas Wang Lin, mais le brouillard rouge.
 
@@ -128,7 +128,7 @@ Même en tant que cultivateur de la Formation de l'Âme, capable de faire trembl
 
 Après un long silence, il caressa le crapaud sur son épaule, une lueur cruelle sur le visage. Sans un mot, il le toucha du doigt. Le crapaud tomba de son épaule et, à plat ventre sur le sol, se mit à émettre des gargouillis.
 
-Le cœur de Meng Tuozi se serra en regardant l'animal. Il soupira puis le rangea de nouveau. Après un instant de réflexion, il sortit de son sac de rangement un python rouge de plus d'une trentaine de mètres de long. Sur la tête du serpent trônait une unique corne. Dès son apparition, l'air ambiant devint brûlant.
+Le cœur de Meng Tuozi se serra en regardant l'animal. Il soupira puis le rangea de nouveau. Après un instant de réflexion, il sortit de son sac de rangement un python rouge de plus de cent pieds de long. Sur la tête du serpent trônait une unique corne. Dès son apparition, l'air ambiant devint brûlant.
 
 « Si je le remplace par le crapaud, je ne serai pas blessé, mais il mourra à coup sûr. Hélas, ce python à corne rouge est au sommet du rang spirituel moyen; je peux bien l'utiliser à sa place, mais je crains d'être un peu blessé », marmonna Meng Tuozi en faisant glisser son pouce sur son majeur, d'où jaillit une goutte de sang. Il entonna des incantations étranges et la goutte devint rapidement d'un blanc laiteux avant de se poser sur le front du python.
 
@@ -146,7 +146,7 @@ Simultanément, une fluctuation anormale survint dans le brouillard rouge, déto
 
 Lorsque l'attaque massive de sens divin frappa, Meng Tuozi ne chercha pas à l'esquiver mais agita ses manches. Une immense quantité de fumée noire s'en échappa. Cette fumée se rassembla pour former un nuage qui commença à se propager. Toute petite créature touchant ce nuage noir tombait du ciel en convulsant, son corps se transformant en fumée noire qui rejoignait le nuage.
 
-Au même moment, la série d'attaques de sens divin, pleines d'une puissance capable de détruire le ciel et la terre, l'atteignit. Meng Tuozi poussa un gémissement de douleur. Son corps devint de plus en plus illusoire jusqu'à se changer en un python à corne d'une trentaine de mètres de long. Le serpent se tortilla un instant avant d'être totalement désintégré par les attaques; même son noyau fut réduit en poussière.
+Au même moment, la série d'attaques de sens divin, pleines d'une puissance capable de détruire le ciel et la terre, l'atteignit. Meng Tuozi poussa un gémissement de douleur. Son corps devint de plus en plus illusoire jusqu'à se changer en un python à corne d'une centaine de pieds de long. Le serpent se tortilla un instant avant d'être totalement désintégré par les attaques; même son noyau fut réduit en poussière.
 
 Au même moment, l'image du python à l'intérieur de la tour devint floue et se transmuta en Meng Tuozi. Son visage était livide et il cracha une bouchée de sang. Il afficha un sourire sanguinaire: « Mon poison destructeur du ciel est réputé le premier poison de la Mer Xiu Mo, et je l'ai libéré en totalité. Je ne crois pas que je sois incapable d'anéantir toute votre race! »
 

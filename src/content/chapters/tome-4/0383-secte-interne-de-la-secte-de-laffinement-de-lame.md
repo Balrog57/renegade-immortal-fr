@@ -40,7 +40,7 @@ Toutefois, avec la force de Wang Lin, il n'eut besoin que d'une seule pensée po
 
 Bien que le sortilège de la mort fût puissant, il restait bien trop faible comparé au Royaume Ji.
 
-Le Royaume Ji était une mutation de la foudre de la divine rétribution; elle pouvait tuer instantanément des cultivateurs de même niveau.
+Le Royaume Ji était une mutation de la Tribulation Céleste; elle pouvait tuer instantanément des cultivateurs de même niveau.
 
 Ce sortilège de la mort était une technique capable de tuer d'un seul coup n'importe quel individu ayant un niveau de culture inférieur, mais il n'avait que très peu d'effet sur ceux dont le niveau était plus élevé.
 

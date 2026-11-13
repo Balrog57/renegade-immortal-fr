@@ -34,17 +34,17 @@ Après un temps indéterminé, la brume devint si dense qu'elle prit forme humai
 
 Le petit être affichait un regard confus tandis que son corps tremblait. Lentement, la confusion disparut pour laisser place à une expression de fureur; il lança des cris silencieux vers Wang Lin.
 
-Wang Lin ne cilla même pas. D'un revers de main, il fit apparaître une lueur rouge. Le petit être sembla terrifié par cette lumière et tenta de s'enfuir, mais la zone d'un mètre entourant le corps de Teng Li agissait comme une prison. Peu importait ses efforts, il ne pouvait s'échapper.
+Wang Lin ne cilla même pas. D'un revers de main, il fit apparaître une lueur rouge. Le petit être sembla terrifié par cette lumière et tenta de s'enfuir, mais la zone de trois pieds entourant le corps de Teng Li agissait comme une prison. Peu importait ses efforts, il ne pouvait s'échapper.
 
 Finalement, réalisant qu'il était piégé, le petit être afficha un regard vindicatif et chargea vers la lumière rouge.
 
 Wang Lin garda un visage impassible et agita la main. La lueur rouge encercla la petite silhouette à plusieurs reprises avant de la tirer lentement vers lui.
 
-Wang Lin savait que l'étape de l'extraction de l'âme était cruciale. Il devait extraire l'âme de cette zone d'un mètre sans la briser. Bien qu'une âme brisée n'empêcherait pas le vol des fondations, il ne pourrait pas emprunter la racine spirituelle de Teng Li pour transformer sa propre constitution si celle-ci venait à être endommagée.
+Wang Lin savait que l'étape de l'extraction de l'âme était cruciale. Il devait extraire l'âme de cette zone de trois pieds sans la briser. Bien qu'une âme brisée n'empêcherait pas le vol des fondations, il ne pourrait pas emprunter la racine spirituelle de Teng Li pour transformer sa propre constitution si celle-ci venait à être endommagée.
 
-Le visage du petit être se crispa de douleur alors que la lumière rouge l'extrayait lentement. En un clin d'œil, la moitié de son corps avait déjà franchi la limite d'un mètre.
+Le visage du petit être se crispa de douleur alors que la lumière rouge l'extrayait lentement. En un clin d'œil, la moitié de son corps avait déjà franchi la limite des trois pieds.
 
-À cet instant, une lueur jaune jaillit du corps du petit être et brisa la lumière rouge. La petite silhouette recula précipitamment dans le périmètre d'un mètre et, sous l'éclat de cette lueur jaune, elle retrouva une certaine consistance.
+À cet instant, une lueur jaune jaillit du corps du petit être et brisa la lumière rouge. La petite silhouette recula précipitamment dans le périmètre de trois pieds et, sous l'éclat de cette lueur jaune, elle retrouva une certaine consistance.
 
 Le visage de Wang Lin s'assombrit alors qu'il fixait le petit être. Il leva la main pour lancer à nouveau sa technique. L'expression du petit être se mua en horreur tandis qu'il s'exclamait:
 
@@ -60,7 +60,7 @@ Le petit être se débattit en criant: « Arrière-grand-père, sauve-moi! » La
 
 Sans un mot, Wang Lin tapa sur son sac de rangement et en sortit une gourde d'eau spirituelle. Il versa l'eau sur le fil qui, soudainement, devint aussi épais qu'un pouce sous la force de sa traction.
 
-Cette fois, malgré l'éclat de la lumière jaune, le petit être ne put plus résister. Il fut arraché de la zone d'un mètre. Dès qu'il franchit cette limite, la lumière jaune se mua en un nuage de gaz jaunâtre, formant une silhouette indistincte à l'intérieur. Bien que la forme fût floue, une voix retentit: « Cher Daoïste, je vous en prie, arrêtez! Nous pouvons discuter de cela. »
+Cette fois, malgré l'éclat de la lumière jaune, le petit être ne put plus résister. Il fut arraché de la zone de trois pieds. Dès qu'il franchit cette limite, la lumière jaune se mua en un nuage de gaz jaunâtre, formant une silhouette indistincte à l'intérieur. Bien que la forme fût floue, une voix retentit: « Cher Daoïste, je vous en prie, arrêtez! Nous pouvons discuter de cela. »
 
 Wang Lin fut surpris, mais Situ Nan intervint rapidement: « Ne t'en fais pas, il s'agit d'un avatar illusionnaire d'un cultivateur de l'Âme Naissante. C'est différent d'un avatar physique car il ne peut ni attaquer, ni te voir, ni même connaître ton emplacement exact. Il ne permet que d'entendre ses paroles. De plus, si cet avatar est si flou, c'est que cette personne se trouve très loin. Quant à sa présence ici, il semble qu'il porte un attachement profond pour Teng Li, car il a laissé cette parcelle de sens divin auprès de lui. »
 

@@ -16,7 +16,7 @@ Son expression était glaciale tandis que la flamme dansait entre ses doigts. Gr
 
 Au moment où le brouillard noir se referma, la flamme démoniaque au bout du doigt de Wang Lin jaillit et fusionna avec la brume.
 
-En un éclair, le brouillard noir commença à bouillonner comme de l'eau en ébullition. Il s'agita violemment avant de s'arrêter à un mètre de Wang Lin, puis de reculer. Un cri de choc retentit de l'intérieur du brouillard alors qu'il se retirait.
+En un éclair, le brouillard noir commença à bouillonner comme de l'eau en ébullition. Il s'agita violemment avant de s'arrêter à trois pieds de Wang Lin, puis de reculer. Un cri de choc retentit de l'intérieur du brouillard alors qu'il se retirait.
 
 Wang Lin ricana. Il chargea et le Fouet Kunji apparut dans sa main. Il abattit violemment le fouet à plusieurs reprises sur le brouillard noir.
 
@@ -38,11 +38,11 @@ Ce rugissement portait en lui une nature indomptable et puissante; il était inf
 
 Le corps de Zhao Xingsha se figea et son visage devint livide. Il se retourna pour contempler le char de guerre, stupéfait, avant de battre en retraite précipitamment.
 
-Une bête spirituelle gigantesque, haute de plus de 330 mètres, surgit du char de guerre. Elle leva sa tête monumentale, révélant deux yeux froids qui dégageaient un éclat démoniaque capable de faire frissonner n'importe quel être.
+Une bête spirituelle gigantesque, haute de plus de mille pieds, surgit du char de guerre. Elle leva sa tête monumentale, révélant deux yeux froids qui dégageaient un éclat démoniaque capable de faire frissonner n'importe quel être.
 
-Dès l'apparition de la bête, Bai Wei recula sans l'ombre d'une hésitation. Il ne s'arrêta que lorsqu'il fut à plus de 3,3 kilomètres de là, fixant la créature avec terreur dans les yeux.
+Dès l'apparition de la bête, Bai Wei recula sans l'ombre d'une hésitation. Il ne s'arrêta que lorsqu'il fut à plus de dix mille pieds de là, fixant la créature avec terreur dans les yeux.
 
-Quant à la femme qui se trouvait au stade avancé de la Transformation de l'Âme, son expression changea également et elle recula rapidement de plus d'un kilomètre. À en juger par son regard, même elle redoutait cette bête.
+Quant à la femme qui se trouvait au stade avancé de la Transformation de l'Âme, son expression changea également et elle recula rapidement de plusieurs milliers de pieds. À en juger par son regard, même elle redoutait cette bête.
 
 Si de tels êtres réagissaient ainsi, il ne fallait même pas parler des autres disciples de la Division Pourpre. Un à un, leurs visages se couvrirent de choc. Le rugissement précédent avait secoué le cœur de plus de la moitié d'entre eux; certains n'étaient même plus capables de léviter, car le flux d'énergie spirituelle en leur sein avait été bloqué.
 
@@ -62,7 +62,7 @@ L'expression de Zhao Xingsha changea radicalement; il recula en hurlant: « Troi
 
 Wang Lin ricana et ignora Zhao Xingsha, continuant de fouetter le brouillard noir. Les cris émanant de la brume devinrent de plus en plus stridents. Trois respirations plus tard, le brouillard s'effondra et l'homme d'âge moyen réapparut.
 
-L'homme était livide et ses yeux étaient ternes. À l'instant où il toucha le sol, ses jambes tremblèrent et il faillit s'effondrer. C'est alors que le coup de fouet de Wang Lin frappa, expulsant son âme originelle de son corps de près d'un mètre.
+L'homme était livide et ses yeux étaient ternes. À l'instant où il toucha le sol, ses jambes tremblèrent et il faillit s'effondrer. C'est alors que le coup de fouet de Wang Lin frappa, expulsant son âme originelle de son corps de trois pieds.
 
 Wang Lin rangea le Fouet Kunji et sortit le drapeau des âmes. D'un geste, plusieurs âmes primaires en jaillirent et se précipitèrent sur l'homme d'âge moyen.
 

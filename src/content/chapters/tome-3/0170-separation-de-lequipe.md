@@ -82,13 +82,13 @@ Peu à peu, ses yeux s'habituèrent à l'obscurité. Bien qu'il ne puisse voir c
 
 Outre le fait que les piliers étaient des centaines de fois plus grands, leur vitesse de déplacement semblait également plus élevée. En plus de cela, il percevait un danger imminent venant de toutes parts.
 
-Wang Lin avançait avec une prudence extrême. La plupart du temps, il ne parcourait que quelques mètres avant de s'arrêter pour observer les environs. Il n'osait bouger que lorsqu'il était certain d'être en sécurité. À cet instant, alors qu'il venait de se poser sur un pilier de pierre, son corps se figea. Une silhouette noire passa devant lui en un éclair.
+Wang Lin avançait avec une prudence extrême. La plupart du temps, il ne parcourait que quelques dizaines de pieds avant de s'arrêter pour observer les environs. Il n'osait bouger que lorsqu'il était certain d'être en sécurité. À cet instant, alors qu'il venait de se poser sur un pilier de pierre, son corps se figea. Une silhouette noire passa devant lui en un éclair.
 
 Wang Lin retint sa respiration et resta immobile, le regard fixé droit devant. Après un moment, il parvint à distinguer une forme: au centre du pilier se trouvait une masse large d'environ mille pieds, dotée d'innombrables tentacules qui s'étiraient de son corps et s'agitaient de manière aléatoire.
 
 La silhouette noire qui venait de passer n'était qu'un de ses tentacules.
 
-Comprenant cela, Wang Lin commença à reculer. Si une telle créature survivait ici, elle devait être extrêmement puissante; ce n'était pas un adversaire à sa portée. Il recula de plusieurs mètres jusqu'au bord du pilier, gardant les yeux fixés sur la masse centrale, avant de sauter et de flotter doucement vers l'extérieur.
+Comprenant cela, Wang Lin commença à reculer. Si une telle créature survivait ici, elle devait être extrêmement puissante; ce n'était pas un adversaire à sa portée. Il recula de plusieurs dizaines de pieds jusqu'au bord du pilier, gardant les yeux fixés sur la masse centrale, avant de sauter et de flotter doucement vers l'extérieur.
 
 Ce ne fut que lorsqu'il fut à plus d'un kilomètre de là qu'il osa expirer. En regardant le vide infini au-dessus de lui, il ne put s'empêcher d'esquisser un sourire amer. Seul un retour vers la série de piliers où il se trouvait auparavant lui permettrait de retrouver l'anneau de lumière pour quitter ce lieu.
 

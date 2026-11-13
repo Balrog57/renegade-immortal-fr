@@ -36,7 +36,7 @@ La silhouette avait transpercé le cercle, laissant derrière elle une large br�
 
 Lorsque Wang Lin vit cette silhouette, son expression changea et il recula. Cependant, à cet instant précis, des vagues de rires sinistres émanèrent de la figure, d'où surgit une forme rougeoyante.
 
-Dès son apparition, l'individu agita nonchalamment la main vers Wang Lin. Ce dernier cracha une large bouchée de sang et son corps fut projeté comme une météorite. Il ne s'arrêta que 3,3 kilomètres plus loin, où il vomit une nouvelle fois du sang, cette fois mêlé à des fragments de ses propres organes internes.
+Dès son apparition, l'individu agita nonchalamment la main vers Wang Lin. Ce dernier cracha une large bouchée de sang et son corps fut projeté comme une météorite. Il ne s'arrêta que dix mille pieds plus loin, où il vomit une nouvelle fois du sang, cette fois mêlé à des fragments de ses propres organes internes.
 
 La figure rouge se mua en un homme aux cheveux rouges au corps semi-transparent, et à l'intérieur de ce corps se trouvait un petit singe.
 
@@ -128,7 +128,7 @@ En un clin d'œil, il rattrapa Wang Lin. Sa voix lugubre lui emboîta les mots:
 
 Le visage de Wang Lin s'assombrit. Il agita la main et la hache apparut dans sa poigne. Il se retourna brusquement, concentra toute l'énergie spirituelle céleste de son corps sur l'arme et frappa violemment.
 
-Un rayon d'énergie de hache, large d'une centaine de mètres ou plus et saturé d'énergie spirituelle céleste, jaillit. Cette attaque semblait capable de fendre les cieux eux-mêmes.
+Un rayon d'énergie de hache, large de plusieurs centaines de pieds et saturé d'énergie spirituelle céleste, jaillit. Cette attaque semblait capable de fendre les cieux eux-mêmes.
 
 Pourtant, les yeux de la silhouette de Tuo Sen virèrent au rouge; il leva la main et pointa doucement le rayon d'énergie, provoquant son effondrement immédiat.
 

@@ -28,7 +28,7 @@ Wang Lin sortit la sculpture, la lança sur la scène et déclara: « J'offre ce
 
 Xu Luo, qui surveillait attentivement le troisième étage, l'attrapa immédiatement lorsqu'il vit la sculpture être jetée. Il la remit ensuite à plusieurs experts en évaluation de trésors. Dès que ces derniers virent l'objet, leurs expressions changèrent et ils commencèrent à débattre à voix basse.
 
-Le vieil homme aux cheveux blancs réfléchit un instant, puis son regard devint soudainement sérieux. Il interrogea Wang Lin: « Camarade cultivateur, les veines sanguines à l'intérieur de cette sculpture ne seraient-elles pas issues de la technique des marionnettes de glace de Xue Yu? »
+Le vieil homme aux cheveux blancs réfléchit un instant, puis son regard devint soudainement sérieux. Il interrogea Wang Lin: « Daoïste, les veines sanguines à l'intérieur de cette sculpture ne seraient-elles pas issues de la technique des marionnettes de glace de Xue Yu? »
 
 Wang Lin regarda le vieil homme. Il fut surpris qu'il puisse la reconnaître. Cependant, après réflexion, ce vieil homme devait avoir vécu très longtemps et, en tant que chef du Pavillon Lian Qi, il avait dû voir énormément de choses.
 
@@ -44,7 +44,7 @@ Ces 5 000 pierres spirituelles ne suffiraient même pas pour la recette de pilul
 
 Wang Lin resta calme et ne dit mot. Au lieu de cela, il regarda vers la porte de la pièce. Peu après, une très belle jeune fille monta du deuxième étage. Elle salua Wang Lin, déposa un jade violet et repartit.
 
-Le vieil homme aux cheveux blancs dit: « Camarade cultivateur, je vais acheter votre marionnette. Ce jade violet peut être échangé contre 20 000 pierres spirituelles de haute qualité dans n'importe quel Pavillon Lian Qi. »
+Le vieil homme aux cheveux blancs dit: « Daoïste, je vais acheter votre marionnette. Ce jade violet peut être échangé contre 20 000 pierres spirituelles de haute qualité dans n'importe quel Pavillon Lian Qi. »
 
 Wang Lin sourit. Sans même regarder le jade, il s'écria: « J'offre 20 000 pierres spirituelles de haute qualité! »
 

@@ -14,9 +14,9 @@ Elle eut le pressentiment que si elle le laissait placer cette restriction, le d
 
 À cet instant, le visage de Chi Hu pâlit alors qu'il levait les yeux vers l'objet noir suspendu dans le ciel. Il soupira intérieurement: « Ce Zeng Niu n'a toujours pas utilisé toute sa puissance. Il semble que cet objet noir soit son véritable trésor de survie. »
 
-Chi Hu cria: « Compagne cultivatrice Hongdie, vous êtes tous les deux mes invités. Si vous insistez pour continuer l'attaque, cela me pousserait à l'injustice! Je me rangerai naturellement aux côtés du frère Ceng pour riposter. De plus, si je survis pour revenir, je rapporterai sans faute tout ceci à Xi Zu! »
+Chi Hu cria: « Daoïste Hongdie, vous êtes tous les deux mes invités. Si vous insistez pour continuer l'attaque, cela me pousserait à l'injustice! Je me rangerai naturellement aux côtés du frère Zeng pour riposter. De plus, si je survis pour revenir, je rapporterai sans faute tout ceci à Xi Zu! »
 
-Sur ces mots, une illusion apparut derrière Chi Hu. Il s'agissait d'un géant de plus de trente mètres de haut qui fixait Hongdie de ses yeux glacials.
+Sur ces mots, une illusion apparut derrière Chi Hu. Il s'agissait d'un géant de plus de cent pieds de haut qui fixait Hongdie de ses yeux glacials.
 
 Hongdie ne put s'empêcher d'hésiter. Elle songea que la technique de Zeng Niu n'était guère simple. L'illusion derrière Chi Hu s'était déjà solidifiée; si elle poursuivait le combat, ce fragment risquait fort de s'effondrer. Après un court instant d'indécision, elle pointa le ciel et ordonna aux pétales de la fleur de s'arrêter.
 
@@ -30,7 +30,7 @@ Un léger sourire apparut sur les lèvres de Wang Lin alors qu'il levait la rest
 
 Le visage de Hongdie devint instantanément livide.
 
-Chi Hu joignit les mains et déclara: « Frère Ceng, je prends la décision. Tout ce que nous obtiendrons cette fois sera partagé équitablement entre nous trois. Qu'en dis-tu? »
+Chi Hu joignit les mains et déclara: « Frère Zeng, je prends la décision. Tout ce que nous obtiendrons cette fois sera partagé équitablement entre nous trois. Qu'en dis-tu? »
 
 « Très bien, je m'en remets au frère Chi Hu, alors », répondit Wang Lin avec un sourire discret. En vérité, il aurait préféré ne pas utiliser la foudre de la Tribulation Céleste si possible. Il n'en possédait qu'une seule et, compte tenu de la structure de ce fragment, il lui serait difficile, même à lui, de s'échapper. En somme, cela lui serait préjudiciable également.
 
@@ -58,7 +58,7 @@ Wang Lin afficha une expression moqueuse en les suivant.
 
 Il pensa secrètement: « En fin de compte, son esprit et son cœur sont trop instables. Bien qu'atteindre la Formation de l'Âme en cent ans soit un véritable miracle, elle souffre encore de nombreux maux. Son cœur est trop faible. Ce n'est qu'une question de vitesse; quelle est la différence entre être devant ou derrière? »
 
-« Si je la combats avec mon niveau de culture actuel, à moins d'utiliser le drapeau de restriction pour déclencher la foudre de la Tribulation Céleste, je n'ai aucune chance de l'emporter. Mon domaine de la vie et de la mort peine à affecter un domaine impitoyable presque achevé. Cependant, si j'atteins le stade intermédiaire de la Formation de l'Âme, grâce au contrôle que j'aurai sur mon domaine, je serai en mesure de l'influencer. À ce moment-là, même sans déclencher la foudre divine, j'aurais 70 % de chances de la vaincre. »
+« Si je la combats avec mon niveau de culture actuel, à moins d'utiliser le drapeau de restriction pour déclencher la foudre de la Tribulation Céleste, je n'ai aucune chance de l'emporter. Mon domaine de la vie et de la mort peine à affecter un domaine impitoyable presque achevé. Cependant, si j'atteins le stade intermédiaire de la Formation de l'Âme, grâce au contrôle que j'aurai sur mon domaine, je serai en mesure de l'influencer. À ce moment-là, même sans déclencher la foudre de la Tribulation Céleste, j'aurais 70 % de chances de la vaincre. »
 
 Le domaine de la vie et de la mort de Wang Lin était dérivé du cycle de la réincarnation des cieux, mais comme il n'était qu'au début de la Formation de l'Âme, il ne pouvait en déployer toute la puissance. Après tout, il venait à peine de commencer à comprendre les lois célestes.
 
@@ -80,7 +80,7 @@ Cette montagne avait la forme d'un dragon dont la tête plongeait dans les nuage
 
 Wang Lin leva les yeux vers la montagne et dit lentement: « Frère Chi Hu, pourquoi personne d'autre n'a-t-il trouvé l'endroit indiqué par le jade? Veuillez nous éclairer. »
 
-Chi Hu sourit: « Pour vous dire la vérité, frère Ceng, si je suis si certain que personne n'a découvert ce lieu, c'est parce qu'il n'est pas accessible via le vortex. »
+Chi Hu sourit: « Pour vous dire la vérité, frère Zeng, si je suis si certain que personne n'a découvert ce lieu, c'est parce qu'il n'est pas accessible via le vortex. »
 
 Les yeux de Wang Lin trahirent son intérêt. Hongdie, elle, fixait intensément Chi Hu.
 
@@ -94,7 +94,7 @@ Chi Hu reprit: « De plus, même la première couche n'est pas un lieu facilemen
 
 Hongdie ricana: « Comment le seigneur Xi Zu a-t-il fait pour le trouver à l'époque? »
 
-Les yeux de Chi Hu s'illuminèrent: « Compagne cultivatrice Hongdie, cela touche aux secrets de mon Clan Ju Mo; je ne puis rien en dire. »
+Les yeux de Chi Hu s'illuminèrent: « Daoïste Hongdie, cela touche aux secrets de mon Clan Ju Mo; je ne puis rien en dire. »
 
 Wang Lin regarda la montagne dragonique en restant silencieux.
 
@@ -106,7 +106,7 @@ Parmi les nombreux fragments du royaume céleste, au bord sud, se trouvait un fr
 
 Lorsque Wang Lin émergea de la formation dans le ciel, il fronça les sourcils. À l'inverse, Hongdie affichait une expression de confort; cet environnement ne semblait pas seulement ne pas lui nuire, mais paraissait même lui être bénéfique.
 
-Chi Hu déclara solennellement: « Compagne cultivatrice Hongdie, voici le chemin menant au fragment de la première couche. Vers l'est, sur 150 000 kilomètres, s'étend une terre de glace vieille de dix mille ans et nous aurons besoin de vos capacités pour repousser le froid. Une fois cette zone franchie, nous atteindrons le vide. Je possède une boussole stellaire pour nous éviter de nous perdre. Frère Ceng, ces âmes errantes que vous contrôlez seront très utiles dans le vide, alors ne vous retenez pas. Une fois le vide traversé, nous atteindrons le premier fragment. Après tout, il n'y a aucun réseau de transfert là-bas; c'est donc notre unique moyen de garantir notre arrivée. »
+Chi Hu déclara solennellement: « Daoïste Hongdie, voici le chemin menant au fragment de la première couche. Vers l'est, sur 150 000 kilomètres, s'étend une terre de glace vieille de dix mille ans et nous aurons besoin de vos capacités pour repousser le froid. Une fois cette zone franchie, nous atteindrons le vide. Je possède une boussole stellaire pour nous éviter de nous perdre. Frère Zeng, ces âmes errantes que vous contrôlez seront très utiles dans le vide, alors ne vous retenez pas. Une fois le vide traversé, nous atteindrons le premier fragment. Après tout, il n'y a aucun réseau de transfert là-bas; c'est donc notre unique moyen de garantir notre arrivée. »
 
 En entendant cela, Wang Lin comprit enfin que Chi Hu l'avait sollicité pour ses âmes errantes. Il semblait y avoir un obstacle que ces dernières pourraient franchir aisément.
 

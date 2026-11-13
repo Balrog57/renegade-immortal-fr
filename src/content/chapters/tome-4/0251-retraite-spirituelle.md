@@ -132,7 +132,7 @@ Wang Lin fronça les sourcils et demanda: « Comment puis-je atteindre la Format
 
 Le vieil homme le regarda et répondit: « Je suis déjà vieux. Dès que j'ai faim, ma mémoire me fait défaut. Je connais un excellent restaurant. Allons-y et discutons pendant que nous mangeons. » Il se lécha les lèvres tandis que son estomac gargouillait de faim.
 
-Le Restaurant Fortune était l'un des établissements les plus luxueux de la capitale. Le vieil homme y entra la tête haute, la poitrine bombée.
+Le Restaurant Fu Shun était l'un des établissements les plus luxueux de la capitale. Le vieil homme y entra la tête haute, la poitrine bombée.
 
 Il semblait indigne pour lui de manger dans la salle commune. Une fois entré, il se dirigea directement vers une suite privée. Lorsque le serveur vit le vieillard, son expression devint étrange, mais lorsqu'il aperçut Wang Lin derrière lui, il s'empressa de venir les servir.
 

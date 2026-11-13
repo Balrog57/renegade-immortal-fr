@@ -39,7 +39,7 @@ Quelles que soient les recherches des cultivateurs, ils ne trouvaient rien. C'é
 
 Toute cette énergie fut absorbée par le jeune homme, faisant croître son corps de façon spectaculaire. Par la suite, des catastrophes naturelles se multiplièrent à la surface. Des montagnes s'effondrèrent et certains cultivateurs qui n'avaient pas migré assez tôt moururent subitement sans cause apparente. Le plus souvent, ils perdaient instantanément toute leur culture ainsi que la vie.
 
-Des années plus tard, la planète était devenue un monde mort. Puis, le jeune homme bougea brusquement et l'astre entier explosa. Au milieu des débris de la planète déchiquetée, le jeune homme émergea. Il mesurait des milliers de pieds de haut et son regard était glacial, dépourvu de toute émotion.
+Des années plus tard, la planète était devenue un monde mort. Puis, le jeune homme bougea brusquement et l'astre entier explosa. Au milieu des débris de la planète déchiquetée, le jeune homme émergea. Il mesurait dix mille pieds de haut et son regard était glacial, dépourvu de toute émotion.
 
 L'adolescent avait les yeux mi-clos, semblant chercher quelque chose avec son Sens Divin. Après un long moment, il murmura pour lui-même: « Mon nom est Tu Si! »
 
@@ -97,7 +97,7 @@ Durant son vol, Wang Lin resta calme. Souvent, sa main saisissait l'air pour cr�
 
 Soudain, alors qu'il sortait d'une faille, son expression changea et il eut un ricanement méprisant. L'espace devant lui se distordit, laissant place à un cultivateur démoniaque. Ce dernier le fixa avec surprise avant de lécher ses lèvres en riant: « Petit gars, ce vieux t'a enfin trouvé! »
 
-Tout en parlant, il tendit la main droite vers Wang Lin. Ce dernier, imperturbable, recula d'un pas et récita une incantation complexe. Instantanément, les environs semblèrent s'étirer à l'infini. Plus précisément, la distance entre le cultivateur démoniaque et Wang Lin fut dilatée en un clin d'œil, passant de quelques centaines de mètres à dix mille milles.
+Tout en parlant, il tendit la main droite vers Wang Lin. Ce dernier, imperturbable, recula d'un pas et récita une incantation complexe. Instantanément, les environs semblèrent s'étirer à l'infini. Plus précisément, la distance entre le cultivateur démoniaque et Wang Lin fut dilatée en un clin d'œil, passant de quelques centaines de pieds à dix mille milles.
 
 La main du démon ne saisit que le vide. Stupéfait, le visage assombri par la rage, il émit un reniflement froid, agita la main droite et projeta son corps en avant pour combler les dix mille milles qui le séparaient de sa proie. Wang Lin esquissa un sourire froid, agita la main devant lui et disparut dans une faille.
 

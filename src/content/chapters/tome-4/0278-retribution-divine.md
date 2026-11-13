@@ -60,7 +60,7 @@ La Tribulation Céleste violette s'écrasa sur la tour de glace. La tour et la v
 
 Wang Lin prit une profonde inspiration et lança un regard empli d'émotion vers la Tribulation Céleste. Sachant qu'il n'était pas temps de traîner, il fit volte-face pour s'enfuir.
 
-Mais après n'avoir parcouru que 330 mètres, il sentit un puissant Sens Divin balayer les environs. À cet instant, le chapeau de paille sur sa tête brilla, et ce Sens Divin se retira précipitamment.
+Mais après n'avoir parcouru que 1 000 pieds, il sentit un puissant Sens Divin balayer les environs. À cet instant, le chapeau de paille sur sa tête brilla, et ce Sens Divin se retira précipitamment.
 
 Soudain, une énergie brûlante émana du chapeau et pénétra son esprit. Il vit l'image de l'homme d'âge moyen qui avait détruit le dragon s'approcher rapidement.
 

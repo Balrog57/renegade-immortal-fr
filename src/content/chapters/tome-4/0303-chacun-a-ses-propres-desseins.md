@@ -8,7 +8,7 @@ slug: chacun-a-ses-propres-desseins
 ---
 Tous deux étaient des hommes de décision; lorsqu'ils conclurent leur accord, il n'y eut aucune hésitation. Ils s'élancèrent rapidement à travers les ruines en direction de la grotte regorgeant de nourriture pour bêtes célestes.
 
-Depuis leur position actuelle, ils pouvaient apercevoir la grotte à une centaine de mètres.
+Depuis leur position actuelle, ils pouvaient apercevoir la grotte à trois cents pieds.
 
 Non loin de là reposait le cadavre du troisième Senior frère, tué par Sun Lei.
 
@@ -46,7 +46,7 @@ Soudain, des vagues de corps de nourritures célestes furent tordues et annihil�
 
 Sun Lei fut stupéfait. Il n'avait pas imaginé que la foudre serait aussi puissante. Sa crainte envers Wang Lin ne fit qu'augmenter.
 
-La boule d'éclairs contenait le pouvoir des cieux; elle parvint à progresser sur plus de trente mètres avant de se dissiper. Pourtant, les nourritures pour bêtes continuaient de charger sans relâche.
+La boule d'éclairs contenait le pouvoir des cieux; elle parvint à progresser sur plus de cent pieds avant de se dissiper. Pourtant, les nourritures pour bêtes continuaient de charger sans relâche.
 
 Wang Lin recula et pointa le crapaud de tonnerre. L'abdomen de la bête se gonfla de nouveau, puis elle cracha une seconde boule de foudre sur l'assaillante.
 

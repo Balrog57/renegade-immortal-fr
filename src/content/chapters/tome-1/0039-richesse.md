@@ -24,13 +24,13 @@ Wang Lin se sentit embarrassé, surtout en repensant à l'expression solennelle 
 
 L'homme corpulent rit de bon cœur. Après avoir fini de s'esclaffer, il fit un geste de la main et dit: « Junior frère, tu peux passer. Je te recommande l'épée numéro 3 sur la droite. Cette épée volante est vraiment prodigieuse. La première fois que je l'ai vue, j'ai cru que c'était l'épée volante la plus extraordinaire du pays de Zhao. »
 
-Wang Lin le remercia rapidement et se dirigea vers le pavillon. Lorsqu'il fut à 16,5 mètres de l'entrée, il détecta soudainement des ondes d'énergie émanant du bâtiment, comme si elles tentaient de lui barrer la route.
+Wang Lin le remercia rapidement et se dirigea vers le pavillon. Lorsqu'il fut à cinquante pieds de l'entrée, il détecta soudainement des ondes d'énergie émanant du bâtiment, comme si elles tentaient de lui barrer la route.
 
 En voyant cela, le gros homme réalisa qu'il avait oublié de désactiver la formation qui entourait le pavillon. Il voulut avertir Wang Lin, mais au moment même où il allait parler, il s'interrompit brusquement, comme si une arête de poisson lui était restée coincée dans la gorge. Ses yeux s'agrandirent et il fixa Wang Lin avec une expression d'incrédulité totale.
 
-Wang Lin ressentit la résistance et se remémora la honte subie autrefois. Il laissa échapper un reniflement et continua d'avancer: 16,5 mètres, 13,2 mètres, 9,9 mètres, 6,6 mètres, 3,3 mètres!
+Wang Lin ressentit la résistance et se remémora la honte subie autrefois. Il laissa échapper un reniflement et continua d'avancer: cinquante pieds, quarante pieds, trente pieds, vingt pieds, dix pieds!
 
-Malgré l'intensification de la pression, celle-ci ne parvint nullement à stopper Wang Lin, qui pénétra avec aisance dans le pavillon des épées. Une fois à l'intérieur, il déploya son sens divin et constata que la pièce était très singulière: son sens divin semblait limité à un rayon de seulement 9,9 mètres.
+Malgré l'intensification de la pression, celle-ci ne parvint nullement à stopper Wang Lin, qui pénétra avec aisance dans le pavillon des épées. Une fois à l'intérieur, il déploya son sens divin et constata que la pièce était très singulière: son sens divin semblait limité à un rayon de seulement trente pieds.
 
 Le gros homme bondit immédiatement, le visage marqué par la stupeur. En tant que disciple chargé de la gestion du pavillon des épées, il connaissait parfaitement la puissance des formations. Non seulement les disciples internes, mais même plusieurs Anciens ne pouvaient pas forcer le passage comme Wang Lin venait de le faire.
 
@@ -38,7 +38,7 @@ Seul lors du recrutement des disciples la puissance de la formation était affai
 
 « La formation est-elle brisée? » Le gros homme n'en croyait pas ses yeux. Après avoir longuement réfléchi, il en conclut que la formation devait être défaillante, et s'avança à grands pas pour l'essayer lui-même.
 
-Dès qu'il pénétra dans le périmètre des 16,5 mètres, une pression écrasante le frappa, le faisant se sentir aussi vulnérable qu'une barque solitaire sur une mer déchaînée. Il fut violemment projeté en arrière, son corps décrivant un arc dans les airs avant de s'écraser au sol. En retombant, il cracha plusieurs bouffées de sang. Il lui fallut un long moment pour retrouver ses esprits, le visage déformé par la terreur. Il s'exclama: « Ce n'est pas... ce n'est pas brisée! »
+Dès qu'il pénétra dans le périmètre des cinquante pieds, une pression écrasante le frappa, le faisant se sentir aussi vulnérable qu'une barque solitaire sur une mer déchaînée. Il fut violemment projeté en arrière, son corps décrivant un arc dans les airs avant de s'écraser au sol. En retombant, il cracha plusieurs bouffées de sang. Il lui fallut un long moment pour retrouver ses esprits, le visage déformé par la terreur. Il s'exclama: « Ce n'est pas... ce n'est pas brisée! »
 
 Wang Lin, quant à lui, était entré sans effort. Une fois dans la salle, il vit de nombreuses épées volantes de longueurs diverses, toutes dégageant une puissante intention d'épée.
 
@@ -46,7 +46,7 @@ Il inspecta chaque lame l'une après l'autre, sans s'arrêter, jusqu'à ce qu'il
 
 En la voyant, Wang Lin resta sans voix. On pouvait effectivement la considérer comme une épée "extraordinaire". En réalité, elle ne devrait même pas être qualifiée d'épée volante, mais plutôt de planche de porte rectangulaire.
 
-Elle mesurait deux paumes de large pour un mètre de long, et tout son corps brillait d'un éclat doré. Cette lueur n'était pas due à un sortilège magique, mais simplement parce que l'épée entière était recouverte d'or.
+Elle mesurait deux paumes de large pour trois pieds de long, et tout son corps brillait d'un éclat doré. Cette lueur n'était pas due à un sortilège magique, mais simplement parce que l'épée entière était recouverte d'or.
 
 Et ne vous méprenez pas: cette couche d'or n'avait pas pour but de dissimuler une lame légendaire; il s'agissait de fer ordinaire.
 
@@ -68,7 +68,7 @@ De retour dans le jardin de Sun Dazhu, Wang Lin sortit l'épée. Sun Dazhu resta
 
 Trois jours plus tard, la cloche de la Secte Heng Yue sonna neuf coups. Son écho résonna longuement à travers la montagne. Le chef de secte, tous les Anciens et leurs disciples respectifs s'étaient rassemblés devant le hall principal.
 
-Ils virent un point noir apparaître dans le ciel. Ce point se rapprochait d'eux inexorablement, jusqu'à ce qu'ils réalisent qu'il s'agissait d'un mille-pattes long d'environ 330 mètres. La créature était d'un noir absolu et avançait sur des nuages sombres, des grondements de tonnerre résonnant dans son vol, tandis qu'elle se ruait rapidement vers eux.
+Ils virent un point noir apparaître dans le ciel. Ce point se rapprochait d'eux inexorablement, jusqu'à ce qu'ils réalisent qu'il s'agissait d'un mille-pattes long d'environ mille pieds. La créature était d'un noir absolu et avançait sur des nuages sombres, des grondements de tonnerre résonnant dans son vol, tandis qu'elle se ruait rapidement vers eux.
 
 Tous les disciples internes de la Secte Heng Yue retinrent leur souffle, le regard empreint de terreur. Le visage de certaines disciples devint livide et leurs jambes se dérobèrent.
 

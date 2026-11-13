@@ -68,7 +68,7 @@ De plus, le plus étrange dans cette quatorzième vallée était l'absence total
 
 De loin, Wang Lin comprit que la quatorzième vallée n'était pas la fin de la Vallée Shi, mais seulement un point médian. Il secoua la tête et décida de rebrousser chemin.
 
-Alors qu'il s'apprêtait à partir, un rugissement retentit au loin et un dragon gigantesque, long de plus de 3,3 kilomètres, émergea du brouillard.
+Alors qu'il s'apprêtait à partir, un rugissement retentit au loin et un dragon gigantesque, long de plus de dix mille pieds, émergea du brouillard.
 
 L'expression de Wang Lin changea; il recula de quelques pas pour s'enfoncer sous terre. Son Sens Divin se déploya et se verrouilla sur le dragon géant.
 

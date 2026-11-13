@@ -144,7 +144,7 @@ Les yeux de Wang Lin s'illuminèrent. Il leva la tête et percuta la main gigant
 
 Bang!
 
-L'âme originelle de Wang Lin fut violemment secouée. Elle fut expulsée de son corps sur environ 3,3 mètres. Cependant, il la ramena promptement en lui. Un filet de sang coula au coin de ses lèvres alors qu'il filait au loin, et il déploya son Sens Divin avec frénésie. Il cherchait quelque chose.
+L'âme originelle de Wang Lin fut violemment secouée. Elle fut expulsée de son corps sur dix pieds. Cependant, il la ramena promptement en lui. Un filet de sang coula au coin de ses lèvres alors qu'il filait au loin, et il déploya son Sens Divin avec frénésie. Il cherchait quelque chose.
 
 La main géante se rétracta et les deux yeux au sein des nuages rouges réapparurent pour fixer le parchemin dans la main de Wang Lin. Puis, la main descendit de nouveau.
 

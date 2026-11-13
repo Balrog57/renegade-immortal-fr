@@ -48,7 +48,7 @@ Il se caressa le menton. Puis, sans rien laisser paraître, son corps s'élança
 
 Malgré cela, Wang Lin restait inquiet, comme si une ombre gigantesque planait sur lui. Après un long moment, il se calma et déploya son Sens Divin. Il but un peu de liquide spirituel Yin et commença à pratiquer en absorbant le Yin tout en restant sur ses gardes.
 
-La nuit tomba. Cette nuit-là, Wang Lin n'absorba aucune énergie Yin, préférant concentrer toute son attention sur ce qui l'entourait. Il déploya son Sens Divin à sa portée maximale, capable de ressentir le mouvement d'un brin d'herbe à environ trois cents mètres.
+La nuit tomba. Cette nuit-là, Wang Lin n'absorba aucune énergie Yin, préférant concentrer toute son attention sur ce qui l'entourait. Il déploya son Sens Divin à sa portée maximale, capable de ressentir le mouvement d'un brin d'herbe à environ mille pieds.
 
 Il porta une attention particulière aux deux carcasses. Il voulait découvrir quelle créature vivait dans les ruines et s'aventurait ici la nuit.
 
@@ -66,7 +66,7 @@ Il vit que, suite au trouble de l'énergie Yin, une silhouette apparut brusqueme
 
 Wang Lin en fut saisi d'effroi. Lors de cette première apparition, il put distinguer la forme de l'intrus: une créature humanoïde à la peau bleue.
 
-La peau de l'individu était couverte de symboles étranges. De plus, neuf papiers jaunes d'environ un centimètre et demi étaient apposés sur différentes parties de son corps. Cet étrange personnage surprit grandement Wang Lin.
+La peau de l'individu était couverte de symboles étranges. De plus, neuf papiers jaunes d'un demi-pouce étaient apposés sur différentes parties de son corps. Cet étrange personnage surprit grandement Wang Lin.
 
 L'étranger réapparut. Il se tenait à l'extérieur de la formation de Wang Lin, l'air pensif.
 

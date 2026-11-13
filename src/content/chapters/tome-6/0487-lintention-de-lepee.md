@@ -20,7 +20,7 @@ Actuellement, un homme était assis en position du lotus devant le pavillon des 
 
 La culture de cet homme était totalement dissimulée. À moins d'être un cultivateur de niveau supérieur, il serait très difficile de percer ses secrets. Il restait là, l'expression sereine, comme si rien au monde n'avait d'importance. Pour l'instant, toute son attention était focalisée sur l'objet posé sur ses genoux!
 
-Sur les genoux de cet homme reposait une épée de 2,3 mètres de long. L'épée était entièrement verte et émanait une lueur fantomatique. Sous la lumière du soleil, la zone environnante se trouvait baignée par cette clarté verdâtre, peignant tout ce qui l'entourait en vert.
+Sur les genoux de cet homme reposait une épée de sept pieds de long. L'épée était entièrement verte et émanait une lueur fantomatique. Sous la lumière du soleil, la zone environnante se trouvait baignée par cette clarté verdâtre, peignant tout ce qui l'entourait en vert.
 
 Wang Lin se tenait à plus d'une centaine de mètres du pavillon des trésors, fixant l'homme assis devant lui.
 
@@ -30,7 +30,7 @@ L'homme d'âge moyen ouvrit les yeux et vit Wang Lin debout non loin de là. Sur
 
 Le regard de Wang Lin se posa sur le front de Zhang Xiangfan, puis il demanda calmement: « Puis-je voir ton épée volante? »
 
-Zhang Xiangfan fut déconcerté. Il hocha la tête et répondit: « L'épée volante du disciple n'est qu'un objet ordinaire. Je l'ai acquise au marché au pied de la montagne, elle n'a rien de spécial. Si le Septième Ancêtre souhaite la voir, alors je n'y vois aucun inconvénient. » Sur ces mots, il pointa l'espace entre ses sourcils et poussa un rugissement sourd. Une lumière verte jaillit, prit la forme de l'épée de 2,3 mètres et libéra des ondes d'hymnes d'épée.
+Zhang Xiangfan fut déconcerté. Il hocha la tête et répondit: « L'épée volante du disciple n'est qu'un objet ordinaire. Je l'ai acquise au marché au pied de la montagne, elle n'a rien de spécial. Si le Septième Ancêtre souhaite la voir, alors je n'y vois aucun inconvénient. » Sur ces mots, il pointa l'espace entre ses sourcils et poussa un rugissement sourd. Une lumière verte jaillit, prit la forme de l'épée de sept pieds et libéra des ondes d'hymnes d'épée.
 
 Le regard de Wang Lin resta impassible tandis qu'il tendait la main. Lorsqu'il saisit l'épée verte, il la tira vers lui pour l'examiner attentivement.
 

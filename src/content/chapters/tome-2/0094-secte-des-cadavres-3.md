@@ -74,7 +74,7 @@ Assis sur ces huit piliers, huit jeunes hommes trônaient, chacun avec un cercue
 
 Soudain, cinq anneaux s'illuminèrent et un jeune homme vêtu de bleu apparut dans la grotte, accompagné de son cercueil. L'un des huit jeunes hommes sur les piliers ouvrit les yeux pour observer l'arrivant. Sa voix était dénuée de toute émotion: « D'où viens-tu? »
 
-Le jeune homme en bleu s'inclina rapidement: « Branche de la Secte Shi Yin de Lu, dans un pays de culture de rang 2. Je m'appelle Lin Yi et je suis ici pour participer à l'examen de promotion. »
+Le jeune homme en bleu s'inclina rapidement: « Branche de la Secte Shi Yin du Pays Lu, pays de culture de rang 2. Je m'appelle Lin Yi et je suis ici pour participer à l'examen de promotion. »
 
 Le jeune homme sur le pilier le regarda d'un air indifférent: « Dix-huitième grotte sur la droite. Va. »
 

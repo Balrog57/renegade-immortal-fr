@@ -13,11 +13,11 @@ Chi Hu sourit et répondit: « Il sera certes difficile si nous ne sommes que de
 
 Les yeux de Wang Lin s'illuminèrent. Il déclara: « Je ne peux pas vous donner de réponse immédiate. Laissez-moi y réfléchir quelques jours. »
 
-Chi Hu acquiesça. « Naturellement! Que diriez-vous de ceci: si le frère Ceng accepte, rejoignez-moi dans un mois sur le fragment que marque cette carte de jade. Mais si vous n'êtes pas arrivé d'ici là, je ne vous attendrai pas. » Sur ces mots, il sortit un autre morceau de jade et le tendit à Wang Lin.
+Chi Hu acquiesça. « Naturellement! Que diriez-vous de ceci: si le frère Zeng accepte, rejoignez-moi dans un mois sur le fragment que marque cette carte de jade. Mais si vous n'êtes pas arrivé d'ici là, je ne vous attendrai pas. » Sur ces mots, il sortit un autre morceau de jade et le tendit à Wang Lin.
 
 Wang Lin réceptionna le jade et remarqua qu'il était identique à celui de la Secte Da Luo. Il servait à se téléporter à travers le Royaume Céleste. Cependant, contrairement à celui de la Secte Da Luo, seul un fragment était illuminé.
 
-« Lorsque vous entrerez dans le vortex, activez ce jade et il vous mènera au bon fragment. Frère Ceng, je vous attendrai là-bas. » Sur quoi, Chi Hu joignit les mains et s'enfonça dans le vortex.
+« Lorsque vous entrerez dans le vortex, activez ce jade et il vous mènera au bon fragment. Frère Zeng, je vous attendrai là-bas. » Sur quoi, Chi Hu joignit les mains et s'enfonça dans le vortex.
 
 Wang Lin rangea le jade puis s'assit en tailleur. Il sortit le drapeau de restriction pour s'en entourer. Son âme originelle s'échappa, affichant une expression de douleur, tandis qu'un cristal d'énergie céleste, de la taille d'un grain de riz, était extorqué de son essence même.
 
@@ -73,19 +73,19 @@ Ce jour-là, Wang Lin atterrit à nouveau et constata qu'il se trouvait du côt�
 
 Alors qu'il s'apprêtait à s'envoler de nouveau, il ressentit soudainement une fluctuation de sorts au loin. Il vit alors deux silhouettes foncer vers lui. L'une était entourée de nuages noirs, tandis que la seconde était un jeune homme vêtu d'une robe blanche, arborant un sourire glacial.
 
-À cet instant, l'individu en tête remarqua Wang Lin. Il changea brusquement de direction et cria: « Camarade cultivateur, sauvez-moi! »
+À cet instant, l'individu en tête remarqua Wang Lin. Il changea brusquement de direction et cria: « Daoïste, sauvez-moi! »
 
 Le visage du cultivateur en robe blanche s'assombrit; il referma son éventail et fit un geste de la main. Soudain, une main gigantesque apparut pour saisir l'homme qui fuyait. Ce dernier changea d'expression, semblant incapable d'esquiver, mais son corps se transforma soudainement en une multitude de petits insectes, lui permettant de s'échapper de l'emprise.
 
-L'homme réapparut à 330 mètres de Wang Lin. En y regardant de plus près, Wang Lin le reconnut: c'était le jeune homme aux yeux empreints de soif de sang de Suzaku. Son visage était livide. Une fois apparu, il ne continua pas sa fuite mais se retourna pour faire face au jeune homme en blanc qui le poursuivait.
+L'homme réapparut à mille pieds de Wang Lin. En y regardant de plus près, Wang Lin le reconnut: c'était le jeune homme aux yeux empreints de soif de sang de Suzaku. Son visage était livide. Une fois apparu, il ne continua pas sa fuite mais se retourna pour faire face au jeune homme en blanc qui le poursuivait.
 
-Le cultivateur en robe blanche regarda Wang Lin et joignit les mains: « Camarade cultivateur, cela ne vous concerne pas. Veuillez partir », dit-il.
+Le cultivateur en robe blanche regarda Wang Lin et joignit les mains: « Daoïste, cela ne vous concerne pas. Veuillez partir », dit-il.
 
-Le jeune homme répliqua promptement: « Camarade cultivateur, cet individu m'a volé mon cristal d'énergie céleste! Si vous m'aidez, nous pourrons nous partager le butin! »
+Le jeune homme répliqua promptement: « Daoïste, cet individu m'a volé mon cristal d'énergie céleste! Si vous m'aidez, nous pourrons nous partager le butin! »
 
 Les yeux du jeune homme en robe blanche se plissèrent et il éclata de rire: « Quelles absurdités. C'est toi qui m'as volé! »
 
-Wang Lin fronça les sourcils. Il n'avait aucune intention de s'impliquer dans ce chaos. Sans un mot, il recula et s'envola. Le jeune homme changea brusquement d'expression et se lança à la poursuite de Wang Lin en criant: « Camarade cultivateur, considérez que nous venons de la même planète et aidez-moi pour cette fois! »
+Wang Lin fronça les sourcils. Il n'avait aucune intention de s'impliquer dans ce chaos. Sans un mot, il recula et s'envola. Le jeune homme changea brusquement d'expression et se lança à la poursuite de Wang Lin en criant: « Daoïste, considérez que nous venons de la même planète et aidez-moi pour cette fois! »
 
 Le visage de Wang Lin s'assombrit. Il se retourna et tonna: « Dégage! N'essaie pas de m'entraîner dans votre querelle. Si tu continues à me suivre, ne me reproche pas d'être impitoyable! »
 
@@ -95,17 +95,17 @@ Les yeux du cultivateur en robe blanche brillèrent. Son regard passa de l'homme
 
 « Zeng Niu! » lança Wang Lin avant de s'envoler. Il décida de fouiller la zone et de tenter le vortex encore quelques fois. S'il ne trouvait toujours rien, il n'aurait d'autre choix que d'abandonner.
 
-Le jeune homme en blanc cria: « Camarade Ceng, j'ai déjà exploré ce secteur pendant plusieurs jours et il n'y a plus aucune énergie spirituelle céleste ici. J'ignore si vous possédez les localisations de transfert vers d'autres fragments, mais nous pourrions faire un échange. »
+Le jeune homme en blanc cria: « Daoïste Zeng, j'ai déjà exploré ce secteur pendant plusieurs jours et il n'y a plus aucune énergie spirituelle céleste ici. J'ignore si vous possédez les localisations de transfert vers d'autres fragments, mais nous pourrions faire un échange. »
 
 Wang Lin s'arrêta, se retourna et fixa le jeune homme. Ce dernier était au stade initial de la Formation de l'Âme, mais la technique qu'il avait manifestée plus tôt était extrêmement puissante. Wang Lin réfléchit un instant, puis frappa sa sacoche pour en sortir le jade de la Secte Da Luo. Il y injecta un peu d'énergie spirituelle et une carte du Royaume Céleste apparut. Bien que la majeure partie soit obscure, environ trente fragments étaient illuminés.
 
 Le jeune homme en robe blanche observa attentivement la carte avant de sortir son propre jade. Il y insuffla de la puissance spirituelle et une carte similaire apparut, affichant plus de vingt fragments éclairés. Wang Lin s'enthousiasma en voyant que le jeune homme possédait cinq fragments situés dans la partie ouest.
 
-Le cultivateur en blanc dit: « Camarade Ceng, ma carte contient vingt et un emplacements, dont huit se chevauchent avec les vôtres. Que diriez-vous d'un échange après que vous en aurez effacé quelques-uns? »
+Le cultivateur en blanc dit: « Daoïste Zeng, ma carte contient vingt et un emplacements, dont huit se chevauchent avec les vôtres. Que diriez-vous d'un échange après que vous en aurez effacé quelques-uns? »
 
 Sans dire un mot, Wang Lin sortit un jade vierge pour en faire une copie. Il effaça ensuite certains emplacements afin de correspondre au nombre de localisations du jeune homme avant de le fixer du regard. Ce dernier possédait également un jade vide et procédait à la même opération. Une fois terminé, ils lancèrent leurs jades respectifs l'un vers l'autre.
 
-« Camarade Ceng, si vous avez l'occasion de venir sur ma planète Sui Yin, je vous accueillerai avec plaisir. »
+« Daoïste Zeng, si vous avez l'occasion de venir sur ma planète Sui Yin, je vous accueillerai avec plaisir. »
 
 Wang Lin acquiesça: « D'accord! »
 

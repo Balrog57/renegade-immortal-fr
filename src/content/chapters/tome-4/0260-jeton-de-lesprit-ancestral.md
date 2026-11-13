@@ -18,7 +18,7 @@ Le vieil homme sourit avec fierté à Wang Lin et renifla avec mépris vers l'ho
 
 La vieille femme réfléchit un instant et hocha respectueusement la tête. Elle s'avança, regarda Wang Lin d'un air complexe et dit: « Vous avez un bon maître. Si j'avais eu l'occasion d'expérimenter des domaines lorsque je tentais d'atteindre le stade de la Formation de l'Âme, mon chemin aurait été bien plus fluide. Ah... » Sur ces mots, elle ouvrit la bouche et cracha une fine parcelle d'énergie spirituelle rose. Dès son apparition, un parfum délicat commença à se répandre.
 
-L'énergie spirituelle rose fonça vers Wang Lin telle une épée. Elle s'arrêta à dix centimètres de lui avant de se transformer en une brume rose qui l'enveloppa.
+L'énergie spirituelle rose fonça vers Wang Lin telle une épée. Elle s'arrêta à trois pouces de lui avant de se transformer en une brume rose qui l'enveloppa.
 
 « Expérimente lentement le domaine de cette vieille femme! »
 
@@ -48,7 +48,7 @@ Cependant, Wang Lin n'avait pas peur. Bien qu'il ne puisse résister à l'épée
 
 Par exemple: face à cette épée volante, si Wang Lin libérait sa Tribulation Céleste, l'homme en cyan serait contraint de rappeler son arme, faute de quoi ils s'entretueraient mutuellement.
 
-Lorsque l'épée volante arriva à environ trois mètres de Wang Lin, une vague soudaine d'intention meurtrière s'en dégagea. Au sein de cette intention résidait un fragment de domaine mystérieux. Ce domaine était très différent des deux précédents; il semblait porter une parcelle de la puissance céleste. Wang Lin remarqua immédiatement que son énergie spirituelle commençait à faiblir. Si l'on comparait cette énergie spirituelle à quelque chose doté de force vitale, sous ce domaine, cette vitalité s'écoulait à toute vitesse.
+Lorsque l'épée volante arriva à dix pieds de Wang Lin, une vague soudaine d'intention meurtrière s'en dégagea. Au sein de cette intention résidait un fragment de domaine mystérieux. Ce domaine était très différent des deux précédents; il semblait porter une parcelle de la puissance céleste. Wang Lin remarqua immédiatement que son énergie spirituelle commençait à faiblir. Si l'on comparait cette énergie spirituelle à quelque chose doté de force vitale, sous ce domaine, cette vitalité s'écoulait à toute vitesse.
 
 Cet étrange domaine provoqua un changement radical dans l'expression de Wang Lin. Pour l'instant, il n'affectait que son énergie spirituelle; s'il pouvait agir sur la durée de vie, ce serait une existence terrifiante défiant les cieux.
 

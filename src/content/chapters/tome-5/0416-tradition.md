@@ -56,7 +56,7 @@ Il s'agissait de Dun Tian et Wang Lin.
 
 Dun Tian semblait parfaitement connaître les lieux, car il avait conduit Wang Lin directement ici. Il regarda le marais en contrebas et soupira: « Zeng Niu, même s'ils se cachent tous comme des rats, ne méprise pas les membres de la Secte Zhi Mo Dao. Je peux te dire que ces gens étaient tous des rats dans leur vie antérieure. Lorsque mon maître m'a amené ici, la quantité de jades célestes que nous avons volés était presque le triple de celle d'une secte ordinaire. »
 
-Sur ces mots, il tendit la main vers le vide et le drapeau d'âmes d'un milliard, long d'une dizaine de mètres, apparut dans sa paume. Dès qu'il s'en saisit, l'aura de Dun Tian changea radicalement. Il fixa le marais et agita le drapeau. D'innombrables fragments d'âmes s'envolèrent instantanément pour couvrir la zone. Le ciel changea de teinte et le temps sembla se suspendre.
+Sur ces mots, il tendit la main vers le vide et le drapeau d'âmes d'un milliard, long de trente pieds, apparut dans sa paume. Dès qu'il s'en saisit, l'aura de Dun Tian changea radicalement. Il fixa le marais et agita le drapeau. D'innombrables fragments d'âmes s'envolèrent instantanément pour couvrir la zone. Le ciel changea de teinte et le temps sembla se suspendre.
 
 Tout le secteur fut enveloppé par des fragments d'âmes qui émettaient des gémissements fantomatiques incessants. Les ondes sonores de ces lamentations se propagèrent dans tout le marais, n'étant pas moins puissantes que les attaques de trésors magiques.
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 326 - The new star of Suzaku
 slug: la-nouvelle-etoile-de-suzaku
 ---
-Au moment où Wang Lin prononça ces mots, le ciel gronda et un immense cercueil violet apparut au-dessus de lui. Le cercueil tomba du ciel et atterrit à une dizaine de mètres devant Wang Lin.
+Au moment où Wang Lin prononça ces mots, le ciel gronda et un immense cercueil violet apparut au-dessus de lui. Le cercueil tomba du ciel et atterrit à plusieurs dizaines de pieds devant Wang Lin.
 
 Il créa des ondes de choc qui se propagèrent dans toutes les directions.
 
@@ -68,9 +68,9 @@ Certains cultivateurs étaient encore assis sur les plateformes, discutant des �
 
 Lorsqu'ils approchèrent du vortex, Wang Lin rangea la boussole stellaire. Lui et Chi Hu volèrent le reste du chemin et arrivèrent sur la plateforme située directement sous le vortex après un court instant.
 
-Les deux hommes se regardèrent. Wang Lin joignit les mains et dit: « Frère Chi Hu, adieu Suzaku! » Sur ces mots, il frappa son sac de rangement et le chaudron de retour apparut dans sa main.
+Les deux hommes se regardèrent. Wang Lin joignit les mains et dit: « Frère Chi Hu, à bientôt sur Suzaku! » Sur ces mots, il frappa son sac de rangement et le chaudron de retour apparut dans sa main.
 
-Chi Hu prit une profonde inspiration. Il regarda sincèrement Wang Lin et dit: « Frère Ceng, vous devrez venir au Clan Ju Mo pour que nous puissions boire ensemble. »
+Chi Hu prit une profonde inspiration. Il regarda sincèrement Wang Lin et dit: « Frère Zeng, vous devrez venir au Clan Ju Mo pour que nous puissions boire ensemble. »
 
 Wang Lin rit et hocha la tête. Il activa le chaudron de retour et un vortex se forma devant lui. Il jeta un dernier regard vers le Royaume Céleste avant de s'engouffrer dans le vortex et de disparaître.
 
@@ -92,13 +92,13 @@ Tous les messagers des pays de culture de rang 5 furent stupéfaits. Rapidement,
 
 Tout le monde cherchait à savoir de quelle planète ce Zeng Niu pouvait bien venir.
 
-À un certain moment, Hongdie se réveilla et révéla l'identité de son agresseur: « Ce Zeng Niu est de Suzaku, il appartient à la famille Ceng! » Dès que cette information fut révélée, toute la planète fut sous le choc.
+À un certain moment, Hongdie se réveilla et révéla l'identité de son agresseur: « Ce Zeng Niu est de Suzaku, il appartient à la famille Zeng! » Dès que cette information fut révélée, toute la planète fut sous le choc.
 
-La première réaction fut celle des ancêtres de la famille Ceng qui consultèrent leurs registres familiaux. Ils y trouvèrent effectivement un certain Zeng Niu. Cependant, ce membre de la famille n'avait pas encore trente ans et n'était qu'au stade de l'Établissement des Fondations. L'ancêtre prit le jeune homme et les registres avec lui à Suzaku pour prouver leur innocence.
+La première réaction fut celle des ancêtres de la famille Zeng qui consultèrent leurs registres familiaux. Ils y trouvèrent effectivement un certain Zeng Niu. Cependant, ce membre de la famille n'avait pas encore trente ans et n'était qu'au stade de l'Établissement des Fondations. L'ancêtre prit le jeune homme et les registres avec lui à Suzaku pour prouver leur innocence.
 
 En conséquence, les rumeurs concernant Zeng Niu devinrent un sujet de conversation majeur parmi les cultivateurs. Beaucoup cherchaient à découvrir la véritable identité de ce mystérieux individu, mais sans succès. Le pays de Suzaku réagissait à tout cela avec une indifférence inhabituelle, comme si rien ne s'était passé.
 
-L'individu nommé Zeng Niu devint le jeune prodige numéro un de Suzaku. Bien que la famille Ceng ait affirmé que ce Zeng Niu n'était pas le Zeng Niu en question, peu de gens les croyaient et de nombreux visiteurs vinrent les interroger. Cela plongea le véritable Zeng Niu dans la terreur, tout en lui procurant une pointe de fierté.
+L'individu nommé Zeng Niu devint le jeune prodige numéro un de Suzaku. Bien que la famille Zeng ait affirmé que ce Zeng Niu n'était pas le Zeng Niu en question, peu de gens les croyaient et de nombreux visiteurs vinrent les interroger. Cela plongea le véritable Zeng Niu dans la terreur, tout en lui procurant une pointe de fierté.
 
 L'affaire refit surface brusquement lorsque le jeune maître du Clan Ju Mo revint il y a trois jours. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Zeng Niu.
 
@@ -110,7 +110,7 @@ Par la suite, une fois rétablie, Hongdie envoya un message à travers Suzaku: �
 
 « Zeng Niu, qui es-tu au juste?! » Cette question brûlait non seulement les cœurs de Chi Hu et de Hongdie, mais aussi l'esprit de tous. Qui était réellement ce Zeng Niu? Bien que Hongdie ait enregistré une image, Suzaku ne le publia jamais. Personne ne savait ce que les autorités de Suzaku tramaient.
 
-Dans une petite secte d'un pays de culture de rang 4, un homme d'âge mûr marmonna pour lui-même: « Zeng Niu... c'est le nom de mon père. Il s'appelait Ceng Daniu... »
+Dans une petite secte d'un pays de culture de rang 4, un homme d'âge mûr marmonna pour lui-même: « Zeng Niu... c'est le nom de mon père. Il s'appelait Zeng Daniu... »
 
 Des nuages couvraient le ciel dans la région où Wang Lin était entré dans le Royaume Céleste. La foudre déchirait les cieux et une pluie incessante tombait. Cette tempête durait déjà depuis plus d'un mois. Très peu de cultivateurs sortaient sous cette pluie, et encore moins de mortels.
 

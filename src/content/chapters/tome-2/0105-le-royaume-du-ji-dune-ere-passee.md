@@ -52,12 +52,12 @@ Nul ne savait qu'en cet instant précis, dans le pays de culture de rang 3 de Zh
 
 Si Teng Huayuan l'avait su, il n'aurait jamais accepté d'être le catalyseur de la naissance d'un cultivateur du Royaume Ji.
 
-Wang Lin était à demi agenouillé sur le sol. Tout ce qui se trouvait dans un rayon de plusieurs dizaines de mètres autour de lui avait été recouvert de glace, faisant de cet endroit une zone interdite. Sur sa poitrine, la Perle Défiant le Ciel émettait une lueur noire inédite tout en flottant au-dessus de sa tête.
+Wang Lin était à demi agenouillé sur le sol. Tout ce qui se trouvait dans un rayon de plusieurs centaines de pieds autour de lui avait été recouvert de glace, faisant de cet endroit une zone interdite. Sur sa poitrine, la Perle Défiant le Ciel émettait une lueur noire inédite tout en flottant au-dessus de sa tête.
 
 Teng Huayuan, utilisant le lien entre Wang Lin et sa famille, laissa un message dans son esprit:
 « Je t'attendrai hors de la Vallée Jue Ming... le jour de l'ouverture de la vallée, si tu n'apparais pas, je détruirai le drapeau de l'âme et les âmes de ta famille disparaîtront à jamais. »
 
-Les deux cultivateurs masculins et la femme de la Secte Tian Dao finirent par le rattraper. Ils s'arrêtèrent brusquement à plusieurs dizaines de mètres, car la glace recouvrant le sol leur serra le cœur. Le jeune homme figé au milieu de la glace était particulièrement terrifiant. L'aura destructrice qu'il dégageait fit même frissonner le disciple en phase intermédiaire de l'Établissement des Fondations.
+Les deux cultivateurs masculins et la femme de la Secte Tian Dao finirent par le rattraper. Ils s'arrêtèrent brusquement à plusieurs centaines de pieds, car la glace recouvrant le sol leur serra le cœur. Le jeune homme figé au milieu de la glace était particulièrement terrifiant. L'aura destructrice qu'il dégageait fit même frissonner le disciple en phase intermédiaire de l'Établissement des Fondations.
 
 Après une courte hésitation, le cultivateur de l'Établissement des Fondations prit une décision. Il agita la main et ordonna: « Repli! » Mais alors qu'il s'apprêtait à partir, la femme fixa la Perle Défiant le Ciel au-dessus de la tête de Wang Lin et s'exclama: « Senior frère, cette perle me semble très familière... »
 
@@ -97,7 +97,7 @@ La surprise fut générale. Avant que quiconque ne puisse réagir, Wang Lin éta
 
 À cet instant, la foule s'écarta tandis qu'un disciple en robe blanche joignit les mains: « De quelle secte venez-vous, cher Daoïste? Je suis Zhou Quan, disciple de la Secte Yuan Tian. »
 
-Wang Lin l'ignora et poursuivit sa route. Peu à peu, les gens s'écartèrent sur son passage. Alors qu'il s'éloignait de plus de trois cents mètres de la foule, un jeune disciple d'une secte démoniaque le fixa et ricana intérieurement: « Tu as tué mon Senior frère. Je ne t'oublierai pas! »
+Wang Lin l'ignora et poursuivit sa route. Peu à peu, les gens s'écartèrent sur son passage. Alors qu'il s'éloignait de plus de mille pieds de la foule, un jeune disciple d'une secte démoniaque le fixa et ricana intérieurement: « Tu as tué mon Senior frère. Je ne t'oublierai pas! »
 
 Wang Lin s'arrêta brusquement. Il sentit une intention meurtrière puissante émaner de derrière lui. Il se retourna et lança un regard glacial au disciple démoniaque. Sous ce regard, le disciple sentit son corps entier, de l'intérieur comme de l'extérieur, devenir aussi froid que la glace. Il baissa précipitamment la tête, n'osant plus croiser les yeux de Wang Lin.
 

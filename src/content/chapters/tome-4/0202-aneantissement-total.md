@@ -8,7 +8,7 @@ slug: aneantissement-total
 ---
 Le regard de Wang Lin était glacial. Il jeta un coup d'œil à Qian Kun et demanda: « Meng Tuozi est-il votre ancêtre? »
 
-Le corps de Qian Kun trembla. S'il avait eu le moindre doute auparavant, celui-ci s'évanouit instantanément à l'audition de cette question. Il fallait dire que le nom de Meng Qingfan, du Palais Enchanté du Roi Poison, était tristement célèbre dans la Mer Xiu Mo. Les cultivateurs ordinaires, que ce soit en sa présence ou dans son dos, l'appelaient respectueusement Senior Meng chaque fois qu'ils évoquaient Meng Qingfan.
+Le corps de Qian Kun trembla. S'il avait eu le moindre doute auparavant, celui-ci s'évanouit instantanément à l'audition de cette question. Il fallait dire que le nom de Meng Qingfan, du Palais Du Mo, était tristement célèbre dans la Mer Xiu Mo. Les cultivateurs ordinaires, que ce soit en sa présence ou dans son dos, l'appelaient respectueusement Senior Meng chaque fois qu'ils évoquaient Meng Qingfan.
 
 Même ceux de sa génération l'appelaient au moins le Maître du Palais Meng. Outre sa culture au stade de la Formation de l'Âme, presque au sommet de la Mer Xiu Mo, il possédait des techniques de poison redoutables. Ses attaques empoisonnées étaient presque impossibles à parer: insipides et incolores. Nombreux étaient ceux qui avaient succombé à ces poisons avant même de comprendre ce qui leur arrivait.
 
@@ -70,7 +70,7 @@ Plus important encore, Wang Lin avait formé son noyau d'âme. Bien qu'un noyau 
 
 Wang Lin avait tué Qian Kun pour éviter que la nouvelle de sa sortie des Étoiles Brisées du Chaos ne soit ébruitée.
 
-Ce qui terrifiait le plus Yun Fei, c'était que Wang Lin ait avalé le noyau doré. Même le chef du Palais Enchanté du Roi Poison n'aurait pas osé engloutir un tel noyau sans l'avoir préalablement raffiné avec d'autres médicaments.
+Ce qui terrifiait le plus Yun Fei, c'était que Wang Lin ait avalé le noyau doré. Même le chef du Palais Du Mo n'aurait pas osé engloutir un tel noyau sans l'avoir préalablement raffiné avec d'autres médicaments.
 
 Elle n'avait jamais rien vu de tel. À cet instant, la pression exercée par Wang Lin était bien plus écrasante que celle de Qian Kun.
 
@@ -92,7 +92,7 @@ Wang Lin prit le jade, l'examina avec son Sens Divin, puis reporta son attention
 
 Une amertume envahit le cœur de Yun Fei. Elle réalisa que ce simple morceau de jade ne suffirait pas à ébranler Wang Lin. Son esprit s'activa rapidement: « Senior, junior a grandi dans la ville de Qi Lin et possède une demeure de rang Terre là-bas. Junior connaît également très bien la ville, si senior a des besoins particuliers, junior pourra aider. » Craignant que Wang Lin ne connaisse pas les rouages de la cité, elle poursuivit: « Senior, saviez-vous que si un cultivateur n'a pas de statut de résident à Qi Lin, il ne peut y séjourner que trois jours? Au-delà, chaque jour coûte dix pierres spirituelles de faible qualité. Même ainsi, on ne peut rester que dix jours de plus. Mais junior possède un statut de résidente. Si junior vous guide, senior pourra séjourner à Qi Lin sans limite de temps. »
 
-« De plus, junior connaît parfaitement cette Mer Xiu Mo, les emplacements des cités et la force des cultivateurs, car c'était sa fonction au Palais Enchanté. On pourrait dire que rien de la Mer Xiu Mo n'échappe à junior. Si junior n'avait pas été pourchassée par Qian Kun dans un état de panique, junior ne serait jamais venue dans les Étoiles Brisées du Chaos. »
+« De plus, junior connaît parfaitement cette Mer Xiu Mo, les emplacements des cités et la force des cultivateurs, car c'était sa fonction au Palais Du Mo. On pourrait dire que rien de la Mer Xiu Mo n'échappe à junior. Si junior n'avait pas été pourchassée par Qian Kun dans un état de panique, junior ne serait jamais venue dans les Étoiles Brisées du Chaos. »
 
 Après avoir débité tout cela d'un seul trait, elle regarda nerveusement Wang Lin.
 

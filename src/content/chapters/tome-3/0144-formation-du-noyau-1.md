@@ -128,13 +128,13 @@ Sur ces mots, il fit volte-face, s'élança hors de la grotte et disparut en un 
 
 Li Muwan resta stupéfaite, l'esprit en plein chaos. Finalement, elle se laissa glisser contre le mur, assise par terre.
 
-Wang Lin utilisa sa technique de fuite tellurique à son apogée pour charger vers la vallée des cadavres. Grâce aux paroles de Li Muwan, il était désormais absolument certain de pouvoir fusionner les trois noyaux froids.
+Wang Lin utilisa sa technique de fuite tellurique à son apogée pour charger vers la Vallée Shi. Grâce aux paroles de Li Muwan, il était désormais absolument certain de pouvoir fusionner les trois noyaux froids.
 
 Sa progression fut fulgurante; il atteignit la vallée en trois jours. Il traversa directement les treize premières vallées avant de s'arrêter devant la quatorzième. Il prit une profonde inspiration et s'y engouffra.
 
 Dans la quatorzième vallée, le sol était recouvert d'une couche de givre. En marchant, des éclats d'énergie Yin pénétraient ses pieds. Wang Lin hésita un instant avant de s'enfoncer lentement dans le sol grâce à sa technique de fuite tellurique.
 
-À mesure qu'il descendait, l'énergie Yin devenait plus puissante. Après avoir atteint 100 mètres de profondeur, il dut s'arrêter: la puissance de l'énergie Yin tellurique avait gelé son corps. C'était sa limite; s'il descendait davantage, même son âme finirait par geler.
+À mesure qu'il descendait, l'énergie Yin devenait plus puissante. Après avoir atteint mille pieds de profondeur, il dut s'arrêter: la puissance de l'énergie Yin tellurique avait gelé son corps. C'était sa limite; s'il descendait davantage, même son âme finirait par geler.
 
 Peu importait la profondeur de cette quatorzième vallée ou les secrets qu'elle recelait. Wang Lin contrôla soigneusement ses battements de cœur et se mit en position de lotus.
 
@@ -158,19 +158,19 @@ La lutte contre Xuan Wu se poursuivait, mais les affrontements de plus d'une cen
 
 Quant au conflit entre les deux pays, il passa d'une guerre d'extermination à une sorte de terrain d'entraînement pour leurs disciples respectifs. C'était une amère ironie pour tous ceux qui étaient tombés au début du conflit.
 
-Quant à Wang Lin, après s'être enfoncé à 100 mètres dans le sol de la quatorzième vallée, il restait assis là tel un vieux moine. Ses battements de cœur ralentirent encore tandis qu'une quantité infinie d'énergie Yin pénétrait son corps pour se répandre dans sa chair et ses os.
+Quant à Wang Lin, après s'être enfoncé à mille pieds dans le sol de la quatorzième vallée, il restait assis là tel un vieux moine. Ses battements de cœur ralentirent encore tandis qu'une quantité infinie d'énergie Yin pénétrait son corps pour se répandre dans sa chair et ses os.
 
-Graduellement, l'énergie Yin extrêmement puissante s'accumula en lui, colorant sa chair de bleu, comme si elle était sur le point de se transformer en glace. Au cours des six premiers mois, son cœur avait battu 9 837 543 fois et il s'était enfoncé à 180 mètres.
+Graduellement, l'énergie Yin extrêmement puissante s'accumula en lui, colorant sa chair de bleu, comme si elle était sur le point de se transformer en glace. Au cours des six premiers mois, son cœur avait battu 9 837 543 fois et il s'était enfoncé à mille huit cents pieds.
 
-Six mois supplémentaires passèrent. L'énergie Yin avait désormais envahi tous ses organes internes. Sa chair et son sang commençaient à geler, et ses mains et pieds étaient devenus des cristaux de glace; on aurait dit qu'au moindre choc, ils voleraient en éclats. Durant ces six mois, son cœur n'avait battu que 487 659 fois et il avait atteint 730 mètres de profondeur.
+Six mois supplémentaires passèrent. L'énergie Yin avait désormais envahi tous ses organes internes. Sa chair et son sang commençaient à geler, et ses mains et pieds étaient devenus des cristaux de glace; on aurait dit qu'au moindre choc, ils voleraient en éclats. Durant ces six mois, son cœur n'avait battu que 487 659 fois et il avait atteint sept mille trois cents pieds de profondeur.
 
-Encore six mois passèrent. Les cristaux de glace s'étaient étendus à ses bras et à ses jambes. Un observateur attentif aurait pu voir ses os à travers la glace. Son torse commençait également à se transformer en glace. Son cœur n'avait battu que 3 865 fois au total, et son corps avait sombré à 1460 mètres.
+Encore six mois passèrent. Les cristaux de glace s'étaient étendus à ses bras et à ses jambes. Un observateur attentif aurait pu voir ses os à travers la glace. Son torse commençait également à se transformer en glace. Son cœur n'avait battu que 3 865 fois au total, et son corps avait sombré à quatorze mille six cents pieds.
 
-Six mois de plus s'écoulèrent. Tout son corps, hormis sa tête, était devenu un cristal de glace et son cœur avait cessé de battre. Il s'était enfoncé à 3 672 mètres.
+Six mois de plus s'écoulèrent. Tout son corps, hormis sa tête, était devenu un cristal de glace et son cœur avait cessé de battre. Il s'était enfoncé à trente-six mille sept cent vingt pieds.
 
 Deux années s'étaient ainsi écoulées. Au milieu de la troisième année, sa tête se transforma également en cristal de glace. Plus aucun signe de vie ne subsistait chez Wang Lin. Il avait enfin atteint l'état des Sources Jaunes requis par la Méthode d'Ascension des Enfers.
 
-Son corps était descendu à 7 979 mètres, émergeant dans un espace bleu foncé. Son environnement était jonché d'ossements de bêtes. Pour une raison inconnue, toute la chair de ces créatures avait disparu, ne laissant derrière elle que cette mer de cadavres.
+Son corps était descendu à soixante-dix-neuf mille sept cent quatre-vingt-dix pieds, émergeant dans un espace bleu foncé. Son environnement était jonché d'ossements de bêtes. Pour une raison inconnue, toute la chair de ces créatures avait disparu, ne laissant derrière elle que cette mer de cadavres.
 
 Tous les os présents avaient été transformés en cristaux de glace bleue.
 

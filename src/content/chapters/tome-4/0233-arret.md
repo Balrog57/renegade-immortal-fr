@@ -48,7 +48,7 @@ Après avoir prélevé les pièces nécessaires sur les réseaux intacts, il les
 
 Lorsqu'il eut enfin réuni suffisamment de matériaux, le corps de Wang Lin disparut soudainement. À l'instant même de sa disparition, une épée s'enfonça sans bruit dans le sol là où il se tenait.
 
-Le visage sombre, Wang Lin apparut en plein ciel, fixant l'homme vêtu de noir au loin. Il maintenait toujours son sens divin déployé, mais il n'avait pas détecté cet individu avant qu'il ne soit à moins de 330 mètres et ne lance son épée. Il faut dire que le sens divin de Wang Lin était aussi puissant que celui d'un cultivateur en étape de Formation de l'Âme. Un cultivateur de l'Âme Naissante normal n'aurait rien remarqué avant que l'épée ne lui transperce le corps.
+Le visage sombre, Wang Lin apparut en plein ciel, fixant l'homme vêtu de noir au loin. Il maintenait toujours son sens divin déployé, mais il n'avait pas détecté cet individu avant qu'il ne soit à moins de mille pieds et ne lance son épée. Il faut dire que le sens divin de Wang Lin était aussi puissant que celui d'un cultivateur en étape de Formation de l'Âme. Un cultivateur de l'Âme Naissante normal n'aurait rien remarqué avant que l'épée ne lui transperce le corps.
 
 Si cet homme avait été au stade de la Formation de l'Âme, cela se serait expliqué, mais Wang Lin constata qu'il n'était qu'au milieu du stade de l'Âme Naissante. Ce dernier devait posséder une technique spéciale pour dissimuler sa présence au sens divin de Wang Lin.
 

@@ -180,7 +180,7 @@ En entendant ces paroles, l'homme d'âge mûr ne tourna même pas la tête, mais
 Le jeune homme laissa échapper un rire hystérique:
 « Le Maître? Si le Maître n'avait pas tacitement consenti, comment aurais-je osé t'embusquer aussi ouvertement? »
 
-Le corps de l'homme trembla tandis qu'il crachait une bouffée de sang noir. Affaibli, il tomba de son épée volante. Le jeune homme poussa un ricanement froid et s'arrêta à 10 mètres du cadavre. Il fit transpercer la dépouille plusieurs fois par son épée volante pour s'assurer de sa mort, puis saisit le corps pour repartir.
+Le corps de l'homme trembla tandis qu'il crachait une bouffée de sang noir. Affaibli, il tomba de son épée volante. Le jeune homme poussa un ricanement froid et s'arrêta à trente pieds du cadavre. Il fit transpercer la dépouille plusieurs fois par son épée volante pour s'assurer de sa mort, puis saisit le corps pour repartir.
 
 Soudain, il se figea, les yeux fixés sur une silhouette sombre émergeant de la brume. Une sueur froide perla sur son front. Alors qu'il poursuivait son aîné, il avait déployé son Sens Divin sans rien remarquer; si cette personne apparaissait ainsi, c'était que son niveau de culture surpassait de loin le sien.
 

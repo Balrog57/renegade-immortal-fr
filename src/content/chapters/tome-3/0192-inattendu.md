@@ -84,7 +84,7 @@ Wang Lin réfléchit en silence un instant, puis eut un ricanement froid: « La 
 
 Le groupe de Duo Mu resta muet.
 
-Parmi les dix personnes, le vieillard qui s'était tu jusqu'ici laissa échapper une légère toux. Il dit d'un ton empreint de douceur: « Ce cher cultivateur est en effet perspicace. Une fois que Tuo Sen aura fusionné avec l'héritage de la mémoire et obtenu toute la culture du Dieu Ancien, il récupérera les fragments d'âme logés dans nos corps afin de restaurer la complétude de son Sens Divin. Durant toutes ces années, ces fragments ont fusionné avec nos propres âmes. Les reprendre reviendrait à nous dévorer. Ami, nous aider, c'est aussi t'aider toi-même; cependant, nous ne te laisserons pas nous aider gratuitement. Si tu acceptes, nous avons un riche présent à t'offrir. »
+Parmi les dix personnes, le vieillard qui s'était tu jusqu'ici laissa échapper une légère toux. Il dit d'un ton empreint de douceur: « Le Daoïste est en effet perspicace. Une fois que Tuo Sen aura fusionné avec l'héritage de la mémoire et obtenu toute la culture du Dieu Ancien, il récupérera les fragments d'âme logés dans nos corps afin de restaurer la complétude de son Sens Divin. Durant toutes ces années, ces fragments ont fusionné avec nos propres âmes. Les reprendre reviendrait à nous dévorer. Daoïste, nous aider, c'est aussi t'aider toi-même; cependant, nous ne te laisserons pas nous aider gratuitement. Si tu acceptes, nous avons un riche présent à t'offrir. »
 
 Wang Lin n'accepta pas immédiatement. Il évaluait secrètement la crédibilité de ces propos.
 

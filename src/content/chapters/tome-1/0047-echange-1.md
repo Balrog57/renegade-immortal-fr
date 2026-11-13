@@ -28,7 +28,7 @@ Wang Lin garda le silence un instant. Juste au moment où il s'apprêtait à par
 
 Soudain, une sensation de déchirure surgit. Le corps de Wang Lin trembla et il ouvrit les yeux dans la réalité.
 
-Il projeta son sens divin et découvrit deux disciples internes, un homme et une femme, marchant furtivement vers lui. À environ trente-trois mètres, les deux s'arrêtèrent pour s'embrasser et flirter. Bientôt, ils se dévêtirent tous deux, leurs gémissements résonnant dans les environs.
+Il projeta son sens divin et découvrit deux disciples internes, un homme et une femme, marchant furtivement vers lui. À environ cent pieds, les deux s'arrêtèrent pour s'embrasser et flirter. Bientôt, ils se dévêtirent tous deux, leurs gémissements résonnant dans les environs.
 
 Wang Lin reconnaissait ces deux disciples; tous deux avaient participé à l'entraînement collectif avec lui. Il les observa avec curiosité un moment, particulièrement la disciple féminine, avant de s'éloigner avec réticence.
 
@@ -46,11 +46,11 @@ Au sommet du Pic Cang Song se trouvait une vaste plateforme de pierre préparée
 
 Dès l'arrivée, une aura majestueuse émana des piliers de jade et se transforma instantanément en une intention meurtrière écrasante, glaciale jusqu'aux os, qui saisissait l'âme.
 
-« Camarade cultivateur Huang Long, chaque fois que je vois ces piliers de jade blanc, la sensation est différente. Il n'est pas étonnant que ce soit un trésor du pays de culture Zhao », soupira le vieil homme Ouyang qui, d'un revers de sa grande manche et le visage grave, dissipa l'intention meurtrière qui fondait sur lui.
+« Daoïste Huang Long, chaque fois que je vois ces piliers de jade blanc, la sensation est différente. Il n'est pas étonnant que ce soit un trésor du pays de culture Zhao », soupira le vieil homme Ouyang qui, d'un revers de sa grande manche et le visage grave, dissipa l'intention meurtrière qui fondait sur lui.
 
 Derrière lui, tous les disciples de la Secte Xuan Dao furent frappés de stupeur. À cet instant, l'intention meurtrière leur donna l'impression d'être sur un champ de bataille. Ils se sentirent presque écrasés par cette pression, jusqu'à ce que l'Ancien Ouyang la disperse.
 
-« Camarade cultivateur Ouyang, il s'agit d'un trésor créé personnellement par notre ancêtre. Dans un rayon de trois cent trente mètres autour des piliers de jade blanc, tout disciple n'appartenant pas à la Secte Heng Yue sera soumis à une intention meurtrière. Je présume que l'Ancien Ouyang comprend cela, alors veuillez nous excuser », dit Huang Long d'un visage calme. Ses deux mains changèrent de sceaux tandis qu'il récitait une formule, et de douces gerbes de lumière jaillirent des piliers de jade blanc. Comme repoussés par deux grandes mains, les nuages qui couvraient le Pic Cang Song se dissipèrent rapidement. L'intention meurtrière disparut également.
+« Daoïste Ouyang, il s'agit d'un trésor créé personnellement par notre ancêtre. Dans un rayon de mille pieds autour des piliers de jade blanc, tout disciple n'appartenant pas à la Secte Heng Yue sera soumis à une intention meurtrière. Je présume que l'Ancien Ouyang comprend cela, alors veuillez nous excuser », dit Huang Long d'un visage calme. Ses deux mains changèrent de sceaux tandis qu'il récitait une formule, et de douces gerbes de lumière jaillirent des piliers de jade blanc. Comme repoussés par deux grandes mains, les nuages qui couvraient le Pic Cang Song se dissipèrent rapidement. L'intention meurtrière disparut également.
 
 Derrière lui, tous les disciples internes piaffaient d'impatience.
 

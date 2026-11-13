@@ -78,7 +78,7 @@ Des cercles illusoires se déposèrent dans les airs et une fumée blanche s'en 
 
 Wang Lin l'examina attentivement et son expression changea instantanément.
 
-Il vit une immense faille longue d'environ 330 mètres s'ouvrir dans le ciel au-dessus de la capitale, d'où s'écoulait une neige infinie.
+Il vit une immense faille longue d'environ mille pieds s'ouvrir dans le ciel au-dessus de la capitale, d'où s'écoulait une neige infinie.
 
 Wang Lin balaya la zone avec son Sens Divin et découvrit qu'il existait au moins cent de ces restrictions dans un rayon de 10 000 kilomètres. Et cela n'était que pour cette zone! D'après ses calculs, il devait exister d'innombrables failles de ce genre sur l'ensemble du territoire de l'Alliance des Quatre Sectes.
 

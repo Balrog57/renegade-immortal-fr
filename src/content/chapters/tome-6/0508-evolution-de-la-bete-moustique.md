@@ -8,7 +8,7 @@ slug: evolution-de-la-bete-moustique
 ---
 Trois bâtons d'encens plus tard, sous la tablette de pierre, on entendit au loin un violent bruit de déchirement du ciel et trois rayons de lumière apparurent à l'horizon. Ils furent suivis d'une série de détonations tonitruantes. Ces trois traînées de lumière descendirent du ciel avec une force écrasante.
 
-Ils atterrirent directement aux côtés des sept personnes qui attendaient sous la tablette de pierre. Suite à ce rugissement fracassant, leur arrivée provoqua une bourrasque de vent qui repoussa d'une centaine de mètres tous les individus, excepté l'homme nommé Guo. Leurs visages étaient d'une pâleur extrême, empreints de terreur.
+Ils atterrirent directement aux côtés des sept personnes qui attendaient sous la tablette de pierre. Suite à ce rugissement fracassant, leur arrivée provoqua une bourrasque de vent qui repoussa de plusieurs centaines de pieds tous les individus, excepté l'homme nommé Guo. Leurs visages étaient d'une pâleur extrême, empreints de terreur.
 
 Une fois le vent retombé, trois silhouettes se révélèrent.
 
@@ -50,7 +50,7 @@ Sans parler du fait que ces deux seuls Anciens dégageaient une aura plusieurs f
 
 L'homme en robe blanche de sa secte la suivit, l'expression sombre. Les membres de la Secte Da Luo Jian pénétrèrent dans la brume ténue et disparurent.
 
-Wang Lin progressait à travers les Terres Démoniaques du Nord. Les mains derrière le dos, il survolait la région, ses pieds flottant à un mètre du sol. Il continuait de méditer sur les diverses mutations de l'Art du Massacre Céleste et sur la manière de transformer la force vitale en un sceau de vie.
+Wang Lin progressait à travers les Terres Démoniaques du Nord. Les mains derrière le dos, il survolait la région, ses pieds flottant à trois pieds du sol. Il continuait de méditer sur les diverses mutations de l'Art du Massacre Céleste et sur la manière de transformer la force vitale en un sceau de vie.
 
 La chaîne de montagnes environnante était plongée dans un silence absolu, sans aucun signe de vie. Alors qu'il volait, une lueur spectrale clignota devant lui, puis une silhouette jaillit soudainement de sa cachette pour charger Wang Lin.
 

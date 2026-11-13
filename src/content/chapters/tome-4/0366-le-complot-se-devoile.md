@@ -100,7 +100,7 @@ Une onde de choc invisible se propagea soudainement, ralentissant un instant les
 
 La vitesse de Wang Lin était fulgurante. Il saisit immédiatement l'esprit de métal et, d'un seul pas, maîtrisa l'esprit de bois. Puis, ignorant les deux autres esprits, il se lança à la poursuite de Hongdie.
 
-Hongdie était à plus de 330 mètres lorsque son visage pâlit. Elle ne s'attendait pas à ce que Zeng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Il lui fallait d'abord épuiser tous les trésors de cet homme, puis, grâce à une réserve d'énergie spirituelle supérieure à celle de Wang Lin, le tuer d'un seul coup!
+Hongdie était à plus de mille pieds lorsque son visage pâlit. Elle ne s'attendait pas à ce que Zeng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Il lui fallait d'abord épuiser tous les trésors de cet homme, puis, grâce à une réserve d'énergie spirituelle supérieure à celle de Wang Lin, le tuer d'un seul coup!
 
 Ses yeux s'assombrirent et elle ordonna: « Esprit de métal, explose! »
 
@@ -126,7 +126,7 @@ Mais à cet instant précis, une puissance douce descendit du ciel et enveloppa 
 
 Une silhouette apparut silencieusement devant Hongdie: il s'agissait de Gongsun Po, de Suzaku.
 
-D'un geste nonchalant de la main droite, il repoussa Wang Lin à plus de 33 mètres de distance. Wang Lin fixa Gongsun Po en réfléchissant intensément.
+D'un geste nonchalant de la main droite, il repoussa Wang Lin à plus de cent pieds de distance. Wang Lin fixa Gongsun Po en réfléchissant intensément.
 
 Cette puissance était hors de sa portée, sans oublier qu'il était lourdement blessé.
 

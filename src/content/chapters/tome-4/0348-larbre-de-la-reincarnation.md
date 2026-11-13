@@ -58,7 +58,7 @@ Le vieil homme aux cheveux blancs qui poursuivait Wang Lin tourna également son
 
 À ses yeux, plutôt que de traquer un étranger, il valait mieux s'emparer du sang de cette créature pour renforcer un peu ses propres tatouages. Quant à la bête moustique, ils l'ignorèrent tous deux, car elle n'avait aucune valeur à leurs yeux.
 
-Wang Lin dépassa rapidement le vieil homme Hu et cria: « Camarade Hu, ne tergiversez pas! Il n'y aura pas que deux sauvages ici. Si nous perdons du temps, d'autres arriveront. Partons! »
+Wang Lin dépassa rapidement le vieil homme Hu et cria: « Daoïste Hu, ne tergiversez pas! Il n'y aura pas que deux sauvages ici. Si nous perdons du temps, d'autres arriveront. Partons! »
 
 Le vieil homme Hu fixa le Taotie attaqué par les deux sauvages, le regard empreint de regret. Cependant, il réprima cette hésitation et s'envola prestement. Il n'eut d'autre choix lorsqu'il vit trois autres rayons de lumière noire foncer vers leur position.
 
@@ -98,9 +98,9 @@ Le vieil homme Hu éclata de rire. « Ha ha, aucun problème! » dit-il, tout en
 
 Wang Lin acquiesça. Il fit un pas en avant et saisit une branche.
 
-L'expression du vieil homme Hu changea brusquement et il s'exclama: « Camarade cultivateur Wang, que faites-vous? »
+L'expression du vieil homme Hu changea brusquement et il s'exclama: « Daoïste Wang, que faites-vous? »
 
-Wang Lin le regarda froidement: « Puisque ces branches me sont acquises, qu'importe si je les prends dès maintenant? Camarade Hu, c'est plutôt à moi de vous demander ce que vous faites. »
+Wang Lin le regarda froidement: « Puisque ces branches me sont acquises, qu'importe si je les prends dès maintenant? Daoïste Hu, c'est plutôt à moi de vous demander ce que vous faites. »
 
 Surpris, le vieil homme Hu s'apprêta à protester, mais Wang Lin brisa déjà une large section de bois. Il rangea la branche dans son sac et s'assit pour cultiver.
 

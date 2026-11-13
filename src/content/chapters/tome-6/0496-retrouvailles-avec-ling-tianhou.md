@@ -80,11 +80,11 @@ Alors que Wang Lin scrutait le ciel, l'énergie spirituelle céleste dans son co
 
 Wang Lin libéra aussitôt cette énergie métallique et la fit circuler dans son corps. Il la contrôla avec précision pour qu'elle ne touche pas l'énergie spirituelle ordinaire lors de sa circulation. Après un cycle complet, ses tremblements se stabilisèrent en grande partie. Bien que son visage fût toujours pâle, il parvint à rester droit.
 
-Quant à Bai Wei, il tint bon un moment avant de pousser un soupir et de descendre au sol pour cultiver. Dans toute la Division Pourpre, à l'exception de Wang Lin, seule la Quatrième Sœur observait calmement le ciel. Aucun des disciples ordinaires de la Division Pourpre ne pouvait supporter la pression et ils s'étaient tous posés.
+Quant à Bai Wei, il tint bon un moment avant de pousser un soupir et de descendre au sol pour cultiver. Dans toute la Division Pourpre, à l'exception de Wang Lin, seule la Quatrième Senior sœur observait calmement le ciel. Aucun des disciples ordinaires de la Division Pourpre ne pouvait supporter la pression et ils s'étaient tous posés.
 
 Ce n'était pas seulement la Division Pourpre; presque tous les disciples ordinaires des autres divisions avaient également dû atterrir. Seuls ceux possédant une culture puissante parvenaient à peine à rester en l'air. Cependant, aucun des disciples principaux des six autres divisions ne tomba. Certains affichaient un visage aussi pâle que celui de Wang Lin, mais ils parvenaient à résister.
 
-L'expression de Wang Lin revint à la normale une fois que l'énergie spirituelle céleste métallique eut achevé son troisième cycle. La Quatrième Sœur se retourna et lui lança un regard significatif, sans dire un mot.
+L'expression de Wang Lin revint à la normale une fois que l'énergie spirituelle céleste métallique eut achevé son troisième cycle. La Quatrième Senior sœur se retourna et lui lança un regard significatif, sans dire un mot.
 
 Le regard de Tian Yunzi resta impassible, puis son index droit pointa vers Ling Tianhou. Pourtant, son doigt bougea soudainement; lorsqu'il s'immobilisa, il désignait les plus de 10 000 disciples debout sur leurs épées volantes derrière Ling Tianhou.
 
@@ -98,4 +98,4 @@ Ling Tianhou poussa un rugissement alors que l'épée serpentine sous ses pieds 
 
 Ling Tianhou poussa un cri glacial, et une lumière rouge apparut entre ses sourcils. En un éclair, cette lueur s'en échappa pour flotter dans les airs, se transformant en un gigantesque Qilin. La créature était d'une férocité redoutable. Une fois ses quatre pattes posées, sa tête massive fixa Tian Yunzi avant de charger vers lui.
 
-Au moment où le Qilin apparut, un rugissement retentit depuis le drapeau des âmes, à l'intérieur de l'âme originelle de Wang Lin.
+Au moment où le Qilin apparut, un rugissement retentit depuis l'Étendard de l'Âme, à l'intérieur de l'âme originelle de Wang Lin.

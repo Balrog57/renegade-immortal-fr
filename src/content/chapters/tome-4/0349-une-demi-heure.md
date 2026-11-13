@@ -15,7 +15,7 @@ Les yeux du vieil homme Hu s'illuminèrent: « Trois fruits de réincarnation! �
 
 À cet instant précis, une lumière jaune aveuglante jaillit de l'arbre de la réincarnation. Un pilier de lumière jaune s'élança vers les cieux, perçant les nuages du troisième étage pour former un anneau lumineux qui se propageait. Plus le pilier de lumière persistait, plus l'anneau s'élargissait.
 
-L'anneau de lumière mesurait environ 330 mètres de large, ce qui ne laissa aucun doute aux occupants du troisième étage sur sa présence. De nouveaux anneaux apparurent à leur tour. Des lignes s'étirèrent depuis ces cercles, les reliant les uns aux autres jusqu'au pilier central, lui donnant l'apparence d'un tronc gigantesque. Puis, d'autres lignes jaillirent des anneaux pour former des branches et des feuilles, jusqu'à ce qu'un arbre colossal vienne percer le firmament.
+L'anneau de lumière mesurait environ mille pieds de large, ce qui ne laissa aucun doute aux occupants du troisième étage sur sa présence. De nouveaux anneaux apparurent à leur tour. Des lignes s'étirèrent depuis ces cercles, les reliant les uns aux autres jusqu'au pilier central, lui donnant l'apparence d'un tronc gigantesque. Puis, d'autres lignes jaillirent des anneaux pour former des branches et des feuilles, jusqu'à ce qu'un arbre colossal vienne percer le firmament.
 
 Un immense arbre de la réincarnation, semblant soutenir la voûte céleste du troisième étage, apparut soudainement devant tous. Ce n'était pas un arbre véritable, mais une illusion; pourtant, son apparition força chaque sauvage des environs à interrompre ses activités pour se précipiter follement vers lui.
 
@@ -25,11 +25,11 @@ Wang Lin réfléchit un instant, puis ses yeux brillèrent d'une lueur détermin
 
 Au même moment, huit rayons de lumière noire apparurent à l'horizon et se métamorphosèrent en huit vieillards. Ils activèrent promptement le pouvoir de leurs tatouages et chargèrent vers la foule rassemblée sous l'arbre.
 
-Les restrictions les plus externes posées par Wang Lin s'activèrent, formant un bouclier semblable à une carapace de tortue couvrant un rayon de 99 mètres autour de l'arbre. La puissance des huit vieillards percuta le bouclier dans une explosion titanesque.
+Les restrictions les plus externes posées par Wang Lin s'activèrent, formant un bouclier semblable à une carapace de tortue couvrant un rayon de trois cents pieds autour de l'arbre. La puissance des huit vieillards percuta le bouclier dans une explosion titanesque.
 
 Bang! Bang!
 
-Sous la férocité des assauts répétés, les restrictions furent détruites couche après couche. Le vieil homme Hu forma un sceau et projeta plusieurs rayons d'énergie spirituelle vers les seize drapeaux; aussitôt, seize entités spectrales s'en échappèrent. Ces spectres se regroupèrent pour former une tempête noire dont l'énergie déferla sur les huit assaillants, les repoussant de plusieurs mètres.
+Sous la férocité des assauts répétés, les restrictions furent détruites couche après couche. Le vieil homme Hu forma un sceau et projeta plusieurs rayons d'énergie spirituelle vers les seize drapeaux; aussitôt, seize entités spectrales s'en échappèrent. Ces spectres se regroupèrent pour former une tempête noire dont l'énergie déferla sur les huit assaillants, les repoussant de plusieurs dizaines de pieds.
 
 Le vieil homme Hu prit une profonde inspiration, ferma les yeux et activa rapidement la technique qu'il tenait en main. Wang Lin, les yeux étincelants, pointa les huit ennemis du doigt: les restrictions restantes se muèrent en une main gigantesque qui s'abattit sur eux.
 
@@ -63,7 +63,7 @@ D'innombrables lances de gaz de restriction jaillirent du brouillard pour interc
 
 L'ustensile trembla sous l'impact et se fissura de toutes parts. Le vieillard qui s'y tenait cracha un flot de sang, les yeux écarquillés par le choc. Mais il poussa aussitôt un rugissement féroce: cinq feuilles apparurent sur son front et recouvrirent tout son corps. Les feuilles descendirent le long de ses membres pour pénétrer la poêle, scellant les fissures. L'objet retrouva son éclat et s'abattit à nouveau avec une force décuplée.
 
-Il ne se trouvait plus qu'à moins de 66 mètres de Wang Lin.
+Il ne se trouvait plus qu'à moins de deux cents pieds de Wang Lin.
 
 Le regard de ce dernier se fit glacial. Sans hésiter, il lança l'épée céleste dans les airs. La lame traversa la poêle en fer comme s'il s'agissait de simple papier. Le vieillard, stupéfait, fut tranché en deux. Le sang éclaboussa tout le champ de bataille.
 

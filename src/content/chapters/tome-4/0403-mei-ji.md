@@ -8,7 +8,7 @@ slug: mei-ji
 ---
 L'autre chose qui attira l'attention de Wang Lin était un trésor en forme de roue.
 
-Cette roue n'était pas grande; son diamètre ne faisait guère plus de trois centimètres. Elle était extrêmement sobre, sans aucune décoration ni éclat; elle présentait même des traces de rouille.
+Cette roue n'était pas grande; elle ne faisait guère plus d'un pouce. Elle était extrêmement sobre, sans aucune décoration ni éclat; elle présentait même des traces de rouille.
 
 La raison pour laquelle Wang Lin s'y intéressait était que Xu Liguo lui avait affirmé qu'une âme était scellée à l'intérieur et l'avait supplié de la libérer.
 
@@ -50,7 +50,7 @@ Xu Liguo avait atteint ses limites. Sans un mot, il jaillit de l'épée céleste
 
 Wang Lin lui lança un regard glacial. Le comportement de Xu Liguo était trop étrange; quelque chose ne tournait pas rond.
 
-Il remarqua qu'au moment où Xu Liguo s'approcha de la roue, l'étrange symbole réapparut. La lueur verte jaillit à nouveau et Xu Liguo poussa un gémissement de douleur lorsqu'il fut projeté en arrière de trois mètres environ.
+Il remarqua qu'au moment où Xu Liguo s'approcha de la roue, l'étrange symbole réapparut. La lueur verte jaillit à nouveau et Xu Liguo poussa un gémissement de douleur lorsqu'il fut projeté en arrière de dix pieds.
 
 Ses yeux étaient injectés de sang. Il poussa un rugissement et s'apprêtait à retenter sa chance quand Wang Lin le pointa du doigt, l'immobilisant en plein vol.
 

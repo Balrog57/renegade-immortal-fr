@@ -114,7 +114,7 @@ Le corps de ce dernier fut secoué par un cri déchirant. Il se transforma en un
 
 Le jeune homme fixa le jade violet. Il s'empara précipitamment du bijou dans la flaque de sang, jeta un dernier regard inquiet sur Wang Lin, puis s'enfuit à toute vitesse.
 
-Les spectateurs, sous le choc, quittèrent les lieux rapidement. Le vieil homme fronça les sourcils en voyant Wang Lin marcher sereinement vers la boutique et déclara: « Cette boutique n'est pas ouverte au public. Je demande au camarade cultivateur de partir. »
+Les spectateurs, sous le choc, quittèrent les lieux rapidement. Le vieil homme fronça les sourcils en voyant Wang Lin marcher sereinement vers la boutique et déclara: « Cette boutique n'est pas ouverte au public. Je demande au Daoïste de partir. »
 
 Le visage de Wang Lin se durcit. Il désigna la marque de l'Âme Naissante sur l'enseigne et demanda: « Si elle n'est pas publique, pourquoi cette marque est-elle ici? »
 
@@ -146,7 +146,7 @@ Mais plus il cherchait, plus il s'enfonçait dans le doute. Malgré ses multiple
 
 Par pure frustration, il avait lancé ce message divin; pour lui, le tueur devait avoir utilisé une technique secrète, et ce cri n'était qu'un exutoire à sa colère.
 
-Cependant, il ne s'attendait pas à ce que, presque au moment même où il envoyait son message, un jeune homme apparaisse à une trentaine de mètres de lui. Ce dernier avait les cheveux blancs et un air d'une froideur saisissante. Il correspondait exactement à la description du tueur.
+Cependant, il ne s'attendait pas à ce que, presque au moment même où il envoyait son message, un jeune homme apparaisse à plus de cent pieds de lui. Ce dernier avait les cheveux blancs et un air d'une froideur saisissante. Il correspondait exactement à la description du tueur.
 
 Les pupilles du chauve se rétractèrent instantanément. Il recula et réprima aussitôt sa colère. Malgré son aspect brutal, c'était un homme extrêmement prudent; il n'aurait pas atteint son rang actuel sans cette prudence.
 
@@ -158,7 +158,7 @@ La restriction s'activa immédiatement et se propagea avec rapidité, couvrant l
 
 L'expression du chauve changea et il gémit intérieurement. Il ouvrit précipitamment son sac pour libérer des essaims d'insectes qui vinrent l'encercler.
 
-Il tenta de dire rapidement: « Camarade cultivateur, c'est un malentendu... »
+Il tenta de dire rapidement: « Daoïste, c'est un malentendu... »
 
 Wang Lin l'interrompit par un renâclement froid. Il pointa son doigt vers le drapeau de restriction et neuf dragons noirs, formés par celui-ci, chargèrent vers l'homme.
 

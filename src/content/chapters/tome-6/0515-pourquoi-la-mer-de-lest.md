@@ -100,7 +100,7 @@ Tandis que Sun Yunshan tapotait doucement son éventail de jade, son visage deme
 
 Peu après, un rayon de lumière rose apparut à l'horizon. Sun Yunshan fronça les sourcils, affichant une pointe d'impuissance. Il rangea son éventail et fixa la lueur.
 
-La lumière rose était d'une rapidité fulgurante et, en un clin d'œil, elle fut là. Elle décrivit un cercle autour de la zone avant de se poser à 33 mètres de Sun Yunshan, révélant une jeune femme dans la vingtaine.
+La lumière rose était d'une rapidité fulgurante et, en un clin d'œil, elle fut là. Elle décrivit un cercle autour de la zone avant de se poser à cent pieds de Sun Yunshan, révélant une jeune femme dans la vingtaine.
 
 Vêtue d'une robe rose, sa peau était aussi limpide que du cristal; elle semblait sculptée dans le jade. Un parfum émanait d'elle, capable d'enivrer les sens les plus solides.
 

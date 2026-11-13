@@ -110,7 +110,7 @@ Sans dire un mot, les deux diacres descendirent du cercueil, s'assirent en taill
 
 Peu après, ils libérèrent une lueur mystérieuse et spectrale de leurs corps et crièrent: « Ouvrez! »
 
-Le grincement du bois frottant contre le bois emplit l'air tandis que le couvercle, long d'une quarantaine de mètres, glissait lentement pour créer une ouverture. L'ouverture s'élargit progressivement.
+Le grincement du bois frottant contre le bois emplit l'air tandis que le couvercle, long de plus de cent pieds, glissait lentement pour créer une ouverture. L'ouverture s'élargit progressivement.
 
 Un gaz noir s'en échappa, accompagné d'une puanteur de chair putréfiée.
 

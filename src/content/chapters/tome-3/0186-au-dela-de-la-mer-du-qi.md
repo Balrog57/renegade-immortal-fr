@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 186 - Beyond the Qi Sea
 slug: au-dela-de-la-mer-du-qi
 ---
-Le corps de Wang Lin, devenu une étoile filante, se précipita rapidement vers la sortie. En quelques souffles, il atteignit la zone située à moins de 99 mètres du vortex de sortie.
+Le corps de Wang Lin, devenu une étoile filante, se précipita rapidement vers la sortie. En quelques souffles, il atteignit la zone située à moins de trois cents pieds du vortex de sortie.
 
 Mais alors qu'il approchait, directement au-dessus de l'issue du troisième essai, une faille longue de milliers de pieds s'ouvrit, dans laquelle brillait une lumière rouge qui dégageait une odeur de sang.
 
@@ -18,7 +18,7 @@ Le cœur de Wang Lin rata un battement. N'importe lequel de ces démons pouvait 
 
 Tous les démons le suivirent sans la moindre hésitation.
 
-Une fois sorti du vortex, Wang Lin s'élança aussitôt pour s'échapper, sans marquer de pause. La zone était une vaste place carrée, ponctuée de dizaines de piliers d'environ 33 mètres de diamètre s'élevant vers le ciel.
+Une fois sorti du vortex, Wang Lin s'élança aussitôt pour s'échapper, sans marquer de pause. La zone était une vaste place carrée, ponctuée de dizaines de piliers d'environ cent pieds d'épaisseur s'élevant vers le ciel.
 
 Au centre de ces piliers se trouvait un réseau de transfert circulaire qui émettait une lueur rouge démoniaque. En y regardant de plus près, on pouvait voir que ce réseau était formé de structures ressemblant à des vaisseaux sanguins. Des tubes y étaient connectés, semblant alimenter le dispositif avec un liquide rouge sombre.
 

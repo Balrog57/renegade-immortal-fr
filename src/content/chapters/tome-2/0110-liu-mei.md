@@ -30,7 +30,7 @@ Le sol était en plein désordre; il était manifeste qu'une bataille acharnée 
 
 « Vous pouvez partir », dit Wang Lin à l'adresse de la disciple avant de se diriger vers le point de rassemblement de la Secte Xuan Dao.
 
-La disciple recula prudemment. Après avoir fait plus de cent mètres en arrière, elle sauta sur son épée volante et s'enfuit aussi vite que ses capacités le permettaient.
+La disciple recula prudemment. Après avoir fait plus de mille pieds en arrière, elle sauta sur son épée volante et s'enfuit aussi vite que ses capacités le permettaient.
 
 D'un ton neutre, Wang Lin déclara: « Li Shan, fais appeler les membres de la Secte Xuan Dao. Je ne veux que le jeton, je n'ai pas l'intention de tuer. »
 
@@ -56,7 +56,7 @@ Liu Feng sourit amèrement et répondit: « Senior frère Ma, il... c'est Wang L
 
 Le vieil homme nommé Ma fut surpris, puis il ricana: « La vermine de la Secte Heng Yue, c'est donc toi. Mais même si tu as atteint l'Établissement des Fondations, tu n'as pas le droit d'être aussi arrogant devant nous. Dégage! » Sur ces mots, il secoua sa manche et un ouragan se leva à même le sol pour atteindre Wang Lin en un clin d'œil.
 
-Wang Lin ne prit même pas la peine d'esquiver. À l'instant où le vent atteignit moins de cinq mètres de lui, il se transforma en éclats de glace qui chutèrent au sol. Simultanément, un éclair de lumière verte jaillit; le corps du vieil homme Ma fut secoué tandis qu'une blessure grosse comme un bol apparaissait dans sa poitrine. Aussitôt, son corps entier se changea en statue de glace et il rendit l'âme.
+Wang Lin ne prit même pas la peine d'esquiver. À l'instant où le vent atteignit moins de cinquante pieds de lui, il se transforma en éclats de glace qui chutèrent au sol. Simultanément, un éclair de lumière verte jaillit; le corps du vieil homme Ma fut secoué tandis qu'une blessure grosse comme un bol apparaissait dans sa poitrine. Aussitôt, son corps entier se changea en statue de glace et il rendit l'âme.
 
 Wang Lin avait la sensation profonde que depuis que son énergie spirituelle avait changé, une puissante intention de tuer habitait son esprit. Il avait failli perdre le contrôle à plusieurs reprises, alors il avait simplement renoncé à tenter de la maîtriser.
 

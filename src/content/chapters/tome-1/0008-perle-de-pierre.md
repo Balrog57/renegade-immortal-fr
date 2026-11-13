@@ -20,7 +20,7 @@ Environ deux heures plus tard, l'aspiration cessa. Wang Lin fixa avec horreur le
 
 Une heure plus tard, l'aspiration reprit. Le phénomène se répéta plusieurs fois. Wang Lin avait désormais saisi le rythme de ce trou étrange: chaque aspiration durait deux heures, puis elle reprenait une heure après avoir cessé.
 
-Profitant des intervalles entre deux aspirations, Wang Lin rampa péniblement vers l'entrée de la grotte. En regardant en bas, il ne put s'empêcher d'esquisser un sourire amer. Sous lui s'étendait une jungle, et le sol, à peine visible, était parsemé de rochers. La falaise était si abrupte qu'il n'avait aucune chance de descendre avec son bras blessé. La distance entre la paroi et le fond dépassait largement la centaine de mètres; s'il tentait de sauter, ce serait assurément sa fin.
+Profitant des intervalles entre deux aspirations, Wang Lin rampa péniblement vers l'entrée de la grotte. En regardant en bas, il ne put s'empêcher d'esquisser un sourire amer. Sous lui s'étendait une jungle, et le sol, à peine visible, était parsemé de rochers. La falaise était si abrupte qu'il n'avait aucune chance de descendre avec son bras blessé. La distance entre la paroi et le fond atteignait plusieurs centaines de pieds; s'il tentait de sauter, ce serait assurément sa fin.
 
 Son sac de provisions était resté au sommet de la montagne, hors de portée. Pour l'instant, la faim était son problème le plus pressant. Alors qu'il réfléchissait, il se souvint soudain du cycle d'aspiration et se précipita dans le coin de la grotte.
 

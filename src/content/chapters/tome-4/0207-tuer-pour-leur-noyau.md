@@ -106,13 +106,13 @@ Wang Lin marmonnait pour lui-même tout en parcourant ses souvenirs à la recher
 
 Au début, Tu Si s'en inquiétait. Mais après que son corps eut été reconstruit quatre fois, la Tribulation Céleste cessa d'être une menace pour devenir un véritable complément de culture.
 
-De plus, chaque fois que l'Ancien Dieu forgeait un trésor, cela déclenchait une Tribulation Céleste; parfois, il se servait même de la force de cette rétribution pour juger de la qualité du trésor magique qu'il forgeait.
+De plus, chaque fois que l'Ancien Dieu forgeait un trésor, cela déclenchait une Tribulation Céleste; parfois, il se servait même de la force de cette Tribulation Céleste pour juger de la qualité du trésor magique qu'il forgeait.
 
-Plus la rétribution était forte, plus le trésor était puissant; si elle était trop faible, cela signifiait que le trésor manquait de potentiel.
+Plus la Tribulation Céleste était forte, plus le trésor était puissant; si elle était trop faible, cela signifiait que le trésor manquait de potentiel.
 
 Bien sûr, ce n'était qu'une estimation très approximative et souvent erronée. Par exemple, le drapeau de restriction créé par Wang Lin ne pouvait absolument pas être comparé à une Tribulation Céleste.
 
-La véritable cause de cette rétribution provenait de la pierre d'encre. Cette pierre était restée trop longtemps dans le corps de l'Ancien Dieu et s'était imprégnée d'une trace de son aura. C'est pourquoi la Tribulation Céleste, absente du monde de la culture depuis si longtemps, réapparaissait maintenant.
+La véritable cause de cette Tribulation Céleste provenait de la pierre d'encre. Cette pierre était restée trop longtemps dans le corps de l'Ancien Dieu et s'était imprégnée d'une trace de son aura. C'est pourquoi la Tribulation Céleste, absente du monde de la culture depuis si longtemps, réapparaissait maintenant.
 
 De même, comme la Tribulation Céleste ne s'était pas manifestée depuis des éons, bien qu'elle n'ait été déclenchée que par la création d'un trésor magique, elle contenait une puissance inimaginable.
 
@@ -160,7 +160,7 @@ Bien que ce fût une pluie noire, c'était la première fois qu'il pleuvait dans
 
 Cette Tribulation Céleste avait apporté un changement majeur à la Mer Xiu Mo. Si elle avait tué certaines créatures vivant dans la brume, beaucoup d'autres avaient réussi à s'échapper.
 
-Même certaines bêtes puissantes qui résidaient dans la brume apparurent désormais en pleine mer. La Mer Xiu Mo gagnerait à être renommée le Bassin des Démons.
+Même certaines bêtes puissantes qui résidaient dans la brume apparurent désormais en pleine mer. La Mer Xiu Mo gagnerait à être renommée le Bassin Xiu Mo.
 
 L'apparition de ces créatures inhabituelles déclencha une série de combats. Des bêtes tuaient des cultivateurs, et des cultivateurs tuaient des bêtes. Tous savaient que ces créatures possédaient un noyau pouvant servir à fabriquer des pilules ou être consommé directement pour augmenter leur culture.
 
@@ -240,7 +240,7 @@ Leurs sourires se figèrent brusquement lorsqu'une lumière noire les traversa, 
 
 Soudain, un bourdonnement sourd retentit au loin.
 
-« Le Palais Enchanté du Roi Poison a décrété l'arrêt de tout massacre dans cette zone. Ne bougez plus! »
+« Le Palais Du Mo a décrété l'arrêt de tout massacre dans cette zone. Ne bougez plus! »
 
 Wang Lin n'hésita pas: dès que ces mots furent prononcés, il commença à reculer.
 
@@ -264,7 +264,7 @@ Wang Lin resta immobile. Croisant ses mains, il cria: « Brise! »
 
 Le drapeau de restriction réagit immédiatement; les restrictions s'envolèrent pour former un bouclier noir devant lui. Dès que l'épée frappa le bouclier, les restrictions se transférèrent sur l'arme, la recouvrant entièrement.
 
-L'homme d'âge moyen fronça les sourcils, surpris qu'un simple cultivateur au stade intermédiaire de la Formation du Noyau possède un tel trésor. Il plongea sa main dans son sac et en sortit un sceau de tigre en bronze. Après avoir récité quelques incantations, le sceau rugit et grandit jusqu'à atteindre une vingtaine de mètres. Le bronze se fendit et un tigre noir en jaillit.
+L'homme d'âge moyen fronça les sourcils, surpris qu'un simple cultivateur au stade intermédiaire de la Formation du Noyau possède un tel trésor. Il plongea sa main dans son sac et en sortit un sceau de tigre en bronze. Après avoir récité quelques incantations, le sceau rugit et grandit jusqu'à atteindre soixante-dix ou quatre-vingts pieds de haut. Le bronze se fendit et un tigre noir en jaillit.
 
 Le tigre bondit sur Wang Lin. Ce dernier recula de quelques pas, forma un sceau et hurla: « Piège! »
 
@@ -290,13 +290,13 @@ Il allait répliquer quand ses yeux s'écarquillèrent en fixant le sac de range
 
 Wang Lin rangea le sac d'un geste. À l'expression de l'homme, il comprit que ce dernier connaissait ce sac ou en avait entendu parler.
 
-Wang Lin recula tout en formant un sceau derrière son dos, emportant le drapeau avec lui. Après avoir reculé de trois cents mètres, il libéra le tigre prisonnier des restrictions.
+Wang Lin recula tout en formant un sceau derrière son dos, emportant le drapeau avec lui. Après avoir reculé de mille pieds, il libéra le tigre prisonnier des restrictions.
 
 Dans la foulée, sa vitesse augmenta et il disparut sans laisser de trace.
 
 L'homme d'âge moyen regarda mélancoliquement la direction de la fuite. Il voulut poursuivre Wang Lin à plusieurs reprises, mais se retint. Même en faisant abstraction du sac, le drapeau seul l'avait effrayé. Il savait que Wang Lin ne l'utilisait pas à son plein potentiel. Bien qu'il se sentît capable de tuer un cultivateur de la Formation du Noyau, ce trésor était trop singulier.
 
-Cela étouffa son envie de le traquer. Et il y avait ce sac marqué « Lan », signe indéniable d'un lien avec l'Empereur Antique. La plupart des gens ignoreraient ce détail, mais lui l'avait vu par accident lors d'une visite de l'Empereur au Palais Enchanté du Roi Poison.
+Cela étouffa son envie de le traquer. Et il y avait ce sac marqué « Lan », signe indéniable d'un lien avec l'Empereur Antique. La plupart des gens ignoreraient ce détail, mais lui l'avait vu par accident lors d'une visite de l'Empereur au Palais Du Mo.
 
 Bien que l'Empereur Antique fût disparu depuis deux cents ans, sa réputation demeurait et ses disciples étaient nombreux; il renonça donc totalement à poursuivre Wang Lin.
 
@@ -374,7 +374,7 @@ Les yeux de Qiu Siping brillèrent: « Nous sommes désormais alliés. Puis-je c
 
 Qiu Siping joignit les mains: « Frère Wang, la distance est importante. Si vous l'acceptez, nous prendrons mon bateau nuageux. » Il frappa son sac et un bateau apparut.
 
-Ce navire de 33 mètres de long était orné de motifs d'animaux spirituels, avec une proue sculptée en forme d'oiseau si réaliste qu'il semblait vivant. Qiu Siping monta à bord et invita Wang Lin à le rejoindre.
+Ce navire d'environ cent pieds de long était orné de motifs d'animaux spirituels, avec une proue sculptée en forme d'oiseau si réaliste qu'il semblait vivant. Qiu Siping monta à bord et invita Wang Lin à le rejoindre.
 
 Wang Lin sonda le bateau par son Sens Divin. Rassuré, il y monta. Qiu Siping activa la sculpture de l'oiseau et le navire se mit en mouvement.
 

@@ -74,7 +74,7 @@ Un vacarme infini de lamentations provenant des fragments d'âmes commença à r
 
 Les fragments sortirent un à un de l'étendard, saturant l'espace. Les treize âmes primaires dorées et pourpres fixèrent l'homme d'âge moyen qui venait de surgir.
 
-« Regarde bien. Voici la véritable manière d'utiliser l'étendard des âmes. Formation des Treize Âmes! » cria Dun Tian, alors que le brouillard noir autour de lui se matérialisait à nouveau en un étendard de dix mètres qu'il agita vigoureusement.
+« Regarde bien. Voici la véritable manière d'utiliser l'étendard des âmes. Formation des Treize Âmes! » cria Dun Tian, alors que le brouillard noir autour de lui se matérialisait à nouveau en un étendard de trente pieds qu'il agita vigoureusement.
 
 Les cinq cents millions de fragments commencèrent à se mouvoir selon une logique mystérieuse autour des treize âmes primaires, formant une vaste formation qui encercla Wang Lin, Dun Tian et l'homme d'âge moyen.
 

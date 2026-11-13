@@ -84,29 +84,29 @@ Choqué, il s'apprêta à utiliser la téléportation avant de se forcer à s'ar
 
 Il jura intérieurement. Il s'enveloppa de son drapeau de restriction et chargea comme l'éclair. Privé du pouvoir mystérieux, sa vitesse était revenue à la normale.
 
-Mais l'effondrement du sol s'accélérait. Wang Lin remarqua soudainement, grâce à son sens divin, que dans un rayon de 330 mètres, il n'y avait plus qu'un vide obscur.
+Mais l'effondrement du sol s'accélérait. Wang Lin remarqua soudainement, grâce à son sens divin, que dans un rayon de 1000 pieds, il n'y avait plus qu'un vide obscur.
 
 Ce vide ressemblait à une gueule béante qui dévorait tout sur son passage.
 
-Il fut frappé de stupeur. L'effondrement du fragment se poursuivait et, en un clin d'œil, le vide n'était plus qu'à 165 mètres.
+Il fut frappé de stupeur. L'effondrement du fragment se poursuivait et, en un clin d'œil, le vide n'était plus qu'à 500 pieds.
 
 Wang Lin prit une inspiration glacée et s'élança vers le haut avec précipitation.
 
-La dévoration continuait: 165 mètres, 99 mètres, 66 mètres, 33 mètres...
+La dévoration continuait: 500 pieds, 300 pieds, 200 pieds, 100 pieds...
 
 Le visage de Wang Lin était livide. Il était encore loin d'atteindre la surface. La vitesse de l'engloutissement était trop grande; il était clair qu'il n'arriverait pas à s'échapper à temps.
 
 Une expression impitoyable se dessina dans ses yeux alors qu'il sortait un petit cristal de son sac de rangement: c'était de l'énergie spirituelle céleste condensée.
 
-Le vide se rapprochait encore: 33 mètres, 16,5 mètres, 10 mètres...
+Le vide se rapprochait encore: 100 pieds, 50 pieds, 30 pieds...
 
-Wang Lin vit qu'à 10 mètres de lui, une gueule semblait déjà grande ouverte.
+Wang Lin vit qu'à 30 pieds de lui, une gueule semblait déjà grande ouverte.
 
 Il avala le cristal et ressentit, pour la toute première fois, une douleur dans son âme originelle. C'était une souffrance brûlante causée par l'excès d'énergie spirituelle céleste dans son corps.
 
 À cet instant, Wang Lin eut l'impression que son âme originelle pouvait s'effondrer à tout moment, mais au cœur de cette douleur, un fragment de puissance naquit. Ce pouvoir lui donna la sensation qu'il pouvait soutenir le monde entier sur ses épaules.
 
-Le vide environnant se rapprochait de plus en plus: 10 mètres, 6,6 mètres, 3,3 mètres...
+Le vide environnant se rapprochait de plus en plus: 30 pieds, 20 pieds, 10 pieds...
 
 Le corps de Wang Lin s'élança soudainement vers le haut tel une météore. Au moment où le vide atteignit sa position, sa vitesse décupla et il jaillit hors du sol.
 

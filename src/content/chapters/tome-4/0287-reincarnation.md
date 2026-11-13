@@ -55,7 +55,7 @@ L'homme d'âge moyen en robe blanche fixa Wang Lin, le visage empreint de confus
 
 Mais il secoua aussitôt la tête, jugeant cette pensée insensée. Il prit une grande inspiration et baissa immédiatement le front.
 
-À ce moment, un vieil expert de l'Âme Naissante s'élança dans les airs. Il s'agenouilla à plusieurs centaines de mètres de Wang Lin et demanda d'une voix tremblante: « Senior est-il originaire de Zhao? »
+À ce moment, un vieil expert de l'Âme Naissante s'élança dans les airs. Il s'agenouilla à mille pieds de Wang Lin et demanda d'une voix tremblante: « Senior est-il originaire de Zhao? »
 
 À ces mots, tous les cultivateurs alentour retinrent leur souffle. Leurs yeux brillaient d'excitation en fixant Wang Lin. Même l'homme d'âge moyen leva la tête pour le regarder à nouveau.
 

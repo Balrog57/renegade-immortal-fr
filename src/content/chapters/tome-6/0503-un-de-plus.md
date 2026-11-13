@@ -45,7 +45,7 @@ Au premier coup d'œil, il aperçut un Tian Yunzi au loin. Ses mains formaient d
 
 « Tactique de Raffinement Céleste en Neuf Cycles... » Wang Lin l'observa un instant avant de passer au suivant.
 
-Il vit un autre Tian Yunzi assis en lotus à près d'un kilomètre de là. Ses yeux n'étaient pas clos; ils projetaient une lueur étrange. Des volutes de gaz noir s'échappaient de son corps pour se rassembler au-dessus de sa tête. Le gaz s'accumula jusqu'à former un nuage sombre qui se mit soudainement à tourbillonner frénétiquement, avant de redescendre brusquement pour envelopper Tian Yunzi. Des sifflements s'échappèrent du nuage noir avant que celui-ci ne disparaisse dans le lointain en un clin d'œil.
+Il vit un autre Tian Yunzi assis en lotus à trois mille pieds de là. Ses yeux n'étaient pas clos; ils projetaient une lueur étrange. Des volutes de gaz noir s'échappaient de son corps pour se rassembler au-dessus de sa tête. Le gaz s'accumula jusqu'à former un nuage sombre qui se mit soudainement à tourbillonner frénétiquement, avant de redescendre brusquement pour envelopper Tian Yunzi. Des sifflements s'échappèrent du nuage noir avant que celui-ci ne disparaisse dans le lointain en un clin d'œil.
 
 « Sort interdit, Corps Immortel Démoniaque! » Les yeux de Wang Lin s'illuminèrent.
 
@@ -75,11 +75,11 @@ Wang Lin fut stupéfait. Il déploya son Sens Divin pour inspecter soigneusement
 
 « Étrange! » Wang Lin fronça les sourcils. Après une courte réflexion, il étendit son Sens Divin et parcourut ce monde aux sept couleurs à une vitesse fulgurante.
 
-Une durée indéterminée s'écoula. Un jour, alors que Wang Lin volait, son expression changea soudainement et il se tourna vers la gauche sans hésiter. Peu après, il s'arrêta: un Tian Yunzi était assis en lotus à près d'un kilomètre de lui.
+Une durée indéterminée s'écoula. Un jour, alors que Wang Lin volait, son expression changea soudainement et il se tourna vers la gauche sans hésiter. Peu après, il s'arrêta: un Tian Yunzi était assis en lotus à plusieurs milliers de pieds de lui.
 
 Il portait une robe grise! C'était l'étrange Tian Yunzi que Wang Lin traquait depuis des jours!
 
-Wang Lin vola rapidement et s'immobilisa à plus de trois cents mètres de lui. Après avoir réfléchi un instant, il frappa son sac de stockage. L'épée céleste apparut dans sa main. Ses yeux brillèrent et, sans un mot, il abattit son arme. Un rayon d'énergie d'épée jaillit, suivi par la lame en demi-lune.
+Wang Lin vola rapidement et s'immobilisa à mille pieds de lui. Après avoir réfléchi un instant, il frappa son sac de stockage. L'épée céleste apparut dans sa main. Ses yeux brillèrent et, sans un mot, il abattit son arme. Un rayon d'énergie d'épée jaillit, suivi par la lame en demi-lune.
 
 La vitesse de la lame était inimaginable. En un clin d'œil, elle transperça la poitrine de Tian Yunzi gris. Pourtant, cela ne lui fit aucun mal; c'était comme si son existence n'était qu'une illusion. L'énergie d'épée qui suivit traversa également le corps de l'être avant de s'évanouir au loin.
 

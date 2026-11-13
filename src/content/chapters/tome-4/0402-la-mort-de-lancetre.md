@@ -16,7 +16,7 @@ Le regard de Wang Lin brilla. Il ne manifesta aucune inquiétude; alors que la h
 
 Boum!
 
-Un nouveau jet de sang jaillit de la bouche de Wang Lin, qui fut projeté en arrière d'une dizaine de mètres. La hache fut repoussée et s'écrasa au sol, à trois cent trente mètres de là.
+Un nouveau jet de sang jaillit de la bouche de Wang Lin, qui fut projeté en arrière de plusieurs dizaines de pieds. La hache fut repoussée et s'écrasa au sol, à mille pieds de là.
 
 Le visage de l'ancêtre du Clan Ju Mo était livide, ses yeux injectés de folie. Il lança un regard venimeux à Wang Lin, prit une profonde inspiration, puis son âme originelle trembla tandis qu'il hurlait: « Pouvoir de lignée! »
 
@@ -54,7 +54,7 @@ Cependant, le pouvoir de lignée avait déjà été activé et le corps de Wang 
 
 Profitant du répit offert par cette chaîne d'âmes, il activa la formation qu'il avait préparée à l'avance dans la vallée. Sentant l'aspiration s'intensifier, il rappela promptement tous les fragments d'âmes et, bien entendu, n'oublia pas le sac de l'ancêtre du Clan Ju Mo. La force de succion augmenta encore, et Wang Lin comprit qu'il ne pouvait plus résister.
 
-Ses yeux s'illuminèrent soudain en apercevant la hache géante à trois cent trente mètres de là. Il tendit la main vers elle, mais une force colossale s'opposa à sa prise.
+Ses yeux s'illuminèrent soudain en apercevant la hache géante à mille pieds de là. Il tendit la main vers elle, mais une force colossale s'opposa à sa prise.
 
 Wang Lin laissa échapper un cri de surprise. À cet instant, son corps était violemment entraîné dans le vortex. Il leva à nouveau la main et mobilisa toute l'énergie spirituelle de son être. « Collecte! » cria-t-il.
 

@@ -85,7 +85,7 @@ Les expressions des deux Anciens changèrent instantanément et ils reculèrent 
 
 L'un des Anciens s'écria: « Tu oses attaquer un Ancien disciplinaire?! »
 
-Cependant, le Fouet Kunji était d'une rapidité extrême. Après une traînée d'images rémanentes, l'expression de l'Ancien qui avait crié se mua instantanément. Son corps fut secoué et, dans un craquement net, il fut projeté en arrière. Du sang s'échappa du coin de sa bouche et son âme originelle fut expulsée de près d'un mètre.
+Cependant, le Fouet Kunji était d'une rapidité extrême. Après une traînée d'images rémanentes, l'expression de l'Ancien qui avait crié se mua instantanément. Son corps fut secoué et, dans un craquement net, il fut projeté en arrière. Du sang s'échappa du coin de sa bouche et son âme originelle fut expulsée de trois pieds.
 
 Le Fouet Kunji était spécialisé dans l'attaque des âmes originelles!
 
@@ -119,11 +119,11 @@ Serrant les dents, il se retourna brusquement en hurlant: « Je suis un Ancien d
 
 Wang Lin ricana: « On dirait que tu connais mon identité! » Il referma brutalement sa main droite sur l'âme originelle, qui poussa un cri de détresse.
 
-Au même moment, Wang Lin frappa son sac et une cloche s'en échappa. La cloche grandit jusqu'à atteindre environ dix mètres de long; Wang Lin projeta l'âme originelle vers elle, qui l'emprisonna aussitôt et la plaqua au sol.
+Au même moment, Wang Lin frappa son sac et une cloche s'en échappa. La cloche grandit jusqu'à atteindre trente pieds de long; Wang Lin projeta l'âme originelle vers elle, qui l'emprisonna aussitôt et la plaqua au sol.
 
 « Affine! » cria Wang Lin en se retournant.
 
-Là-bas, le second Ancien fut repoussé, affichant une expression amère. Il restait à une trentaine de mètres de Wang Lin, n'osant plus bouger d'un pouce. La lame en demi-lune planait menaçamment devant lui, tandis que les rires arrogants de Xu Liguo résonnaient depuis l'Épée Céleste.
+Là-bas, le second Ancien fut repoussé, affichant une expression amère. Il restait à cent pieds de Wang Lin, n'osant plus bouger d'un pouce. La lame en demi-lune planait menaçamment devant lui, tandis que les rires arrogants de Xu Liguo résonnaient depuis l'Épée Céleste.
 
 « Petit-fils, reste tranquille pour ton grand-père Xu. Si tu oses bouger d'un seul pouce, je te découperai un morceau! »
 

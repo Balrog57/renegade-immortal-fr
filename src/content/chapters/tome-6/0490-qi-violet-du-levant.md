@@ -36,7 +36,7 @@ De loin, on pouvait clairement voir une structure semblable à une montagne arge
 
 Impassible, Wang Lin leva son pouce droit. Des rayons de lumière se rassemblèrent sur lui jusqu'à ce qu'il devienne si éclatant que le ciel sembla perdre toute clarté. C'était comme si son pouce était la seule chose subsistant au monde.
 
-Les yeux de Wang Lin s'illuminèrent, puis il pressa son pouce contre la barrière argentée, à une dizaine de centimètres au-dessus de sa tête.
+Les yeux de Wang Lin s'illuminèrent, puis il pressa son pouce contre la barrière argentée, à trois pouces au-dessus de sa tête.
 
 Au moment où son pouce toucha la lumière, d'innombrables fissures apparurent sur le voile lumineux. De loin, on aurait dit que la montagne d'argent était sur le point de s'effondrer.
 
@@ -60,7 +60,7 @@ C'était comme si un seigneur démon venait de naître. Wang Lin était désorma
 
 Bientôt, la flamme pourpre dans sa main devint de plus en plus intense. Comparée à celle qu'il utilisait trois mois auparavant, l'aura qui s'en dégageait était plusieurs fois plus puissante.
 
-Wang Lin pointa son doigt vers l'avant. À cet instant, il perça la force située à une dizaine de centimètres au-dessus de sa tête et traversa l'écran de lumière argentée.
+Wang Lin pointa son doigt vers l'avant. À cet instant, il perça la force située à trois pouces au-dessus de sa tête et traversa l'écran de lumière argentée.
 
 Au moment où son doigt transperça le voile, la flamme pourpre se mit à brûler avec frénésie, prenant le doigt de Wang Lin comme point focal. C'était comme si une feuille de papier avait été enflammée: une fois le feu amorcé, il se propageait avec une rage incontrôlable.
 

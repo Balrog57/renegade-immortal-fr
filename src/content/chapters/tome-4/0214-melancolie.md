@@ -54,11 +54,11 @@ Cheng Xian cria rapidement: « Frère Wang Lin, je vous attends ici! N'oubliez p
 
 Wang Lin ne répondit pas et traversa le pont.
 
-Une fois entré dans la cour sud, le brouillard devint plus épais encore. Il ne pouvait rien distinguer à plus de neuf mètres devant lui. Si le corps principal de Wang Lin s'était trouvé ici, cela ne l'aurait pas dérangé: il lui aurait suffi de déployer son Sens Divin pour tout voir.
+Une fois entré dans la cour sud, le brouillard devint plus épais encore. Il ne pouvait rien distinguer à plus de trente pieds devant lui. Si le corps principal de Wang Lin s'était trouvé ici, cela ne l'aurait pas dérangé: il lui aurait suffi de déployer son Sens Divin pour tout voir.
 
 Mais actuellement, l'avatar de Wang Lin n'était qu'au huitième niveau de la Condensation de Qi, il ne pouvait donc que progresser lentement.
 
-Plus il s'enfonçait, plus la brume se densifiait. Sa vision se réduisit progressivement de neuf mètres à trois mètres.
+Plus il s'enfonçait, plus la brume se densifiait. Sa vision se réduisit progressivement de trente pieds à dix pieds.
 
 Une voix émergea du brouillard:
 
@@ -170,7 +170,7 @@ Cheng Xian attendait cette réponse avec impatience. Il sourit et dit rapidement
 
 Peu après, des rugissements de bêtes résonnèrent au loin. Wang Lin leva les yeux et vit deux ombres, une grande et une petite, se précipiter vers eux.
 
-Les ombres se rapprochèrent. À une trentaine de mètres de Cheng Xian, Wang Lin vit clairement qu'il s'agissait de deux singes. Le grand mesurait près de cinq mètres tandis que le petit en faisait près de trois. Les yeux des deux primates étaient rouges et ils poussèrent des cris stridents contre Cheng Xian.
+Les ombres se rapprochèrent. À cent pieds de Cheng Xian, Wang Lin vit clairement qu'il s'agissait de deux singes. Le grand mesurait près de quinze pieds tandis que le petit en faisait près de dix. Les yeux des deux primates étaient rouges et ils poussèrent des cris stridents contre Cheng Xian.
 
 Cheng Xian toussa légèrement: « Je ne vous ai fait qu'emprunter quelque chose! Cela fait plus de dix ans que nous nous connaissons. Très bien, emmenez-nous à la cour est et je vous rendrai cela. »
 

@@ -20,15 +20,15 @@ Wang Lin n'attendit même pas d'en voir le résultat; sachant que chaque seconde
 
 Wang Lin chargea vers le palais à toute allure. Une puissance mystérieuse régnait au sein de ces eaux. Wang Lin n'eut même pas besoin de la tester pour comprendre que quelque chose entravait la téléportation. Il avait déjà vécu cela dans d'autres lieux mystérieux, il savait donc ce que cette force faisait ressentir.
 
-Alors qu'il était sur le point de pénétrer dans le palais, une série de rugissements retentit depuis la surface et l'eau de mer autour de Wang Lin se fendit rapidement. Une vague d'énergie d'épée longue de 330 mètres descendit du ciel et le poursuivit avec acharnement.
+Alors qu'il était sur le point de pénétrer dans le palais, une série de rugissements retentit depuis la surface et l'eau de mer autour de Wang Lin se fendit rapidement. Une vague d'énergie d'épée longue de mille pieds descendit du ciel et le poursuivit avec acharnement.
 
 À mesure que l'énergie d'épée se rapprochait, Wang Lin pouvait presque ressentir son aura dévastatrice. Une douleur fulgurante lui transperça soudain le sommet du crâne.
 
-Il serra les dents avec rage. Il voyait qu'il ne restait pas plus de 330 mètres avant le palais, mais l'énergie d'épée était déjà sur ses talons.
+Il serra les dents avec rage. Il voyait qu'il ne restait pas plus de mille pieds avant le palais, mais l'énergie d'épée était déjà sur ses talons.
 
 Une trace de sang perla au sommet de la tête de Wang Lin et la douleur s'intensifia.
 
-297 mètres, 264 mètres, 231 mètres, 198 mètres...
+neuf cents pieds, huit cents pieds, sept cents pieds, six cents pieds...
 
 Il se rapprochait sans cesse, mais l'énergie d'épée le surplombait, menaçante. Le rugissement de cette énergie semblait résonner jusque dans son cerveau. Alors qu'il se précipitait vers le palais, Wang Lin cracha une bouchée de sang, toucha son sac de rangement et sortit sa hache.
 
@@ -38,7 +38,7 @@ Dans un rugissement soudain, il fit volte-face et plaça la hache devant lui.
 
 Le domaine de Zhou Yi se propagea rapidement, provoquant un ralentissement soudain de l'énergie d'épée.
 
-Profitant de cette brève suspension, Wang Lin chargea et franchit les 165 mètres restants en un instant pour pénétrer dans le palais.
+Profitant de cette brève suspension, Wang Lin chargea et franchit les cinq cents pieds restants en un instant pour pénétrer dans le palais.
 
 Dès qu'il eut passé le seuil, l'énergie d'épée trembla puis disparut.
 

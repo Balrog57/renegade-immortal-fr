@@ -62,7 +62,7 @@ Peu de temps après, une jeune fille vêtue d'un haut et d'un pantalon à motifs
 
 La fillette semblait avoir environ 14 ou 15 ans; son visage était pâle et ses yeux étaient grands.
 
-Elle s'arrêta à dix mètres du jeune homme et cria: « Hé, le Muet Laid, mon père m'a dit de te rappeler pour le dîner! »
+Elle s'arrêta à trente pieds du jeune homme et cria: « Hé, le Muet Laid, mon père m'a dit de te rappeler pour le dîner! »
 
 Le jeune homme se retourna, regarda la fillette et se leva. Ses jambes étaient un peu engourdies, sans doute à force d'être resté assis, et il manqua de tomber en tentant de se redresser, ce qui fit rire la petite.
 

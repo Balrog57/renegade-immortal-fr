@@ -26,7 +26,7 @@ Prenant une profonde inspiration, son corps jaillit du creux de l'arbre comme un
 
 Peu après son départ, un serpent géant redressa brusquement la tête. Après avoir reniflé l'air, il afficha une expression confuse. Après avoir secoué la tête, il fit volte-face et s'en alla.
 
-Aussitôt après, un singe de plus de trois mètres de haut arriva aussi vite que l'éclair. Il se rua dans le creux de l'arbre et fouilla un moment avant de repartir, frustré.
+Aussitôt après, un singe de plus de dix pieds de haut arriva aussi vite que l'éclair. Il se rua dans le creux de l'arbre et fouilla un moment avant de repartir, frustré.
 
 Plusieurs autres bêtes puissantes vinrent inspecter les lieux, mais elles repartirent toutes, perplexes.
 
@@ -104,11 +104,11 @@ Tandis qu'il ressentait en silence ce courant d'air, les yeux de Wang Lin brill�
 
 Après réflexion, sans un mot, il se faufila à toute vitesse à travers les ruines et parvint bientôt au pied de l'imposante épave d'où jaillissait le pilier de lumière.
 
-Il s'agissait des vestiges d'une gigantesque tour cylindrique en pierre. De l'extérieur, on voyait clairement qu'elle s'était brisée en son milieu. Pourtant, même à moitié effondrée, sa splendeur passée était évidente. Deux statues géantes tenant des épées colossales se dressaient à côté, et sur leurs corps reposait un édifice en forme de tour d'environ cent mètres de long.
+Il s'agissait des vestiges d'une gigantesque tour cylindrique en pierre. De l'extérieur, on voyait clairement qu'elle s'était brisée en son milieu. Pourtant, même à moitié effondrée, sa splendeur passée était évidente. Deux statues géantes tenant des épées colossales se dressaient à côté, et sur leurs corps reposait un édifice en forme de tour d'environ trois cents pieds de long.
 
 Wang Lin contempla les décombres et ne put s'empêcher d'imaginer une tour immense dressée jusqu'aux nuages qui, lors d'une catastrophe soudaine, s'était brisée en son milieu, sa pointe s'abattant sur les statues debout de part et d'autre.
 
-Les points de lumière provenaient d'une sphère de pierre d'environ six mètres et demi de diamètre située à la pointe de la tour.
+Les points de lumière provenaient d'une sphère de pierre d'environ vingt pieds de diamètre située à la pointe de la tour.
 
 Devant la sphère, Wang Lin hésita. L'objet était trop massif et ne pouvait manifestement pas être emporté. De plus, il ignorait le mécanisme exact de la guérison et craignait que son retrait n'annule l'effet du trésor.
 

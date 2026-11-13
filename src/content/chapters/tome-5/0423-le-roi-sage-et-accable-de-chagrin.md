@@ -121,7 +121,7 @@ Cependant, son sang commença lentement à s'imprégner dans la quatrième âme.
 
 Le regard de Zhu Quezi devint glacial. Il frappa son sac de rangement et en sortit un petit pot rouge. Sa main traça un sceau et il ordonna: « Affine! »
 
-D'un seul mot, un filet de flamme blanche jaillit du petit pot. Les environs, sur 330 mètres à la ronde, se transformèrent instantanément en une mer de feu. Ce brasier était plus puissant encore que la Flamme Sainte de Suzaku!
+D'un seul mot, un filet de flamme blanche jaillit du petit pot. Les environs, sur mille pieds à la ronde, se transformèrent instantanément en une mer de feu. Ce brasier était plus puissant encore que la Flamme Sainte de Suzaku!
 
 « Voyons si ton Âme de Triple Métal est plus tranchante que la flamme de mon Pot de Feu, ce trésor céleste! Je vais affiner cette quatrième âme! »
 
@@ -137,9 +137,9 @@ Zhu Quezi frappa son sac de rangement et en sortit un morceau de boue noire. Il 
 
 La main de Zhu Quezi guida ce gaz pour tracer un symbole étrange.
 
-« Ce vieil homme utilise son statut de Suzaku actuel et sacrifie 90 % de son espérance de vie restante pour ouvrir le Cristal de Planète de Culture. Je vais invoquer le domaine de "stase" que l'Union de la Culture nous a offert! » Sa main droite pointa le symbole, qui s'envola rapidement pour s'immobiliser à 10 mètres devant lui.
+« Ce vieil homme utilise son statut de Suzaku actuel et sacrifie 90 % de son espérance de vie restante pour ouvrir le Cristal de Planète de Culture. Je vais invoquer le domaine de "stase" que l'Union de la Culture nous a offert! » Sa main droite pointa le symbole, qui s'envola rapidement pour s'immobiliser à trente pieds devant lui.
 
-À cet instant, tout dans un rayon de 330 mètres se figea.
+À cet instant, tout dans un rayon de mille pieds se figea.
 
 Dès que le symbole disparut, un éclair doré et pourpre jaillit et l'aiguille apparut.
 

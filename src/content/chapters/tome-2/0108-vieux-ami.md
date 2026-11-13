@@ -10,7 +10,7 @@ Alors qu'il sortait de la grotte, Wang Lin jeta un regard froid autour de lui et
 
 Parmi les disciples de la Vallée Wu Feng, l'un d'eux renifla et lança: « Li Shan, remets ces jetons ou tu mourras à coup sûr! »
 
-L'homme qu'ils encerclaient était Li Shan, une connaissance de Wang Lin rencontrée autrefois à la Secte Heng Yue. Il représentait ici la Secte Xuan Dao et était le seul de la délégation au stade de la Condensation de Qi. La Vallée Jue Ming n'imposait qu'une limite supérieure et non inférieure pour y accéder; ainsi, même un disciple de la Condensation de Qi était autorisé à entrer. La plupart des sectes n'auraient toutefois pas envoyé un disciple de ce niveau.
+L'homme qu'ils encerclaient était Li Shan, une connaissance de Wang Lin rencontrée autrefois à la Secte Heng Yue. Il représentait ici la Secte Xuan Dao et était le seul de la délégation au stade de la Condensation du Qi. La Vallée Jue Ming n'imposait qu'une limite supérieure et non inférieure pour y accéder; ainsi, même un disciple de la Condensation du Qi était autorisé à entrer. La plupart des sectes n'auraient toutefois pas envoyé un disciple de ce niveau.
 
 Si Li Shan avait pu venir, c'est parce qu'il excellait dans la fabrication de faux trésors magiques et de fausses pilules et qu'il était un maître hors pair du vol.
 
@@ -58,10 +58,10 @@ Wang Lin fixa Li Shan. Cette vision terrifia tant le jeune homme qu'il en frisso
 
 Il était aussi celui que Li Shan désirait par-dessus tout surpasser, jusque dans ses rêves, surtout après l'incident de la bombe puante survenu des années plus tôt. La vie de Li Shan s'était durcie depuis cet événement; durant cette période, il maudissait Wang Lin presque chaque jour, d'innombrables fois.
 
-Pourtant, il restait convaincu qu'un jour, il finirait par le dépasser, et après avoir atteint le 14e niveau de la Condensation de Qi, cette pensée s'était encore plus enracinée en lui.
+Pourtant, il restait convaincu qu'un jour, il finirait par le dépasser, et après avoir atteint le 14e niveau de la Condensation du Qi, cette pensée s'était encore plus enracinée en lui.
 
 Mais à présent, il était stupéfait de constater que la différence entre eux était aussi vaste que celle entre le ciel et la terre. En seulement quelques années, Wang Lin avait déjà acquis la capacité de terrasser aisément des cultivateurs de l'Établissement des Fondations. Aux yeux de Li Shan, la progression de Wang Lin était tout simplement prodigieuse.
 
-En entendant les paroles de Wang Lin, les personnes alentour ne purent s'empêcher de songer à sa réputation dans la Vallée Jue Ming et à la facilité avec laquelle il venait d'éliminer ces cultivateurs de l'Établissement des Fondations. Un frisson glacé leur parcourut le cœur. Après un long silence, un jeune homme vêtu de blanc soupira. Il regarda Wang Lin intensément et demanda: « Camarade cultivateur, pourriez-vous me dire quel est votre niveau de culture? »
+En entendant les paroles de Wang Lin, les personnes alentour ne purent s'empêcher de songer à sa réputation dans la Vallée Jue Ming et à la facilité avec laquelle il venait d'éliminer ces cultivateurs de l'Établissement des Fondations. Un frisson glacé leur parcourut le cœur. Après un long silence, un jeune homme vêtu de blanc soupira. Il regarda Wang Lin intensément et demanda: « Daoïste, pourriez-vous me dire quel est votre niveau de culture? »
 
 Wang Lin répondit simplement: « Établissement des Fondations. »

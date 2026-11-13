@@ -156,7 +156,7 @@ Quant à ce que faisait Teng Huayuan, Pu Nanzi ne l'interrogeait jamais. Ce dern
 
 La Ville de la Famille Teng avait déjà été agrandie six fois au cours des 400 dernières années; c'était désormais une métropole immense, célèbre dans tout le Zhao.
 
-Il existait une chambre secrète à 330 mètres sous la ville de la famille Teng. Cette pièce possédait dix fois plus d'énergie spirituelle que l'extérieur, car elle reposait sur une veine spirituelle. Bien que cette veine ne fût pas vaste, elle était amplement suffisante pour la culture. Puisque l'ancêtre de la famille Teng en avait découvert l'existence, il s'était servi de chaque agrandissement de la ville pour creuser lentement une chambre pour lui-même.
+Il existait une chambre secrète à mille pieds sous la ville de la famille Teng. Cette pièce possédait dix fois plus d'énergie spirituelle que l'extérieur, car elle reposait sur une veine spirituelle. Bien que cette veine ne fût pas vaste, elle était amplement suffisante pour la culture. Puisque l'ancêtre de la famille Teng en avait découvert l'existence, il s'était servi de chaque agrandissement de la ville pour creuser lentement une chambre pour lui-même.
 
 C'était un secret que même Pu Nanzi ignorait, et seuls quelques membres de la famille Teng en étaient informés. On n'était autorisé à cultiver quelques jours dans cette chambre que lorsqu'on voulait réaliser une percée.
 
@@ -184,7 +184,7 @@ Au cours des 400 dernières années, chaque fois qu'il se sentait troublé ou co
 
 Il soupira, remit la tablette en place et se détourna pour partir.
 
-À ce moment-là, à l'extérieur de la Ville de la Famille Teng, deux éclairs de lumière d'épée volaient vers la cité. À 330 mètres de distance, ils se posèrent, révélant un homme et une femme.
+À ce moment-là, à l'extérieur de la Ville de la Famille Teng, deux éclairs de lumière d'épée volaient vers la cité. À mille pieds de distance, ils se posèrent, révélant un homme et une femme.
 
 L'homme était d'âge mûr, mais restait très séduisant; il avait manifestement été d'une beauté éclatante dans sa jeunesse. Il portait une robe blanche et avait des airs de Daoïste. La femme n'était pas éblouissante, mais elle émanait une grande élégance. Elle portait également une robe blanche, les sourcils froncés, signe qu'elle était tourmentée par des pensées.
 

@@ -126,6 +126,6 @@ Dans l'une des vallées, Wang Lin frappa son sac de rangement et une pagode appa
 
 Ce lieu était un point d'accumulation de l'énergie Yin dans Chu. Wang Lin se souvenait que Zhou Yi lui avait dit que cette pagode ne pouvait être placée que dans un endroit chargé d'énergie Yin.
 
-La pagode, faite de jade céleste, s'étendit instantanément dans les airs jusqu'à atteindre environ 330 mètres de hauteur. Dans un fracas, elle se posa au fond de la vallée, et un anneau de lumière se propagea soudainement tout autour d'elle.
+La pagode, faite de jade céleste, s'étendit instantanément dans les airs jusqu'à atteindre environ mille pieds de hauteur. Dans un fracas, elle se posa au fond de la vallée, et un anneau de lumière se propagea soudainement tout autour d'elle.
 
 Une trace de la volonté de Zhou Yi, au niveau Ascendant, couvrait désormais toute la zone, dans un rayon de 50 kilomètres.

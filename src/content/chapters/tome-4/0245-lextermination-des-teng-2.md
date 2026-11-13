@@ -32,7 +32,7 @@ Presque simultanément, certains experts de la famille Teng remarquèrent l'imme
 
 Teng Huayuan se tenait sur les remparts de la cité, le visage sombre. À ses côtés se trouvaient quatre individus: les quatre derniers cultivateurs de l'Âme Naissante de la famille Teng.
 
-Sur ordre de Teng Huayuan, les quatre disparurent. Lorsqu'ils réapparurent, ils se trouvaient déjà à trois cent trente mètres de Wang Lin. Ils sortirent précipitamment leurs trésors magiques pour les projeter contre lui.
+Sur ordre de Teng Huayuan, les quatre disparurent. Lorsqu'ils réapparurent, ils se trouvaient déjà à mille pieds de Wang Lin. Ils sortirent précipitamment leurs trésors magiques pour les projeter contre lui.
 
 Comment la vengeance de Wang Lin pouvait-elle être contenue par seulement quatre hommes? Bien que Wang Lin paraisse calme, une lueur de folie brûlait dans son cœur. Aujourd'hui, il allait déverser quatre cents ans de rage. Aujourd'hui, il deviendrait un fou, un fou assoiffé de sang!
 
@@ -106,7 +106,7 @@ Wang Lin regarda froidement Teng Huayuan charger, tout en posant sa main sur le 
 
 Teng Huayuan resta hébété devant l'amas de chair qui était autrefois son petit-fils. Puis, il poussa un rugissement de douleur: « Wang Lin! »
 
-Le corps de Wang Lin réapparut à trois cent trente mètres de là. Il dit: « Est-ce que cela fait mal? Autrefois, quand vous avez tué ma famille, mon cœur aussi a souffert. » Sur ces mots, il frappa l'air d'un revers de la main droite, et un homme d'âge mûr de la famille Teng qui fuyait en panique fut réduit en bouillie.
+Le corps de Wang Lin réapparut à mille pieds de là. Il dit: « Est-ce que cela fait mal? Autrefois, quand vous avez tué ma famille, mon cœur aussi a souffert. » Sur ces mots, il frappa l'air d'un revers de la main droite, et un homme d'âge mûr de la famille Teng qui fuyait en panique fut réduit en bouillie.
 
 Teng Huayuan rugit férocement: « J'ai tué toute votre famille parce que vous avez tué mon arrière-arrière-petit-fils, Teng Li! »
 

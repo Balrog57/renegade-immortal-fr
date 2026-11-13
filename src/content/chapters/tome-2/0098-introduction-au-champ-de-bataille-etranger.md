@@ -60,7 +60,7 @@ Une fois que tous les cultivateurs de l'Âme Naissante furent réunis, l'arc-en-
 
 Aussitôt, les nuages s'agitèrent et un rayon de lumière rouge descendit du ciel pour frapper la Tour Tong Tian. Rapidement, les six autres couleurs de l'arc-en-ciel vinrent également se poser sur la tour.
 
-Après avoir absorbé ces sept rayons, la Tour Tong Tian trembla et un immense pilier de lumière de plusieurs dizaines de mètres de diamètre jaillit en tournoyant de son sommet. Ce pilier s'élança jusqu'aux nuages pour former un immense trou noir, autour duquel des anneaux d'éclairs blancs se déplaçaient.
+Après avoir absorbé ces sept rayons, la Tour Tong Tian trembla et un immense pilier de lumière de plusieurs centaines de pieds de diamètre jaillit en tournoyant de son sommet. Ce pilier s'élança jusqu'aux nuages pour former un immense trou noir, autour duquel des anneaux d'éclairs blancs se déplaçaient.
 
 En levant les yeux, on pouvait voir des ondulations se propager vers l'extérieur, le pilier de lumière en servant de centre. Les nuages autour du pilier de lumière fondaient, à une vitesse visible à l'œil nu, comme de la neige sous une eau bouillante.
 

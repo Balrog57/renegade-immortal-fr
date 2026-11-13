@@ -66,7 +66,7 @@ Face à l'homme massif qui lui barrait la route, l'expression de Wang Lin était
 
 Bang!
 
-La main de l'homme fut déchirée au point de mettre les os à nu. On pouvait même y voir des tatouages gravés sur l'os. Bien que projeté à plus de trente mètres en arrière, ses yeux brillaient d'une soif de combat; il se rétablit aussitôt et chargea de nouveau Wang Lin.
+La main de l'homme fut déchirée au point de mettre les os à nu. On pouvait même y voir des tatouages gravés sur l'os. Bien que projeté à plus de cent pieds en arrière, ses yeux brillaient d'une soif de combat; il se rétablit aussitôt et chargea de nouveau Wang Lin.
 
 Wang Lin sentit l'onde de choc émaner de l'épée céleste. Il utilisa cette force pour reculer afin de tenter de s'échapper.
 
@@ -92,13 +92,13 @@ Le colosse derrière lui poursuivait Wang Lin à vive allure. En observant le do
 
 Le regard de Wang Lin était empreint d'une intention meurtrière tandis qu'il touchait le bracelet à son poignet. Il abattit l'épée céleste vers l'homme et répondit: « Très bien, je relève le défi! »
 
-L'homme robuste rit. Sans esquiver, il plaça ses deux mains devant sa poitrine. Il bloqua l'épée avec ses avant-bras, provoquant un fracas retentissant à l'impact; son corps recula d'une bonne dizaine de mètres. Sa chair fut entaillée, mais les os de ses bras restèrent intacts.
+L'homme robuste rit. Sans esquiver, il plaça ses deux mains devant sa poitrine. Il bloqua l'épée avec ses avant-bras, provoquant un fracas retentissant à l'impact; son corps recula de plusieurs dizaines de pieds. Sa chair fut entaillée, mais les os de ses bras restèrent intacts.
 
 La volonté de combat dans ses yeux s'intensifia et il cria: « Chi Mu, guerrier aux six feuilles! »
 
 Le regard de Wang Lin devint glacial et il répliqua: « Wang Lin, cultivateur de la Formation de l'Âme! »
 
-Chi Mu fit un pas en avant et lâcha un coup de poing qui généra une onde de choc sonore vers Wang Lin. Ce dernier manœuvra l'épée céleste, provoquant une explosion à 10 mètres devant lui. Wang Lin sentit immédiatement ses mains s'engourdir.
+Chi Mu fit un pas en avant et lâcha un coup de poing qui généra une onde de choc sonore vers Wang Lin. Ce dernier manœuvra l'épée céleste, provoquant une explosion à trente pieds devant lui. Wang Lin sentit immédiatement ses mains s'engourdir.
 
 « Si mon corps originel était ici, je pourrais certainement rivaliser avec cet homme », pensa Wang Lin, les yeux brillants. Il agita la main droite et le piège à bêtes vola vers l'avant.
 
@@ -112,7 +112,7 @@ La bête sur le char de guerre se tourna soudainement vers Wang Lin. Après l'av
 
 Chi Mu ressentit un sentiment de danger inédit. N'attendant pas que le char soit pleinement activé, il chargea immédiatement et abattit son poing.
 
-Wang Lin eut un ricanement méprisant. Il esquiva et frappa avec l'épée céleste. Une autre explosion se produisit à 99 mètres de distance, déviant la main de Chi Mu. Ce dernier dut se forcer à s'arrêter avant de charger à nouveau vers le char.
+Wang Lin eut un ricanement méprisant. Il esquiva et frappa avec l'épée céleste. Une autre explosion se produisit à trois cents pieds de distance, déviant la main de Chi Mu. Ce dernier dut se forcer à s'arrêter avant de charger à nouveau vers le char.
 
 Wang Lin abattit l'épée céleste une nouvelle fois. Cette fois, il ne s'arrêta pas après un seul coup et enchaîna les assauts. Il porta dix coups d'épée successifs.
 

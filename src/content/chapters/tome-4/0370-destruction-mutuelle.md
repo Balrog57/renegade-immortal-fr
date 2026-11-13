@@ -24,7 +24,7 @@ Sun Tai hurla: « Explosez pour moi! »
 
 Bang! Bang! Bang!
 
-Des explosions déchirant les cieux retentirent dans les airs. La force colossale de ces déflagrations repoussa l'ancêtre du Clan Ju Mo d'une dizaine de mètres.
+Des explosions déchirant les cieux retentirent dans les airs. La force colossale de ces déflagrations repoussa l'ancêtre du Clan Ju Mo de plusieurs dizaines de pieds.
 
 Le visage de Sun Tai était dévoré par la fureur alors qu'il chargeait en avant. Simultanément, sa main droite se mua en une paume gigantesque qui s'abattit sur l'ancêtre.
 
@@ -64,7 +64,7 @@ Dans un fracas, un éclair noir déchira le ciel et fondit sur lui.
 
 Sun Tai hurla: « Mon domaine du tonnerre est le fruit d'un prix colossal, après avoir cultivé sur la planète Tian Lei pendant cent ans! Tu n'es qu'un vulgaire bâtard du Clan Ju Mo. Meurs! »
 
-Le visage de l'ancêtre s'assombrit en voyant l'éclair noir. Il poussa un rugissement, son corps grandissant de dix mètres, et frappa l'éclair descendant d'un coup de poing.
+Le visage de l'ancêtre s'assombrit en voyant l'éclair noir. Il poussa un rugissement, son corps grandissant de trente pieds, et frappa l'éclair descendant d'un coup de poing.
 
 Boom!
 

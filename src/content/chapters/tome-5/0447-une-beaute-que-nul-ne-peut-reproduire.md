@@ -60,7 +60,7 @@ Le visage de Qian Feng était livide tandis qu'il scrutait les profondeurs de la
 
 Peu après, un rugissement retentit de l'intérieur et le sol commença à trembler. Hongdie surgit de la grotte pour se placer aux côtés de Qian Feng.
 
-Simultanément, une silhouette imposante émergea des ténèbres. C'était un géant de plus de 33 mètres de haut dont le corps dégageait une fumée noire. Chaque pas qu'il faisait faisait vaciller la terre.
+Simultanément, une silhouette imposante émergea des ténèbres. C'était un géant de plus de cent pieds de haut dont le corps dégageait une fumée noire. Chaque pas qu'il faisait faisait vaciller la terre.
 
 Alors que le géant sortait, les yeux de Qian Feng devinrent glacials et il pointa l'entité du doigt. La petite sphère au bout de son doigt fonça vers le colosse.
 
@@ -90,7 +90,7 @@ Wang Lin n'avait pas le temps de vérifier si sa méthode fonctionnait réelleme
 
 « Je suis immortel! Lorsque les fragments d'âme qui me composent s'éteindront, je pourrai en rassembler d'autres pour me reformer! » Le rugissement de Murong Yun résonna depuis l'intérieur de la sphère.
 
-Wang Lin eut un reniflement méprisant et atterrit au pied de la montagne. Il pointa le sol et y ouvrit en croix un trou d'une dizaine de mètres de profondeur.
+Wang Lin eut un reniflement méprisant et atterrit au pied de la montagne. Il pointa le sol et y ouvrit en croix un trou de plusieurs dizaines de pieds de profondeur.
 
 Il sauta dans la fosse, y déposa la sphère et commença à disposer des restrictions tout autour.
 

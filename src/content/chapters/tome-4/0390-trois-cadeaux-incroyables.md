@@ -30,7 +30,7 @@ Le vieil homme déclara calmement: « Six respirations! »
 
 Liu Mei soupira. Elle mordit sa lèvre inférieure et dit: « Senior, si junior part ainsi, mon maître me punira. Si mon maître demande ce qui s'est passé, je n'aurai d'autre choix que de lui dire la vérité. »
 
-« Quatre respirations! » L'intention meurtrière jaillit du vieil homme. Il tendit la main et l'image d'un drapeau de plus de dix mètres de haut apparut dans sa paume.
+« Quatre respirations! » L'intention meurtrière jaillit du vieil homme. Il tendit la main et l'image d'un drapeau de plus de trente pieds de haut apparut dans sa paume.
 
 Bien que ce drapeau ne fût qu'une illusion, une pression écrasante s'en dégageait. Pour la première fois, le visage de Liu Mei changea radicalement.
 
@@ -98,7 +98,7 @@ Il comprit que si l'ancêtre de la Transformation de l'Âme était prêt à un t
 
 Wang Lin réfléchit un instant, puis le suivit sans mot dire.
 
-À l'extérieur de l'anneau de sang, le vieil homme tendit la main et le drapeau de plus de dix mètres réapparut. Cette fois encore, ce n'était qu'une illusion.
+À l'extérieur de l'anneau de sang, le vieil homme tendit la main et le drapeau de plus de trente pieds réapparut. Cette fois encore, ce n'était qu'une illusion.
 
 « Voici le trésor principal de la Secte Lian Hun: le drapeau d'un milliard d'âmes. C'est grâce à ce trésor que, bien que je ne sois qu'au stade avancé de la Transformation de l'Âme, j'ose affronter un cultivateur Ascendant. Je t'expliquerai pourquoi plus tard, mais tant que ce trésor existera, ma Secte Lian Hun ne mourra jamais. Cependant, si ce trésor est brisé, la secte est finie. Maintenant, je vais utiliser la force d'âme contenue dans ce drapeau pour élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. » Le vieil homme fixa Wang Lin d'un regard perçant et cria: « Assieds-toi en position du lotus! »
 

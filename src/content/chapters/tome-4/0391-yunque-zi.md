@@ -66,7 +66,7 @@ Le corps originel reposait au sein du cocon tandis qu'une autre étoile apparais
 
 Wang Lin n'était pas un homme cupide. À cet instant, il ouvrit les yeux et cessa d'absorber.
 
-Dun Tian poussa un soupir de soulagement. Il agita rapidement le drapeau de plus de dix mètres qu'il tenait, faisant revenir les dix âmes. Il adressa un sourire amer à Wang Lin et dit: « Petit ami Zeng Niu, tu n'as vraiment pas retenu tes efforts. »
+Dun Tian poussa un soupir de soulagement. Il agita rapidement le drapeau de trente pieds qu'il tenait, faisant revenir les dix âmes. Il adressa un sourire amer à Wang Lin et dit: « Petit ami Zeng Niu, tu n'as vraiment pas retenu tes efforts. »
 
 Les yeux de Wang Lin s'illuminèrent. Il se leva, sentant la puissance de l'énergie spirituelle qui coulait dans son corps. Il tourna son regard glacial vers le pays de Xue Yu.
 

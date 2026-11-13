@@ -70,7 +70,7 @@ Les yeux du vieil homme restèrent rivés sur Wang Lin tandis qu'il disait, mot 
 
 Wang Lin réfléchit un instant puis hocha la tête. Il pouvait ressentir l'intention meurtrière du vieil homme. S'il commettait le moindre faux pas, il mourrait sans même avoir de sépulture.
 
-Les yeux du vieil homme se plissèrent. Sans dire un mot, il frappa son sac de rangement et un python tacheté de vert, long d'une dizaine de mètres, apparut dans sa main.
+Les yeux du vieil homme se plissèrent. Sans dire un mot, il frappa son sac de rangement et un python tacheté de vert, long de plus de trente pieds, apparut dans sa main.
 
 Le python tendit la langue tandis que ses yeux violet sombre fixaient Wang Lin.
 
@@ -94,13 +94,13 @@ Bientôt, le vieil homme se remit de son choc. Il regarda le python au sol et to
 
 Une navette émettant une lumière arc-en-ciel apparut devant lui. Cette arme était entièrement faite d'un cristal pur à l'intérieur duquel voyageait la lumière. Suivant les ordres du vieil homme, la navette s'élança en soulevant des cercles d'ondes aux sept couleurs. Elle perça le sol et poursuivit rapidement Wang Lin.
 
-Sur son passage, la terre se dissipait et ne pouvait barrer la route à la navette d'un seul pas. En un clin d'œil, elle ne fut plus qu'à trente mètres de Wang Lin. Ce dernier sentit sa tête s'engourdir. Sans hésiter, il sortit le talisman que Yang Sen lui avait donné.
+Sur son passage, la terre se dissipait et ne pouvait barrer la route à la navette d'un seul pas. En un clin d'œil, elle ne fut plus qu'à cent pieds de Wang Lin. Ce dernier sentit sa tête s'engourdir. Sans hésiter, il sortit le talisman que Yang Sen lui avait donné.
 
 Ce talisman pouvait encaisser le coup de pleine puissance d'un cultivateur de l'Âme Naissante. Au moment où il le lança, la navette frappa.
 
-Le talisman grandit instantanément et se plaça derrière Wang Lin pour le protéger. Il percuta la navette dans un grondement et, après une série de craquements, se brisa et tomba en cendres. La navette fut également repoussée d'une dizaine de mètres et son élan ralentit. De l'impact, une onde circulaire se propagea de toutes parts, soulevant la terre sur son passage.
+Le talisman grandit instantanément et se plaça derrière Wang Lin pour le protéger. Il percuta la navette dans un grondement et, après une série de craquements, se brisa et tomba en cendres. La navette fut également repoussée de plusieurs dizaines de pieds et son élan ralentit. De l'impact, une onde circulaire se propagea de toutes parts, soulevant la terre sur son passage.
 
-Si l'on regardait depuis le ciel, on aurait vu un cercle passer de petit à grand et s'étendre en un instant jusqu'à trois cents mètres, la terre gonflant de partout comme si un dragon souterrain s'y retournait.
+Si l'on regardait depuis le ciel, on aurait vu un cercle passer de petit à grand et s'étendre en un instant jusqu'à mille pieds, la terre gonflant de partout comme si un dragon souterrain s'y retournait.
 
 Wang Lin fut frappé par l'onde de choc et cracha une bouchée de sang. Il émergea rapidement de terre et évita de justesse le front de l'onde principale.
 

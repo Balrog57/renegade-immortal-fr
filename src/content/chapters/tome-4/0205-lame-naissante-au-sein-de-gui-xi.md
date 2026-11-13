@@ -136,7 +136,7 @@ Mais tant que l'adversaire n'était pas un cultivateur au stade de l'Âme Naissa
 
 Wang Lin agita sa main droite. Le second démon sortit du tourbillon et resta immobile devant l'homme.
 
-Qiu Siping fronça les sourcils. Il percevait que Wang Lin était également au stade avancé de la Formation du Noyau, mais son arrogance suggérait qu'il cachait une autre force. Devenu très prudent, il fixa la bête avant lui, secoua la tête et dit: « Je vous prie d'excuser cette scène ridicule devant un confrère. Je ne faisais que plaisanter. Puisque cette bête appartient à ce confrère, comment aurais-je pu la voler? Ce n'était qu'un malentendu. J'espère que vous ne tiendrez pas rigueur de ces petits incidents. »
+Qiu Siping fronça les sourcils. Il percevait que Wang Lin était également au stade avancé de la Formation du Noyau, mais son arrogance suggérait qu'il cachait une autre force. Devenu très prudent, il fixa la bête avant lui, secoua la tête et dit: « Je vous prie d'excuser cette scène ridicule devant un Daoïste. Je ne faisais que plaisanter. Puisque cette bête appartient à ce Daoïste, comment aurais-je pu la voler? Ce n'était qu'un malentendu. J'espère que vous ne tiendrez pas rigueur de ces petits incidents. »
 
 Wang Lin fit un geste calme pour faire revenir le second démon vers lui. Soudain, des éclairs rouges jaillirent de ses yeux tandis que son âme du Royaume Ji se manifestait. Une force de suppression colossale envahit l'espace.
 
@@ -160,19 +160,19 @@ Wang Lin laissa échapper un son de surprise. Cet homme n'était pas mort sous l
 
 Les yeux de Wang Lin brillèrent d'intérêt. Il poursuivit Qiu Siping comme l'éclair et apparut devant lui.
 
-Terrifié, Qiu Siping esquissa un sourire amer: « Confrère, nous n'avons aucune querelle. Pourquoi devez-vous me tuer? » Le regret le rongeait. S'il pouvait manipuler des restrictions antiques, comment pouvait-il être faible? Même au stade avancé de la Formation du Noyau, il possédait une attaque d'âme contre laquelle il ne pouvait se défendre. Sans son étrange trésor, il serait déjà mort. À ses yeux, bien que l'adversaire ne fût pas au stade de l'Âme Naissante, il possédait la puissance d'attaque d'un tel cultivateur.
+Terrifié, Qiu Siping esquissa un sourire amer: « Daoïste, nous n'avons aucune querelle. Pourquoi devez-vous me tuer? » Le regret le rongeait. S'il pouvait manipuler des restrictions antiques, comment pouvait-il être faible? Même au stade avancé de la Formation du Noyau, il possédait une attaque d'âme contre laquelle il ne pouvait se défendre. Sans son étrange trésor, il serait déjà mort. À ses yeux, bien que l'adversaire ne fût pas au stade de l'Âme Naissante, il possédait la puissance d'attaque d'un tel cultivateur.
 
 Mais Wang Lin devait posséder un trésor d'une puissance inouïe pour lancer de tels assauts. L'expression du jeune homme resta froide et moqueuse: « Vous avez envoyé des hommes à plusieurs reprises pour attirer cette femme afin de trouver l'auteur des restrictions antiques. Maintenant que vous l'avez trouvé, pourquoi fuyez-vous? »
 
-Qiu Siping eut un sourire amer: « Confrère, je n'ai aucune intention malveillante, seulement... » Il hésita, puis continua précipitamment: « Seulement, il existe quelque chose de grandement bénéfique pour lequel j'ai besoin d'un expert en restrictions antiques. »
+Qiu Siping eut un sourire amer: « Daoïste, je n'ai aucune intention malveillante, seulement... » Il hésita, puis continua précipitamment: « Seulement, il existe quelque chose de grandement bénéfique pour lequel j'ai besoin d'un expert en restrictions antiques. »
 
 Qiu Siping était un homme astucieux. En entendant Wang Lin, il comprit que son subordonné était en danger, mais il feignit l'ignorance.
 
-Wang Lin resta impassible, ses yeux brillant à nouveau de rouge. Qiu Siping serra les dents et lança d'urgence: « Confrère, nous sommes tous deux au stade avancé de la Formation du Noyau. Si vous m'écoutez, la formation de nos Âmes Naissantes ne sera plus qu'une question de temps! »
+Wang Lin resta impassible, ses yeux brillant à nouveau de rouge. Qiu Siping serra les dents et lança d'urgence: « Daoïste, nous sommes tous deux au stade avancé de la Formation du Noyau. Si vous m'écoutez, la formation de nos Âmes Naissantes ne sera plus qu'une question de temps! »
 
 La lueur rouge dans les yeux de Wang Lin s'estompa. Il fixa Qiu Siping et dit d'un ton sombre: « Ma patience a des limites. Je vous accorde trois phrases pour m'expliquer. Si cela ne m'impressionne pas, ne me reprochez pas mon impitoyabilité. »
 
-Qiu Siping jura intérieurement, mais garda un visage normal. Il prit une grande inspiration: « Je pense que le confrère sait que la différence entre la Formation du Noyau et l'Âme Naissante est immense. Même dans un lieu riche en énergie spirituelle, le taux d'échec reste extrêmement élevé. »
+Qiu Siping jura intérieurement, mais garda un visage normal. Il prit une grande inspiration: « Je pense que le Daoïste sait que la différence entre la Formation du Noyau et l'Âme Naissante est immense. Même dans un lieu riche en énergie spirituelle, le taux d'échec reste extrêmement élevé. »
 
 Wang Lin resta de marbre: « Première phrase! »
 

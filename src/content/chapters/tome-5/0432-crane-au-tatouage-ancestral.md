@@ -46,7 +46,7 @@ Il n'avait que deux choix: agir ou ne pas agir, et s'il agissait, il ne ferait p
 
 À l'intérieur de la lumière blanche, le chaman à huit feuilles ouvrit les yeux, lesquels étaient empreints de terreur.
 
-La paume de Wang Lin percuta la lumière blanche et un bruit assourdissant fit vibrer le quatrième étage. L'impact puissant propagea des ondes de choc qui projetèrent les chamans à six feuilles environnants à plus d'un millier de mètres. Chacun d'eux cracha du sang, et les tatouages sur leurs corps devinrent instables; le moindre faux pas signifierait leur mort.
+La paume de Wang Lin percuta la lumière blanche et un bruit assourdissant fit vibrer le quatrième étage. L'impact puissant propagea des ondes de choc qui projetèrent les chamans à six feuilles environnants à plus de mille pieds. Chacun d'eux cracha du sang, et les tatouages sur leurs corps devinrent instables; le moindre faux pas signifierait leur mort.
 
 L'un des chamans à six feuilles hurla, après avoir craché un jet de sang: « Un cultivateur de la Transformation de l'Âme!!! »
 
@@ -106,11 +106,11 @@ Le vieil homme poussa un rugissement amer et se retourna brusquement, le regard 
 
 Le tatouage qui avait flotté au-dessus de lui pendant sa guérison et qui l'avait aidé à repousser la paume de Wang Lin apparut. Ce tatouage était d'une grande complexité, imprégné d'une aura antique.
 
-Les yeux de Wang Lin restèrent froids alors qu'il s'arrêta à 330 mètres de distance. Au moment où il immobilisa sa course, l'énergie de l'épée percuta le tatouage.
+Les yeux de Wang Lin restèrent froids alors qu'il s'arrêta à mille pieds de distance. Au moment où il immobilisa sa course, l'énergie de l'épée percuta le tatouage.
 
 Boum!
 
-Une explosion retentissante créa une onde de choc de dix mètres de haut qui se propagea rapidement, creusant le sol sur un mètre de profondeur.
+Une explosion retentissante créa une onde de choc de plus de trente pieds de haut qui se propagea rapidement, creusant le sol sur trois pieds de profondeur.
 
 Des craquements sinistres émanèrent du tatouage avant qu'il ne se brise. Les yeux du chaman à huit feuilles s'éteignirent lentement et sa force vitale se dissipa rapidement.
 

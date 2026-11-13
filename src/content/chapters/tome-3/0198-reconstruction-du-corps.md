@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 198 - Body Reconstruction
 slug: reconstruction-du-corps
 ---
-De nombreux cristaux de glace bleus flottaient parmi les nuages, chacun mesurant environ 33 mètres de large. Wang Lin balaya la zone du regard et en décompta un total de 94.
+De nombreux cristaux de glace bleus flottaient parmi les nuages, chacun mesurant environ cent pieds de large. Wang Lin balaya la zone du regard et en décompta un total de 94.
 
 En inspectant la zone, il remarqua que l'un des cristaux était plus petit que les autres. Wang Lin reconnut immédiatement qu'il s'agissait du cristal que le Magicien Démon Céleste avait saisi après avoir ouvert ce passage au prix de tant d'efforts.
 
@@ -48,7 +48,7 @@ Mais après un examen minutieux, on pouvait voir d'innombrables crevasses. Sa pe
 
 À ce moment-là, les yeux de Tu Si brillaient d'un éclat intense, fixant une planète au loin avec un air pensif. Peu après, sa main massive s'étendit légèrement dans un geste de saisie, faisant voler la planète en éclats; elle se changea en une brume grise qui se dissipa parmi les innombrables points lumineux.
 
-De cette brume grise jaillit soudain une lumière dorée. Tu Si tendit la main pour la saisir: la lumière changea aussitôt de direction et vint se poser dans sa paume, où elle se mua en un bloc d'or d'environ trois mètres.
+De cette brume grise jaillit soudain une lumière dorée. Tu Si tendit la main pour la saisir: la lumière changea aussitôt de direction et vint se poser dans sa paume, où elle se mua en un bloc d'or d'environ dix pieds.
 
 L'objet était clairement une sorte de matériau. Il ressemblait à de l'or, sans en être. C'était de la pierre, mais pas tout à fait. Il présentait des stries noires. Tout en le tenant, Tu Si fit un autre geste de saisie de l'autre main et une autre planète explosa.
 

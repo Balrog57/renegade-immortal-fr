@@ -26,9 +26,9 @@ Grâce à ces circonstances, et au fait que Wang Lin dissimulait précieusement 
 
 Durant cette période, le nombre de fois où Wang Lin avait consommé l'eau de source était devenu incalculable. En somme, chaque fois qu'il sentait son corps manquer d'énergie spirituelle, il en buvait quelques grandes gorgées.
 
-Si Sun Dazhu l'avait su, son cœur se serait déchiré de douleur. Il aurait probablement tué ce disciple d'un seul revers de main. Dans toute la communauté des cultivateurs du pays de Zhao, qui d'autre pouvait cultiver ainsi, en s'abreuvant quotidiennement d'une eau de source saturée d'énergie spirituelle? Seuls quelques vieux monstres de sectes pourraient prétendre à de tels privilèges. Ils devraient s'emparer de la grotte où l'énergie spirituelle est la plus dense de toute une montagne pour obtenir des résultats comparables à ceux que l'eau de source apportait à Wang Lin.
+Si Sun Dazhu l'avait su, son cœur se serait déchiré de douleur. Il aurait probablement tué ce disciple d'un seul revers de main. Dans toute la communauté des cultivateurs du Pays Zhao, qui d'autre pouvait cultiver ainsi, en s'abreuvant quotidiennement d'une eau de source saturée d'énergie spirituelle? Seuls quelques vieux monstres de sectes pourraient prétendre à de tels privilèges. Ils devraient s'emparer de la grotte où l'énergie spirituelle est la plus dense de toute une montagne pour obtenir des résultats comparables à ceux que l'eau de source apportait à Wang Lin.
 
-L'énergie spirituelle occupait une place primordiale dans le cœur de tout cultivateur. Bien qu'il n'y eût pas d'abondance d'énergie spirituelle dans le pays de Zhao, celle-ci suffisait aux quelques sectes existantes. Si d'autres cultivateurs apprenaient comment Wang Lin utilisait cette ressource, ils auraient, comme son maître, le cœur brisé de douleur.
+L'énergie spirituelle occupait une place primordiale dans le cœur de tout cultivateur. Bien qu'il n'y eût pas d'abondance d'énergie spirituelle dans le Pays Zhao, celle-ci suffisait aux quelques sectes existantes. Si d'autres cultivateurs apprenaient comment Wang Lin utilisait cette ressource, ils auraient, comme son maître, le cœur brisé de douleur.
 
 Si l'eau de source de Wang Lin était utilisée pour la fabrication de pilules immortelles, elle augmenterait considérablement le taux de réussite. Bien que la confection de pilules dépende principalement des ingrédients, un surplus d'énergie spirituelle pouvait accomplir des miracles.
 
@@ -66,7 +66,7 @@ Une fois propre, il s'allongea sur un rocher. Il se remémora une technique ment
 
 Elle présentait une technique immortelle appelée la Technique d'Attraction. Elle était considérée comme l'une des techniques les plus élémentaires et pouvait être utilisée dès que le premier niveau de la Condensation de Qi était atteint.
 
-La Secte Heng Yue avait unifié le pays de Zhao il y a cinq cents ans. Bien qu'elle ait décliné, elle possédait encore de nombreuses techniques immortelles. Chaque disciple interne pouvait aller à la Bibliothèque des Écritures choisir librement parmi une multitude de méthodes, mais la plupart des aînés conseillaient de choisir la voie de l'épée.
+La Secte Heng Yue avait unifié le Pays Zhao il y a cinq cents ans. Bien qu'elle ait décliné, elle possédait encore de nombreuses techniques immortelles. Chaque disciple interne pouvait aller à la Bibliothèque des Écritures choisir librement parmi une multitude de méthodes, mais la plupart des aînés conseillaient de choisir la voie de l'épée.
 
 La culture de l'épée consistait à concentrer toute sa pratique sur l'arme. Bien que le chemin de la culture soit plus difficile par la suite, cette voie était extrêmement puissante au début et facile à maîtriser. La Technique d'Attraction constituait d'ailleurs la base pour contrôler les épées volantes.
 

@@ -86,7 +86,7 @@ Dans la Mer Xiu Mo, alors qu'il était visé par l'ordre de mise à mort des dix
 
 Lorsqu'il l'avait poursuivi hors de la Mer Xiu Mo, le garçon avait osé laisser une épée volante pour lui tendre une embuscade, parvenant même à le faire saigner. Cela prouvait son incroyable audace.
 
-Si cela s'était arrêté là, il n'aurait pas été si remarquable, mais cet individu avait même emprunté la puissance d'autrui pour forcer le Sanctuaire du Dieu de la Guerre à lui permettre d'entrevoir le Chemin Divin. C'était un véritable stratège.
+Si cela s'était arrêté là, il n'aurait pas été si remarquable, mais cet individu avait même emprunté la puissance d'autrui pour forcer le Temple Zhan Shen à lui permettre d'entrevoir le Chemin Divin. C'était un véritable stratège.
 
 À l'instant même, lorsque Zhao Chuanliang l'avait attaqué, il n'avait pas sourcillé. Il n'avait montré aucune trace de panique, ce qui témoignait de son calme et de sa détermination.
 

@@ -58,7 +58,7 @@ Peu de temps s'était écoulé depuis que Wang Lin avait frappé pour que la fla
 
 « Disparais! » lança froidement Wang Lin. Il passa à côté de l'enfant de flammes et s'apprêta à partir.
 
-« Ne pars pas... » L'enfant agita sa main droite et la terre devant Wang Lin se mit à gronder. Le sol se souleva soudainement, érigeant un mur de 330 mètres de haut pour lui barrer la route.
+« Ne pars pas... » L'enfant agita sa main droite et la terre devant Wang Lin se mit à gronder. Le sol se souleva soudainement, érigeant un mur de 1 000 pieds de haut pour lui barrer la route.
 
 Wang Lin fronça les sourcils. Son corps disparut brusquement et, lorsqu'il réapparut, il se trouvait à 5 000 kilomètres de la terre brûlée.
 

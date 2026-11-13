@@ -46,7 +46,7 @@ Comme lui, de nombreux disciples fuyaient la cohue, dont une jeune femme nommée
 
 Wang Lin eut un petit rire. Il secoua la tête et répondit: « Ce n'est pas tout à fait vrai. Je vois bien que la plupart d'entre eux cultivent également avec acharnement. »
 
-La jeune femme Zhou regarda les nuages et soupira: « Ne te sous-estime pas, jeune frère Wang. Durant ces quatre années de retraite, presque tous les disciples intérieurs sortaient très souvent, mais je t'ai rarement vu. La culture est une activité bien ennuyeuse... Pour être honnête, je t'admire. Atteindre le 3ème niveau en quatre ans demande une immense persévérance! »
+La jeune femme Zhou regarda les nuages et soupira: « Ne te sous-estime pas, Junior frère Wang. Durant ces quatre années de retraite, presque tous les disciples intérieurs sortaient très souvent, mais je t'ai rarement vu. La culture est une activité bien ennuyeuse... Pour être honnête, je t'admire. Atteindre le 3ème niveau en quatre ans demande une immense persévérance! »
 
 Wang Lin se frotta le nez en souriant: « Senior sœur Zhou, n'avez-vous pas vous aussi atteint le 3ème niveau? »
 

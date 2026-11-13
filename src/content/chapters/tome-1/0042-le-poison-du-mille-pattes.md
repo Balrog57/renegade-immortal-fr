@@ -40,7 +40,7 @@ Wang Zhuo lança un sourire glacial à Wang Lin, puis cessa de l'importuner. Bie
 
 La jeune femme nommée Zhou fronça les sourcils. Elle discuta encore un moment avec Wang Lin, puis s'en alla.
 
-Observant la zone désormais déserte, Wang Lin se leva et marcha vers le mille-pattes. Il s'arrêta à trente-trois mètres de la créature et examina attentivement la bête spirituelle.
+Observant la zone désormais déserte, Wang Lin se leva et marcha vers le mille-pattes. Il s'arrêta à cent pieds de la créature et examina attentivement la bête spirituelle.
 
 En y regardant de plus près, ce mille-pattes de mille pieds était un monstre colossal. Son corps était composé de multiples anneaux, chacun muni d'une paire de pattes d'un noir profond, serrées comme autant de lames tranchantes. Son corps segmenté comme un bambou laissait transparaître de faibles taches de lumière noire, et sa tête arborait deux énormes pinces menaçantes.
 

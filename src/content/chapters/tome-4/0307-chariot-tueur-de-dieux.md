@@ -48,7 +48,7 @@ Il n'était pas exagéré de parler d'objets monstrueux, car ils semblaient reco
 
 Ce n'étaient là que les parties supérieures de ces objets. Leurs bases ressemblaient à de grands chars de guerre utilisés par les mortels, dotés de quatre grandes roues.
 
-Ces chars mesuraient environ 33 mètres de large. Avec les trois unités au centre, ils occupaient presque tout l'espace de la pièce.
+Ces chars mesuraient environ cent pieds de large. Avec les trois unités au centre, ils occupaient presque tout l'espace de la pièce.
 
 Lorsque Wang Lin entra dans la salle, trois âmes de bêtes apparurent au-dessus de leurs chars respectifs. Les créatures semblaient plus féroces encore que leurs montures et se mirent immédiatement à rugir face à lui.
 
@@ -64,15 +64,15 @@ Une fois apparues, leurs yeux rouges se fixèrent sur Wang Lin avec hostilité. 
 
 Le regard de Wang Lin resta serein alors qu'il reculait d'un pas.
 
-Mais au moment où les trois âmes de bêtes bondirent en avant, d'innombrables chaînes aussi épaisses que des bras apparurent sur elles. Ces chaînes traversèrent même l'essence des âmes et se mirent à briller dès qu'elles s'approchèrent à moins d'un mètre de Wang Lin.
+Mais au moment où les trois âmes de bêtes bondirent en avant, d'innombrables chaînes aussi épaisses que des bras apparurent sur elles. Ces chaînes traversèrent même l'essence des âmes et se mirent à briller dès qu'elles s'approchèrent à moins de trois pieds de Wang Lin.
 
 Les trois âmes de bêtes poussèrent soudain des rugissements de douleur, leurs corps étant violemment ramenés en arrière par les chaînes pour être immobilisés sur les chars.
 
-Seule la plus grande âme de bête au centre avait réussi à progresser de 33 centimètres avant d'être brutalement rappelée.
+Seule la plus grande âme de bête au centre avait réussi à progresser de un pied avant d'être brutalement rappelée.
 
 Cependant, les trois âmes de bêtes refusaient de céder et commencèrent à se débattre. La grotte trembla comme si elle allait s'effondrer à tout instant.
 
-Wang Lin se calma. Bien qu'il ignorât le nom de ces âmes de bêtes, il avait appris comment les maîtriser grâce au morceau de métal. Il savait également que chaque chariot contenait une âme de bête et que les chaînes empêchaient ces dernières de s'éloigner de plus de 10 mètres de leur monture.
+Wang Lin se calma. Bien qu'il ignorât le nom de ces âmes de bêtes, il avait appris comment les maîtriser grâce au morceau de métal. Il savait également que chaque chariot contenait une âme de bête et que les chaînes empêchaient ces dernières de s'éloigner de plus de trente pieds de leur monture.
 
 Observant la lutte des trois âmes, Wang Lin enchaîna rapidement les sceaux en suivant les informations du morceau de métal. À chaque sceau terminé, celui-ci se transformait promptement en un anneau noir.
 

@@ -30,7 +30,7 @@ La Mer de Conscience de Wang Lin était un océan doré, mais la majeure partie 
 
 Une petite épée verte de trois pouces se tenait là, solitaire. Ces épines lumineuses émanaient de l'épée. En y regardant de plus près, on pouvait voir de profondes fissures sur la lame.
 
-De l'autre côté de la Mer de Conscience se trouvait un espace blanc. À l'intérieur flottait une perle de pierre grise. Le brouillard gris n'osait s'approcher à moins de 33 mètres d'elle.
+De l'autre côté de la Mer de Conscience se trouvait un espace blanc. À l'intérieur flottait une perle de pierre grise. Le brouillard gris n'osait s'approcher à moins de cent pieds d'elle.
 
 Dans la Mer de Conscience de Wang Lin, hormis ces deux points, tout le reste était noyé dans le brouillard gris.
 

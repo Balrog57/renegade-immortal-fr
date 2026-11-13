@@ -54,9 +54,9 @@ Huang Long plissa les yeux vers Wang Lin: « Wang Lin, la technique que tu as ut
 
 Wang Lin secoua la tête avec un sourire: « Chef de secte, la technique utilisée par ce disciple est clairement la technique d'attraction. Quant à la Main de Capture du Dragon, je n'en ai jamais entendu parler. »
 
-Huang Long loua intérieurement l'intelligence de Wang Lin. Il tourna son regard vers les trois anciens de la Secte Xuan Dao et éclata de rire: « Mon ami Ouyang, je peux vous assurer que cette technique n'est pas la "Main de Capture du Dragon", mais la technique la plus élémentaire de ma Secte Heng Yue: la technique d'attraction. Vos disciples sont incapables de parer la technique la plus basique de notre secte, et vous inventez ce nom de "Main de Capture du Dragon" pour justifier votre échec! Quelle absurdité! »
+Huang Long loua intérieurement l'intelligence de Wang Lin. Il tourna son regard vers les trois anciens de la Secte Xuan Dao et éclata de rire: « Daoïste Ouyang, je peux vous assurer que cette technique n'est pas la "Main de Capture du Dragon", mais la technique la plus élémentaire de ma Secte Heng Yue: la technique d'attraction. Vos disciples sont incapables de parer la technique la plus basique de notre secte, et vous inventez ce nom de "Main de Capture du Dragon" pour justifier votre échec! Quelle absurdité! »
 
-L'Ancien Ouyang était profondément embarrassé, mais en apparence, il ne pouvait reculer. Il répliqua: « Mon ami Huang Long, nul besoin de le nier. Hmph, je l'ai déjà perçue! C'est bien la Main de Capture du Dragon! »
+L'Ancien Ouyang était profondément embarrassé, mais en apparence, il ne pouvait reculer. Il répliqua: « Daoïste Huang Long, nul besoin de le nier. Hmph, je l'ai déjà perçue! C'est bien la Main de Capture du Dragon! »
 
 Dao Xu laissa échapper un rire et dit au chef de secte Huang Long: « Chef de secte, je trouve que ce nom est excellent. Et si nous changions le nom de la technique d'attraction pour celui de la Main de Capture du Dragon? Ce serait alors un nom parfaitement approprié! »
 

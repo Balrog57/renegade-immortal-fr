@@ -170,7 +170,7 @@ Il s'agissait de Sima Yunnan, le chef de la Secte Hao Ran. À son arrivée, il �
 
 Il était accompagné de Xu Li, vêtu d'une robe vert clair. En raison de son rang, ce dernier ne prit pas la parole, se contentant de joindre les mains avec un sourire.
 
-Liu Fei, le chef de la secte extérieure, rit et fit quelques pas en avant. Il joignit les mains et dit: « Cher cultivateur Sima, nous ne nous sommes pas vus depuis plus de dix ans. Sans l'invitation lancée aujourd'hui par ma secte, il aurait été bien difficile de vous faire venir ici. »
+Liu Fei, le chef de la secte extérieure, rit et fit quelques pas en avant. Il joignit les mains et dit: « Cher Daoïste Sima, nous ne nous sommes pas vus depuis plus de dix ans. Sans l'invitation lancée aujourd'hui par ma secte, il aurait été bien difficile de vous faire venir ici. »
 
 Song Qing, le chef de la secte intérieure, caressa sa barbe: « Vieux Sima, tu m'avais promis un fruit Zhu millénaire. L'as-tu apporté aujourd'hui? »
 

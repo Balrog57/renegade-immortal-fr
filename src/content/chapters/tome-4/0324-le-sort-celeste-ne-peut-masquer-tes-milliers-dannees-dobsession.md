@@ -90,7 +90,7 @@ La tristesse dans les yeux de la femme s'accentua. Elle poussa un soupir et poin
 
 Le vieil homme eut un reniflement méprisant tandis que sa main gauche tendait vers l'arme.
 
-La femme soupira et porta la main à son front. La dernière parcelle d'énergie spirituelle céleste de son corps fut utilisée pour ériger un bouclier d'une trentaine de mètres autour d'elle afin de repousser le vieil homme.
+La femme soupira et porta la main à son front. La dernière parcelle d'énergie spirituelle céleste de son corps fut utilisée pour ériger un bouclier d'une centaine de pieds autour d'elle afin de repousser le vieil homme.
 
 Ce dernier poussa un rugissement furieux et abattit violemment l'épée céleste qu'il tenait contre le bouclier. L'écran trembla, mais ne se brisa pas.
 

@@ -126,7 +126,7 @@ L'homme nommé Li fit quelques pas en arrière. Il rangea son trésor et adopta 
 
 Qiu Siping fut stupéfait. Il demanda: « Senior, vous me connaissez? »
 
-Au même moment, un jeune homme aux cheveux blancs s'approcha lentement. Bien que sa démarche fût lente, en un clin d'œil, il apparut à une trentaine de mètres de l'assemblée.
+Au même moment, un jeune homme aux cheveux blancs s'approcha lentement. Bien que sa démarche fût lente, en un clin d'œil, il apparut à plus de cent pieds de l'assemblée.
 
 Qiu Siping le fixa, bouche bée. Il prit une grande inspiration et s'exclama: « C’est vous! »
 

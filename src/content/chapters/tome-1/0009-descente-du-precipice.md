@@ -10,11 +10,11 @@ Pendant les jours suivants, Wang Lin se nourrissait des oiseaux aspirés dans la
 
 Ce jour-là, il aspergea la rosée accumulée ces derniers jours sur un morceau de tissu et enveloppa soigneusement la perle à l'intérieur. Il la suspendit à son cou et tira dessus à plusieurs reprises; une fois certain qu'elle ne risquait pas de tomber, il se rendit à l'entrée de la grotte au moment précis où la force d'aspiration cessait. Il déchira la plupart de ses vêtements pour les lier entre eux; il attacha une extrémité à un rocher et l'autre autour de sa taille, puis commença lentement sa descente.
 
-Wang Lin avait descendu environ dix-sept à vingt mètres lorsqu'il glissa. Son corps tomba brusquement, mais heureusement, la résistance de ses vêtements lui permit de se balancer vers la paroi et de saisir une branche qui dépassait; à cet instant, le tissu se rompit en son milieu et la partie attachée à sa taille se balança dans le vide.
+Wang Lin avait descendu environ cinquante à soixante pieds lorsqu'il glissa. Son corps tomba brusquement, mais heureusement, la résistance de ses vêtements lui permit de se balancer vers la paroi et de saisir une branche qui dépassait; à cet instant, le tissu se rompit en son milieu et la partie attachée à sa taille se balança dans le vide.
 
-Une sueur froide perlait sur le front de Wang Lin. En regardant en bas, il estima qu'il se trouvait encore à soixante-six mètres de hauteur. D'une main, il agrippa une branche et, de l'autre, il saisit le tissu pour l'attacher fermement à la branche. Ce n'est qu'alors qu'il put enfin souffler.
+Une sueur froide perlait sur le front de Wang Lin. En regardant en bas, il estima qu'il se trouvait encore à deux cents pieds de hauteur. D'une main, il agrippa une branche et, de l'autre, il saisit le tissu pour l'attacher fermement à la branche. Ce n'est qu'alors qu'il put enfin souffler.
 
-Il se déplaça avec prudence et, après un long moment, se retrouva de nouveau près de la paroi du précipice, puis reprit sa descente. Lorsqu'il fut à dix mètres du sol, le tissu atteignit sa limite d'étirement; Wang Lin sauta sans l'ombre d'une hésitation.
+Il se déplaça avec prudence et, après un long moment, se retrouva de nouveau près de la paroi du précipice, puis reprit sa descente. Lorsqu'il fut à quelques dizaines de pieds du sol, le tissu atteignit sa limite d'étirement; Wang Lin sauta sans l'ombre d'une hésitation.
 
 Ses vêtements ne purent supporter son poids et se rompirent de nouveau, mais ils aidèrent tout de même à amortir la chute. Wang Lin sentit le vent cingler son visage tandis qu'il descendait, et les branches qui se brisaient sous lui ralentissaient sa chute. Il parvint non sans mal à positionner son corps pour l'atterrissage, les orteils pointés vers le bas, et roula en boule dès qu'il toucha le sol.
 

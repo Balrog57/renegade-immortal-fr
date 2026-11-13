@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 485 - Celestial Spell
 slug: sortilege-celeste
 ---
-L'âme originelle de la femme fut libérée du sceau dans lequel elle était piégée au sein du drapeau des âmes. Un rayon de lumière violette jaillit de la bouche de Wang Lin et se mua en la silhouette de la femme, à une centaine de mètres de là.
+L'âme originelle de la femme fut libérée du sceau dans lequel elle était piégée au sein du drapeau des âmes. Un rayon de lumière violette jaillit de la bouche de Wang Lin et se mua en la silhouette de la femme, à plusieurs centaines de pieds de là.
 
 Dès son apparition, elle poussa un rugissement furieux et se jeta sur Wang Lin.
 

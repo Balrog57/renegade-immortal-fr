@@ -62,7 +62,7 @@ Wang Lin le regarda et frappa son sac de rangement. Un morceau de peau de dragon
 
 Wang Lin resta calme et ne répondit pas directement. Au lieu de cela, il demanda: « Combien faut-il pour obtenir le Four à Pilules des Cent Bêtes? »
 
-L'homme baissa la tête pour calculer un instant avant de lever les yeux vers Wang Lin: « Si le dragon mesure au moins 3,3 kilomètres de long, alors l'intégralité de la peau suffira pour l'échange. »
+L'homme baissa la tête pour calculer un instant avant de lever les yeux vers Wang Lin: « Si le dragon mesure au moins dix mille pieds de long, alors l'intégralité de la peau suffira pour l'échange. »
 
 Sans prononcer un mot, Wang Lin frappa à nouveau son sac de rangement et la peau de dragon s'éleva pour former une petite montagne devant l'homme d'âge moyen. Sans même lui accorder un regard, Wang Lin saisit le fourneau et descendit les escaliers.
 

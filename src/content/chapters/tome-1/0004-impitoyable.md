@@ -38,7 +38,7 @@ Le soleil se leva le troisième jour. Au loin, Wang Lin distinguait à peine la 
 
 Wang Lin laissa échapper un petit rire amer. Son corps bascula sur les marches et sa conscience s'éteignit complètement.
 
-L'homme d'âge moyen vêtu de noir, vu trois jours plus tôt, se tenait au sommet de la montagne. Il contemplait Wang Lin à moins de trente-trois mètres, le regard impitoyable.
+L'homme d'âge moyen vêtu de noir, vu trois jours plus tôt, se tenait au sommet de la montagne. Il contemplait Wang Lin à moins de cent pieds, le regard impitoyable.
 
 Quelques disciples de la Secte Heng Yue descendirent rapidement de la cime et, chemin faisant, emmenèrent tous les jeunes qui persévéraient encore jusqu'en haut de la montagne, où on leur fit tous avaler des médicaments.
 
@@ -56,21 +56,21 @@ L'homme dit d'un air impatient: « C'est le dernier test. Si vous parvenez à en
 
 Tout ce que Wang Lin percevait était un bâtiment extrêmement banal. La porte d'entrée était ouverte. En regardant à l'intérieur, il pouvait apercevoir des épées anciennes de différentes longueurs.
 
-Un à un, les jeunes s'avancèrent vers la demeure. Le premier qui approcha atteignit la marque des 16,5 mètres. Son visage devint rouge alors qu'il luttait pour progresser, mais une force invisible le repoussa violemment.
+Un à un, les jeunes s'avancèrent vers la demeure. Le premier qui approcha atteignit la marque des cinquante pieds. Son visage devint rouge alors qu'il luttait pour progresser, mais une force invisible le repoussa violemment.
 
 « Non qualifié! Suivant! » ordonna l'homme en blanc.
 
-Wang Lin était le septième de la file. Les six précédents avaient tous subi le même sort, expulsés par cette force invisible à 16,5 mètres de la demeure. Il sourit amèrement et, puisant dans le dernier reste d'espoir de son cœur, fit un pas en avant.
+Wang Lin était le septième de la file. Les six précédents avaient tous subi le même sort, expulsés par cette force invisible à cinquante pieds de la demeure. Il sourit amèrement et, puisant dans le dernier reste d'espoir de son cœur, fit un pas en avant.
 
-Lorsqu'il approcha de la limite des 16,5 mètres, Wang Lin parvint à avancer sans effort. Son cœur battait la chamade sous l'effet de l'anticipation. Il s'approcha encore de 3,3 mètres. Il ne ressentait toujours aucun inconfort.
+Lorsqu'il approcha de la limite des cinquante pieds, Wang Lin parvint à avancer sans effort. Son cœur battait la chamade sous l'effet de l'anticipation. Il s'approcha encore de dix pieds. Il ne ressentait toujours aucun inconfort.
 
 L'homme en blanc laissa échapper un « Oh! » de surprise. Ses yeux brillèrent et son visage trahit un certain intérêt. Il dit doucement: « N'hésite pas, continue. Marche vers la demeure de l'esprit de l'épée. Si l'esprit te reconnaît, tu seras accepté comme véritable disciple, même si tu as échoué aux deux tests précédents. »
 
 Les dix autres adolescents affichaient des visages empreints d'envie. Ils étaient profondément jaloux de Wang Lin.
 
-Wang Lin était extrêmement tendu. Le regard que ses parents lui avaient adressé lui revint en mémoire alors qu'il s'avançait encore de 3,3 mètres vers la porte. Il ne restait plus que 9,9 mètres. Wang Lin fit un pas de plus.
+Wang Lin était extrêmement tendu. Le regard que ses parents lui avaient adressé lui revint en mémoire alors qu'il s'avançait encore de dix pieds vers la porte. Il ne restait plus que trente pieds. Wang Lin fit un pas de plus.
 
-Soudain, il sentit une force colossale se précipiter vers lui. Wang Lin perdit le contrôle de son corps et fut projeté à plus de trente-trois mètres de distance.
+Soudain, il sentit une force colossale se précipiter vers lui. Wang Lin perdit le contrôle de son corps et fut projeté à plus de cent pieds de distance.
 
 Les autres jeunes le regardèrent avec des expressions moqueuses. Ils pensaient que Wang Lin n'était finalement pas différent d'eux: sans aucune chance.
 

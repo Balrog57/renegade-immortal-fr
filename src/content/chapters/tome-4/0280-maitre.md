@@ -70,13 +70,13 @@ Les mains derrière le dos et d'une voix parfaitement neutre, Wang Lin demanda l
 
 Le second disciple répondit promptement: « Maître, deux d'entre eux viennent d'arriver. »
 
-Wang Lin acquiesça doucement et dit: « Sortez-les, et je verrai si vous avez progressé dans votre technique. » Wang Lin avait extrait une description très détaillée de la méthode des souvenirs du cultivateur. De son point de vue, cette technique, nommée Tactique du Cœur de Glace, reposait sur des techniques propres aux cultivateurs de Xue Yu et s'avérait fort ingénieuse.
+Wang Lin acquiesça doucement et dit: « Sortez-les, et je verrai si vous avez progressé dans votre technique. » Wang Lin avait extrait une description très détaillée de la méthode des souvenirs du cultivateur. De son point de vue, cette technique, nommée Formule de la Glace Pure, reposait sur des techniques propres aux cultivateurs de Xue Yu et s'avérait fort ingénieuse.
 
 En plus de l'énergie spirituelle, les cultivateurs de Xue Yu absorbaient également l'énergie froide de la neige lors de leur pratique. Cette énergie était indispensable car elle transformait peu à peu leur constitution et leur permettait de quitter leur corps pour former des géants de glace lorsqu'ils atteindraient le stade de l'Âme Naissante.
 
 Cependant, cette technique comportait plusieurs niveaux et n'était pas facile à maîtriser. Le cultivateur que Wang Lin avait capturé n'en maîtrisait que les quatre premiers, et ce uniquement parce que son oncle les lui avait transmis en secret.
 
-Le second disciple hocha rapidement la tête et sortit de son sac de rangement deux sculptures de glace d'environ dix mètres de haut. Les deux sculptures représentaient une créature au corps d'oiseau et à la tête humaine, d'apparence très féroce.
+Le second disciple hocha rapidement la tête et sortit de son sac de rangement deux sculptures de glace d'environ trente pieds de haut. Les deux sculptures représentaient une créature au corps d'oiseau et à la tête humaine, d'apparence très féroce.
 
 Après un an de voyage, Wang Lin comprit qu'il s'agissait d'une sculpture représentant l'une des créatures gardiennes de Xue Yu: la fée des neiges.
 
@@ -112,7 +112,7 @@ Il était évident que la production de cette sculpture de glace l'épuisait.
 
 Une fois la sculpture terminée, le second disciple prit une profonde inspiration, s'agenouilla devant l'œuvre et commença à murmurer une prière. Puis il se redressa, serra les dents et posa la main sur le point de convergence des neuf veines.
 
-Dans un fracas sourd, le second disciple cracha du sang et fut projeté à plus de trente mètres de là. Quant à la sculpture de glace, les neuf veines s'agitèrent comme des serpents. Puis, deux d'entre elles se touchèrent et l'œuvre explosa en mille éclats de glace.
+Dans un fracas sourd, le second disciple cracha du sang et fut projeté à plus de cent pieds de là. Quant à la sculpture de glace, les neuf veines s'agitèrent comme des serpents. Puis, deux d'entre elles se touchèrent et l'œuvre explosa en mille éclats de glace.
 
 Le visage du disciple était livide; il dit honteusement: « Le disciple a encore échoué... »
 

@@ -72,7 +72,7 @@ Wang Lin ne répondit pas, mais son regard devint glacial. Le cœur de Xu Yun tr
 
 Liu Wei, déjà timide, ne put plus contenir ses émotions et se mit à pleurer. Elle était pourtant très talentueuse; elle avait atteint le stade intermédiaire de la Formation du Noyau relativement vite. Puis, lors d'une compétition entre disciples extérieurs, elle avait serré les dents et fini par l'emporter, devenant ainsi une disciple interne. Mais après son entrée dans la secte interne, la réalité fut bien différente de ses attentes. La secte interne était un lieu où les forts dévoraient les faibles; cela n'avait rien à voir avec l'image qu'elle se faisait d'une secte de culture.
 
-Wang Lin fronça les sourcils. Il agita ses manches, prêt à les expulser, quand il leva soudainement la tête pour fixer le ciel. Une silhouette verte, semblable à une fée, descendit des cieux et atterrit à trente-trois mètres de lui.
+Wang Lin fronça les sourcils. Il agita ses manches, prêt à les expulser, quand il leva soudainement la tête pour fixer le ciel. Une silhouette verte, semblable à une fée, descendit des cieux et atterrit à cent pieds de lui.
 
 — Liu Mei! En voyant cette femme, Wang Lin fronça encore plus les sourcils.
 
@@ -107,7 +107,7 @@ En s'éloignant, elle songea: *« Wang Lin... Mon maître m'a ordonné de laisse
 Wang Lin continuait de froncer les sourcils en regardant le dos de Liu Mei. Bien qu'elle semblât avoir signalé un problème, elle laissait aussi derrière elle d'innombrables incertitudes. Il marmonna pour lui-même:
 — Tout cela est étrange. J'ai ce sentiment bizarre à propos de Liu Mei. Étrange...
 
-Peu après, il se tourna vers Xu Yun et Liu Wei. D'un geste de la main, il les déplaça à 330 mètres de sa grotte. Mais alors qu'il les écartait, son cœur se mit à trembler comme s'il venait de se souvenir de quelque chose. Sa main droite s'étendit pour ramener les deux femmes vers lui. Leurs visages, bien qu'inconscients, étaient très différents.
+Peu après, il se tourna vers Xu Yun et Liu Wei. D'un geste de la main, il les déplaça à mille pieds de sa grotte. Mais alors qu'il les écartait, son cœur se mit à trembler comme s'il venait de se souvenir de quelque chose. Sa main droite s'étendit pour ramener les deux femmes vers lui. Leurs visages, bien qu'inconscients, étaient très différents.
 
 L'expression de Xu Yun était auparavant forte et déterminée; elle parlait au nom de l'autre fille. Mais maintenant qu'elle dormait, son visage trahissait une certaine faiblesse et une impuissance. Quant à la seconde femme, Wang Lin avait d'abord pensé qu'elle était très faible. Pourtant, son expression actuelle était empreinte de détermination et d'impitoyabilité. C'était clairement l'une de ces personnes qui paraissent fragiles mais qui sont, en réalité, extrêmement fortes intérieurement.
 

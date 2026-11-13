@@ -176,7 +176,7 @@ Le jeune homme agenouillé possédait un visage aussi blanc et lisse que le jade
 
 « Le même jour, les 27 membres de la famille Teng de la Secte Yuan Kui sont tous morts. »
 
-« Hier... à la Secte Jie Mie, le groupe de membres de notre famille que nous avions envoyé il y a un mois pour une épreuve d'entraînement a été décimé. Tous les 345 membres de la famille Teng sont morts. Leur sang a coulé comme une rivière. »
+« Hier... à la Secte Ji Mie, le groupe de membres de notre famille que nous avions envoyé il y a un mois pour une épreuve d'entraînement a été décimé. Tous les 345 membres de la famille Teng sont morts. Leur sang a coulé comme une rivière. »
 
 À mesure qu'il parlait, la respiration des personnes présentes devint plus saccadée. Chaque chiffre représentait la vie d'un membre de la lignée Teng.
 
@@ -244,13 +244,13 @@ Après avoir mûri sa pensée, il repartit, le visage sombre. À son retour, il 
 
 Pour Wang Lin, ces quatre jours de carnage et ce millier de morts n'étaient qu'un premier pas. Comparé aux plus de dix mille membres de la lignée de la famille Teng, ce n'était qu'une petite partie.
 
-Wang Lin se tenait sur sa bête moustique, et derrière lui traînaient près de mille corps. Ces cadavres couvraient une zone de plusieurs centaines de mètres et, lorsqu'il survolait une région, ils projetaient une ombre immense sur la terre en dessous.
+Wang Lin se tenait sur sa bête moustique, et derrière lui traînaient près de mille corps. Ces cadavres couvraient une zone de plusieurs milliers de pieds et, lorsqu'il survolait une région, ils projetaient une ombre immense sur la terre en dessous.
 
 Ses yeux restaient glacials, comme une glace qui ne fondrait jamais, même après dix mille ans. Sa prochaine destination était la Secte He Huan.
 
 La Secte He Huan était devenue la première secte démoniaque de Zhao. Elle possédait de vastes ressources et des milliers de disciples. On comptait au total 481 membres de la famille Teng au sein de cette secte. Ces individus n'étaient pas tous des disciples de la secte, mais ils s'y trouvaient actuellement.
 
-Il y a quelques jours, Wang Lin avait tué plus de 300 membres de la famille Teng à la Secte Jie Mie, tous au stade de Condensation de Qi. Wang Lin avait interrogé les survivants et découvert que l'élite de la famille Teng avait été envoyée en entraînement. Il semblait que les membres présents à la Secte He Huan fussent également là pour s'exercer.
+Il y a quelques jours, Wang Lin avait tué plus de 300 membres de la famille Teng à la Secte Ji Mie, tous au stade de Condensation de Qi. Wang Lin avait interrogé les survivants et découvert que l'élite de la famille Teng avait été envoyée en entraînement. Il semblait que les membres présents à la Secte He Huan fussent également là pour s'exercer.
 
 Un sourire cruel étira les lèvres de Wang Lin alors qu'il volait lentement vers la Secte He Huan.
 

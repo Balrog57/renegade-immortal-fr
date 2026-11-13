@@ -50,7 +50,7 @@ En contemplant les rangées infinies de bâtiments de pierre spirituelle qui sem
 
 La formation de protection de la secte avait été facilement détruite. Les habitants de la Secte Yun Tian étaient plongés dans le désespoir.
 
-Zhan Bai fit un pas et pénétra dans la secte. Il était entouré d'un mur d'insectes s'étendant sur plusieurs centaines de mètres autour de lui. Certaines disciples féminines, dont le niveau de culture était faible, étaient si terrifiées qu'elles se mirent à pleurer.
+Zhan Bai fit un pas et pénétra dans la secte. Il était entouré d'un mur d'insectes s'étendant sur plusieurs milliers de pieds autour de lui. Certaines disciples féminines, dont le niveau de culture était faible, étaient si terrifiées qu'elles se mirent à pleurer.
 
 Zhan Bai tendit la main. Plusieurs disciples furent saisis par une force invisible. Un groupe d'insectes se détacha de l'essaim et bondit sur elles. Des cris déchirants résonnèrent rapidement alors que les disciples étaient submergés par les insectes. Ces derniers rampaient partout sur elles, certains s'introduisant même dans leurs corps.
 

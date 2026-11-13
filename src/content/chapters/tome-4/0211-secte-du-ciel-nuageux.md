@@ -58,7 +58,7 @@ En entendant cela, un éclat froid passa dans les yeux de l'homme. Par crainte d
 
 Les yeux de la jeune fille s'écarquillèrent en apercevant un jeune homme devant eux et elle rit: « Grand frère, regarde! Cet homme porte des vêtements vraiment bizarres. »
 
-L'homme leva les yeux et vit qu'à six cents mètres devant eux, un jeune homme vêtu d'habits très grossièrement confectionnés marchait lentement vers la secte. Il faut dire que tous ceux qui venaient pour le recrutement étaient soit des cultivateurs indépendants, soit issus de familles de culture. Il était impossible pour des mortels d'arriver jusqu'ici.
+L'homme leva les yeux et vit qu'à deux mille pieds devant eux, un jeune homme vêtu d'habits très grossièrement confectionnés marchait lentement vers la secte. Il faut dire que tous ceux qui venaient pour le recrutement étaient soit des cultivateurs indépendants, soit issus de familles de culture. Il était impossible pour des mortels d'arriver jusqu'ici.
 
 Il était donc très rare de voir quelqu'un habillé ainsi; c'était manifestement l'apparence d'un simple villageois de montagne.
 
@@ -132,7 +132,7 @@ Peu de temps après, un homme d'âge moyen vêtu d'une robe blanche, dont les ma
 
 Lorsqu'il eut fini de parler, aucune des milliers de personnes sur l'estrade ne bougea. Toutes levèrent les yeux vers lui avec détermination. Parmi elles, quelques cultivateurs de la Formation du Noyau savaient que ces paroles s'adressaient particulièrement à eux.
 
-Après un moment d'attente, l'homme agita sa main droite et une décharge de force jaillit soudainement du centre de l'estrade, repoussant les personnes à proximité pour dégager un espace circulaire d'une trentaine de mètres de diamètre.
+Après un moment d'attente, l'homme agita sa main droite et une décharge de force jaillit soudainement du centre de l'estrade, repoussant les personnes à proximité pour dégager un espace circulaire de plus de cent pieds de diamètre.
 
 Simultanément, une colonne de brume sombre s'éleva du sol. Elle était majestueuse. Cette épaisse colonne de ténèbres semblait être une main gigantesque soutenant la voûte céleste. En s'élevant, elle s'étira si haut vers le ciel que, depuis le bas, on ne pouvait en percevoir le sommet.
 

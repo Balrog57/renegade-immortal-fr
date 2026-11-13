@@ -74,7 +74,7 @@ Ils portaient tous des robes noires et leurs visages étaient dissimulés. L'ind
 
 « Un autre cultivateur de la Transformation de l'Âme! » Le cœur de Wang Lin se serra d'amertume.
 
-À ce moment précis, l'homme d'âge moyen arriva. Il s'arrêta à 330 mètres de Wang Lin et déclara: « Inutile de fuir, Zeng Niu. Aujourd'hui est le jour de ta mort! »
+À ce moment précis, l'homme d'âge moyen arriva. Il s'arrêta à mille pieds de Wang Lin et déclara: « Inutile de fuir, Zeng Niu. Aujourd'hui est le jour de ta mort! »
 
 Sur ces mots, il leva la main droite et pointa Wang Lin du doigt. Un tourbillon surgit soudainement et chargea vers lui.
 

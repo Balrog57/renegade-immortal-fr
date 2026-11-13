@@ -74,7 +74,7 @@ L'expression de Wang Lin demeura impassible alors qu'il agita ses manches pour e
 
 La zone fut soudainement plongée dans un brouillard noir dégageant une aura lugubre.
 
-Une fois cela accompli, Wang Lin réfléchit un instant, puis frappa son front de la paume et cracha un drapeau d'une dizaine de mètres de long. Bien que l'Étendard de l'Âme ait perdu la plupart de ses fragments, il restait plusieurs âmes primaires. Wang Lin agita le drapeau, libérant ces âmes dans le brouillard noir pour renforcer la protection. Il libéra chaque âme primaire à l'exception du fragment d'âme du Qilin, car cela n'aurait pas été pratique.
+Une fois cela accompli, Wang Lin réfléchit un instant, puis frappa son front de la paume et cracha un drapeau de trente pieds de long. Bien que l'Étendard de l'Âme ait perdu la plupart de ses fragments, il restait plusieurs âmes primaires. Wang Lin agita le drapeau, libérant ces âmes dans le brouillard noir pour renforcer la protection. Il libéra chaque âme primaire à l'exception du fragment d'âme du Qilin, car cela n'aurait pas été pratique.
 
 Après ces préparatifs, Wang Lin prit une profonde inspiration, puis d'un geste de la main, un jade apparut!
 
@@ -90,7 +90,7 @@ C'était devenu une tradition.
 
 Mais cet homme, venu de la planète Tian Yun et étant le disciple de Tian Yunzi, ne quittait pas la tour depuis un mois entier. La zone environnante était également enveloppée d'un brouillard noir, empêchant quiconque d'oser s'en approcher.
 
-Certains cultivateurs de la Transformation de l'Âme tentèrent de pénétrer dans le brouillard pour voir ce qui s'y passait, mais après n'avoir parcouru que moins de trois cents mètres, ils en ressortirent précipitamment, le visage décomposé.
+Certains cultivateurs de la Transformation de l'Âme tentèrent de pénétrer dans le brouillard pour voir ce qui s'y passait, mais après n'avoir parcouru que mille pieds, ils en ressortirent précipitamment, le visage décomposé.
 
 Le nouveau messager devenait de plus en plus mystérieux aux yeux des cultivateurs de Ling Yue.
 

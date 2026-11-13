@@ -26,7 +26,7 @@ Wang Lin savait que ce qui venait de se passer était extrêmement dangereux. S'
 
 Wang Lin retourna rapidement vers la boussole stellaire.
 
-« Frère Ceng, ce Sun Tai est le Grand Ancien de la Secte Shi Yin. Vous devrez être prudent à l'avenir. » Chi Hu avait vu ce qui venait de se passer et le statut de Wang Lin augmenta dans son esprit. En tant que jeune maître du Clan Ju Mo, au lieu de se faire des ennemis, il cherchait à se lier d'amitié avec des héros.
+« Frère Zeng, ce Sun Tai est le Grand Ancien de la Secte Shi Yin. Vous devrez être prudent à l'avenir. » Chi Hu avait vu ce qui venait de se passer et le statut de Wang Lin augmenta dans son esprit. En tant que jeune maître du Clan Ju Mo, au lieu de se faire des ennemis, il cherchait à se lier d'amitié avec des héros.
 
 Tout au long de leur voyage, Wang Lin avait fait preuve autant d'esprit que de détermination. Sa culture était également impressionnante, ce qui donnait envie à Chi Hu de devenir l'ami de Wang Lin.
 
@@ -48,21 +48,21 @@ La boussole stellaire sur laquelle voyageaient Wang Lin et Chi Hu se déplaçait
 
 Wang Lin resta immobile et ne dit mot.
 
-« Frère Ceng, cette boussole stellaire ne peut plus voler. Nous devrons voler par nous-mêmes. Cependant, ce vide est bien trop dangereux, ah! » Chi Hu sauta de la boussole avec une expression amère.
+« Frère Zeng, cette boussole stellaire ne peut plus voler. Nous devrons voler par nous-mêmes. Cependant, ce vide est bien trop dangereux, ah! » Chi Hu sauta de la boussole avec une expression amère.
 
 Wang Lin regarda nonchalamment la boussole et dit: « Frère Chi Hu, n'avez-vous apporté qu'une seule boussole stellaire? »
 
-Chi Hu eut un sourire amer. « Frère Ceng, la boussole stellaire est un trésor très rare. Même dans tout le Suzaku, il y en a peu. Notre Clan Ju Mo n'en possédait qu'une depuis notre arrivée sur cette planète, mais je l'ai brisée par ma faute. Quand je rentrerai, je serai certainement puni par une retraite en isolement. »
+Chi Hu eut un sourire amer. « Frère Zeng, la boussole stellaire est un trésor très rare. Même dans tout le Suzaku, il y en a peu. Notre Clan Ju Mo n'en possédait qu'une depuis notre arrivée sur cette planète, mais je l'ai brisée par ma faute. Quand je rentrerai, je serai certainement puni par une retraite en isolement. »
 
 Wang Lin sourit calmement et dit: « Frère Chi Hu, bien que nous ne nous connaissions pas depuis longtemps, nous avons traversé la vie et la mort ensemble. Je ne vous mentirai pas: je peux réparer cette boussole stellaire. »
 
 Les yeux de Chi Hu s'illuminèrent. Il était justement en train de songer à ce qu'ils feraient sans la boussole. Non seulement leur vitesse serait considérablement réduite, mais ils n'auraient plus de carte pour les guider. Il leur faudrait un temps infini pour quitter cet endroit en volant par eux-mêmes, et d'innombrables créatures dangereuses vivaient dans le vide.
 
-« Si frère Ceng peut réparer cette boussole stellaire, alors nous pourrons certainement sortir d'ici! » Chi Hu ne demanda pas comment Wang Lin savait réparer un trésor aussi rare. Chacun avait ses secrets, et si Wang Lin ne parlait pas, il serait impoli de l'interroger.
+« Si frère Zeng peut réparer cette boussole stellaire, alors nous pourrons certainement sortir d'ici! » Chi Hu ne demanda pas comment Wang Lin savait réparer un trésor aussi rare. Chacun avait ses secrets, et si Wang Lin ne parlait pas, il serait impoli de l'interroger.
 
 Wang Lin sourit silencieusement en regardant Chi Hu.
 
-Chi Hu comprit immédiatement et dit rapidement: « Frère Ceng, je ne vous demanderai pas de réparer cette boussole gratuitement. Si vous avez besoin de quoi que ce soit, demandez-le moi. »
+Chi Hu comprit immédiatement et dit rapidement: « Frère Zeng, je ne vous demanderai pas de réparer cette boussole gratuitement. Si vous avez besoin de quoi que ce soit, demandez-le moi. »
 
 Wang Lin secoua la tête. « Les matériaux pour réparer une boussole stellaire sont trop précieux et cela nécessite également une immense quantité d'énergie spirituelle. Si je répare cette boussole, elle devra m'appartenir. J'espère que frère Chi Hu peut comprendre. »
 
@@ -70,7 +70,7 @@ L'expression de Chi Hu ne changea pas. Il resta silencieux. Cette boussole étai
 
 Wang Lin eut un sourire gracieux. « Si c'est trop difficile pour frère Chi Hu, je suis prêt à la réparer pour vous, en guise de témoignage d'amitié. »
 
-Chi Hu leva la tête, regarda Wang Lin et éclata de rire. « Frère Ceng, ce que vous dites est-il vrai? »
+Chi Hu leva la tête, regarda Wang Lin et éclata de rire. « Frère Zeng, ce que vous dites est-il vrai? »
 
 Wang Lin sourit. « C'est vrai. Cependant, j'aurai besoin de cette boussole pour une chose à l'avenir; alors, quand je devrai l'emprunter, ne me la refusez pas. »
 
@@ -80,15 +80,15 @@ Chi Hu fixa Wang Lin, se demandant secrètement si ce dernier disait la vérité
 
 « De plus, la culture de Zeng Niu est terrifiante. Il a aussi reçu le cristal Ascendant de Zhou Yi, ce qui fait de lui la personne de ma génération la plus susceptible d'atteindre le stade Ascendant. Si je me lie d'amitié avec lui maintenant, il pourrait aider mon clan à l'avenir. »
 
-Pensant cela, il dit avec un certain regret: « Frère Ceng, puisque vous me considérez comme un ami, comment pourrais-je être avare? Si vous deviez essayer de l'emprunter plus tard, avec le tempérament des vieux sages chez moi, ils ne vous la prêteraient jamais facilement. Autant vous l'offrir dès aujourd'hui! »
+Pensant cela, il dit avec un certain regret: « Frère Zeng, puisque vous me considérez comme un ami, comment pourrais-je être avare? Si vous deviez essayer de l'emprunter plus tard, avec le tempérament des vieux sages chez moi, ils ne vous la prêteraient jamais facilement. Autant vous l'offrir dès aujourd'hui! »
 
 Wang Lin sourit, joignit ses mains et dit: « Merci! »
 
-Sans un mot, Chi Hu fit un geste de la main et la boussole stellaire revint vers lui. Il effaça son empreinte sur l'objet et le tendit à Wang Lin. « Frère Ceng, cette boussole stellaire est désormais la vôtre. »
+Sans un mot, Chi Hu fit un geste de la main et la boussole stellaire revint vers lui. Il effaça son empreinte sur l'objet et le tendit à Wang Lin. « Frère Zeng, cette boussole stellaire est désormais la vôtre. »
 
 Wang Lin eut un léger sourire: « Je vais devoir demander à frère Chi Hu de me protéger. Je vais commencer le raffinage maintenant! »
 
-« Vous voulez que je vous protège? » Chi Hu fixa Wang Lin avec un regard sérieux. Après un long moment, il hocha la tête et dit: « Frère Ceng, moi, Chi Hu, je vous considère vraiment comme un ami, alors soyez sans crainte! »
+« Vous voulez que je vous protège? » Chi Hu fixa Wang Lin avec un regard sérieux. Après un long moment, il hocha la tête et dit: « Frère Zeng, moi, Chi Hu, je vous considère vraiment comme un ami, alors soyez sans crainte! »
 
 Wang Lin ne répondit rien et s'assit en position du lotus dans les airs. Il frappa son sac de rangement et en sortit la pierre d'or violet. Après avoir tracé quelques sceaux dessus, il commença à raffiner la pierre.
 
@@ -104,11 +104,11 @@ La main droite de Wang Lin pointa vers le liquide d'or violet et le fusionna ave
 
 Les symboles complexes sur la boussole commencèrent à briller. Au fil du temps, de plus en plus de runes sur la boussole se mirent à clignoter frénétiquement.
 
-Chi Hu restait extrêmement vigilant, son sens divin déployé. Il pouvait remarquer tout ce qui se passait dans un rayon de 330 mètres autour d'eux. Il n'osait pas le déployer trop loin, car les dangers qui rôdaient dans ce vide étaient trop nombreux. S'il étendait trop son sens divin, cela ne ferait que servir de phare pour guider les créatures de ce lieu.
+Chi Hu restait extrêmement vigilant, son sens divin déployé. Il pouvait remarquer tout ce qui se passait dans un rayon de mille pieds autour d'eux. Il n'osait pas le déployer trop loin, car les dangers qui rôdaient dans ce vide étaient trop nombreux. S'il étendait trop son sens divin, cela ne ferait que servir de phare pour guider les créatures de ce lieu.
 
-Chi Hu ne regardait absolument pas les sceaux et les techniques utilisés par Wang Lin. Il maintenait une zone de protection de 66 mètres autour de celui-ci où son sens divin n'intervenait pas.
+Chi Hu ne regardait absolument pas les sceaux et les techniques utilisés par Wang Lin. Il maintenait une zone de deux cents pieds autour de celui-ci où son sens divin n'intervenait pas.
 
-« Puisque Zeng Niu a de bonnes intentions et me fait confiance, comment pourrais-je, moi Chi Hu, qui me targue d'être un homme d'honneur, le laisser inquiet? De plus, ce cristal Ascendant est un cadeau de Zhou Yi, il doit donc comporter des restrictions. Même si je l'obtenais, cela m'attirerait bien des ennuis à l'avenir. La famille Ceng compte de nombreux membres puissants, je ne peux pas provoquer un tel désastre pour mon clan. De plus, même en utilisant le trésor secret de mon clan, j'estime n'avoir que 50 % de chances de gagner; il vaut donc mieux ne pas agir pour l'instant. »
+« Puisque Zeng Niu a de bonnes intentions et me fait confiance, comment pourrais-je, moi Chi Hu, qui me targue d'être un homme d'honneur, le laisser inquiet? De plus, ce cristal Ascendant est un cadeau de Zhou Yi, il doit donc comporter des restrictions. Même si je l'obtenais, cela m'attirerait bien des ennuis à l'avenir. La famille Zeng compte de nombreux membres puissants, je ne peux pas provoquer un tel désastre pour mon clan. De plus, même en utilisant le trésor secret de mon clan, j'estime n'avoir que 50 % de chances de gagner; il vaut donc mieux ne pas agir pour l'instant. »
 
 Sun Tai les observait à distance, hors de leur portée de détection.
 
@@ -122,4 +122,4 @@ Wang Lin ouvrit les yeux.
 
 Chi Hu le remarqua immédiatement et se rapprocha.
 
-« Frère Ceng, avez-vous fini de la réparer? »
+« Frère Zeng, avez-vous fini de la réparer? »

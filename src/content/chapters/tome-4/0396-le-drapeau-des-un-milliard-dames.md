@@ -90,7 +90,7 @@ L'expression d'Ouyang Tian devint plus complexe encore. Il secoua la tête dans 
 
 À l'intérieur du jade, Dun Tian avait consigné une description très détaillée du pouvoir de lignée du Clan Ju Mo.
 
-Wang Lin prit une grande inspiration. Il toucha le sac que Ouyang Tian lui avait remis et, aussitôt, une lumière pourpre et dorée s'en échappa. Cette lueur était si vive qu'elle se mua instantanément en un drapeau de plus de dix mètres de haut qui ondulait sans aucun vent.
+Wang Lin prit une grande inspiration. Il toucha le sac que Ouyang Tian lui avait remis et, aussitôt, une lumière pourpre et dorée s'en échappa. Cette lueur était si vive qu'elle se mua instantanément en un drapeau de plus de trente pieds de haut qui ondulait sans aucun vent.
 
 Simultanément, des ondes de gémissements fantomatiques semblèrent émaner du drapeau et le ciel s'obscurcit davantage. Même la lune parut se dissimuler derrière les nuages, comme si elle craignait d'apparaître.
 

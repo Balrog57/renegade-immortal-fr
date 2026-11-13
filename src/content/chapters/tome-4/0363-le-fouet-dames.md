@@ -30,7 +30,7 @@ Face au filet qui s'approchait, Wang Lin poussa un rugissement et manœuvra l'é
 
 Wang Lin s'engouffra rapidement par cette brèche et cracha un rayon de lumière noire. Celui-ci se transforma promptement en un immense sceau noir qui percuta le pétale géant.
 
-Le sceau noir vacilla avant d'être enveloppé par le pétale, se transformant en une mare d'eau noire. Le visage de Wang Lin devint livide. Il profita de l'instant où le sceau immobilisa le pétale pour se téléporter à 330 mètres de là.
+Le sceau noir vacilla avant d'être enveloppé par le pétale, se transformant en une mare d'eau noire. Le visage de Wang Lin devint livide. Il profita de l'instant où le sceau immobilisa le pétale pour se téléporter à mille pieds de là.
 
 À cet instant précis, les neuf épées rouges arrivèrent en sifflant, sans un bruit. Elles se déplaçaient avec la rapidité de l'éclair. Wang Lin toucha précipitamment son sac de rangement et deux cloches apparurent. Elles s'entrechoquèrent, générant une onde sonore.
 
@@ -130,7 +130,7 @@ La voix de Hongdie se brisa dans un cri: « Explosez! Explosez! »
 
 Bang! Bang! Bang!
 
-La foudre de la rétribution les transperça comme s'ils n'étaient que du papier. Une figure s'effondra, puis une autre, et bientôt les six silhouettes furent anéanties.
+La foudre de la Tribulation Céleste les transperça comme s'ils n'étaient que du papier. Une figure s'effondra, puis une autre, et bientôt les six silhouettes furent anéanties.
 
 Cependant, la puissance de l'éclair rouge diminua légèrement suite à cette série d'explosions.
 

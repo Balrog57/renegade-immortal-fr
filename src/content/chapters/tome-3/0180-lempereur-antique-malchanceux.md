@@ -18,7 +18,7 @@ Durant ses sept années de recherche, Wang Lin était passé du simple relevé d
 
 Plus précieux encore, il avait commencé par étudier les restrictions les plus simples et les plus élémentaires, pour progresser graduellement. Sans aucune impatience dans son cœur, il développait peu à peu l'état d'esprit nécessaire à la pratique des techniques de restriction.
 
-Dans tout le monde de la culture de la planète Zhuque, nombreux sont ceux qui pouvaient utiliser ces techniques, mais très peu en possédaient une compréhension profonde. Hormis quelques vieux experts, personne ne pouvait égaler Wang Lin en la matière.
+Dans tout le monde de la culture de la planète Suzaku, nombreux sont ceux qui pouvaient utiliser ces techniques, mais très peu en possédaient une compréhension profonde. Hormis quelques vieux experts, personne ne pouvait égaler Wang Lin en la matière.
 
 Même Wang Lin lui-même était perplexe. Il semblait que, malgré son talent médiocre, les restrictions lui convenaient tout particulièrement, tout comme lorsqu'il avait abordé les formations, qu'il avait trouvées plus faciles à manier que l'apprentissage des sorts.
 

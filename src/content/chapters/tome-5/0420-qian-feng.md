@@ -14,7 +14,7 @@ Qian Feng éclata de rire. « Senior, je n'ai aucune intention malveillante. Se 
 
 Dun Tian ricana. Il leva la main et s'apprêtait à lancer un sort lorsque Wang Lin intervint: « Très bien, je vais te combattre. »
 
-Les yeux de Qian Feng s'illuminèrent. Il laissa échapper un rire en sortant du rideau de lumière verte. Il s'arrêta à 33 mètres de Wang Lin et sourit: « Bien. Ce n'est pas étonnant que le frère Zeng soit celui qui a tué Li Yuanfeng et l'ancêtre du Clan Ju Mo... »
+Les yeux de Qian Feng s'illuminèrent. Il laissa échapper un rire en sortant du rideau de lumière verte. Il s'arrêta à cent pieds de Wang Lin et sourit: « Bien. Ce n'est pas étonnant que le frère Zeng soit celui qui a tué Li Yuanfeng et l'ancêtre du Clan Ju Mo... »
 
 Wang Lin ne perdit pas de temps en paroles avec cet individu. Dès que Qian Feng fut sorti, Wang Lin sortit son épée céleste, activa son énergie spirituelle céleste et trancha Qian Feng, interrompant net sa phrase. Bien que ce fût la première fois que Wang Lin rencontrait Qian Feng, il n'éprouvait aucune sympathie pour lui. Sa première attaque fut portée avec 120 % de sa puissance.
 
@@ -26,7 +26,7 @@ Bang!
 
 Un fracas retentissant résonna dans le ciel. La frappe de Wang Lin était imprégnée d'énergie spirituelle céleste, rendant l'épée bien plus puissante qu'auparavant. Cette attaque concentrait toute l'énergie spirituelle céleste que Wang Lin pouvait mobiliser d'un coup; sa puissance était donc phénoménale. Wang Lin y avait en outre dissimulé une ruse.
 
-Qian Feng fut projeté en arrière de 330 mètres avant de pouvoir neutraliser la force de l'épée céleste. Son expression n'était plus calme; ses yeux brillaient d'une lueur froide alors qu'il fixait l'épée de Wang Lin: « Un trésor céleste! »
+Qian Feng fut projeté en arrière de mille pieds avant de pouvoir neutraliser la force de l'épée céleste. Son expression n'était plus calme; ses yeux brillaient d'une lueur froide alors qu'il fixait l'épée de Wang Lin: « Un trésor céleste! »
 
 Son index droit tremblait, tandis qu'un filet de sang s'en écoulait. Son bras droit tout entier était également totalement engourdi.
 

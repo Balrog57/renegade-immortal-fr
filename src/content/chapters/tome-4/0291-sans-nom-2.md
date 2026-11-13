@@ -25,17 +25,17 @@ On pourrait dire que Wang Lin s'était préparé de toutes les manières possibl
 
 Il déploya son Sens Divin tout au long de sa descente, mais ne décela aucune présence. Cela le troubla profondément, car il se souvenait qu'en descendant aussi loin la dernière fois, il avait déjà croisé plusieurs bêtes spirituelles.
 
-Après une courte réflexion, il poursuivit sa descente. Il atteignit bientôt l'endroit où le dragon de trente-trois kilomètres était tombé la fois précédente. Là, Wang Lin hésita. S'il continuait à descendre, il risquait de tomber sur des bêtes désolées. Mais n'ayant rencontré aucune bête spirituelle sur tout le chemin parcouru, il craignait que ce voyage ne soit une perte de temps. Après avoir pesé le pour et le contre, il forma un sceau pour quitter les terres de l'Ancien Dieu.
+Après une courte réflexion, il poursuivit sa descente. Il atteignit bientôt l'endroit où le dragon de cent mille pieds était tombé la fois précédente. Là, Wang Lin hésita. S'il continuait à descendre, il risquait de tomber sur des bêtes désolées. Mais n'ayant rencontré aucune bête spirituelle sur tout le chemin parcouru, il craignait que ce voyage ne soit une perte de temps. Après avoir pesé le pour et le contre, il forma un sceau pour quitter les terres de l'Ancien Dieu.
 
 Après tout, s'aventurer plus loin était bien trop dangereux; Wang Lin ne voulait pas risquer autant pour une simple bête spirituelle. Cependant, au moment même où il formait le sceau, deux yeux semblables à de grandes perles apparurent dans l'obscurité sous lui, puis un dragon rouge surgit soudainement.
 
-Wang Lin remarqua immédiatement que ce dragon était le même que la dernière fois. Alors qu'il s'apprêtait à partir, il s'arrêta net en apercevant un crapaud vert devant la créature. Ce crapaud mesurait environ dix mètres de haut et, se propulsant d'une patte arrière, il s'élança brusquement, poursuivi par le dragon.
+Wang Lin remarqua immédiatement que ce dragon était le même que la dernière fois. Alors qu'il s'apprêtait à partir, il s'arrêta net en apercevant un crapaud vert devant la créature. Ce crapaud mesurait environ trente pieds de haut et, se propulsant d'une patte arrière, il s'élança brusquement, poursuivi par le dragon.
 
 Sans dire un mot, Wang Lin se cala dans la roche. Il déploya son Sens Divin pour observer la scène. Ayant déjà préparé le sceau, il n'avait plus qu'à l'activer pour partir; mais n'étant plus pressé, la curiosité l'emporta.
 
 Il vit le dragon rouge ouvrir la gueule et enrouler son corps. Lorsqu'il se détendit, il s'élança avec une vélocité fulgurante, fouettant son corps pour s'enrouler autour du crapaud. Ce dernier marqua un temps d'arrêt alors que le dragon tentait de l'encercler. Soudain, un éclat éblouissant jaillit du crapaud, illuminant toute la zone. Une fois la lumière dissipée, une sphère de foudre entourait la créature.
 
-Le dragon rouge poussa un rugissement et esquiva promptement, semblant terrifié par cette foudre. Wang Lin prit une profonde inspiration, stupéfait. Bien que l'éclair du crapaud ne parût pas extraordinaire, il lui avait procuré la même sensation qu'au premier contact avec la foudre de la Tribulation Céleste. Ce crapaud pourrait bien être une bête désolée s'il était capable de tenir tête à un tel dragon, celui qui avait parasité le dragon de trente-trois kilomètres.
+Le dragon rouge poussa un rugissement et esquiva promptement, semblant terrifié par cette foudre. Wang Lin prit une profonde inspiration, stupéfait. Bien que l'éclair du crapaud ne parût pas extraordinaire, il lui avait procuré la même sensation qu'au premier contact avec la foudre de la Tribulation Céleste. Ce crapaud pourrait bien être une bête désolée s'il était capable de tenir tête à un tel dragon, celui qui avait parasité le dragon de cent mille pieds.
 
 Il rejeta toutefois cette idée en voyant le crapaud descendre et se poser sur un rocher voisin, le regard empreint de désespoir. À vue d'œil, il ne semblait pas être une bête désolée; après tout, un combat entre deux créatures désolées ne se déciderait pas en une seule attaque.
 

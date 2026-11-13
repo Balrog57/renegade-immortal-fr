@@ -48,7 +48,7 @@ Wang Lin prit une grande inspiration et s'apprêtait à partir quand son express
 
 D'innombrables grottes se trouvaient près de la sienne. Comme il était resté en retraite depuis tout ce temps, il n'avait rencontré personne d'autre que l'homme d'âge mûr.
 
-À cet instant, une autre personne sortit d'une grotte située à plus de trente mètres de là. Elle portait des vêtements bleu clair en fils fins et un voile blanc sur l'épaule, lui donnant un air éthéré, presque surnaturel.
+À cet instant, une autre personne sortit d'une grotte située à plus de cent pieds de là. Elle portait des vêtements bleu clair en fils fins et un voile blanc sur l'épaule, lui donnant un air éthéré, presque surnaturel.
 
 Sa longue chevelure noire ondulait au gré du vent. Son beau visage, d'une douceur délicate et sans la moindre trace de fard, avait une élégance sobre et un charme détaché du monde.
 
@@ -78,7 +78,7 @@ En vérité, il observait Wang Lin depuis le moment où celui-ci était sorti.
 
 L'expression de l'homme d'âge mûr ne trahissait aucune émotion lorsqu'il dit: « Qing Mu, viens ici! »
 
-Une trace d'intention meurtrière apparut dans les yeux de Wang Lin. Il se posa à 33 mètres de l'homme.
+Une trace d'intention meurtrière apparut dans les yeux de Wang Lin. Il se posa à cent pieds de l'homme.
 
 « Le sommet du dernier stade de l'Établissement des Fondations... » Les pupilles de l'homme d'âge mûr se contractèrent et son cœur se mit à battre la chamade. Il avait le pressentiment que ce Qing Mu cachait quelque chose de suspect. En quelques mois seulement, sa culture avait progressé de façon stupéfiante. Lorsqu'il était arrivé ici, il n'était qu'au début du stade de l'Établissement des Fondations.
 

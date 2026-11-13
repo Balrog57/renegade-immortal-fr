@@ -104,7 +104,7 @@ Il semblait avoir une quarantaine d'années, son visage était empreint de déte
 
 Parmi les cultivateurs environnants se trouvaient des êtres puissants, mais même face au regard de cet homme, ils ne purent s'empêcher de baisser la tête.
 
-L'homme portait une robe violette et un blaireau à trois yeux reposait sur son épaule. Les yeux du blaireau étaient également comme des éclairs, observant tout d'un regard glacial.
+L'homme portait une robe violette et une zibeline à trois yeux reposait sur son épaule. Les yeux de la zibeline étaient également comme des éclairs, observant tout d'un regard glacial.
 
 L'expression de Tian Yunzi resta sereine. En voyant cet homme d'âge moyen, il sourit légèrement et dit: « Ainsi, c'est l'Ancien Sun. Tian Yunzi salue l'Ancien Sun! Je ne peux croire que l'Ancien Sun ait envoyé un avatar pour la petite célébration de mon dix-millième anniversaire. Je suis extrêmement honoré. »
 
@@ -126,8 +126,8 @@ Tian Yunzi sourit sans rien répondre. Au lieu de cela, il parcourut les cultiva
 
 Sur ce, Tian Yunzi agita ses manches et s'assit. Au moment où il prit place, un nuage apparut sous lui.
 
-L'homme d'âge moyen venu de l'Alliance Xiu Zhen s'assit également à ses côtés. Il prêta une attention soutenue à Tian Yunzi, se préparant à chercher le Dao. Quant au blaireau à trois yeux, il s'envola de son épaule; il se déplaça plus vite que l'éclair et disparut sans laisser de trace.
+L'homme d'âge moyen venu de l'Alliance Xiu Zhen s'assit également à ses côtés. Il prêta une attention soutenue à Tian Yunzi, se préparant à chercher le Dao. Quant à la zibeline à trois yeux, elle s'envola de son épaule; elle se déplaça plus vite que l'éclair et disparut sans laisser de trace.
 
 Les pupilles de Wang Lin se rétractèrent. Une telle vitesse n'était comparable qu'à celle de la lame demi-lunaire à pleine puissance.
 
-Alors qu'il réfléchissait, il sentit soudain un poids sur son épaule. Le blaireau à trois yeux s'était posé sur lui sans qu'il ne puisse le détecter. Wang Lin tourna la tête pour observer l'animal, et le petit blaireau soutint également son regard.
+Alors qu'il réfléchissait, il sentit soudain un poids sur son épaule. La zibeline à trois yeux s'était posée sur lui sans qu'il ne puisse le détecter. Wang Lin tourna la tête pour observer l'animal, et la petite zibeline soutint également son regard.

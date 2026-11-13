@@ -48,7 +48,7 @@ L'Ancien Ouyang affichait un visage sombre. Il s'apprêtait à parler lorsqu'il 
 
 Dès que la fiole fut sortie, une puissante aura d'énergie spirituelle s'en échappa. Huang Long jeta un regard à la fiole de jade, puis se frotta la barbe en souriant: « Ce gamin... Il a quand même rapporté une fiole d'eau de rivière en sortant. »
 
-L'Ancien Ouyang grogna. Il pesa la fiole dans sa main avant de déclarer: « Ami Huang Long, votre Secte Heng Yue possède un disciple exceptionnel. Adieu! »
+L'Ancien Ouyang grogna. Il pesa la fiole dans sa main avant de déclarer: « Daoïste Huang Long, votre Secte Heng Yue possède un disciple exceptionnel. Adieu! »
 
 Il lança un dernier regard à Wang Lin et, après une courte réflexion, lui envoya un message mental: « Neveu-disciple Wang, je laisse passer cette affaire de poison, mais la Secte Heng Yue n'a plus d'ancêtres de l'Âme Naissante pour la protéger. Reste donc à tes risques et périls! »
 

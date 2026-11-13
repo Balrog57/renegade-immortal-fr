@@ -40,7 +40,7 @@ Il n'eut pas le temps de finir sa phrase; il remarqua que tous les autres discip
 
 Yang Yi maudit intérieurement: « Ce crétin... Wang Lin est si puissant qu'il peut vaincre le Grand Senior frère en un seul mouvement, et pourtant le vieux Ouyang me force quand même à monter. C'est humiliant. Et je ne sais pas non plus combien de bombes puantes ce bâtard de Li Shan lui a vendues. Ce Li Shan, je lui donnerai une leçon une fois de retour. »
 
-Tout en pensant cela, il tourna un regard féroce vers Li Shan. Puis, joignant les mains avec respect, il déclara: « Senior frère Wang, je suis Yang Yi. Vous êtes très élégant et possédez une culture si élevée! Vous deviendrez certainement célèbre dans le pays de la culture de Zhao! Avoir l'opportunité de croiser le fer avec vous, votre Junior frère, est un véritable privilège, je ne peux contenir ma joie! »
+Tout en pensant cela, il tourna un regard féroce vers Li Shan. Puis, joignant les mains avec respect, il déclara: « Senior frère Wang, je suis Yang Yi. Vous êtes très élégant et possédez une culture si élevée! Vous deviendrez certainement célèbre dans le monde de la culture du Pays Zhao! Avoir l'opportunité de croiser le fer avec vous, votre Junior frère, est un véritable privilège, je ne peux contenir ma joie! »
 
 Wang Lin jeta un coup d'œil à Yang Yi, mais ne dit mot.
 

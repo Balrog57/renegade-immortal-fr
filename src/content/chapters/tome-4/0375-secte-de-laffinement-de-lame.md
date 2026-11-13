@@ -12,7 +12,7 @@ Wang Lin ferma immédiatement les yeux et se mit à cultiver en silence.
 
 Trois jours plus tard, le ciel s'obscurcit et la neige recouvrit la montagne. De loin, l'ensemble du massif semblait enseveli sous un linceul blanc.
 
-Les flocons de neige qui tombaient vers Wang Lin fondaient à près d'un mètre de son corps, créant progressivement une marque circulaire d'eau autour de lui. La trace de thé sur son visage n'était plus aussi prononcée qu'auparavant et commençait à s'estomper.
+Les flocons de neige qui tombaient vers Wang Lin fondaient à trois pieds de son corps, créant progressivement une marque circulaire d'eau autour de lui. La trace de thé sur son visage n'était plus aussi prononcée qu'auparavant et commençait à s'estomper.
 
 Lorsque Wang Lin ouvrit les yeux, son regard était empreint d'une clarté nouvelle.
 

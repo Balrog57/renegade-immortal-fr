@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 507 - Earth Northern Demonic Lands
 slug: terres-demoniaques-du-nord-de-la-terre
 ---
-Wang Lin, vêtu de violet, flottait à 3,3 kilomètres au-dessus de la tour. Les yeux brillants comme des torches, il leva sa main droite et toute la brume noire commença à converger vers lui. On aurait dit que la brume était repoussée depuis sa périphérie pour s'engouffrer vers Wang Lin.
+Wang Lin, vêtu de violet, flottait à dix mille pieds au-dessus de la tour. Les yeux brillants comme des torches, il leva sa main droite et toute la brume noire commença à converger vers lui. On aurait dit que la brume était repoussée depuis sa périphérie pour s'engouffrer vers Wang Lin.
 
 Le ciel et les nuages changèrent de couleur!
 

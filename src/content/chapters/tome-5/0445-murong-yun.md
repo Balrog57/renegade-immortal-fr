@@ -70,7 +70,7 @@ Murong Yun l'étudia de nouveau. Après avoir confirmé qu'il était réellement
 
 Wang Lin réfléchit un instant et répondit: « À vous entendre, vous semblez très confiant quant à la récupération de votre fragment d'âme. » Tandis qu'il parlait, ses yeux s'illuminèrent sans que personne ne s'en aperçoive.
 
-Murong Yun rit et dit: « Cher compagnon Qing, vous l'ignorez peut-être, mais j'ai fait partie de la première vague à pénétrer dans le Tombeau Zhu Que. J'ai vu de mes propres yeux comment Qian Feng et les chamans à huit feuilles du Clan Xian Yi sont entrés dans la section intérieure. Si mon niveau de culture n'était pas plus élevé, j'y serais déjà. »
+Murong Yun rit et dit: « Daoïste Qing Mu, vous l'ignorez peut-être, mais j'ai fait partie de la première vague à pénétrer dans le Tombeau Zhu Que. J'ai vu de mes propres yeux comment Qian Feng et les chamans à huit feuilles du Clan Xian Yi sont entrés dans la section intérieure. Si mon niveau de culture n'était pas insuffisant, j'y serais déjà. »
 
 « Oh? » Wang Lin eut un léger sourire. « Comment Qian Feng et les autres sont-ils entrés? »
 
@@ -86,11 +86,11 @@ Sur ces mots, il joignit les mains en signe de salut à Wang Lin et la suivit.
 
 Wang Lin se caressa le menton et les suivit lentement. Il posait occasionnellement son regard sur Murong Yun. La marque sur sa manche et les taches de sang noir sur ses vêtements le faisaient réfléchir.
 
-Tout en volant, Wang Lin demanda calmement: « Compagnon Murong, quel genre de danger règne près de cet autel? »
+Tout en volant, Wang Lin demanda calmement: « Daoïste Murong, quel genre de danger règne près de cet autel? »
 
 Une pointe de peur apparut dans les yeux de Murong Yun. Il prit une profonde inspiration et dit: « Je ne l'ai vu que de loin. Trois des chamans à huit feuilles et deux vieux monstres de la Transformation de l'Âme sont morts. Même après leur disparition, je n'ai jamais pu repérer l'ennemi. »
 
-Wang Lin esquissa un sourire qui n'en était pas vraiment un et dit avec une pointe de dérision: « Le compagnon Murong n'a pas manqué de chance. »
+Wang Lin esquissa un sourire qui n'en était pas vraiment un et dit avec une pointe de dérision: « Le Daoïste Murong n'a pas manqué de chance. »
 
 Murong Yun fut surpris par cette remarque, puis il afficha un sourire méfiant: « J'étais réellement loin et je me suis enfui immédiatement, je n'ai donc pas été pris dans le combat. Cependant, une chose est sûre: une existence puissante et extrêmement dangereuse se trouve là-bas. Il nous faut plus de monde pour espérer entrer. »
 
@@ -120,12 +120,12 @@ L'éclair disparut rapidement. Même le vieil homme sur l'épée volante fut stu
 
 Murong Yun avança de quelques mètres. Il joignit les mains et dit: « Junior Murong Yun salue Senior. »
 
-Le vieil homme lança un regard froid à Murong Yun et l'ignora. Son attention se porta sur Wang Lin alors qu'il joignait les mains et disait: « Un grand merci, Daoïste Ceng! »
+Le vieil homme lança un regard froid à Murong Yun et l'ignora. Son attention se porta sur Wang Lin alors qu'il joignait les mains et disait: « Un grand merci, Daoïste Zeng! »
 
 Après avoir réfléchi un moment, il ne parvint pas à comprendre pourquoi cette chose avait cessé de le poursuivre. Finalement, il pensa que cela était lié à ce Zeng Niu. Après tout, Zeng Niu était très célèbre; il devait posséder des sorts puissants.
 
-Au moment où il prononça « Daoïste Ceng », la femme au visage laid se retourna brusquement et scruta attentivement Wang Lin.
+Au moment où il prononça « Daoïste Zeng », la femme au visage laid se retourna brusquement et scruta attentivement Wang Lin.
 
 Wang Lin sourit légèrement et secoua la tête. « Ce n'est pas moi. »
 
-Les yeux du vieil homme brillèrent un instant et il sourit. « Ne parlons plus de cela. Je suis Mo Yunhai. Le Daoïste Ceng aurait-il des indices pour pénétrer dans la section intérieure de la tombe? »
+Les yeux du vieil homme brillèrent un instant et il sourit. « Ne parlons plus de cela. Je suis Mo Yunhai. Le Daoïste Zeng aurait-il des indices pour pénétrer dans la section intérieure de la tombe? »

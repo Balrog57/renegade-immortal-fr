@@ -60,7 +60,7 @@ Le vieil homme renifla. D'un geste de la main, il fit apparaître une chaise en 
 
 Une pointe de crainte traversa le regard de l'homme d'âge moyen, mais la personne qu'il redoutait n'était pas Wang Lin, c'était le vieil homme.
 
-Après avoir entendu ces mots, son regard se tourna vers Wang Lin. « Camarade cultivateur, ma Secte Bai Yun vous a-t-il offensé par le passé? »
+Après avoir entendu ces mots, son regard se tourna vers Wang Lin. « Daoïste, ma Secte Bai Yun vous a-t-il offensé par le passé? »
 
 Wang Lin réfléchit un instant. Puis, sans dire un mot, il sortit une épée volante ordinaire de sa sacoche de rangement. Il la secoua légèrement pour y imprimer son sens divin, puis, dans un crépitement, l'épée fondit et se condensa en une sphère argentée de la taille d'un poing.
 

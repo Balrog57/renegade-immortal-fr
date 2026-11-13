@@ -17,7 +17,7 @@ Cette tablette de pierre était normalement un monument destiné à être placé
 
 Cette tablette avait dû être déplacée par un cultivateur lors d'une ouverture passée du Royaume Céleste afin de dissimuler quelque chose. Autrement, ces marques sur la moitié inférieure de la pierre n'auraient pas existé; si elle était restée immobile, la partie inférieure aurait fini par sécher et se fissurer.
 
-Après avoir confirmé cette hypothèse, ses yeux brillèrent et il leva le bras. Les quelque dix mètres de tablette enfouis sous terre furent extirpés par Wang Lin.
+Après avoir confirmé cette hypothèse, ses yeux brillèrent et il leva le bras. Les quelques dizaines de pieds de tablette enfouis sous terre furent extirpés par Wang Lin.
 
 Au moment où la tablette fut totalement dégagée, un mince filet d'énergie spirituelle céleste s'en échappa. Il n'y en avait que peu; dès son apparition, elle semblait sur le point de disparaître.
 

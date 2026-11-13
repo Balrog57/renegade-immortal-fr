@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 311 - Star Compass
 slug: boussole-stellaire
 ---
-Flottant dans le vide à 330 mètres de la fin de la terre ferme, un immense glacier bleu, qui s'étendait à perte de vue, n'était relié au sol que par quelques piliers de glace. Bien qu'il fût ancré à la terre, ce glacier semblait également flotter au-dessus du vide qui s'étend sous la terre.
+Flottant dans le vide à mille pieds de la fin de la terre ferme, un immense glacier bleu, qui s'étendait à perte de vue, n'était relié au sol que par quelques piliers de glace. Bien qu'il fût ancré à la terre, ce glacier semblait également flotter au-dessus du vide qui s'étend sous la terre.
 
 Wang Lin fronça les sourcils. Après avoir inspecté les environs, il demanda: « Frère Chi Hu, y a-t-il quelque chose de particulier concernant la première couche du fragment? Y a-t-il des points de convergence d'énergie spirituelle céleste à cet endroit? »
 
@@ -14,7 +14,7 @@ Chi Hu fut surpris. « Les dégâts sur ce fragment sont considérables, il ne d
 
 Wang Lin regarda calmement l'horizon derrière lui et répondit: « Dans ce cas, je n'ai plus de questions. »
 
-Le regard de Hongdie glissa sur Wang Lin, mais elle ne prononça pas un mot. D'un mouvement fluide, elle franchit aisément la distance de 330 mètres pour atterrir au sommet du glacier. Chi Hu prit une profonde inspiration et la suivit. Tandis qu'il était en l'air, Wang Lin bondit également, ce qui permit au groupe de se poser tous ensemble.
+Le regard de Hongdie glissa sur Wang Lin, mais elle ne prononça pas un mot. D'un mouvement fluide, elle franchit aisément la distance de mille pieds pour atterrir au sommet du glacier. Chi Hu prit une profonde inspiration et la suivit. Tandis qu'il était en l'air, Wang Lin bondit également, ce qui permit au groupe de se poser tous ensemble.
 
 Dès qu'il toucha le sol, des vagues d'énergie glaciale pénétrèrent son corps par ses pieds. Il fit circuler rapidement son énergie spirituelle pour expulser cette froidure.
 
@@ -32,7 +32,7 @@ Le trio survolait rapidement le glacier. Au troisième jour de leur périple, Wa
 
 Les yeux de Chi Hu s'illuminèrent et il expliqua: « La brume glaciale du glacier. Elle contient une énergie d'un froid extrême. Hongdie, nous comptons sur vous. »
 
-Sans un mot, Hongdie frappa son sac de rangement d'où s'échappa une sculpture de glace. Celle-ci se mua rapidement en un immense ange de neige haut d'une dizaine de mètres.
+Sans un mot, Hongdie frappa son sac de rangement d'où s'échappa une sculpture de glace. Celle-ci se mua rapidement en un immense ange de neige haut de plusieurs dizaines de pieds.
 
 L'ange de neige fonça vers la brume. Dès que la sculpture entra en contact avec elle, la brume se fendit. La sculpture glissait à travers la brume comme un couteau brûlant dans du beurre.
 
@@ -62,7 +62,7 @@ Chi Hu laissa échapper un rire et joignit les mains avec sincérité. « Hongdi
 
 Wang Lin esquissa un léger sourire. Si Chi Hu n'avait pas été là, il aurait tenté d'attaquer Hongdie. Cependant, l'attitude de Chi Hu signifiait que si Wang Lin passait à l'acte, ce dernier s'y opposerait. De plus, Wang Lin ne croyait pas qu'elle fût réellement affaiblie à ce point. Il était évident qu'elle feignait la faiblesse pour tenter d'inciter Wang Lin à l'attaquer. En outre, si son énergie spirituelle était véritablement épuisée, elle disposerait certainement de pilules pour la restaurer instantanément. Avec l'expérience de Wang Lin, comment pourrait-il tomber dans un piège aussi puéril?
 
-Chi Hu frappa son sac de rangement et une lumière verte s'en échappa. Cette lueur se mua immédiatement en une boussole géante qui flottait dans le vide, à trente-trois mètres devant eux.
+Chi Hu frappa son sac de rangement et une lumière verte s'en échappa. Cette lueur se mua immédiatement en une boussole géante qui flottait dans le vide, à cent pieds devant eux.
 
 Les yeux magnifiques de Hongdie fixèrent la boussole tandis qu'elle disait d'une voix glaciale: « Le trésor du Clan Ju Mo... la Boussole Stellaire? »
 
@@ -76,11 +76,11 @@ Hongdie observa la boussole et hocha silencieusement la tête.
 
 Sans dire un mot, Hongdie sauta sur la boussole et s'assit à l'extrémité ouest. Peu après son installation, un écran de lumière verte l'enveloppa.
 
-« Frère Ceng, j'ai besoin que vous contrôliez l'extrémité est et que vous utilisiez vos âmes pour explorer les environs. Si vous détectez une anomalie, prévenez-moi afin que je puisse l'éviter. Vous ne devez jamais déployer votre Sens Divin dans le vide, car cela attirerait le désastre. C'est ce que mon ancêtre Xi Zu m'a enseigné. » Une fois son explication terminée, Chi Hu atterrit au centre de la boussole et s'assit en position du lotus.
+« Frère Zeng, j'ai besoin que vous contrôliez l'extrémité est et que vous utilisiez vos âmes pour explorer les environs. Si vous détectez une anomalie, prévenez-moi afin que je puisse l'éviter. Vous ne devez jamais déployer votre Sens Divin dans le vide, car cela attirerait le désastre. C'est ce que mon ancêtre Xi Zu m'a enseigné. » Une fois son explication terminée, Chi Hu atterrit au centre de la boussole et s'assit en position du lotus.
 
 Wang Lin réfléchit un instant avant de voler vers l'extrémité est pour s'y asseoir. Il observa les extrémités nord et sud avant de déclarer: « Frère Chi Hu, cette boussole nécessite cinq personnes pour fonctionner de manière optimale. »
 
-« C'est exact. Si nous avions pu trouver deux personnes supplémentaires, ce voyage se déroulerait sans encombre, mais il n'y a pas assez de trésors à partager entre cinq personnes. » Chi Hu rit avant de prendre une profonde inspiration. Ses mains formèrent des sceaux qu'il plaça sur la boussole. Puis il cria: « Frère Ceng, si cette boussole se brise dans le vide, nous n'aurons aucune chance de survivre! J'espère que vous ne vous retiendrez pas! Je dois concentrer toute mon attention sur le contrôle de l'instrument et je ne pourrai donc pas vous aider. Tout reposera sur vous, frère Ceng! »
+« C'est exact. Si nous avions pu trouver deux personnes supplémentaires, ce voyage se déroulerait sans encombre, mais il n'y a pas assez de trésors à partager entre cinq personnes. » Chi Hu rit avant de prendre une profonde inspiration. Ses mains formèrent des sceaux qu'il plaça sur la boussole. Puis il cria: « Frère Zeng, si cette boussole se brise dans le vide, nous n'aurons aucune chance de survivre! J'espère que vous ne vous retiendrez pas! Je dois concentrer toute mon attention sur le contrôle de l'instrument et je ne pourrai donc pas vous aider. Tout reposera sur vous, frère Zeng! »
 
 Wang Lin acquiesça. Un drapeau de restriction apparut soudainement, l'enveloppant d'une brume noire. Si Chi Hu ou Hongdie tentaient de l'attaquer pendant qu'il était occupé, le drapeau pourrait le protéger un instant, lui laissant le temps de riposter. Une telle précaution était indispensable en toute circonstance.
 
@@ -88,9 +88,9 @@ Les yeux de Chi Hu brillèrent. Il ne se sentit pas offensé; cela lui semblait 
 
 Dès que Chi Hu activa la boussole stellaire, une force mystérieuse enveloppa le sommet de l'objet. Sous l'influence de cette force, Wang Lin sentit son Sens Divin fusionner avec la boussole. Non seulement le sien, mais aussi ceux de Chi Hu et de Hongdie s'y trouvaient également. Les Sens Divins des trois individus étaient désormais unis au sein de cette puissance mystérieuse.
 
-Le Sens Divin de Chi Hu transmit un message: « Hongdie, frère Ceng, ne soyez pas surpris. C'est le fonctionnement normal de la boussole stellaire. Lorsqu'elle est en action, nous ne pouvons plus parler; nous ne communiquons que par nos Sens Divins. »
+Le Sens Divin de Chi Hu transmit un message: « Hongdie, frère Zeng, ne soyez pas surpris. C'est le fonctionnement normal de la boussole stellaire. Lorsqu'elle est en action, nous ne pouvons plus parler; nous ne communiquons que par nos Sens Divins. »
 
-« Frère Ceng, voici la carte stellaire. Une fois que vous l'aurez mémorisée, déployez les âmes. Si vous trouvez des anomalies, prévenez-moi. »
+« Frère Zeng, voici la carte stellaire. Une fois que vous l'aurez mémorisée, déployez les âmes. Si vous trouvez des anomalies, prévenez-moi. »
 
 Une carte couverte d'innombrables points apparut au sein de la force mystérieuse, immédiatement détectée par Wang Lin. Il y jeta un coup d'œil avant de porter la main à son front. Soudain, un tiers de ses âmes errantes s'échappa et se répandit dans les environs.
 

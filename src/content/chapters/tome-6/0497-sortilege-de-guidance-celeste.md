@@ -8,7 +8,7 @@ slug: sortilege-de-guidance-celeste
 ---
 Le rugissement perça à travers le drapeau et résonna dans l'âme originelle de Wang Lin. Bien que le son ne fût pas émis par son propre corps, le Qilin qui bondissait devant Tian Yunzi trembla soudainement et s'immobilisa. Sa large tête tourna brusquement, ses yeux devinrent d'une brillance inimaginable et il commença à scanner la foule.
 
-Cependant, au moment où l'âme résiduelle du Qilin à l'intérieur du drapeau des âmes avait poussé ce rugissement, Wang Lin avait déjà activé le drapeau pour masquer toute trace de la créature; le Qilin de Ling Tianhou ne put donc rien déceler.
+Cependant, au moment où l'âme résiduelle du Qilin à l'intérieur de l'Étendard de l'Âme avait poussé ce rugissement, Wang Lin avait déjà activé le drapeau pour masquer toute trace de la créature; le Qilin de Ling Tianhou ne put donc rien déceler.
 
 Le Saint de l'Épée, Ling Tianhou, fronça les sourcils.
 
@@ -104,7 +104,7 @@ En réalité, il savait au fond de lui que les autres disciples de la Division J
 
 S'ils devaient lutter, il n'aurait aucune confiance en sa victoire, d'autant plus que la Division Jaune comptait le Senior frère Yundao Zi.
 
-Kunpeng Zi suivait le Maître depuis plus de deux ans, mais lorsqu'il avait rejoint la secte, le Senior frère était déjà là. Il ignorait exactement depuis combien de temps ce dernier suivait Tian Yunzi.
+Kunpeng Zi suivait le Maître depuis plus de deux mille ans, mais lorsqu'il avait rejoint la secte, le Senior frère était déjà là. Il ignorait exactement depuis combien de temps ce dernier suivait Tian Yunzi.
 
 Cependant, bien que ce Senior frère fût un peu solitaire et ne parlât à personne, il n'avait manifesté aucun intérêt pour le poste de véritable disciple; il n'avait même pas tenté de s'y disputer la place.
 

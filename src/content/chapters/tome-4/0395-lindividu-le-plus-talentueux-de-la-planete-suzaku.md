@@ -68,7 +68,7 @@ Li Yuanfeng cracha un flot de sang et fut projeté en arrière comme une étoile
 
 Wang Lin fit un autre pas et apparut au-dessus de lui. Dans un rugissement, il lança un second coup. Cette fois, le corps de Li Yuanfeng s'écrasa violemment au sol.
 
-Un cratère gigantesque d'un rayon de 330 mètres se forma!
+Un cratère gigantesque d'un rayon de mille pieds se forma!
 
 Le sang coulait de la bouche de Li Yuanfeng et sa vision se brouillait, mais une lueur de malveillance subsistait dans son regard.
 

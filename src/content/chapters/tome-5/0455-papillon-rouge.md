@@ -74,13 +74,13 @@ Pendant que Wang Lin s'échappait, il dut ralentir car, après avoir quitté la 
 
 En regardant au loin, il distingua vaguement une montagne émettant une lueur arc-en-ciel. Elle ressemblait trait pour trait à la montagne spirituelle que Situ Nan lui avait décrite.
 
-Presque instantanément après son arrêt, un rugissement tonitruant déferla depuis le lointain. Wang Lin, déjà sur ses gardes, se téléporta immédiatement à 3,3 kilomètres de là. Dans un fracas, la montagne où il se trouvait s'effondra. Un éclair bleu jaillit des décombres: la lame en forme de demi-lune venait d'en sortir.
+Presque instantanément après son arrêt, un rugissement tonitruant déferla depuis le lointain. Wang Lin, déjà sur ses gardes, se téléporta immédiatement à dix mille pieds de là. Dans un fracas, la montagne où il se trouvait s'effondra. Un éclair bleu jaillit des décombres: la lame en forme de demi-lune venait d'en sortir.
 
 Simultanément, un message divin émana de la lame:
 
 « Laisse-le... »
 
-Le corps de Wang Lin disparut de nouveau, mais cette fois, il ressentit une vive douleur au bras gauche. Lorsqu'il réapparut à 3,3 kilomètres, sa manche avait disparu et une blessure béante était apparue.
+Le corps de Wang Lin disparut de nouveau, mais cette fois, il ressentit une vive douleur au bras gauche. Lorsqu'il réapparut à dix mille pieds, sa manche avait disparu et une blessure béante était apparue.
 
 « Quelle vitesse incroyable! » Après avoir réapparu, Wang Lin se téléporta à nouveau. Il n'osait pas s'éloigner trop loin, car s'il se retrouvait près d'une faille, la situation deviendrait périlleuse.
 
