@@ -68,17 +68,17 @@ Une lueur singulière passa dans les yeux du maître. Sans que l'on pût lire ni
 
 Le jeune cultivateur, ravi, guida promptement son maître hors du temple. Quant aux autres disciples, certains furent tentés de les suivre, mais devant le silence du Maître, ils hésitèrent. L'un d'eux soupira: « Le Maître gâte bien trop son petit Junior frère. »
 
-Un homme d'âge mûr esquissa un sourire amer et répondit lentement: « Ce n'est pas la première fois. Il n'y a pas de quoi en être jaloux. Avec la sagesse du Maître, comment pourrait-il ne pas voir les mensonges dans les paroles de ce jeune frère? Le mieux est de ne pas nous en préoccuper. »
+Un homme d'âge mûr esquissa un sourire amer et répondit lentement: « Ce n'est pas la première fois. Il n'y a pas de quoi en être jaloux. Avec la sagesse du Maître, comment pourrait-il ne pas voir les mensonges dans les paroles de ce petit Junior frère? Le mieux est de ne pas nous en préoccuper. »
 
-« Avec le tempérament du jeune apprenti, il finira tôt ou tard par s'attirer de gros ennuis, hélas! » marmonna un autre.
+« Avec le tempérament du petit Junior frère, il finira tôt ou tard par s'attirer de gros ennuis, hélas! » marmonna un autre.
 
-Le premier intervenant reprit d'un ton désabusé: « Avec le Maître à ses côtés, même si le jeune apprenti se met dans de graves difficultés, il s'en sortira sûrement. Si cela nous arrivait à nous, la situation serait bien différente. »
+Le premier intervenant reprit d'un ton désabusé: « Avec le Maître à ses côtés, même si le petit Junior frère se met dans de graves difficultés, il s'en sortira sûrement. Si cela nous arrivait à nous, la situation serait bien différente. »
 
 « Ce n'est pas la première fois que nous voyons le Maître faire preuve de favoritisme envers lui. Même sa méthode de culture est différente de la nôtre. Laissons tomber. Tant que nous en avons conscience, cela suffit. Si nous le disions à voix haute, nous passerions pour des gens mesquins. »
 
-« Je me demande quel disciple de quelle secte a provoqué la colère du jeune apprenti cette fois. D'après ses propos, cet individu se mêlait aux mortels. »
+« Je me demande quel disciple de quelle secte a provoqué la colère du petit Junior frère cette fois. D'après ses propos, cet individu se mêlait aux mortels. »
 
-« L'Alliance des Quatre Sectes est vaste et regorge de toutes sortes de cultivateurs. Je suppose que ce cultivateur est au stade de la Formation du Noyau s'il a pu détruire l'esprit gardien du jeune apprenti si aisément. »
+« L'Alliance des Quatre Sectes est vaste et regorge de toutes sortes de cultivateurs. Je suppose que ce cultivateur est au stade de la Formation du Noyau s'il a pu détruire l'esprit gardien du petit Junior frère si aisément. »
 
 « À quoi bon en discuter? Vu le rang du Maître au sein de l'Alliance des Quatre Sectes, ne parlons même pas des cultivateurs de la Formation du Noyau; même ceux du stade de l'Âme Naissante n'auraient aucune chance face à lui. »
 

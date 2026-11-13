@@ -52,11 +52,11 @@ L'homme au visage froid ricana: « Le Pavillon Zi Yun... Intéressant! »
 
 « Junior frère Zhou, qu’y a-t-il d’intéressant? » demanda l'homme au regard doux en se tournant vers lui.
 
-« Senior frère, cherchez-vous à me tester? Le Pavillon Zi Yun n'est pas un lieu où un simple disciple honoraire peut séjourner. Le Pavillon Zi Tian et mon propre Pavillon Zi Meng sont les seuls domaines réservés aux véritables disciples de notre Maître! Je crains que le Pavillon Zi Yun ne soit bientôt rebaptisé le Pavillon Zi Lin! »
+« Grand Senior frère, cherchez-vous à me tester? Le Pavillon Zi Yun n'est pas un lieu où un simple disciple honoraire peut séjourner. Le Pavillon Zi Tian et mon propre Pavillon Zi Meng sont les seuls domaines réservés aux véritables disciples de notre Maître! Je crains que le Pavillon Zi Yun ne soit bientôt rebaptisé le Pavillon Zi Lin! »
 
-L'homme au regard doux sourit: « Wang Lin n'est pas un homme ordinaire, et il semble que le Maître ait été véritablement touché au point d'accepter un nouveau disciple. Nous allons bientôt gagner un autre frère cadet. N'est-ce pas une joie? »
+L'homme au regard doux sourit: « Wang Lin n'est pas un homme ordinaire, et il semble que le Maître ait été véritablement touché au point d'accepter un nouveau disciple. Nous allons bientôt gagner un autre Junior frère. N'est-ce pas une joie? »
 
-« Frère aîné, épargnez-nous vos paroles de convenance », renifla Zhou avant de s'éloigner.
+« Grand Senior frère, épargnez-nous vos paroles de convenance », renifla Zhou avant de s'éloigner.
 
 Seul l'homme au regard doux resta. Ses yeux étaient calmes, mais trahissaient une réflexion profonde. Il murmura pour lui-même: « Le Pavillon Zi Yun... Le choix du Maître est vraiment intrigant... Junior frère Sun Yun, il semble que le Maître ait véritablement perdu toute foi en toi... »
 

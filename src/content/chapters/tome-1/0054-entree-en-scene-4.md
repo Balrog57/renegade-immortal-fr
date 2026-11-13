@@ -36,15 +36,15 @@ Zhou Peng pouvait expliquer la première fois par une simple négligence, mais l
 
 Cela laissa tous les membres de la Secte Xuan Dao stupéfaits.
 
-Liu Feng en resta la bouche bée et ne retrouva pas ses esprits pendant un long moment. Il était désormais convaincu que Wang Lin était l'atout majeur de la Secte Heng Yue. Il pensa: « Mon Senior frère n'était pas négligent, il était simplement plus faible que Wang Lin. Pourtant, mon Senior frère est déjà au 12ème niveau. Quel niveau de culture Wang Lin a-t-il donc atteint? »
+Liu Feng en resta la bouche bée et ne retrouva pas ses esprits pendant un long moment. Il était désormais convaincu que Wang Lin était l'atout majeur de la Secte Heng Yue. Il pensa: « Mon Grand Senior frère n'était pas négligent, il était simplement plus faible que Wang Lin. Pourtant, mon Grand Senior frère est déjà au 12ème niveau. Quel niveau de culture Wang Lin a-t-il donc atteint? »
 
 Liu Feng murmura d'un ton incrédule: « Pourrait-il avoir déjà atteint l'Établissement des Fondations? »
 
-La disciple nommée Ouyang, qui s'était moquée de Wang Lin auparavant lorsqu'il tentait de nourrir le mille-pattes avec de petits animaux, était elle aussi pétrifiée. Le Senior frère qu'elle admirait tant venait de perdre...
+La disciple nommée Ouyang, qui s'était moquée de Wang Lin auparavant lorsqu'il tentait de nourrir le mille-pattes avec de petits animaux, était elle aussi pétrifiée. Le Grand Senior frère qu'elle admirait tant venait de perdre...
 
 Les yeux de Liu Mei brillèrent d'un éclat nouveau. Elle se sentait encore plus intriguée par Wang Lin. Elle pensa secrètement: « Il possède effectivement de nombreux secrets. Je l'ai remarqué il y a trois jours, lorsqu'il fut le premier à se remettre de ma technique de charme. »
 
-Plusieurs autres disciples restèrent muets. Leur Senior frère était leur héros, un expert; et pourtant, cet expert venait d'être terrassé par quelqu'un d'autre, en un seul mouvement, sans aucune possibilité de riposter. Cela les fit tous douter des techniques enseignées à la Secte Xuan Dao.
+Plusieurs autres disciples restèrent muets. Leur Grand Senior frère était leur héros, un expert; et pourtant, cet expert venait d'être terrassé par quelqu'un d'autre, en un seul mouvement, sans aucune possibilité de riposter. Cela les fit tous douter des techniques enseignées à la Secte Xuan Dao.
 
 L'expression de l'Ancien Ouyang ressemblait à celle de Huang Long lorsque les disciples de la Secte Heng Yue avaient perdu toutes leurs précédentes batailles. Son visage était empreint d'une grande amertume. Il observa Wang Lin intensément et fut choqué. Avec sa culture au 14ème niveau, peu importe comment il scrutait Wang Lin, il ne pouvait y voir qu'un cultivateur au 3ème niveau.
 
@@ -56,7 +56,7 @@ C'est alors qu'un des disciples de la Secte Xuan Dao murmura soudainement: « Qu
 
 Un disciple à côté commença à analyser la situation avec un air sérieux: « Une technique d'attraction? Impossible. C'est une technique de bas niveau. Comment pourrait-elle contenir une telle puissance? À mon avis, il s'agit sûrement d'une ancienne technique perdue. On le voit agiter la main comme s'il s'agissait d'une technique d'attraction, mais ce n'est qu'un moyen de dissimuler cette technique ancestrale! Ce Wang Lin est trop rusé! »
 
-« Pourtant, de ce que j'ai vu, cela ressemblait trait pour trait à la technique d'attraction. Je la pratique souvent moi-même. Je pourrais agiter ma main et faire voler des objets à ma guise... tout comme ce qui est arrivé au frère aîné », ajouta un autre disciple, bien que sa voix se fût affaiblie sur ces derniers mots.
+« Pourtant, de ce que j'ai vu, cela ressemblait trait pour trait à la technique d'attraction. Je la pratique souvent moi-même. Je pourrais agiter ma main et faire voler des objets à ma guise... tout comme ce qui est arrivé au Grand Senior frère », ajouta un autre disciple, bien que sa voix se fût affaiblie sur ces derniers mots.
 
 Un autre disciple, en se frottant le menton, déclara: « Laisse tomber. Avec ton niveau, tu voudrais te comparer à Wang Lin? Ce ne peut pas être la technique d'attraction, c'est impossible! »
 

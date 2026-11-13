@@ -70,7 +70,7 @@ Une fois libérée, la bête spirituelle ne lutta pas et ne rugit pas. Elle jeta
 
 À ce moment-là, un nuage rouge apparut à l'horizon. Une masse de nuages rouges commença à s'agglutiner jusqu'à prendre la forme d'un vieil homme vêtu d'une robe rouge. Le visage de l'individu était d'un rouge ardent, il exhalait une forte odeur de vin et portait une grande gourde dans son dos. Apparaissant ainsi, il laissa échapper un rot, roula des yeux et réprimanda: « Pourquoi vous disputez-vous tous? Si vous ne vous battiez pas, comment ce vieil homme aurait-il été envoyé par Tian Yunzi, ce vieux sac d'os, pour vous punir? Je n'en étais qu'à la moitié de ma dégustation! »
 
-L'expression de Wang Lin resta calme tandis qu'il saisissait le piège à bêtes. Il se dirigea vers la troisième table vide, après celle de la Quatrième Sœur. C'était sa place.
+L'expression de Wang Lin resta calme tandis qu'il saisissait le piège à bêtes. Il se dirigea vers la troisième table vide, après celle de la quatrième Senior sœur. C'était sa place.
 
 D'un revers de manche, il s'assit.
 
@@ -112,6 +112,6 @@ Wang Lin chassa ses pensées et salua l'assemblée avec un sourire. Souhaitant s
 
 Le dernier jour du festival de sept jours, les célébrations de la Division Pourpre atteignirent leur apogée alors que Wang Lin, remplaçant Zhao Xingsha, devint le centre de l'attention et but avec tout le monde.
 
-Quant à Bai Wei et la Quatrième Sœur, peu de gens vinrent à leur rencontre. En comparaison, leur côté paraissait bien vide.
+Quant à Bai Wei et la quatrième Senior sœur, peu de gens vinrent à leur rencontre. En comparaison, leur côté paraissait bien vide.
 
-À mesure que la nuit approchait, les invités commencèrent à se disperser. Wang Lin, une coupe de vin à la main, trinqua avec Jiang Tianzun. Une fois ce dernier parti, le regard de Wang Lin se tourna vers la Quatrième Sœur.
+À mesure que la nuit approchait, les invités commencèrent à se disperser. Wang Lin, une coupe de vin à la main, trinqua avec Jiang Tianzun. Une fois ce dernier parti, le regard de Wang Lin se tourna vers la quatrième Senior sœur.

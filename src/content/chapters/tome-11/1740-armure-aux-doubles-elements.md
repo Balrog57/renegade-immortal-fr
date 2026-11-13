@@ -190,11 +190,11 @@ Wang Lin recula rapidement en crachant du sang. L'Épée de Sang était sur le p
 
 C'était le vieil homme du deuxième étage. Il était sorti pour capturer l'épée! Peu importe les efforts de la lame pour se libérer, elle restait prise dans sa poigne!
 
-À l'extérieur de la tour, le vieil homme portant l'armure des éléments bois et terre affichait une expression d'un respect extrême. Il joignit les mains et déclara: « Salutations, Senior Frère Ma. »
+À l'extérieur de la tour, le vieil homme portant l'armure des éléments bois et terre affichait une expression d'un respect extrême. Il joignit les mains et déclara: « Salutations, Senior frère Ma. »
 
 « Salutations, Oncle Ma. » Le fier Yun Yifeng était lui aussi sous le choc. Ses yeux brillaient d'une révérence fiévreuse tandis qu'il saluait respectueusement.
 
-« Salutations, Senior Frère Ma. » Les trois autres personnes, immobilisées par l'explosion de l'Ombre du Dao Antique, joignirent également les mains avec déférence.
+« Salutations, Senior frère Ma. » Les trois autres personnes, immobilisées par l'explosion de l'Ombre du Dao Antique, joignirent également les mains avec déférence.
 
 Wang Lin, reculant dans la distance, observa la scène. Il comprit qu'il avait forcé tous les cultivateurs étrangers à se dévoiler. Cet homme nommé Ma ressemblerait exactement à Na Duo s'il était plus jeune. Il était évident qu'il s'agissait de l'individu aperçu au sein du Clan Shan Lei; il était le chef de ce groupe de cultivateurs étrangers!
 

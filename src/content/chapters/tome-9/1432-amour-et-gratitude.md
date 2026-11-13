@@ -84,7 +84,7 @@ Il y avait encore tant de gens, tant de personnes... Comment Wang Lin pourrait-i
 
 Le Maître Simo d'aujourd'hui était l'avenir de Wang Lin!
 
-Pour ressusciter sa sœur, le Maître Simo avait abandonné la Secte Po Tian et tous ses frères de secte. Il avait même sacrifié sa propre âme pour devenir le chien du Souverain et avait tué sur ordre de celui-ci. Sur un simple signe du Souverain, même s'il s'agissait de son propre maître, il aurait levé le couperet tout en versant des larmes!
+Pour ressusciter sa sœur, le Maître Simo avait abandonné la Secte Po Tian et tous ses Senior frères et Junior frères. Il avait même sacrifié sa propre âme pour devenir le chien du Souverain et avait tué sur ordre de celui-ci. Sur un simple signe du Souverain, même s'il s'agissait de son propre maître, il aurait levé le couperet tout en versant des larmes!
 
 S'il n'avait pas vu les souvenirs du Maître Simo, le choix de Wang Lin aurait été encore plus déchirant.
 

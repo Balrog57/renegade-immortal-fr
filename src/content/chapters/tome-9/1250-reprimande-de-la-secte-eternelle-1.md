@@ -68,7 +68,7 @@ La Secte Gui Yuan se trouvait toujours dans le coin nord, et une aura oppressant
 
 Le visage de Lu Yanfei était pâle tandis qu'elle se mordait la lèvre inférieure; après un long moment, elle se leva. Étant la personne ayant le plus haut niveau de culture au sein de la Secte Gui Yuan, c'était à elle d'entrer dans cette compétition.
 
-Une fois debout, elle regarda les membres de sa secte, comprenant ses trois Senior Frère et sa disciple. Après un soupir, elle glissa comme un papillon vers la plateforme.
+Une fois debout, elle regarda les membres de sa secte, comprenant ses trois Senior frères et sa disciple. Après un soupir, elle glissa comme un papillon vers la plateforme.
 
 « Maître... » Les yeux de Sun Yun étaient embués de larmes en voyant Lu Yanfei s'éloigner. Elle ignorait quel serait le destin de la Secte Gui Yuan après cela. Peut-être seraient-ils réellement dissous...
 

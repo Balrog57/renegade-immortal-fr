@@ -14,23 +14,23 @@ Tous les disciples de la Secte Xuan Dao se regardèrent. Ils baissèrent tous la
 
 Quant aux disciples de la Secte Heng Yue, ils avaient totalement oublié le terme « déchet » qu'ils avaient employé pour Wang Lin. Ils se mirent tous à acclamer et à hurler:
 
-« Les déchets de la Secte Xuan Dao! Comment pouvez-vous rester cachés après avoir vu la puissance de notre Senior frère Wang? Vous étiez si arrogants auparavant, pourquoi personne ne se présente maintenant? »
+« Les déchets de la Secte Xuan Dao! Comment pouvez-vous rester cachés après avoir vu la puissance de notre Grand Senior frère Wang? Vous étiez si arrogants auparavant, pourquoi personne ne se présente maintenant? »
 
-« Où est passée toute votre audace? Envoyez quelqu'un rapidement pour que notre Senior frère Wang lui donne une leçon, et nous verrons si vous osez encore faire les fiers! »
+« Où est passée toute votre audace? Envoyez quelqu'un rapidement pour que notre Grand Senior frère Wang lui donne une leçon, et nous verrons si vous osez encore faire les fiers! »
 
-« Liu Feng, tu te montrais si fort tout à l'heure. Sors de là! Oses-tu affronter mon Senior frère? »
+« Liu Feng, tu te montrais si fort tout à l'heure. Sors de là! Oses-tu affronter mon Grand Senior frère? »
 
-« Il ne reste que des moins que rien dans la Secte Xuan Dao. Aucun d'eux n'ose sortir. Le Senior frère Wang est invincible! »
+« Il ne reste que des moins que rien dans la Secte Xuan Dao. Aucun d'eux n'ose sortir. Le Grand Senior frère Wang est invincible! »
 
-« Li Shan, espèce de ***! Tu nous as vendu ces bombes puantes avec de mauvaises intentions, mais on t'a démasqué, surtout notre Senior frère Wang Lin. As-tu compris la leçon? »
+« Li Shan, espèce de ***! Tu nous as vendu ces bombes puantes avec de mauvaises intentions, mais on t'a démasqué, surtout notre Grand Senior frère Wang Lin. As-tu compris la leçon? »
 
-« Vous avez tous vu? La Secte Xuan Dao est tellement terrifiée par le Senior frère Wang Lin que personne n'ose faire le premier pas. »
+« Vous avez tous vu? La Secte Xuan Dao est tellement terrifiée par le Grand Senior frère Wang Lin que personne n'ose faire le premier pas. »
 
-« Senior frère, je me suis moqué de vous auparavant, mais je viens vous présenter mes excuses devant tout le monde. Vous êtes désormais mon chef! Si vous me dites d'aller à l'est, je ne prendrai jamais la direction de l'ouest! »
+« Grand Senior frère, je me suis moqué de vous auparavant, mais je viens vous présenter mes excuses devant tout le monde. Vous êtes désormais mon chef! Si vous me dites d'aller à l'est, je ne prendrai jamais la direction de l'ouest! »
 
 L'atmosphère devint soudainement bien plus animée. Tous les disciples de la Secte Heng Yue, transportés par l'excitation, se mirent à crier de toutes leurs forces. Les combats précédents entre les deux sectes avaient été trop déprimants pour eux, mais la performance de Wang Lin leur avait redonné espoir.
 
-Par une étrange coïncidence, le titre de « Senior frère » avait été attribué à Wang Lin.
+Par une étrange coïncidence, le titre de « Grand Senior frère » avait été attribué à Wang Lin.
 
 Le visage de l'Ancien Ouyang passa du rouge au blanc. Il ressentait enfin ce que Huang Long avait éprouvé plus tôt. Finalement, il finit par lâcher: « Yang Yi, vas-y! »
 
@@ -38,9 +38,9 @@ Un jeune homme grand et mince s'avança avec hésitation. Avant même qu'il n'at
 
 Il n'eut pas le temps de finir sa phrase; il remarqua que tous les autres disciples le dévisageaient avec des expressions étranges, et surtout Yang Yi, qui lui lançait un regard chargé de haine. Ce regard fut si terrifiant qu'il n'osa pas terminer son propos.
 
-Yang Yi maudit intérieurement: « Ce crétin... Wang Lin est si puissant qu'il peut vaincre un Senior frère en un seul mouvement, et pourtant le vieux Ouyang me force quand même à monter. C'est humiliant. Et je ne sais pas non plus combien de bombes puantes ce bâtard de Li Shan lui a vendues. Ce Li Shan, je lui donnerai une leçon une fois de retour. »
+Yang Yi maudit intérieurement: « Ce crétin... Wang Lin est si puissant qu'il peut vaincre le Grand Senior frère en un seul mouvement, et pourtant le vieux Ouyang me force quand même à monter. C'est humiliant. Et je ne sais pas non plus combien de bombes puantes ce bâtard de Li Shan lui a vendues. Ce Li Shan, je lui donnerai une leçon une fois de retour. »
 
-Tout en pensant cela, il tourna un regard féroce vers Li Shan. Puis, joignant les mains avec respect, il déclara: « Senior frère Wang, je suis Yang Yi. Vous êtes très élégant et possédez une culture si élevée! Vous deviendrez certainement célèbre dans le pays de la culture de Zhao! Avoir l'opportunité de combattre mon frère est un véritable privilège, je ne peux contenir ma joie! »
+Tout en pensant cela, il tourna un regard féroce vers Li Shan. Puis, joignant les mains avec respect, il déclara: « Senior frère Wang, je suis Yang Yi. Vous êtes très élégant et possédez une culture si élevée! Vous deviendrez certainement célèbre dans le pays de la culture de Zhao! Avoir l'opportunité de croiser le fer avec vous, votre Junior frère, est un véritable privilège, je ne peux contenir ma joie! »
 
 Wang Lin jeta un coup d'œil à Yang Yi, mais ne dit mot.
 
@@ -70,7 +70,7 @@ Sur l'estrade, Yang Yi n'eut même pas le temps de prêter attention aux provoca
 
 Wang Lin regarda Yang Yi et répondit simplement: « D'accord! »
 
-Yang Yi fut secrètement ravi. Il avait toujours été quelqu'un de calme, contrairement à l'arrogant Zhou Peng. Il pensa: « Wang Lin, bien que ta Main de Capture du Dragon soit puissante et que je ne puisse égaler mon Senior frère, ma spécialité est la vitesse! Hmph, voyons si tu peux m'attraper en 20 secondes. La victoire sera assurément la mienne! »
+Yang Yi fut secrètement ravi. Il avait toujours été quelqu'un de calme, contrairement à l'arrogant Zhou Peng. Il pensa: « Wang Lin, bien que ta Main de Capture du Dragon soit puissante et que je ne puisse égaler le Grand Senior frère, ma spécialité est la vitesse! Hmph, voyons si tu peux m'attraper en 20 secondes. La victoire sera assurément la mienne! »
 
 Il joignit les mains vers Wang Lin, puis sortit rapidement un morceau de jade blanc qu'il broya. Soudain, une lumière blanche enveloppa son corps, décuplant sa vitesse. Il s'élança sur le côté.
 
@@ -80,5 +80,5 @@ Wang Lin esquissa un sourire moqueur. Son Sens Divin était bien supérieur à c
 
 Dès qu'il aperçut la bombe puante, le visage de Yang Yi changea radicalement et il accéléra brusquement.
 
-Li Shan regardait avec stupeur la bombe puante dans la main de Wang Lin en marmonnant: « Senior frère Wang, Grand frère Wang, Grand-père Wang! Je vous en prie, n'utilisez plus ça! J'ai déjà provoqué la colère du Senior frère. Si le deuxième Senior frère se fait encore toucher par cette bombe, ma vie est finie... »
+Li Shan regardait avec stupeur la bombe puante dans la main de Wang Lin en marmonnant: « Senior frère Wang, Grand frère Wang, Grand-père Wang! Je vous en prie, n'utilisez plus ça! J'ai déjà provoqué la colère du Grand Senior frère. Si le deuxième Senior frère se fait encore toucher par cette bombe, ma vie est finie... »
 

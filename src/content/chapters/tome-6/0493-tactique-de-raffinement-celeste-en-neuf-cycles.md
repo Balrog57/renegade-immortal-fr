@@ -6,13 +6,13 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 493 - Nine Cycle Celestial Refining Tactic
 slug: tactique-de-raffinement-celeste-en-neuf-cycles
 ---
-Les yeux de Wang Lin s'illuminèrent et il dit lentement: « Quatrième Sœur, je me demande quand tu pourras enseigner ce sort de téléportation à ton Junior frère. »
+Les yeux de Wang Lin s'illuminèrent et il dit lentement: « Quatrième Senior sœur, je me demande quand tu pourras enseigner ce sort de téléportation à ton Junior frère. »
 
-La Quatrième Sœur regarda Wang Lin avant de laisser échapper un sourire. Elle toucha sa sacoche de rangement, en retira un morceau de jade et le lança à Wang Lin.
+La Quatrième Senior sœur regarda Wang Lin avant de laisser échapper un sourire. Elle toucha sa sacoche de rangement, en retira un morceau de jade et le lança à Wang Lin.
 
 « J'avais initialement prévu de te libérer après la célébration de l'anniversaire du Maître, mais je ne m'attendais pas à ce que tu puisses t'échapper par tes propres moyens, Septième Frère. J'étais impuissante face à cette situation, et j'espère que Junior frère ne m'en tiendra pas rigueur. Dans ce jade, en plus du sort de téléportation, se trouve également une restriction que le Maître m'a enseignée autrefois. Cette restriction est une technique que le Maître a réussi à créer après avoir étudié un sort céleste de qualité inférieure; sa puissance est correcte. Considère cela comme un cadeau pour compenser mes actions passées. »
 
-Wang Lin accepta le jade, puis il regarda la Quatrième Sœur et hocha la tête après réflexion.
+Wang Lin accepta le jade, puis il regarda la quatrième Senior sœur et hocha la tête après réflexion.
 
 À moins que ce ne soit absolument nécessaire, il ne voulait pas que leur relation se brise totalement. Après tout, elle était au stade avancé de la Transformation de l'Âme et n'avait manifesté aucune malice envers lui durant tout ce temps. Même il y a trois mois, elle s'était contentée de le sceller avec une restriction sans tenter de lui nuire.
 
@@ -22,13 +22,13 @@ Wang Lin sourit discrètement, puis il prit également sa coupe et but à son to
 
 Bai Wei hocha la tête en souriant. « Vas-y, Septième Frère; ne te soucie pas de nous. »
 
-La Quatrième Sœur acquiesça également. Elle sourit, mais ne dit rien.
+La Quatrième Senior sœur acquiesça également. Elle sourit, mais ne dit rien.
 
 Wang Lin fit un pas et se transforma en un rayon de lumière avant de disparaître.
 
-Après son départ, Bai Wei et la Quatrième Sœur discutèrent un instant avant de se séparer.
+Après son départ, Bai Wei et la quatrième Senior sœur discutèrent un instant avant de se séparer.
 
-Sur le chemin du retour vers le Pavillon Zi Wei, les yeux de Bai Wei révélèrent une lueur malveillante. Il regarda vers le siège principal de la Secte Tian Yun et murmura pour lui-même: « Le Maître a été trop injuste en plantant cette graine démoniaque en notre frère aîné. Maintenant que le démon s'est éveillé, il ne faudra pas longtemps avant que la culture de ce dernier ne se rétablisse. Si cela arrive, je ne pourrai plus accomplir ma vengeance. Comment puis-je gérer cela? »
+Sur le chemin du retour vers le Pavillon Zi Wei, les yeux de Bai Wei révélèrent une lueur malveillante. Il regarda vers le siège principal de la Secte Tian Yun et murmura pour lui-même: « Le Maître a été trop injuste en plantant cette graine démoniaque en notre Grand Senior frère. Maintenant que le démon s'est éveillé, il ne faudra pas longtemps avant que la culture de ce dernier ne se rétablisse. Si cela arrive, je ne pourrai plus accomplir ma vengeance. Comment puis-je gérer cela? »
 
 Il retourna au Pavillon Zi Wei, le visage sombre.
 
@@ -36,7 +36,7 @@ Pendant que Wang Lin volait, il croisa plusieurs cultivateurs d'autres sectes et
 
 Après trois mois d'absence, le Pavillon Zi Lin était resté inchangé. Il monta directement au troisième étage et sortit un morceau de jade.
 
-Il s'agissait du jade que la Quatrième Sœur lui avait donné, contenant le sort et la restriction.
+Il s'agissait du jade que la quatrième Senior sœur lui avait donné, contenant le sort et la restriction.
 
 Une restriction capable de déplacer des centaines de milliers de kilomètres était une technique salvatrice. Dès qu'il l'avait vue, il avait su qu'il la voulait. Il examina le jade, puis fronça les sourcils.
 
@@ -46,7 +46,7 @@ Peu après, il retira son Sens Divin et afficha une expression pensive.
 
 « Bien que le concept soit simple, son utilisation réelle est semée d'embûches. Si la durée du scellement n'est pas parfaitement maîtrisée, il est fort probable que l'on se retrouve projeté dans une faille spatiale. »
 
-« De plus, il est impossible de se téléporter vers un lieu précis. On peut supposer que la Quatrième Sœur a utilisé son Sens Divin au stade avancé de la Transformation de l'Âme, ainsi que sa connaissance de la planète Tian Yun, pour pouvoir nous téléporter avec précision dans cette forêt de pierre. »
+« De plus, il est impossible de se téléporter vers un lieu précis. On peut supposer que la quatrième Senior sœur a utilisé son Sens Divin au stade avancé de la Transformation de l'Âme, ainsi que sa connaissance de la planète Tian Yun, pour pouvoir nous téléporter avec précision dans cette forêt de pierre. »
 
 « Cependant, dans l'ensemble, ce sort est tout à fait unique! »
 
@@ -78,19 +78,19 @@ Il afficha un air exalté en marmonnant: « La puissance de cette grande restric
 
 Sous la clarté lunaire, la silhouette de Wang Lin se changea en un rayon de lumière et s'élança vers le ciel.
 
-En volant, il sortit le jade pour examiner la seconde restriction que la Quatrième Sœur lui avait remise.
+En volant, il sortit le jade pour examiner la seconde restriction que la quatrième Senior sœur lui avait remise.
 
 En l'étudiant, ses yeux brillèrent d'une lueur mystérieuse. Il s'arrêta en plein vol et fronça les sourcils.
 
 « La seconde restriction n'a pas de nom; c'est une méthode pour manipuler l'énergie spirituelle céleste. Cette énergie ne circule pas par les canaux ordinaires du corps, mais se déplace en spirale avant d'être libérée. Il y a un total de neuf rotations, et plus la spirale dure longtemps dans le corps, plus la technique est puissante. »
 
-« D'après la note de la Quatrième Sœur, lorsque le Maître lui a transmis ce sort, il a précisé qu'il avait été créé à partir d'un sort céleste de qualité inférieure: la Tactique de Raffinement Céleste en Neuf Cycles. »
+« D'après la note de la quatrième Senior sœur, lorsque le Maître lui a transmis ce sort, il a précisé qu'il avait été créé à partir d'un sort céleste de qualité inférieure: la Tactique de Raffinement Céleste en Neuf Cycles. »
 
 « Cette technique est une imitation; ainsi, même si l'on parvient à atteindre neuf tours complets, elle ne sera pas plus puissante que trois tours du sort céleste original. »
 
 Wang Lin réfléchit un moment et ne tenta pas de l'utiliser immédiatement. Il déploya son Sens Divin pour trouver un endroit calme afin d'entamer une étude minutieuse.
 
-Wang Lin n'était pas un homme téméraire. Vu la facilité avec laquelle la Quatrième Sœur lui avait remis ce jade, il devait s'assurer de sa légitimité avant de décider de le cultiver.
+Wang Lin n'était pas un homme téméraire. Vu la facilité avec laquelle la quatrième Senior sœur lui avait remis ce jade, il devait s'assurer de sa légitimité avant de décider de le cultiver.
 
 Après une longue et attentive étude, Wang Lin put utiliser ses propres connaissances ainsi que les trois sorts mortels transmis par Situ Nan pour confirmer que cette restriction était authentique!
 

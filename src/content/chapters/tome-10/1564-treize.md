@@ -36,7 +36,7 @@ Qing Shui partit. Sa robe verte flottait parmi les étoiles, empreinte d'une sen
 
 Cependant, quoi qu'il arrive, tant que Wang Lin le demanderait, il reviendrait des confins du monde. Il n'était pas nécessaire de trop parler entre eux; les épreuves qu'ils avaient traversées ensemble étaient des choses que Qing Shui n'oublierait jamais.
 
-Parmi les étoiles, il n'y avait que deux personnes dont Qing Shui se souciait encore. L'une d'elles était son Junior Frère de secte, Wang Lin.
+Parmi les étoiles, il n'y avait que deux personnes dont Qing Shui se souciait encore. L'une d'elles était son Junior frère, Wang Lin.
 
 L'évasion du Maître Hong Shan apporta la joie au Royaume Intérieur. La reprise de Zhao He He redonna espoir aux cultivateurs restants!
 
@@ -88,7 +88,7 @@ La femme en violet à ses côtés était plus âgée, d'un âge mûr. Les marque
 
 La jeune femme cligna des yeux, montrant un signe d'intérêt. Elle regarda la femme en violet et sourit:
 
-« Senior Sœur, je me souviens que vous avez dit venir de la planète Suzaku. Avez-vous déjà rencontré le Seigneur du Royaume Scellé? »
+« Senior sœur, je me souviens que vous avez dit venir de la planète Suzaku. Avez-vous déjà rencontré le Seigneur du Royaume Scellé? »
 
 Après sa question, tout le monde, y compris l'érudit, se tut. Tous fixèrent la femme en violet avec un mélange de choc et d'envie, ainsi qu'un profond respect.
 
@@ -108,13 +108,13 @@ Cependant, la planète Suzaku était un petit monde dont très peu de cultivateu
 
 Les Daoïstes disent: « Quand un seul homme atteint le Dao, poules et chiens s'élèvent au ciel. » La planète Suzaku avait acquis le respect de tout le Royaume Intérieur grâce à Wang Lin seul.
 
-La femme en violet semblait peu habituée à une telle attention et ses joues rougirent légèrement. Elle leva sa main semblable à du jade pour écarter une mèche de cheveux, puis salua les cultivateurs qui l'honoraient. Elle répondit doucement à sa sœur cadette:
+La femme en violet semblait peu habituée à une telle attention et ses joues rougirent légèrement. Elle leva sa main semblable à du jade pour écarter une mèche de cheveux, puis salua les cultivateurs qui l'honoraient. Elle répondit doucement à sa Junior sœur:
 
 « Je... je crois l'avoir vu... » La femme commença à se remémorer le passé, et ses paroles imposèrent le silence à l'assemblée.
 
 « Cependant, je ne suis pas tout à fait sûre que la personne que j'ai rencontrée était lui... » soupira-t-elle.
 
-« Senior Sœur Zhou, dites-nous tout vite! » pressa la jeune femme en rose.
+« Senior sœur Zhou, dites-nous tout vite! » pressa la jeune femme en rose.
 
 « À cette époque, il s'appelait Ma Liang... Il n'était alors qu'au stade de l'Établissement des Fondations, et il était très froid et impitoyable... Il était revenu du Champ de Bataille Extérieur vers le pays de Huo Fen en même temps que nous. S'il était vraiment le Seigneur du Royaume Scellé, lui et Li Muwan auraient dû se rencontrer là-bas... Li Muwan était ma meilleure amie... » La femme en violet semblait incertaine dans ses propos.
 

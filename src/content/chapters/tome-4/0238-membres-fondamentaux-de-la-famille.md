@@ -30,7 +30,7 @@ Wang Lin contempla l'homme devant lui tandis que des scènes du passé défilaie
 
 L'homme murmura: « Je n'y suis pas retourné depuis de nombreuses années... »
 
-« Pourquoi êtes-vous à la Secte He Huan, frère Zhang? Et votre culture... » Wang Lin fronça les sourcils. Il saisit le bras de l'homme et, après une brève analyse, poursuivit: « L'énergie spirituelle dans votre corps est en un désordre total et vos méridiens sont extrêmement fragiles. »
+« Pourquoi êtes-vous à la Secte He Huan, Senior frère Zhang? Et votre culture... » Wang Lin fronça les sourcils. Il saisit le bras de l'homme et, après une brève analyse, poursuivit: « L'énergie spirituelle dans votre corps est en un désordre total et vos méridiens sont extrêmement fragiles. »
 
 L'homme sourit amèrement et expliqua: « Après votre départ et votre absence prolongée, les ancêtres ont concentré tous leurs efforts sur moi. Ils se sont investis pour élever mon niveau de culture jusqu'à la Formation du Noyau. Je suis ensuite parti de la Secte Heng Yue avec l'intention de parcourir le monde et d'affronter les épreuves, dans l'espoir d'atteindre un jour le stade de l'Âme Naissante afin de restaurer la secte. Mais je ne m'attendais pas à rencontrer une femme. C'était une disciple de la Secte He Huan... Hélas, toute ma culture a été perdue. Cependant, cette traînée ne m'a pas tué par égard pour notre passé et utilise mon corps pour raffiner une Pilule He Huan. Bien que je sois devenu un moins que rien, je resterai en vie jusqu'à ce que la pilule soit achevée. Si cela n'avait pas été le cas, je ne serais déjà plus qu'un tas d'os. »
 

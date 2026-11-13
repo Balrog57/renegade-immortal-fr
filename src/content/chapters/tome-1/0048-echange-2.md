@@ -33,7 +33,7 @@ De fins filets de qi d'épée s'échappèrent des pétales de chaque lotus. À c
 
 Le chef de secte Huang Long sourit: « L'intention d'épée du lotus de Zhao Long a déjà la puissance du rang intermédiaire. Très bien. »
 
-L'Ancien au visage rouge déclara avec fierté sur le côté: « Haha, grand frère chef de secte, Zhao Long est mon disciple préféré. Son talent est déjà bon, et plus remarquable encore, il s'entraîne avec une extrême assiduité. Ce qi d'épée du lotus est un art qu'il a lui-même sélectionné à la bibliothèque des écritures. Il le cultive depuis cinq ans et a enfin atteint le rang intermédiaire! »
+L'Ancien au visage rouge déclara avec fierté sur le côté: « Haha, Senior frère chef de secte, Zhao Long est mon disciple préféré. Son talent est déjà bon, et plus remarquable encore, il s'entraîne avec une extrême assiduité. Ce qi d'épée du lotus est un art qu'il a lui-même sélectionné à la bibliothèque des écritures. Il le cultive depuis cinq ans et a enfin atteint le rang intermédiaire! »
 
 L'Ancien Dao Xu sourit et s'adressa aux disciples environnants: « Le qi d'épée du lotus est réputé depuis toujours pour sa puissance d'attaque. Vous, les disciples internes, regardez bien et apprenez davantage; une telle occasion est précieuse, saisissez-la! »
 

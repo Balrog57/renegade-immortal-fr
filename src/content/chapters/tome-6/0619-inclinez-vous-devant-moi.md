@@ -24,7 +24,7 @@ Le messager qui avait rapporté la position de Wang Lin avait certes mentionné 
 
 Sun Yunshan regarda autour de lui. En comptant lui-même, ils étaient moins de vingt. La plupart se situaient au début du stade de la Transformation de l'Âme, et seuls quelques-uns atteignaient le milieu de ce stade. Il n'y avait qu'un seul cultivateur au stade tardif de la Transformation de l'Âme: l'Oncle Feng, qui était resté silencieux durant tout ce temps.
 
-En regardant le vieil homme aux cheveux gris non loin de lui, Sun Yunshan ne ressentit que de la tristesse. Il s'agissait de l'Oncle Martial Feng. C'était le frère apprenti du père de Sun Yunshan, et il était venu ici pour protéger ce dernier.
+En regardant le vieil homme aux cheveux gris non loin de lui, Sun Yunshan ne ressentit que de la tristesse. Il s'agissait de l'Oncle Martial Feng. C'était le Junior frère du père de Sun Yunshan, et il était venu ici pour protéger ce dernier.
 
 Cependant, il n'aurait jamais pu imaginer que sa petite sœur les aurait secrètement suivis... le plongeant ainsi dans une situation aussi désespérée. L'Ancêtre avait même effacé la mémoire de l'Oncle Martial Feng à l'aide d'un sort secret pour en faire une marionnette. Lui-même s'était vu implanter une graine céleste par l'Ancêtre, et il n'avait plus aucun contrôle sur sa propre vie ou sa mort.
 

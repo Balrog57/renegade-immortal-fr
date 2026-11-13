@@ -49,7 +49,7 @@ Wang Lin frappa son sac de rangement, et l'âme originelle de l'Illustre Xuan Ba
 
 L'expression de Qing Shui devint sombre et il ferma les yeux. Après un long moment, il les rouvrit, le visage marqué par une couche de givre. Il renvoya l'âme originelle de l'Illustre Xuan Bao vers Wang Lin.
 
-Sans mot dire, Wang Lin réceptionna l'âme. Celle-ci avait perdu toute conscience et n'était plus qu'une simple source d'énergie d'origine céleste. L'ancien illustre, le frère cadet de l'Illustre Tian Bao, en était arrivé là. On ne pouvait que constater que, qu'on soit un Céleste ou un cultivateur, la moindre négligence pouvait mener à un tel dénouement. Pour faire exception, il fallait devenir le plus fort.
+Sans mot dire, Wang Lin réceptionna l'âme. Celle-ci avait perdu toute conscience et n'était plus qu'une simple source d'énergie d'origine céleste. L'ancien illustre, le Junior frère de l'Illustre Tian Bao, en était arrivé là. On ne pouvait que constater que, qu'on soit un Céleste ou un cultivateur, la moindre négligence pouvait mener à un tel dénouement. Pour faire exception, il fallait devenir le plus fort.
 
 Wang Lin rangea cette âme dans son sac de rangement et regarda Qing Shui. L'expression de ce dernier était revenue à la normale, mais une lueur de férocité y persistait. Il avait trouvé un indice ténu dans l'âme originelle de l'Illustre Xuan Bao!
 

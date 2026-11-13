@@ -14,19 +14,19 @@ La silhouette se solidifia lentement pour prendre l'apparence d'un homme d'une q
 
 Mu Rong, qui était agenouillé au sol, se leva prestement, s'élança vers l'une des grottes et disparut sans laisser de trace.
 
-Ye Zizai agita sa main droite et un rideau de lumière apparut soudainement pour les envelopper. Il soupira avec une pointe de mélancolie: « Wang Lin, tu n'es pas un disciple de la Secte Shi Yin. Inutile de te contraindre. Mon frère cadet Wu Yu doit avoir rencontré des difficultés. Wang Lin, il n'y a personne d'autre ici, alors dis-moi la vérité. »
+Ye Zizai agita sa main droite et un rideau de lumière apparut soudainement pour les envelopper. Il soupira avec une pointe de mélancolie: « Wang Lin, tu n'es pas un disciple de la Secte Shi Yin. Inutile de te contraindre. Mon Junior frère Wu Yu doit avoir rencontré des difficultés. Wang Lin, il n'y a personne d'autre ici, alors dis-moi la vérité. »
 
 Wang Lin se redressa. Il y avait déjà réfléchi avant de venir: l'affaire du disciple de Wu Yu ne pouvait absolument pas échapper à un expert de l'Âme Naissante comme Ye Zizai, il décida donc de dire la vérité.
 
 Après un instant de réflexion, Wang Lin raconta tout ce qu'il avait vu dans les ruines de la jungle.
 
-Ye Zizai écouta en silence, sans dire un mot. Une fois le récit terminé, il soupira, ferma les yeux et pensa: « Ce que dit ce Wang Lin doit être vrai. Lorsque mon frère Wu Yu est parti, il avait mentionné que sa marionnette de cadavre était sur le point d'évoluer, et les propos de Wang Lin concordent avec sa personnalité. Une marionnette de cadavre qui se rebelle... Hélas, mon frère cadet, comment une révolte de marionnette du stade intermédiaire de l'Établissement des Fondations pourrait-elle être aussi facile à gérer que tu le prétends? Même moi, je ne pourrais pas la vaincre. »
+Ye Zizai écouta en silence, sans dire un mot. Une fois le récit terminé, il soupira, ferma les yeux et pensa: « Ce que dit ce Wang Lin doit être vrai. Lorsque mon Junior frère Wu Yu est parti, il avait mentionné que sa marionnette de cadavre était sur le point d'évoluer, et les propos de Wang Lin concordent avec sa personnalité. Une marionnette de cadavre qui se rebelle... Hélas, mon Junior frère, comment une révolte de marionnette du stade intermédiaire de l'Établissement des Fondations pourrait-elle être aussi facile à gérer que tu le prétends? Même moi, je ne pourrais pas la vaincre. »
 
 « Puisque tu as chargé Wang Lin de transmettre ce message, c'est que tu as d'autres intentions... » Sur ces mots, Ye Zizai déploya son sens divin et poussa soudain un léger murmure de surprise. La méthode que cultivait ce Wang Lin était très proche de celle de la Secte Shi Yin; il était imprégné d'énergie Yin. Après un instant de réflexion, Ye Zizai comprit l'intention de Wu Yu.
 
 C'était la manière dont Wu Yu envoyait un appel au secours tout en introduisant un disciple au sein de la secte. Après avoir scruté Wang Lin, il posa son regard sur Adai. Après une longue réflexion, il saisit parfaitement les intentions de Wu Yu: le corps d'Adai était fait pour pratiquer les méthodes de culture de la Secte Shi Yin.
 
-Une fois son regard détourné, Ye Zizai demanda lentement à Wang Lin: « Est-ce lui, Adai, qui a accompagné mon frère cadet durant toutes ces années? »
+Une fois son regard détourné, Ye Zizai demanda lentement à Wang Lin: « Est-ce lui, Adai, qui a accompagné mon Junior frère durant toutes ces années? »
 
 Wang Lin hocha la tête.
 
@@ -34,9 +34,9 @@ Ye Zizai prit une profonde inspiration et déclara avec détermination: « Wang 
 
 Wang Lin avait déjà anticipé ce qui pouvait arriver en chemin. Le recrutement de Ye Zizai était conforme à ses attentes; il répondit donc respectueusement: « Ce disciple est prêt. »
 
-Ye Zizai acquiesça et dit: « Très bien. Puisque tu as eu la chance de rencontrer mon frère cadet Wu Yu, autant devenir son véritable disciple. Désormais, tu es un disciple de la deuxième génération de la Secte Shi Yin. »
+Ye Zizai acquiesça et dit: « Très bien. Puisque tu as eu la chance de rencontrer mon Junior frère Wu Yu, autant devenir son véritable disciple. Désormais, tu es un disciple de la deuxième génération de la Secte Shi Yin. »
 
-Puis, il pointa Adai du doigt et ajouta: « Je vais emmener Adai avec moi. » Voyant l'hésitation de Wang Lin, il précisa: « Ne t'inquiète pas. Il entretient un lien si profond avec mon frère cadet que je ne lui ferai aucun mal. Je vais le prendre comme disciple personnel. »
+Puis, il pointa Adai du doigt et ajouta: « Je vais emmener Adai avec moi. » Voyant l'hésitation de Wang Lin, il précisa: « Ne t'inquiète pas. Il entretient un lien si profond avec mon Junior frère que je ne lui ferai aucun mal. Je vais le prendre comme disciple personnel. »
 
 Sur ces mots, il agita la main droite et lança un jade bleu foncé. Puis, il saisit Adai d'un geste brusque. Adai poussa un cri alors qu'ils disparaissaient dans les profondeurs des grottes.
 
@@ -90,11 +90,11 @@ Cette figure était très floue; on ne pouvait distinguer ses traits. Elle flott
 
 Ye Zizai fronça les sourcils. Il agita la main droite et cracha une bouffée de feu bleu de l'Âme Naissante qui, dès son apparition, se changea en un long arc lumineux et bloqua la griffe de l'entité.
 
-Ye Zizai dit froidement: « Luo Sha, cet Adai est l'héritier que mon frère cadet a désigné à demi-mot. Tu ne dois pas lui faire de mal! »
+Ye Zizai dit froidement: « Luo Sha, cet Adai est l'héritier que mon Junior frère a désigné à demi-mot. Tu ne dois pas lui faire de mal! »
 
-La figure laissa échapper un rire. Flottant dans les airs, les bras croisés sur ses épaules, elle dit d'une voix aiguë: « Ye Zizai, toi et ton frère cadet n'êtes que des fourneaux pour nous. Ton frère est parti trop tôt, avant que le Seigneur Zi ne puisse s'éveiller, et maintenant il te lance un appel à l'aide. Il se jette vraiment dans la gueule du loup. Ye Zizai, puisque tu connais déjà sa position, pourquoi n'irais-tu pas aider Seigneur Zi à dévorer Wu Yu? »
+La figure laissa échapper un rire. Flottant dans les airs, les bras croisés sur ses épaules, elle dit d'une voix aiguë: « Ye Zizai, toi et ton Junior frère n'êtes que des fourneaux pour nous. Ton Junior frère est parti trop tôt, avant que le Seigneur Zi ne puisse s'éveiller, et maintenant il te lance un appel à l'aide. Il se jette vraiment dans la gueule du loup. Ye Zizai, puisque tu connais déjà sa position, pourquoi n'irais-tu pas aider Seigneur Zi à dévorer Wu Yu? »
 
-Le visage de Ye Zizai était sombre. Il fixa la figure et ricana: « Avant de me dévorer complètement, ne crois pas que j'écouterai tes ordres. Quant au Seigneur Zi, je n'irai aider ni lui, ni mon frère cadet. Que Seigneur Zi parvienne ou non à dévorer mon frère dépendra uniquement de lui-même. »
+Le visage de Ye Zizai était sombre. Il fixa la figure et ricana: « Avant de me dévorer complètement, ne crois pas que j'écouterai tes ordres. Quant au Seigneur Zi, je n'irai aider ni lui, ni mon Junior frère. Que Seigneur Zi parvienne ou non à dévorer mon Junior frère dépendra uniquement de lui-même. »
 
 La figure poussa un rire sinistre. Cela semblait l'indifférer: « Si tu refuses d'y aller, je ne te forcerai pas. Mais la prochaine vague d'entités de sens divin a été préparée par un pays de rang 5. Cette fois, il y en aura dix. Choisis ton fourneau avec soin. N'oublie pas que tu n'es qu'un disciple extérieur de la Secte Shi Yin. Et qu'as-tu prévu de faire de ce gamin d'Adai? »
 

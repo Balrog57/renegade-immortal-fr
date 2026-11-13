@@ -76,11 +76,11 @@ Wang Lin sourit en prenant la pierre et la parcourut de son Sens Divin. Bien que
 
 Bien que ce ne fût pas un objet d'une valeur inestimable, il n'en demeurait pas moins rare. Wang Lin acquiesça et le rangea dans son sac de rangement.
 
-« Ce vieil homme est distrait et n'a pas encore présenté mes deux frères cadets. Voici mon deuxième frère, Liu Yuelong, dont le surnom est Maître Yi Long. » Maître Yi Chen désigna le vieil homme en robe verte.
+« Ce vieil homme est distrait et n'a pas encore présenté mes deux Junior frères. Voici mon deuxième Junior frère, Liu Yuelong, dont le surnom est Maître Yi Long. » Maître Yi Chen désigna le vieil homme en robe verte.
 
 Ce dernier se leva, joignit les mains devant Wang Lin et rit: « Le nom de Maître Yi Long n'est rien face au Frère Wang. Vous pouvez simplement m'appeler par mon nom. »
 
-« Et voici mon troisième frère, Zhen Xinghan, surnommé Maître Yi Xing. »
+« Et voici mon troisième Junior frère, Zhen Xinghan, surnommé Maître Yi Xing. »
 
 L'homme d'âge moyen en robe violette avait le niveau de culture le plus bas. Bien qu'il fût au stade intermédiaire du Scruteur du Nirvana, il était manifestement moins fort que Maître Yi Long. Il se leva et salua respectueusement: « Le Frère Wang peut simplement m'appeler par mon nom. »
 

@@ -100,7 +100,7 @@ La femme en violet trembla et resta pétrifiée. Le sourire de l'homme en blanc 
 
 « C'est lui!! »
 
-« Senior Sœur, qu'y a-t-il? » La femme en rose, voyant sa sœur aînée saisie d'un sursaut, la secoua doucement. Elle suivit son regard, mais ne vit que le rideau de la porte osciller légèrement sous la brise.
+« Senior sœur, qu'y a-t-il? » La femme en rose, voyant sa Senior sœur saisie d'un sursaut, la secoua doucement. Elle suivit son regard, mais ne vit que le rideau de la porte osciller légèrement sous la brise.
 
 Non seulement elle, mais tous les cultivateurs environnants se tournèrent également. Cependant, ils ne virent que le mouvement léger du rideau, rien d'autre.
 

@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: The Path of Immortals
 slug: culture
 ---
-Après avoir attendu un moment dans le jardin, l'Ancien Sun revint, le visage sombre et empreint de colère. Plus tôt, lorsqu'il avait discuté de cette affaire avec le patriarche, certains de ses frères de discipline s'étaient moqués de lui. Il pensa: « Attendez que je récupère toutes les gourdes et que je crée une pilule immortelle qui augmentera considérablement ma culture. Nous verrons bien qui rira alors. »
+Après avoir attendu un moment dans le jardin, l'Ancien Sun revint, le visage sombre et empreint de colère. Plus tôt, lorsqu'il avait discuté de cette affaire avec le patriarche, certains de ses Senior frères et Junior frères s'étaient moqués de lui. Il pensa: « Attendez que je récupère toutes les gourdes et que je crée une pilule immortelle qui augmentera considérablement ma culture. Nous verrons bien qui rira alors. »
 
 En entrant dans le jardin, l'Ancien Sun aperçut Wang Lin et lâcha d'un ton bourru: « Wang Lin, à partir d'aujourd'hui, tu es le disciple de Sun Dazhu. Tu devras cultiver avec assiduité pour ne pas déshonorer le nom de ton maître. » Il lança une petite bourse et ajouta: « Ceci est ton insigne de disciple interne. Elle sert également de sac de rangement et peut contenir de nombreux objets. Tes vêtements ainsi que les instructions relatives à ta méthode de culture y sont conservés. Vérifie par toi-même. »
 

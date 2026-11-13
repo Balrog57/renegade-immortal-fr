@@ -34,7 +34,7 @@ Continent Central, au sommet du Mont Di. Le Grand Empyréen Jiu Di se tenait sur
 
 « Je n'ai pu recruter l'Ascendant Empyréen Ming Dao, et l'Empereur Céleste a un contentieux avec Wang Lin. Je veux voir qui pourra rivaliser avec moi! » Le Grand Empyréen Jiu Di se tourna vers l'Exalté Empyréen Hai Zi, qui ouvrait lentement les yeux, et rit.
 
-« Hai Zi, suis le Maître. Le Maître acceptera ce Wang Lin comme disciple et fera de lui ton Senior Frère. Qu'en dis-tu? »
+« Hai Zi, suis le Maître. Le Maître acceptera ce Wang Lin comme disciple et fera de lui ton Senior frère. Qu'en dis-tu? »
 
 L'Exalté Empyréen Hai Zi fut surprise et son cœur se remplit de joie.
 

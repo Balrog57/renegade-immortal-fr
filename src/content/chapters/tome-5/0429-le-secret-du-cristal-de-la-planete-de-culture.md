@@ -103,7 +103,7 @@ Finalement, le pays de Suzaku fut contraint de replier sa ligne de défense sur 
 
 Pourtant, une nouvelle encore plus sidérante se répandit, faisant trembler le cœur de chaque cultivateur de la planète.
 
-Le frère cadet du Suzaku de cette génération, celui qui avait perdu la lutte pour le titre, Yun Quezi, était apparu.
+Le Junior frère du Suzaku de cette génération, celui qui avait perdu la lutte pour le titre, Yun Quezi, était apparu.
 
 Il surgit soudainement sur le même champ de bataille que Zhu Quezi et lui lança une attaque surprise, blessant gravement ce dernier.
 

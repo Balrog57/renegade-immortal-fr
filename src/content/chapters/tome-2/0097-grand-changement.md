@@ -32,7 +32,7 @@ Mais il n'a qu'une seule chance. S'il ne parvient pas à franchir le stade de l'
 
 Une fois le stade de la Formation de l'Âme atteint, on est promu Ancien dans une branche située dans un pays de rang 4. On dispose alors de mille ans pour atteindre le stade de la Transformation de l'Âme. Les conséquences en cas d'échec sont identiques.
 
-Ye Zizai répondit froidement à la question de Luo Sha: « Adai n'est même pas encore au stade de la Formation du Noyau, qu'est-ce que cela peut avoir à voir avec toi? C'est le disciple désigné par mon frère cadet; tant que je serai là, je garantirai sa sécurité. » Alors qu'il parlait, une aura puissante s'éleva de lui. Fixant la silhouette suspendue dans les airs, il ajouta, mot après mot: « Je ne permettrai à personne de lui faire du mal! À personne! »
+Ye Zizai répondit froidement à la question de Luo Sha: « Adai n'est même pas encore au stade de la Formation du Noyau, qu'est-ce que cela peut avoir à voir avec toi? C'est le disciple désigné par mon Junior frère; tant que je serai là, je garantirai sa sécurité. » Alors qu'il parlait, une aura puissante s'éleva de lui. Fixant la silhouette suspendue dans les airs, il ajouta, mot après mot: « Je ne permettrai à personne de lui faire du mal! À personne! »
 
 Luo Sha laissa échapper un rire. Ses yeux s'illuminèrent tandis qu'il disait: « Ye Zizai, le corps d'Adai est excellent. Il serait un candidat de choix pour ta possession. »
 

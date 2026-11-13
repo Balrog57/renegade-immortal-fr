@@ -20,11 +20,11 @@ Au centre de cette multitude, trois individus ne portaient pas de vert, mais du 
 
 La femme était d'une grande beauté; la tête baissée, elle consultait une boussole de la taille d'une paume.
 
-Parmi les trois, un jeune homme au visage de jade blanc rompit le silence après une courte réflexion: « Senior Frère Qian, Junior Sœur Zhao, le massacre dans la Mer Dan dure déjà depuis sept jours. Si nous n'accélérons pas la cadence, je crains que nous ne puissions accomplir l'ordre des Ancêtres. »
+Parmi les trois, un jeune homme au visage de jade blanc rompit le silence après une courte réflexion: « Senior frère Qian, Junior sœur Zhao, le massacre dans la Mer Dan dure déjà depuis sept jours. Si nous n'accélérons pas la cadence, je crains que nous ne puissions accomplir l'ordre des Ancêtres. »
 
 L'autre jeune homme avait une apparence ordinaire, mais son regard pouvait soudainement se faire venimeux. Après avoir entendu les paroles du jeune homme au visage de jade, il répondit lentement: « Au plus tard dans quatre jours, ce massacre prendra fin et tous les cultivateurs du Continent Tian Niu dans la Mer Dan seront morts! »
 
-« La Mer Dan est la porte d'entrée par laquelle mon Continent Lu Mo pourra accéder au Continent Tian Niu. De nombreux cultivateurs puissants se trouvent ici, il est donc difficile de tous les éliminer rapidement. Cependant, comme l'a dit le Senior Frère Qian, quatre jours devraient suffire. » La femme sourit en écartant une mèche de cheveux derrière son oreille de la main gauche.
+« La Mer Dan est la porte d'entrée par laquelle mon Continent Lu Mo pourra accéder au Continent Tian Niu. De nombreux cultivateurs puissants se trouvent ici, il est donc difficile de tous les éliminer rapidement. Cependant, comme l'a dit le Senior frère Qian, quatre jours devraient suffire. » La femme sourit en écartant une mèche de cheveux derrière son oreille de la main gauche.
 
 « Frères, regardez la boussole de la Mer Dan. » Tandis qu'elle parlait, la boussole dans sa main droite brilla, révélant la carte complète de la mer.
 
@@ -70,13 +70,13 @@ Ils ne pouvaient pas utiliser la Distorsion Spatiale, mais le Continent Lu Mo é
 
 La femme continuait de déployer ses troupes en suivant la carte de sa boussole. Grâce au nombre massif de cultivateurs du Continent Lu Mo, ils écrasaient les points blancs qui résistaient.
 
-« Senior Frère Qian, Senior Frère Zhao, c'est à vous de jouer. Sur les neuf, quatre sont morts et cinq subsistent. Deux se sont dispersés, ce qui n'est pas un problème, mais trois se sont regroupés... »
+« Senior frère Qian, Senior frère Zhao, c'est à vous de jouer. Sur les neuf, quatre sont morts et cinq subsistent. Deux se sont dispersés, ce qui n'est pas un problème, mais trois se sont regroupés... »
 
 « Ces trois-là sont probablement des alliés proches et excellents en attaques combinées. Je vous demande, mes Senior frères, de les éliminer ensemble! » Sur la boussole, trois points lumineux légèrement plus grands progressaient vers le Continent Tian Niu. Les points verts qui s'approchaient d'eux s'éteignaient les uns après les autres, signe de leur mort imminente.
 
 Le jeune homme au visage de jade blanc sourit et leva la main droite. Un éventail apparut dans sa paume; il frappa le centre de sa main gauche avec celui-ci en regardant le jeune homme nommé Qian.
 
-« Senior Frère Qian, votre petit frère va vous prêter main-forte et observer le Grand Sort du Dao Démoniaque de la Secte Dao Mo. »
+« Senior frère Qian, votre petit frère va vous prêter main-forte et observer le Grand Sort du Dao Démoniaque de la Secte Dao Mo. »
 
 Le cultivateur nommé Qian afficha une expression venimeuse et, sans un mot, s'avança dans la formation pour disparaître. Le jeune homme au visage de jade blanc secoua la tête avec un sourire et le suivit.
 

@@ -22,7 +22,7 @@ Après un long moment, l'expression de Wang Lin devint grave. Il leva la main dr
 
 Le corps de Qing Shui trembla et ses yeux s'ouvrirent. Il serra les dents pour empêcher un cri de douleur de franchir ses lèvres.
 
-Wang Lin murmura doucement: « Senior Frère, la douleur de cette neuvième épine sera plus intense que celle des huit précédentes réunies... »
+Wang Lin murmura doucement: « Senior frère, la douleur de cette neuvième épine sera plus intense que celle des huit précédentes réunies... »
 
 « J'ai souffert toute ma vie, je m'y suis habitué », répondit Qing Shui d'une voix rauque, mais d'un calme absolu.
 
@@ -54,11 +54,11 @@ Le visage de Wang Lin était pâle; après avoir rejeté l'épine, il ferma éga
 
 Après une heure, Wang Lin ouvrit les yeux.
 
-Il dit doucement: « Senior Frère, la dernière... »
+Il dit doucement: « Senior frère, la dernière... »
 
-Qing Shui expira lentement et se retourna vers lui. Il observa silencieusement son jeune frère du passé. En voyant cet air épuisé et ces traces de sang séché, une lueur de tendresse apparut dans ses yeux.
+Qing Shui expira lentement et se retourna vers lui. Il observa silencieusement son Junior frère du passé. En voyant cet air épuisé et ces traces de sang séché, une lueur de tendresse apparut dans ses yeux.
 
-« Tu as grandi... » Un sourire esquissa les lèvres de Qing Shui. Le jeune frère devant lui n'était plus ce petit cultivateur nécessitant sa protection, mais un être extrêmement puissant capable de faire trembler le ciel étoilé.
+« Tu as grandi... » Un sourire esquissa les lèvres de Qing Shui. Le Junior frère devant lui n'était plus ce petit cultivateur nécessitant sa protection, mais un être extrêmement puissant capable de faire trembler le ciel étoilé.
 
 Wang Lin regarda Qing Shui et sourit à son tour. Bien que ce sourire fût empreint d'épuisement, il témoignait d'un véritable bonheur.
 

@@ -50,15 +50,15 @@ Du côté de la Secte Xuan Dao, la situation n'était guère meilleure. Les yeux
 
 Les deux autres Anciens se regardèrent, incapables de prononcer le moindre mot. Cette bataille était d'une étrangeté absolue; ils étaient trop abasourdis pour parler.
 
-Liu Feng lança à Wang Lin un regard profond. Il était secrètement soulagé de ne pas être monté sur scène, sous peine de subir le même sort, mais il ne comprenait pas pourquoi Wang Lin était traité de déchet dans la Secte Heng Yue alors qu'il était si fort. En observant les réactions des membres de la Secte Heng Yue, il semblait qu'ils ne jouaient pas la comédie. Était-ce vraiment parce que le senior Zhou Peng avait été imprudent? Quel que soit son jugement, Wang Lin n'était qu'au 3ème niveau.
+Liu Feng lança à Wang Lin un regard profond. Il était secrètement soulagé de ne pas être monté sur scène, sous peine de subir le même sort, mais il ne comprenait pas pourquoi Wang Lin était traité de déchet dans la Secte Heng Yue alors qu'il était si fort. En observant les réactions des membres de la Secte Heng Yue, il semblait qu'ils ne jouaient pas la comédie. Était-ce vraiment parce que le Grand Senior frère Zhou Peng avait été imprudent? Quel que soit son jugement, Wang Lin n'était qu'au 3ème niveau.
 
-Tous les autres disciples partageaient les mêmes pensées que Liu Feng, croyant que le senior frère Zhou Peng avait simplement manqué de vigilance. Ils refusaient de croire qu'il avait véritablement été vaincu par Wang Lin.
+Tous les autres disciples partageaient les mêmes pensées que Liu Feng, croyant que le Grand Senior frère Zhou Peng avait simplement manqué de vigilance. Ils refusaient de croire qu'il avait véritablement été vaincu par Wang Lin.
 
 Le visage délicat de Liu Mei prit également un air étrange. Ses pensées divergeaient de celles de la foule. Dès le premier jour, Wang Lin avait déjà attiré son attention, et à présent, elle l'observait avec un intérêt profond.
 
-Parmi tous les témoins choqués, Li Shan était sans doute la troisième personne la plus choquée. Son corps se dérobait et il s'effondra au sol en gémissant: « C'est fini, tout est fini! Je lui ai vendu la bombe puante et il l'a utilisée contre le senior frère martial! Le senior frère a perdu la face si vite! Il va me haïr à mort et doit déjà réfléchir à comment me punir! »
+Parmi tous les témoins choqués, Li Shan était sans doute la troisième personne la plus choquée. Son corps se dérobait et il s'effondra au sol en gémissant: « C'est fini, tout est fini! Je lui ai vendu la bombe puante et il l'a utilisée contre le Grand Senior frère! Le Grand Senior frère a perdu la face si vite! Il va me haïr à mort et doit déjà réfléchir à comment me punir! »
 
-« Li Shan, Li Shan, pourquoi n'as-tu pas compris que Wang Lin faisait semblant d'être un porc pour mieux dévorer le tigre? Wang Lin, tu es trop méprisable, trop éhonté, trop sinistre! Cette fois, tu m'as vraiment mis dans une position inextricable... comment pourrai-je rester à la Secte Xuan Dao? Le senior frère ne me pardonnera jamais! »
+« Li Shan, Li Shan, pourquoi n'as-tu pas compris que Wang Lin faisait semblant d'être un porc pour mieux dévorer le tigre? Wang Lin, tu es trop méprisable, trop éhonté, trop sinistre! Cette fois, tu m'as vraiment mis dans une position inextricable... comment pourrai-je rester à la Secte Xuan Dao? Le Grand Senior frère ne me pardonnera jamais! »
 
 « Non, je dois trouver un moyen de nettoyer cette boue noire et d'éliminer cette odeur... moi... cette boue est mon invention la plus fière! Il n'existe aucun remède autre qu'un bain de six mois! »
 
@@ -66,6 +66,6 @@ Parmi tous les témoins choqués, Li Shan était sans doute la troisième person
 
 À cet instant, Zhou Peng reprit connaissance. Presque assommé par l'odeur, il hurla: « Li Shan! Ce n'est pas fini entre nous! »
 
-Li Shan ne put supporter un tel coup. Il se mit à pleurer: « Senior frère, j'ai eu tort! Senior frère, je vous en prie, pardonnez-moi! Je ne chercherai plus jamais à grappiller le moindre avantage! »
+Li Shan ne put supporter un tel coup. Il se mit à pleurer: « Grand Senior frère, j'ai eu tort! Grand Senior frère, je vous en prie, pardonnez-moi! Je ne chercherai plus jamais à grappiller le moindre avantage! »
 
 Le visage de Zhou Peng était déformé par la rage. Se mouvant comme un éclair tout en traînant avec lui la boue noire et l'odeur nauséabonde, il retourna instantanément sur scène et cria follement: « Wang Lin, ça ne compte pas! Je n'étais pas prêt et tu m'as attaqué par surprise! Nous allons nous battre à nouveau, et cette fois, pas de coup en traître! »

@@ -66,7 +66,7 @@ Voyant sa réticence, Zhou soupira: « Moi, je ne peux pas rompre mes liens avec
 
 Wang Lin s'apprêtait à répliquer, quand soudain il tourna la tête et vit Wang Zhuo les fixer, lui et Zhou, d'un regard malveillant.
 
-À cet instant, la voix de Wang Zhuo retentit: « Frères et sœurs de la Secte Xuan Dao, vous avez dit que ce mille-pattes aimait manger des animaux vivants. Laissez-nous, membres de la Secte Heng Yue, nous en occuper durant votre séjour. J'ai un jeune frère, voyez-vous. La culture est une perte de temps pour lui; le charger d'attraper des animaux pour nourrir ce mille-pattes est une tâche bien plus appropriée à sa condition. »
+À cet instant, la voix de Wang Zhuo retentit: « Senior frères et Senior sœurs de la Secte Xuan Dao, vous avez dit que ce mille-pattes aimait manger des animaux vivants. Laissez-nous, membres de la Secte Heng Yue, nous en occuper durant votre séjour. J'ai un Junior frère, voyez-vous. La culture est une perte de temps pour lui; le charger d'attraper des animaux pour nourrir ce mille-pattes est une tâche bien plus appropriée à sa condition. »
 
 Le disciple aux racines spirituelles d'eau hésita et dit: « Senior frère Wang Zhuo, c'est un peu déplacé. La nature de ce mille-pattes est sauvage. Si un étranger tente de la nourrir, il pourrait être en danger. »
 

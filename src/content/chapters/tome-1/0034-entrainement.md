@@ -54,7 +54,7 @@ Au cours des jours suivants, les rumeurs parmi les disciples honoraires appriren
 
 Une semaine plus tard, au matin, une cloche retentit dans toute la secte. Elle sonna cinq fois, signal indiquant que tous les disciples internes devaient se rassembler promptement devant la salle principale.
 
-Wang Lin ne pouvait entendre la cloche depuis l'espace de rêve. Ce n'est que lorsque Sun Dazhu, furieux, fracassa la porte de la maison des corvées pour le réveiller qu'il en prit connaissance. Il rangea rapidement sa perle, dissimula sa culture et ouvrit la porte de sa salle d'entraînement secrète, pour se retrouver face au visage de rage de Sun Dazhu qui hurlait: « Wang Lin, es-tu sourd? N'as-tu pas entendu la cloche? Disciple indigne! Tous les disciples internes participant à l'entraînement intensif sont déjà là, sauf toi! Tu me fais perdre la face devant mes frères apprentis! Toi... tu me rends fou! »
+Wang Lin ne pouvait entendre la cloche depuis l'espace de rêve. Ce n'est que lorsque Sun Dazhu, furieux, fracassa la porte de la maison des corvées pour le réveiller qu'il en prit connaissance. Il rangea rapidement sa perle, dissimula sa culture et ouvrit la porte de sa salle d'entraînement secrète, pour se retrouver face au visage de rage de Sun Dazhu qui hurlait: « Wang Lin, es-tu sourd? N'as-tu pas entendu la cloche? Disciple indigne! Tous les disciples internes participant à l'entraînement intensif sont déjà là, sauf toi! Tu me fais perdre la face devant mes Senior frères et Junior frères! Toi... tu me rends fou! »
 
 Wang Lin haussa un sourcil et resta silencieux.
 

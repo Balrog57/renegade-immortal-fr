@@ -215,11 +215,11 @@ Wang Lin hocha la tête tout en continuant sa marche vers le sud. Mais Cheng Xia
 
 Wang Lin resta calme: « Si tu ne veux pas le dire, ce n'est pas grave. »
 
-Voyant que Wang Lin ne céderait pas, Cheng Xian s'empressa: « Senior frère Wang, regarde, je t'appelle même frère maintenant! Il te suffit de quelques mots pour me donner accès à la cour ouest. C'est une bien petite faveur! »
+Voyant que Wang Lin ne céderait pas, Cheng Xian s'empressa: « Senior frère Wang, regarde, je t'appelle même Senior frère maintenant! Il te suffit de quelques mots pour me donner accès à la cour ouest. C'est une bien petite faveur! »
 
 Wang Lin se tourna vers lui: « Tu veux que j'aille chercher cette fille pour que tu puisses utiliser ce prétexte, entrer dans la cour ouest et rencontrer la Senior sœur Wang Tong dont tu rêves? »
 
-Cheng Xian fut déstabilisé, puis sourit de plus belle: « Oui, oui! C'est une toute petite tâche. Alors, qu'en dis-tu, frère aîné? »
+Cheng Xian fut déstabilisé, puis sourit de plus belle: « Oui, oui! C'est une toute petite tâche. Alors, qu'en dis-tu, Senior frère? »
 
 Wang Lin demanda lentement: « Pourquoi tout le monde veut-il devenir le disciple de Zhou Lin? »
 

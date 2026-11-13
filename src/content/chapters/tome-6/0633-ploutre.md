@@ -44,7 +44,7 @@ L'homme en robe rouge dit: « Junior frère, mon nom est Du Jian. » Après une 
 
 Wang Lin joignit les mains: « Salutations, Senior frère Du. »
 
-Du Jian sourit et désigna l'homme en noir: « Frère Wang, voici Murong Zhuo de la Secte Mo. Quant à ces deux-là, ce sont des Daoïstes de la Secte Fu Yun. »
+Du Jian sourit et désigna l'homme en noir: « Junior frère Wang, voici Murong Zhuo de la Secte Mo. Quant à ces deux-là, ce sont des Daoïstes de la Secte Fu Yun. »
 
 L'homme vêtu de noir, Murong Zhuo, observa attentivement Wang Lin avant de joindre les mains: « Daoïste Wang, je suis Murong Zhuo, disciple de la quatrième génération de la Secte Mo! »
 
@@ -62,7 +62,7 @@ Du Jian lança un regard profond à Wang Lin et sourit.
 
 « Le Junior frère Wang connaît-il la Junior sœur Xu? »
 
-Wang Lin secoua la tête: « Je ne la connais pas. C'est simplement que la sœur Xu porte le même nom qu'une membre de ma secte de jeunesse. »
+Wang Lin secoua la tête: « Je ne la connais pas. C'est simplement que la Junior sœur Xu porte le même nom qu'une membre de ma secte de jeunesse. »
 
 Du Jian eut un léger sourire. Il esquiva le sujet et demanda: « Junior frère Wang, êtes-vous venu ici à cause de l'Abîme Chao Xi? »
 

@@ -36,7 +36,7 @@ L'apparition de Wang Lin plongea la vallée dans un silence de mort.
 
 Le visage de Guo Xingyi devint livide, totalement dénué de couleur, et son corps tremblait faiblement. Sa main droite serrait son épée si fort que ses doigts en blanchirent.
 
-Sa jeune sœur de discipline affichait une expression de terreur pure. Finalement, incapable de contenir son effroi, elle s'accroupit pour vomir, le visage extrêmement pâle.
+Sa Junior sœur affichait une expression de terreur pure. Finalement, incapable de contenir son effroi, elle s'accroupit pour vomir, le visage extrêmement pâle.
 
 Quant au jeune homme en robe bleue qui ne semblait pas appartenir à la Secte Da Luo Jian, il paraissait plus extasié que jamais, inspirant profondément cet air chargé d'une odeur de sang.
 

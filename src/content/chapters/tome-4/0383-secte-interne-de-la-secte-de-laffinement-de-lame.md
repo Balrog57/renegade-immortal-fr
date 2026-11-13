@@ -140,7 +140,7 @@ Le vieil homme eut un ricanement méprisant: « Rien de préoccupant! »
 
 La voix du vieil homme se fit glaciale: « Quelle plaisanterie. Ce n'est pas comme si nous n'avions pas déjà assez de personnes avec des motifs cachés au sein de la Secte Lian Hun. Un de plus ou un de moins ne changera rien. Un disciple sur dix sous la direction de mes deux Senior frères est animé par des desseins secrets. Occupez-vous de vos propres montagnes. Les affaires de ma Montagne de l'Affinement de l'Âme ne vous concernent pas. »
 
-« La frustration du disciple junior est grande. Ce jeune homme doté d'une intuition anticipatrice a été choisi par moi. Celui qui maîtrise le sortilège de la mort a été choisi par le frère cadet en charge de la Montagne du Scellement de l'Âme. Le dernier restant est le vainqueur de la compétition. Le cadet n'est-il toujours pas satisfait? »
+« La frustration du Junior frère est grande. Ce jeune homme doté d'une intuition anticipatrice a été choisi par moi. Celui qui maîtrise le sortilège de la mort a été choisi par le Junior frère en charge de la Montagne du Scellement de l'Âme. Le dernier restant est le vainqueur de la compétition. Le Junior frère n'est-il toujours pas satisfait? »
 
 L'expression du vieil homme se crispa: « Quelles absurdités! Ils ont tous deux des capacités spéciales, mais cet individu n'a qu'un niveau de culture légèrement plus élevé! Mes deux Senior frères, je ne vous raccompagne pas! »
 
