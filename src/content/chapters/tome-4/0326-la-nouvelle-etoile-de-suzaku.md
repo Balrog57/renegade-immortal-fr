@@ -122,6 +122,6 @@ Le vieil homme sourit: « C'est vrai. Si tu restes aussi diligente, tu pourras a
 
 La jeune fille demanda soudainement: « Maître, à quel niveau de culture pensez-vous que Zeng Niu ait atteint pour pouvoir arracher un bras à Hongdie? Pourrait-il avoir atteint le légendaire stade de la Transformation de l'Âme? »
 
-« Zeng Niu... est un aîné bien au-dessus de nous. Comment quelqu'un comme moi pourrait-il le juger? Cependant, je suppose que cet homme est un cultivateur au stade avancé de la Formation de l'Âme plutôt qu'en Transformation de l'Âme; sinon, Hongdie n'aurait pas seulement perdu un bras, elle serait morte. »
+« Zeng Niu... est un Senior bien au-dessus de nous. Comment quelqu'un comme moi pourrait-il le juger? Cependant, je suppose que cet homme est un cultivateur au stade avancé de la Formation de l'Âme plutôt qu'en Transformation de l'Âme; sinon, Hongdie n'aurait pas seulement perdu un bras, elle serait morte. »
 
 Un rugissement tonnerre retentit à leurs oreilles juste au moment où le vieil homme terminait sa phrase. Soudain, la foudre redoubla d'intensité dans le ciel et, au cœur des éclairs, un vortex gigantesque apparut.

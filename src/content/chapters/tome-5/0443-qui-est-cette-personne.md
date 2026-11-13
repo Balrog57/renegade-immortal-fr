@@ -42,13 +42,13 @@ Celui qui avait crié était un jeune homme assis aux côtés du vieil homme. Il
 
 Tout en observant calmement le jeune homme, il continua sa route sans même marquer de pause.
 
-Le regard du jeune homme se remplissait de méfiance alors qu'il se levait pour hurler: « Cher Daoïste, ne brave pas les règles! Mon maître est arrivé le premier. Une fois que ces aînés de la Transformation de l'Âme seront entrés, ce sera notre tour. Puisque tu es arrivé tard, tu dois rester à la queue leu-leu! »
+Le regard du jeune homme se remplissait de méfiance alors qu'il se levait pour hurler: « Cher Daoïste, ne brave pas les règles! Mon maître est arrivé le premier. Une fois que ces Seniors de la Transformation de l'Âme seront entrés, ce sera notre tour. Puisque tu es arrivé tard, tu dois rester à la queue leu-leu! »
 
 Le regard de Wang Lin se posa sur le vieil homme qui portait cette trace d'énergie spirituelle céleste. Vêtu d'une robe noire, il ressemblait à un squelette. Ses yeux dégageaient une lueur fantomatique capable de faire vaciller n'importe quel cœur. Lorsqu'il tourna les yeux vers Wang Lin, son regard devint sérieux, comme s'il avait compris quelque chose.
 
 « Mon maître est l'honorable Nanming des Terres Sauvages... » Voyant que le regard de Wang Lin demeurait impassible, le jeune homme invoqua le nom de son mentor.
 
-Les yeux du vieil homme s'illuminèrent et il tonna: « Silence! » Tandis que le jeune homme était encore sous le choc, le vieillard se leva, joignit respectueusement les mains vers Wang Lin et déclara: « Nanming des Terres Sauvages salue l'Aîné. Mon disciple a été impoli et vous a offensé. J'espère que vous saurez lui pardonner. » Sur ces mots, il s'écarta promptement.
+Les yeux du vieil homme s'illuminèrent et il tonna: « Silence! » Tandis que le jeune homme était encore sous le choc, le vieillard se leva, joignit respectueusement les mains vers Wang Lin et déclara: « Nanming des Terres Sauvages salue le Senior. Mon disciple a été impoli et vous a offensé. J'espère que vous saurez lui pardonner. » Sur ces mots, il s'écarta promptement.
 
 À l'annonce de ces paroles, les quatre personnes à ses côtés furent stupéfaites, mais elles se levèrent rapidement pour s'écarter avec respect.
 

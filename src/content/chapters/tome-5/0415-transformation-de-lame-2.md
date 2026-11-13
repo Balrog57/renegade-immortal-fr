@@ -41,13 +41,13 @@ En regardant au loin, parmi les neuf anneaux dorés, seuls trois subsistaient...
 
 Dun Tian paraissait encore plus vieux qu'auparavant et tout son corps dégageait une épaisse aura de mort. Il était méconnaissable par rapport à la dernière fois que Wang Lin l'avait vu.
 
-« Aîné, vous... » Les yeux de Wang Lin devinrent sérieux alors qu'il examinait Dun Tian. Il poussa un soupir en constatant que l'espérance de vie de Dun Tian touchait à sa fin.
+« Senior, vous... » Les yeux de Wang Lin devinrent sérieux alors qu'il examinait Dun Tian. Il poussa un soupir en constatant que l'espérance de vie de Dun Tian touchait à sa fin.
 
 « Tu as percé le secret... Ce n'est pas grave; il me reste encore quelques années. Je ne mourrai pas si tôt. » Dun Tian laissa échapper un rire et, tandis qu'il riait, l'aura de mort autour de lui sembla s'atténuer.
 
 « Pas mal. En ces courtes années, ton niveau de culture a beaucoup progressé. Tu as déjà atteint le stade où l'on affine l'énergie céleste pour la transformer en souffle, où les os se solidifient et la chair se dépouille. Si tu possèdes une grande quantité de jades célestes, alors ce ne sera qu'une question de temps avant que tu n'atteignes le stade de la Transformation de l'Âme! » Dun Tian observa Wang Lin de plus près. Ce qu'il vit le choqua et fit briller ses yeux d'un éclat intense.
 
-Wang Lin réfléchit un instant avant de demander: « L'aîné possède-t-il des jades célestes? »
+Wang Lin réfléchit un instant avant de demander: « Le Senior possède-t-il des jades célestes? »
 
 Dun Tian leva les yeux vers le ciel et éclata de rire. « Quel genre d'individu tu fais, Zeng Niu. Tu reviens à la Secte Lian Hun uniquement pour des jades célestes. Si tu en avais suffisamment, je crains que tu ne sois même pas revenu. »
 

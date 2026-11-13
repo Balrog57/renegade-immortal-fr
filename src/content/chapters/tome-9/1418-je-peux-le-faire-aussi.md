@@ -102,7 +102,7 @@ Ces mots parurent résonner aux quatre coins de ce monde. Même Suzaku de la pre
 
 « Je ne peux pas abandonner mon corps de Dieu Ancien! Je ne peux pas renoncer à mes quatre autres essences. Même si ce chemin est ardu, je dois le poursuivre! Je ne peux laisser ma culture s'arrêter... » Wang Lin s'inclina devant Suzaku de la première génération avant de s'élancer dans les airs.
 
-« Ce junior apprécie la bienveillance du vieil Ancêtre... Que ce soient les Cinq Fléaux Célestes ou les Cinq Doigts Brise-Vide, ce sont toutes des voies que les cultivateurs ont comprises par eux-mêmes, une accumulation et une préparation avant de briser la Porte Kong... Alors pourquoi ce junior ne pourrait-il pas tracer sa propre voie, une méthode qui lui soit unique! L'Ancêtre a dit que j'avais besoin de cinq doigts pour couvrir le ciel, mais ce junior refuse de traverser les Cinq Fléaux Célestes! »
+« Ce junior apprécie la bienveillance du vieil Ancêtre... Que ce soient les Cinq Fléaux Célestes ou les Cinq Doigts Brise-Vide, ce sont toutes des voies que les cultivateurs ont comprises par eux-mêmes, une accumulation et une préparation avant de briser la Porte Kong... Alors pourquoi ce junior ne pourrait-il pas tracer sa propre voie, une méthode qui lui soit unique! Le Senior a dit que j'avais besoin de cinq doigts pour couvrir le ciel, mais ce junior refuse de traverser les Cinq Fléaux Célestes! »
 
 « Mon corps de Dieu Ancien est ma paume, et mes cinq essences sont mes doigts! Cinq Fléaux Célestes, Cinq Doigts Brise-Vide, cinq essences... les noms diffèrent, mais le sens est identique! »
 

@@ -44,7 +44,7 @@ Debout sur sa boussole stellaire, Wang Lin fixa l'homme et répondit froidement:
 
 « Quelle famille serait assez généreuse pour raffiner un puissant cultivateur du stade Yin et Yang en une marionnette afin de l'offrir à un junior? C'est... c'est tout simplement terrifiant! » En fixant l'ombre sous les pieds de Wang Lin, une trace d'avidité apparut dans ses yeux.
 
-Le regard de Wang Lin resta froid alors qu'il disait calmement: « Aîné, il s'agit d'un différend personnel entre moi et la famille Huan. Veuillez ne pas vous en mêler. »
+Le regard de Wang Lin resta froid alors qu'il disait calmement: « Senior, il s'agit d'un différend personnel entre moi et la famille Huan. Veuillez ne pas vous en mêler. »
 
 Qian Kuizi était tiraillé. D'un côté, il convoitait cette marionnette, mais de l'autre, il craignait la puissance de la famille de cet homme. Finalement, l'avidité triompha de la raison.
 

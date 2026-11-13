@@ -20,7 +20,7 @@ Pourtant, Wang Lin se souvenait que l'Empereur Antique avait vu son corps dévor
 
 Parmi ces âmes, une se distinguait de toutes les autres. Bien qu'elle en ait l'apparence, une étincelle d'intelligence brillait dans son regard. C'était le démon Xu Liguo.
 
-Il se sentait extrêmement fier à cet instant, pensant que son maître se souciait encore réellement de lui. Les troisième, quatrième et cinquième démons étaient tous morts, mais lui était là, entouré par tous ces aînés; il se sentait désormais en parfaite sécurité.
+Il se sentait extrêmement fier à cet instant, pensant que son maître se souciait encore réellement de lui. Les troisième, quatrième et cinquième démons étaient tous morts, mais lui était là, entouré par tous ces Seniors; il se sentait désormais en parfaite sécurité.
 
 Le tourbillon d'âmes errantes était immense, et les spectateurs sur la plateforme l'observaient avec fascination. L'un d'eux portait une attention toute particulière. Ses yeux s'illuminèrent tandis qu'un symbole de hache apparaissait et disparaissait sur son front.
 

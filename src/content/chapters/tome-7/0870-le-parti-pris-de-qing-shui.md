@@ -74,7 +74,7 @@ Qing Shui ferma les yeux et ne répondit pas.
 
 Le Maître Yan Leizi soupira intérieurement. C'était lui qui avait brisé le sceau de Qing Shui. Bien que la culture de ce dernier ne fût pas totalement restaurée, une observation attentive lui avait permis de déceler une puissance cachée dans le corps de Qing Shui. Cette force n'était pas son Royaume Ji, mais elle lui inspirait tout de même une crainte profonde; il ne voulait donc pas qu'une futilité de cette nature ne vienne entacher leur relation.
 
-Plus important encore, l'éminent aîné qui avait capturé la Bête Lunaire lui avait lui-même conseillé de ne pas provoquer Qing Shui. À l'époque, même Bai Fan avait utilisé la bienveillance en le prenant comme apprenti pour apaiser Qing Shui, plutôt que d'utiliser la force pour le soumettre.
+Plus important encore, l'éminent Senior qui avait capturé la Bête Lunaire lui avait lui-même conseillé de ne pas provoquer Qing Shui. À l'époque, même Bai Fan avait utilisé la bienveillance en le prenant comme apprenti pour apaiser Qing Shui, plutôt que d'utiliser la force pour le soumettre.
 
 « Luo Su était trop arrogant! Puisqu'il est mort, il est mort, mais il est vraiment regrettable de perdre sa compréhension des sorts de sens divin... » Les yeux du Maître Yan Leizi se posèrent sur Wang Lin et il songea: « Ce Xu Mu doit posséder un trésor puissant protégeant son âme originelle. C'est peut-être un présent de Qing Shui. »
 

@@ -44,11 +44,11 @@ Wang Lin portait un masque et son aura, tout comme sa culture, étaient totaleme
 
 Wang Lin jeta un coup d'œil à Cheng Xian, remua la main gauche, et l'ombre d'une restriction apparut aussitôt devant lui, se répandit en un instant et enveloppa toute la maison.
 
-Le regard de Cheng Xian se figea, puis il esquissa un sourire amer: « Cette garce a de la poigne: elle a pu inviter un Ancien de la cour extérieure pour s'en prendre à un petit personnage comme moi... Allez, tuez-moi! Si je fronce un sourcil, je ne m'appelle plus Cheng Xian! »
+Le regard de Cheng Xian se figea, puis il esquissa un sourire amer: « Cette garce a de la poigne: elle a pu inviter un Senior de la cour extérieure pour s'en prendre à un petit personnage comme moi... Allez, tuez-moi! Si je fronce un sourcil, je ne m'appelle plus Cheng Xian! »
 
 Une fois la restriction établie, Wang Lin dit froidement: « J'ai en effet été sollicité, mais pour t'aider, non pour te tuer. Dis-moi ce qui s'est passé. Plus il y aura de détails, mieux ce sera. »
 
-Cheng Xian fut stupéfait. Après avoir dévisagé Wang Lin, il hésita et demanda: « Qui a sollicité l'Aîné? »
+Cheng Xian fut stupéfait. Après avoir dévisagé Wang Lin, il hésita et demanda: « Qui a sollicité le Senior? »
 
 Wang Lin fronça les sourcils et répondit froidement: « Je ne te donnerai que trois phrases, et celle-ci était la première. Si tout n'est pas clairement expliqué dans les deux prochaines, je m'en irai. »
 
@@ -56,7 +56,7 @@ Cheng Xian serra les dents et lâcha: « Gongsun Tong, du patio oriental! C'est 
 
 Wang Lin réfléchit un instant. « Ces deux singes t'appartiennent? » Sa question était subtile. Dans la Secte Yun Tian, de nombreux animaux spirituels étaient destinés à l'alchimie. Si tel était le cas, les agissements de Gongsun Tong n'étaient pas totalement injustifiables.
 
-Cheng Xian acquiesça: « Je vois ce que l'Aîné veut dire. Ces deux singes ne sont pas des bêtes de la Secte Yun Tian. Je les avais déjà obtenus avant d'entrer dans la secte et je les y ai amenés. Selon les règles de la secte, ces deux bêtes m'appartiennent en propre. »
+Cheng Xian acquiesça: « Je vois ce que le Senior veut dire. Ces deux singes ne sont pas des bêtes de la Secte Yun Tian. Je les avais déjà obtenus avant d'entrer dans la secte et je les y ai amenés. Selon les règles de la secte, ces deux bêtes m'appartiennent en propre. »
 
 Wang Lin demanda calmement: « Ainsi, cette Gongsun Tong s'est approchée de toi pour réclamer ces singes. Pour lui plaire, tu les lui as donnés, n'est-ce pas? »
 

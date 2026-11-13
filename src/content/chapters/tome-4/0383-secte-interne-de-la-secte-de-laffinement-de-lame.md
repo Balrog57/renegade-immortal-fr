@@ -70,7 +70,7 @@ Wang Lin acquiesça et tourna son regard vers les trois montagnes.
 
 Derrière ces cimes se trouvaient d'immenses anneaux de lumière dorée. Chacun semblait contenir son propre univers tout en illuminant la secte entière.
 
-« Ces neuf anneaux de lumière dorée sont les lieux où cultivent les neuf aînés du stade de la Formation de l'Âme. Un jour, j'atteindrai moi aussi le stade de la Formation de l'Âme et je deviendrai le dixième anneau doré! » La voix de Wang Zhen était empreinte de désir.
+« Ces neuf anneaux de lumière dorée sont les lieux où cultivent les neuf Seniors du stade de la Formation de l'Âme. Un jour, j'atteindrai moi aussi le stade de la Formation de l'Âme et je deviendrai le dixième anneau doré! » La voix de Wang Zhen était empreinte de désir.
 
 Wang Lin observa les anneaux de lumière. De là, il pouvait clairement sentir que ces neuf cercles émettaient une puissante énergie spirituelle.
 

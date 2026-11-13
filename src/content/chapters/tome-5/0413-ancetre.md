@@ -106,7 +106,7 @@ Il ressentit un désespoir inédit. La panique dans ses yeux s'intensifia tandis
 
 Une quantité massive de sang jaillit, puis la plante sur son front l'absorba avec frénésie. La plante grandit rapidement, remplissant tout l'anneau.
 
-Le visage du vieil homme devint féroce alors qu'il hurlait: « Si tu me tues, une malédiction runique persistera sur toi! Si les anciens de mon clan la voient, ils te tueront! » Les veines de son front battaient violemment. Bien que sa plante vitale fût déjà déployée, elle ne parvenait toujours pas à résister à la pression de l'anneau.
+Le visage du vieil homme devint féroce alors qu'il hurlait: « Si tu me tues, une malédiction runique persistera sur toi! Si les Seniors de mon clan la voient, ils te tueront! » Les veines de son front battaient violemment. Bien que sa plante vitale fût déjà déployée, elle ne parvenait toujours pas à résister à la pression de l'anneau.
 
 Des bruits de craquements retentirent alors que l'anneau de dix mètres se réduisait à 3,3 mètres. Les branches de la plante se brisaient une à une. À chaque rupture, le vieil homme crachait du sang et son visage pâlissait davantage.
 

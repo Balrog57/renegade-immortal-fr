@@ -82,7 +82,7 @@ Huo Hongfei la fixa et tonna: « Quelles absurdités! Xu Si, souhaites-tu que Ma
 
 La jeune femme baissa la tête et n'osa plus parler. Le jeune homme à ses côtés intervint: « De quoi as-tu peur? S'il ose encore te déranger, je serai là. »
 
-Yang Xiong soupira et dit d'une voix profonde: « Junior sœur, le Junior frère Ma Liang ne te dérangera plus. Sois tranquille. » En pensée, il ajouta: « La personnalité de ce senior est glaciale. Comment pourrait-il bien pouvoir te courtiser? »
+Yang Xiong soupira et dit d'une voix profonde: « Junior sœur, le Junior frère Ma Liang ne te dérangera plus. Sois tranquille. » En pensée, il ajouta: « La personnalité de ce Senior est glaciale. Comment pourrait-il bien pouvoir te courtiser? »
 
 À ce moment précis, le réseau de transfert s'illumina soudainement de nouveau. Tous les regards se tournèrent vers lui pour voir une silhouette mince et frêle en sortir.
 

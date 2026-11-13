@@ -30,7 +30,7 @@ Wang Lin retourna rapidement vers la boussole stellaire.
 
 Tout au long de leur voyage, Wang Lin avait fait preuve autant d'esprit que de détermination. Sa culture était également impressionnante, ce qui donnait envie à Chi Hu de devenir l'ami de Wang Lin.
 
-Wang Lin sourit et dit: « Nul besoin de s'inquiéter. Si le senior Zhou Yi ne m'avait pas dit qu'il serait très utile de le garder en vie, je l'aurais déjà tué pour utiliser cette pagode afin de sceller sa quatrième âme. Il n'aurait alors eu aucun moyen d'échapper à son destin. » Wang Lin disait tout cela avec une expression très calme. Il savait que même si Sun Tai était parti, il utiliserait son sens divin pour les espionner.
+Wang Lin sourit et dit: « Nul besoin de s'inquiéter. Si Senior Zhou Yi ne m'avait pas dit qu'il serait très utile de le garder en vie, je l'aurais déjà tué pour utiliser cette pagode afin de sceller sa quatrième âme. Il n'aurait alors eu aucun moyen d'échapper à son destin. » Wang Lin disait tout cela avec une expression très calme. Il savait que même si Sun Tai était parti, il utiliserait son sens divin pour les espionner.
 
 Chi Hu fut surpris. Il ne posa plus de questions et se concentra sur le contrôle de la boussole stellaire, qui disparut ensuite dans le vide.
 

@@ -24,7 +24,7 @@ La femme regarda Wang Lin avec effroi. N'osant plus déployer son domaine, elle 
 
 Wang Lin réfléchit un instant. Le niveau de culture de cette femme n'était que celui de la Formation du Noyau, et pourtant son domaine était assez puissant pour affecter un cultivateur de la Transformation de l'Âme comme Li Yuanfeng. Cela était très étrange.
 
-« Cette femme a dû naître lorsqu'une partie de l'âme originelle d'un puissant aîné s'est détachée. Le résultat est ce fragment d'âme. Cela expliquerait pourquoi elle possède un domaine aussi puissant. Ce domaine doit être lié au charme ou à la luxure. » Les yeux de Wang Lin brillèrent. Il forma un sceau pour poser une restriction sur la femme, puis l'enferma dans le drapeau des âmes.
+« Cette femme a dû naître lorsqu'une partie de l'âme originelle d'un puissant Senior s'est détachée. Le résultat est ce fragment d'âme. Cela expliquerait pourquoi elle possède un domaine aussi puissant. Ce domaine doit être lié au charme ou à la luxure. » Les yeux de Wang Lin brillèrent. Il forma un sceau pour poser une restriction sur la femme, puis l'enferma dans le drapeau des âmes.
 
 Xu Liguo esquissa immédiatement un sourire et dit prudemment: « Maître, ceci... s'il n'y a rien d'autre, je vais y aller. » Sur ce, il regagna l'épée céleste sans oser en ressortir.
 

@@ -26,7 +26,7 @@ Cependant, le visage de la statue était flou, empêchant quiconque de distingue
 
 « Ceci est une statue du Seigneur du Royaume Scellé lors de la première bataille de la Mer Yun. Elle fut érigée juste après qu'il eut terrassé l'ancêtre du Clan Huo Que et Nanzhao Shangren. Il se tenait seul à la brèche de la Formation de Scellement du Royaume, face à l'armée de l'Extérieur, composée de dizaines de milliers de cultivateurs, et aucun d'entre eux n'osait faire le moindre pas en avant! » Les paroles du vieil homme résonnèrent, incitant ses trois disciples à se retourner pour lui rendre hommage.
 
-« Après cette première bataille, le nom du Seigneur du Royaume Scellé devint célèbre dans le Royaume Intérieur, et l'on apprit qu'il venait de la planète Suzaku. Les cultivateurs du Royaume Intérieur se rassemblèrent et, sous la direction de plusieurs puissants Anciens et du seigneur de la planète Suzaku, Zhou Wutai, le plus haut sommet fut transformé en une statue du Seigneur du Royaume Scellé », continua la voix de l'homme.
+« Après cette première bataille, le nom du Seigneur du Royaume Scellé devint célèbre dans le Royaume Intérieur, et l'on apprit qu'il venait de la planète Suzaku. Les cultivateurs du Royaume Intérieur se rassemblèrent et, sous la direction de plusieurs puissants Seniors et du seigneur de la planète Suzaku, Zhou Wutai, le plus haut sommet fut transformé en une statue du Seigneur du Royaume Scellé », continua la voix de l'homme.
 
 Wang Lin regarda silencieusement la statue et secoua doucement la tête dans un soupir. Il se souvenait vaguement que cette montagne appartenait au pays de Suzaku et qu'elle était sa terre sacrée. Pourtant, tout avait été transformé.
 

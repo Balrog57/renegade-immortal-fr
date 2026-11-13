@@ -28,7 +28,7 @@ Terrifié, le jeune homme sentit son cuir chevelu s'engourdir. Une telle chose d
 
 « Comment est-ce possible? Il n'est qu'un mortel, un simple mortel! Comment peut-il dégager une telle aura... cet homme... on ne peut pas l'offenser! »
 
-Il n'osa pas partir ainsi, mais resta en suspens dans les airs, l'expression respectueuse. Il joignit les mains devant Wang Lin comme pour saluer un Ancien.
+Il n'osa pas partir ainsi, mais resta en suspens dans les airs, l'expression respectueuse. Il joignit les mains devant Wang Lin comme pour saluer un Senior.
 
 « C'est notre faute, j'espère que le Grand Érudit ne nous en tiendra pas rigueur. Nous partons immédiatement et ne remettrons plus jamais les pieds dans la ville de Su. » Sur ces mots, le jeune homme partit rapidement en soutenant son camarade.
 

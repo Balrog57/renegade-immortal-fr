@@ -36,7 +36,7 @@ Cette trace se déclencherait dans un mois, et la jeune femme mourrait alors à 
 
 Yang Xiong ouvrait la voie en chuchotant: « Lorsque Lin Tao préparait une copie de la carte, il fut surpris par l'ancêtre Feng Luan; la carte est donc actuellement entre ses mains. Lin Tao a également été puni. Sans cette migration, il aurait sans doute été enfermé dix ans dans la zone interdite. »
 
-L'expression de Wang Lin resta impénétrable, mais il devint plus prudent en suivant Yang Xiong vers le char du phénix aux cinq couleurs. Arrivé près du véhicule, Yang Xiong s'arrêta, mais Wang Lin continua d'avancer. Il se tint devant l'ancêtre Feng Luan, joignit les mains et dit respectueusement: « Wang Lin salue l'Aînée. »
+L'expression de Wang Lin resta impénétrable, mais il devint plus prudent en suivant Yang Xiong vers le char du phénix aux cinq couleurs. Arrivé près du véhicule, Yang Xiong s'arrêta, mais Wang Lin continua d'avancer. Il se tint devant l'ancêtre Feng Luan, joignit les mains et dit respectueusement: « Wang Lin salue Senior. »
 
 La femme détourna son regard du champ de bataille pour observer Wang Lin. Elle demanda doucement: « Wang Lin est-il ton véritable nom? »
 

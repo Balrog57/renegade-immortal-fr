@@ -48,7 +48,7 @@ Les trois autres tentèrent d'utiliser divers sorts et trésors pour s'extirper 
 
 Au fil du temps, l'énergie spirituelle céleste des quatre déclinait et leurs réserves de pilules s'amenuisaient.
 
-Ran Yue fronça les sourcils et dit doucement: « Les Insectes de Brume Noire craignent par-dessus tout les sorts de tonnerre, et j'ai déjà demandé de l'aide à la famille. Cet endroit est un peu éloigné de notre clan, mais nous devons résister jusqu'à ce qu'un aîné expert en tonnerre vienne nous secourir! »
+Ran Yue fronça les sourcils et dit doucement: « Les Insectes de Brume Noire craignent par-dessus tout les sorts de tonnerre, et j'ai déjà demandé de l'aide à la famille. Cet endroit est un peu éloigné de notre clan, mais nous devons résister jusqu'à ce qu'un Senior expert en tonnerre vienne nous secourir! »
 
 Sa consommation d'énergie spirituelle céleste était la plus élevée, car le bracelet en absorbait la majeure partie. Sans cet artefact, ils auraient été dévorés par les insectes en un instant.
 
@@ -74,27 +74,27 @@ Les quatre prisonniers furent immédiatement stupéfaits. Les yeux de Ran Yue s'
 
 Ses beaux yeux se tournèrent vers le jeune homme monté sur l'éclat argenté, juste au-delà de la brume.
 
-Le désespoir quitta instantanément le regard de Sun Xueshan. Il joignit promptement les mains et cria: « Aîné, ce cadet est de la famille Sun de la planète Ran Yun! J'espère que l'Aîné pourra nous aider; le cadet vous en sera éternellement reconnaissant! »
+Le désespoir quitta instantanément le regard de Sun Xueshan. Il joignit promptement les mains et cria: « Senior, ce cadet est de la famille Sun de la planète Ran Yun! J'espère que le Senior pourra nous aider; le cadet vous en sera éternellement reconnaissant! »
 
 Ran Chen et Ran Feng joignirent également leurs mains, implorant leur salut avec sincérité et respect.
 
-Ran Yue observa le jeune homme sur son sillage argenté, et ses traits se détendirent. Elle joignit les mains et dit doucement: « Aîné, ce cadet est de la famille Ran de la planète Ran Yun. Nous sommes piégés par ces Insectes de Brume Noire. Si l'Aîné nous sauve, la famille Ran récompensera certainement son geste. »
+Ran Yue observa le jeune homme sur son sillage argenté, et ses traits se détendirent. Elle joignit les mains et dit doucement: « Senior, ce cadet est de la famille Ran de la planète Ran Yun. Nous sommes piégés par ces Insectes de Brume Noire. Si le Senior nous sauve, la famille Ran récompensera certainement son geste. »
 
 L'expression de Wang Lin demeurait calme tandis qu'il passait les quatre individus en revue. Il détourna son regard et la brume se remit aussitôt à tourbillonner, refermant la brèche.
 
-Des exclamations s'élevèrent de l'intérieur du nuage. Les visages des captifs devinrent instantanément livides. Sun Xueshan cria avec précipitation: « Aîné, nous possédons une Pierre Rouge Brillante! Si vous nous sauvez, nous vous la donnerons en guise de remerciement immédiat! »
+Des exclamations s'élevèrent de l'intérieur du nuage. Les visages des captifs devinrent instantanément livides. Sun Xueshan cria avec précipitation: « Senior, nous possédons une Pierre Rouge Brillante! Si vous nous sauvez, nous vous la donnerons en guise de remerciement immédiat! »
 
 Wang Lin ignora l'offre, ne sachant pas ce qu'était cette pierre. Il observa la brume et se mit à réfléchir. Il était trop peu familier avec le système de Luotian; il devait obtenir des informations au plus vite afin de pouvoir rejoindre la famille Xiang dont la femme dans le parchemin avait parlé.
 
 Les quatre prisonniers ne pouvaient pas voir l'extérieur. À cet instant, hormis Ran Yue, les trois autres étaient rongés par la tension et l'anxiété.
 
-Ran Yue fronça les sourcils. Il ne restait plus beaucoup de pilules dans sa sacoche; si la situation perdurait, les conséquences seraient incommensurables. Elle serra les dents et commença: « Aîné, je... »
+Ran Yue fronça les sourcils. Il ne restait plus beaucoup de pilules dans sa sacoche; si la situation perdurait, les conséquences seraient incommensurables. Elle serra les dents et commença: « Senior, je... »
 
 Avant qu'elle n'ait pu achever sa phrase, la voix de Wang Lin résonna dans la brume.
 
 « Où se trouve la planète Ran Yun? »
 
-Les quatre furent saisis de panique. Sun Xueshan répondit précipitamment: « Elle se situe à environ sept jours de voyage d'ici, vers le nord! Si l'Aîné souhaite s'y rendre, ce cadet pourra lui montrer le chemin en reconnaissance de son aide! »
+Les quatre furent saisis de panique. Sun Xueshan répondit précipitamment: « Elle se situe à environ sept jours de voyage d'ici, vers le nord! Si le Senior souhaite s'y rendre, ce cadet pourra lui montrer le chemin en reconnaissance de son aide! »
 
 Les yeux de Wang Lin s'animèrent. Il leva sa main droite et pointa le vide. Soudain, un rayon de foudre jaillit de son âme originelle et il l'expédia d'un mouvement sec du poignet.
 
@@ -116,6 +116,6 @@ Son choc venait de la puissance brute qui émanait de cet éclair. Il n'arrivait
 
 Ran Yue et les deux autres membres de la famille Ran étaient tout aussi bouleversés. Ran Yue, en particulier, prit une inspiration saccadée. Ses yeux s'illuminèrent soudainement en fixant Wang Lin.
 
-Après tout, ayant atteint le stade intermédiaire de la Transformation de l'Âme, sa position au sein du clan était supérieure à celle des trois autres, ce qui signifiait qu'elle détenait des connaissances plus secrètes. Son esprit vacillait tandis qu'elle remettait en question tout ce qu'elle venait de voir. Elle prit une profonde inspiration et dit respectueusement: « Ce cadet appartient à la neuvième génération de la famille Ran. L'Aîné est-il un Messager Céleste du Tonnerre? »
+Après tout, ayant atteint le stade intermédiaire de la Transformation de l'Âme, sa position au sein du clan était supérieure à celle des trois autres, ce qui signifiait qu'elle détenait des connaissances plus secrètes. Son esprit vacillait tandis qu'elle remettait en question tout ce qu'elle venait de voir. Elle prit une profonde inspiration et dit respectueusement: « Ce cadet appartient à la neuvième génération de la famille Ran. Le Senior est-il un Messager Céleste du Tonnerre? »
 
 À ces mots, l'expression de Sun Xueshan changea radicalement. Il songea intérieurement: « En effet, il doit être un Messager Céleste du Tonnerre! Mais... pourquoi un Messager Céleste du Tonnerre voudrait-il se rendre sur la planète Ran Yun... »

@@ -86,11 +86,11 @@ Au moment où Wang Lin apparut, le Blaireau Marqué d'Étoiles sur l'épaule de 
 
 L'homme en pourpre sourit et hocha la tête avant de concentrer son esprit sur le blaireau. Il l'avait élevé depuis sa petite taille et l'appréciait beaucoup. La réaction étrange de l'animal avait attiré son attention. Cependant, à cet instant, le Blaireau Marqué d'Étoiles sembla reprendre un comportement normal, sans aucune anomalie. Cela laissa l'homme en pourpre perplexe.
 
-L'expression de Wang Lin ne changea pas sous les regards de tous alors que Lei Ji approchait. Il joignit les mains vers Tian Yunzi et ses compagnons avant de dire calmement: « Salutations, Tian Yunzi, Saint de l'Épée et chers aînés. J'ai eu quelques contretemps après avoir reçu l'invitation, ce qui explique mon retard. »
+L'expression de Wang Lin ne changea pas sous les regards de tous alors que Lei Ji approchait. Il joignit les mains vers Tian Yunzi et ses compagnons avant de dire calmement: « Salutations, Tian Yunzi, Saint de l'Épée et chers Seniors. J'ai eu quelques contretemps après avoir reçu l'invitation, ce qui explique mon retard. »
 
 Ling Tianhou fixa Wang Lin, une trace de crainte dans les yeux. Il ne pourrait jamais oublier ce rayon de lumière. S'il n'avait pas fui rapidement en supposant que l'autre lueur avait absorbé suffisamment d'énergie originelle, il ne serait pas debout aujourd'hui.
 
-Sa façon de percevoir Wang Lin avait changé; il n'avait aucune intention de le provoquer. Il sourit et secoua la tête: « Le Daoïste Wang est trop poli. Nul besoin de m'appeler "aîné", appelez simplement ce vieil homme Ling Tianhou. »
+Sa façon de percevoir Wang Lin avait changé; il n'avait aucune intention de le provoquer. Il sourit et secoua la tête: « Le Daoïste Wang est trop poli. Nul besoin de m'appeler "Senior", appelez simplement ce vieil homme Ling Tianhou. »
 
 Ses paroles provoquèrent un tollé parmi les cultivateurs. Des regards d'incrédulité se tournèrent vers Wang Lin. Ling Tianhou était un puissant cultivateur dont la renommée n'était surpassée que par celle de Tian Yunzi. Très peu de personnes étaient dignes d'être appelées « Daoïste » par lui. Ce simple terme prononcé par Ling Tianhou choqua les esprits!
 

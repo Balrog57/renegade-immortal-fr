@@ -20,11 +20,11 @@ Zhan Bai flotta dans le ciel et observa les nuages un instant. Il afficha un sou
 
 Le silence régna sur la Secte Yun Tian. Après un moment, une voix faible et douce s'éleva de la secte. Cependant, cette voix était empreinte de détermination.
 
-« L'Aîné est un cultivateur de la Formation de l'Âme; pourquoi imposer de telles difficultés à une petite secte comme la nôtre? Si vous avez besoin de pilules, veuillez nous le demander. Ma Secte Yun Tian fera de son mieux pour satisfaire vos besoins. »
+« Le Senior est un cultivateur de la Formation de l'Âme; pourquoi imposer de telles difficultés à une petite secte comme la nôtre? Si vous avez besoin de pilules, veuillez nous le demander. Ma Secte Yun Tian fera de son mieux pour satisfaire vos besoins. »
 
 Zhan Bai afficha une expression moqueuse et dit: « Oh? Je suppose que c'est toi, la Maîtresse de la Secte Yun Tian. »
 
-« Cette junior est la Maîtresse de la Secte Yun Tian. Aîné, je vous prie de ne pas accabler une petite secte comme la nôtre... » La voix de Li Muwan continua. Elle était toujours aussi mélodieuse qu'autrefois, empreinte d'une infinie douceur.
+« Cette junior est la Maîtresse de la Secte Yun Tian. Senior, je vous prie de ne pas accabler une petite secte comme la nôtre... » La voix de Li Muwan continua. Elle était toujours aussi mélodieuse qu'autrefois, empreinte d'une infinie douceur.
 
 Zhan Bai renifla et déclara: « Je veux voir quel genre de beauté se cache derrière cette Maîtresse de Secte. » Sur ce, il tendit la main vers les nuages blancs dans un geste de saisie.
 
@@ -32,7 +32,7 @@ Dans une série de craquements, les nuages blancs s'effondrèrent rapidement, ma
 
 « Qu'est-ce que c'est? Cette formation est mystérieuse. Elle n'a pas été placée par votre Secte Yun Tian? » Les yeux de Zhan Bai s'illuminèrent.
 
-Li Muwan soupira et dit: « Aîné, cette formation a été placée par le Clan Ju Mo pour protéger notre Secte Yun Tian. Veuillez accorder un peu de respect au Clan Ju Mo et ne nous compliquez pas la tâche. »
+Li Muwan soupira et dit: « Senior, cette formation a été placée par le Clan Ju Mo pour protéger notre Secte Yun Tian. Veuillez accorder un peu de respect au Clan Ju Mo et ne nous compliquez pas la tâche. »
 
 « Le Clan Ju Mo... » Zhan Bai réfléchit un instant avant d'agiter la main. Tous les insectes qui l'entouraient attaquèrent les nuages.
 
@@ -80,7 +80,7 @@ Quelques jours auparavant, elle avait commencé à envoyer des disciples partir,
 
 Même Liu Fei et Song Qing, ainsi que deux Grands Anciens au stade avancé de l'Âme Naissante, avaient décidé de rester.
 
-Un vieil homme aux cheveux blancs fit un pas en avant, s'interposant devant Li Muwan, et dit à Zhan Bai: « Aîné, si vous avez une requête, veuillez la formuler! »
+Un vieil homme aux cheveux blancs fit un pas en avant, s'interposant devant Li Muwan, et dit à Zhan Bai: « Senior, si vous avez une requête, veuillez la formuler! »
 
 Les yeux de Zhan Bai s'illuminèrent. Il fixa le vieil homme et déclara avec mépris: « Mes requêtes? Ma demande est très simple. Je vais tous vous tuer, prendre toutes les pilules et sceller cet endroit pour en faire mon palais personnel... Quant à toi, ton nom est Li Muwan? Tu es très jolie et possède une certaine grâce. Tu seras ma servante. »
 

@@ -1,6 +1,6 @@
 ---
 n: 2046
-title: "Massacre de Punition!"
+title: "Lu Mo de Punition!"
 book: 13
 bookTitle: Light of the coming end
 en: "Chapter 2046 - Punishment Slaughter!"
@@ -72,7 +72,7 @@ L'une était le véritable corps d'essence de tonnerre, formé depuis longtemps.
 
 Une fois apparu, ce corps d'essence fixa calmement le ciel, libérant une aura terrifiante. C'était une aura de destruction pure, qui anéantissait les êtres et détruisait ciel et terre, la puissance même du massacre!
 
-« Je m'appelle Massacre... » murmura le Wang Lin aux cheveux noirs.
+« Je m'appelle Lu Mo... » murmura le Wang Lin aux cheveux noirs.
 
 Il baissa la tête et son regard balaya la foule. Lorsque les gardes du palais furent frappés par cette vision, ils poussèrent des cris déchirants. Ce n'était pas tant à cause de la douleur ou de la mort, mais par la peur!
 
@@ -80,7 +80,7 @@ Une peur viscérale qui émanait de l'âme même!
 
 Dans la salle, le jeune homme en robe pourpre tremblait, l'esprit envahi par l'effroi. Même le prince Ji Du était saisi de tremblements, terrifié.
 
-« Je m'appelle Massacre! » Le Wang Lin aux cheveux noirs leva les yeux et rugit vers le ciel, mais à cet instant, un ricanement glacial retentit depuis le palais.
+« Je m'appelle Lu Mo! » Le Wang Lin aux cheveux noirs leva les yeux et rugit vers le ciel, mais à cet instant, un ricanement glacial retentit depuis le palais.
 
 Dès que ce ricanement atteignit ses oreilles, son rugissement s'interrompit. Son visage se crispa de douleur et de folie. Profitant de cet instant de distraction, le véritable corps d'essence de tonnerre vola vers lui et fusionna avec lui, provoquant une décharge de foudre noire dans toute la zone.
 
@@ -88,25 +88,25 @@ Peu après, les yeux du véritable corps d'essence de restriction brillèrent et
 
 Au même moment, les véritables corps d'essence du commencement absolu et de la fin absolue sortirent silencieusement. Ils se transformèrent en deux rayons de lumière, l'un noir et l'autre blanc, et fusionnèrent avec lui.
 
-« Je m'appelle Massacre!!! » Les grognements du Wang Lin aux cheveux noirs devinrent un rugissement puissant. Quatre ombres superposées apparurent, comme s'il cherchait à expulser ses propres corps véritables.
+« Je m'appelle Lu Mo!!! » Les grognements du Wang Lin aux cheveux noirs devinrent un rugissement puissant. Quatre ombres superposées apparurent, comme s'il cherchait à expulser ses propres corps véritables.
 
-« Personne ne peut me contrôler, je suis Massacre! » Alors qu'il rugissait, les ombres superposées furent repoussées de quelques pouces hors de son corps. La scène était d'un grand mystère!
+« Personne ne peut me contrôler, je suis Lu Mo! » Alors qu'il rugissait, les ombres superposées furent repoussées de quelques pouces hors de son corps. La scène était d'un grand mystère!
 
 Un second ricanement glacial retentit. Le Wang Lin aux cheveux noirs frissonna et, simultanément, le véritable corps des cinq éléments apparut dans le ciel. Celui-ci rétrécit et se mua en une immense paume d'énergie des cinq éléments qui s'abattit sur lui.
 
-« Je suis Massacre! » Le Wang Lin aux cheveux noirs leva les yeux et libéra une force destructrice. Alors qu'il s'apprêtait à lutter, une pression écrasante se manifesta dans un rayon de cent mille pieds autour de lui, chargée d'un puissant Sens Divin qui l'écrasait.
+« Je suis Lu Mo! » Le Wang Lin aux cheveux noirs leva les yeux et libéra une force destructrice. Alors qu'il s'apprêtait à lutter, une pression écrasante se manifesta dans un rayon de cent mille pieds autour de lui, chargée d'un puissant Sens Divin qui l'écrasait.
 
 À ce moment précis, l'ombre d'un Luo Hou apparut derrière le Wang Lin aux cheveux noirs. Cette ombre était fragmentée, mais d'innombrables fils noirs surgirent pour lier les morceaux entre eux. Les ombres superposées autour de lui cessèrent de s'étendre et fusionnèrent toutes ensemble.
 
-« Parce que tu es mon second véritable corps, tu es Massacre! Désormais, tu me remplaceras pour châtier tous mes ennemis! Tu répandras mon intention destructrice et tu abattras ceux qui chercheront à me nuire!
+« Parce que tu es mon second véritable corps, tu es Lu Mo! Désormais, tu me remplaceras pour châtier tous mes ennemis! Tu répandras mon intention destructrice et tu abattras ceux qui chercheront à me nuire!
 
-Ton nom est Massacre, et ton nom Dao est Punition! »
+Ton nom est Lu Mo, et ton nom Dao est Punition! »
 
 Une voix puissante résonna à travers le monde tandis que l'ombre du Luo Hou derrière lui fusionnait totalement. Les quatre autres ombres s'intégrèrent également pour ne former qu'une seule entité!
 
 La pression se dissipa et le monde retrouva son calme. Le Wang Lin aux cheveux noirs resta ainsi, la chevelure sombre. Il se tenait là et leva lentement la tête.
 
-« Je suis Massacre de Punition! » Sa voix était calme et d'un froid glacial. Elle ne contenait aucune émotion, seulement une indifférence absolue. Il représentait l'intention meurtrière et la destruction de Wang Lin, de quoi faire trembler les cieux et la terre, et faire connaître la peur aux ennemis de ce dernier.
+« Je suis Lu Mo de Punition! » Sa voix était calme et d'un froid glacial. Elle ne contenait aucune émotion, seulement une indifférence absolue. Il représentait l'intention meurtrière et la destruction de Wang Lin, de quoi faire trembler les cieux et la terre, et faire connaître la peur aux ennemis de ce dernier.
 
 En levant la tête, son regard froid perça l'horizon, semblant capable de franchir des distances infinies. Son regard tomba directement sur la pointe de la corne de la Montagne Yuan Shi, sur un Song Tian pétrifié!
 

@@ -14,7 +14,7 @@ Ses yeux brillèrent comme des torches alors qu'il fixait Wang Lin avec une expr
 
 L'expression de Wang Lin resta neutre tandis qu'il contemplait Zhan Konglie. Son regard était empreint d'une telle hauteur qu'il semblait observer l'autre depuis les cieux. Le Wang Lin d'aujourd'hui était bien différent de celui d'autrefois.
 
-À l'époque, il ne pouvait que prétendre être un aîné. Même au sein du Royaume Céleste du Tonnerre, son niveau de culture n'était que similaire à celui de Zhan Konglie; pour être tout à fait honnête, il devait encore faire preuve de prudence.
+À l'époque, il ne pouvait que prétendre être un Senior. Même au sein du Royaume Céleste du Tonnerre, son niveau de culture n'était que similaire à celui de Zhan Konglie; pour être tout à fait honnête, il devait encore faire preuve de prudence.
 
 Cependant, sa culture avait désormais franchi l'étape du Yang Corporel pour atteindre véritablement la deuxième étape. En regardant Zhan Konglie à présent, l'esprit de Wang Lin était serein, sans la moindre ride à sa surface.
 

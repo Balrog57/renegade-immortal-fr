@@ -80,7 +80,7 @@ Wang Lin s'approcha, nettoya la poussière au sol et découvrit les mots gravés
 
 « La Secte Heng Yue mourra avec moi... J'ai manqué de respect aux ancêtres... J'ai manqué de respect aux ancêtres... »
 
-Wang Lin réfléchit. Il recula d'un pas, s'inclina respectueusement et dit: « Le disciple Wang Lin salue l'Aîné... »
+Wang Lin réfléchit. Il recula d'un pas, s'inclina respectueusement et dit: « Le disciple Wang Lin salue le Senior... »
 
 Après un soupir, il ramassa les pierres de jade une à une pour les examiner avec son Sens Divin. En saisissant l'une d'elles, il s'interrompit brusquement.
 
@@ -110,7 +110,7 @@ Après un soupir, il ramassa les pierres de jade une à une pour les examiner av
 
 Wang Lin reposa le jade et ferma les yeux, secoué intérieurement. Il était venu revoir l'ancienne Secte Heng Yue, mais chercher l'origine de Richesse était aussi l'un de ses buts.
 
-« Un esprit d'épée dans sa vie antérieure... Cette épée est identique à l'Épée Céleste. Se pourrait-il que l'âme de cet aîné contienne un fragment de l'esprit de l'Épée Céleste... »
+« Un esprit d'épée dans sa vie antérieure... Cette épée est identique à l'Épée Céleste. Se pourrait-il que l'âme de ce Senior contienne un fragment de l'esprit de l'Épée Céleste... »
 
 Wang Lin ouvrit les yeux, le regard étincelant. Après une courte réflexion, son corps disparut.
 
@@ -128,9 +128,9 @@ Une demi-lune plus tard, il ressortit de la faille spatiale, le sourcil froncé.
 
 Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un pays désormais sous le joug du Clan Xian Yi, dont les habitants étaient devenus leurs vassaux — un homme portant un chapeau de paille se tenait à la frontière. Il était enveloppé d'une aura dorée.
 
-« Wang Lin, tu es enfin revenu. L'Aîné sait déjà que tu es de retour. J'espère que tu ne le décevras pas. » L'homme tapa sur son sac de stockage et un morceau de jade apparut dans sa main.
+« Wang Lin, tu es enfin revenu. Le Senior sait déjà que tu es de retour. J'espère que tu ne le décevras pas. » L'homme tapa sur son sac de stockage et un morceau de jade apparut dans sa main.
 
-« Tu m'as aidé à tuer Li Yuanfeng et à sceller le pays de Xue Yu. Moi, Zhou Wutai, je n'ai aucun moyen de te remercier si ce n'est en te remettant ce jade. Il contient le domaine de Liu Mei que j'ai acquis au prix de ma vie. J'espère que tu sauras combler les espoirs de l'Aîné: dévore le cœur du Dao de Liu Mei et fais triompher la puissance de Suzaku. »
+« Tu m'as aidé à tuer Li Yuanfeng et à sceller le pays de Xue Yu. Moi, Zhou Wutai, je n'ai aucun moyen de te remercier si ce n'est en te remettant ce jade. Il contient le domaine de Liu Mei que j'ai acquis au prix de ma vie. J'espère que tu sauras combler les espoirs de le Senior: dévore le cœur du Dao de Liu Mei et fais triompher la puissance de Suzaku. »
 
 Il fit un pas et disparut.
 

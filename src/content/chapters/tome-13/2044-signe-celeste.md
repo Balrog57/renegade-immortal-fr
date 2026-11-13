@@ -32,7 +32,7 @@ Il laissa échapper un soupir et pointa du doigt son corps véritable des cinq �
 
 Enfin, Wang Lin tourna son regard vers l'essence de massacre. Cette essence était la plus cruciale et la plus insaisissable qu'il possédât!
 
-« Massacre... Lorsqu'il est apparu pour la première fois, il s'est nommé lui-même "Massacre". Le Maître Impérial du Dao Ancien connaît également cet avatar... » L'expression de Wang Lin était complexe. Il nourrissait ses propres spéculations, mais elles restaient enfouies au plus profond de son cœur.
+« Lu Mo... Lorsqu'il est apparu pour la première fois, il s'est nommé lui-même "Lu Mo". Le Maître Impérial du Dao Ancien connaît également cet avatar... » L'expression de Wang Lin était complexe. Il nourrissait ses propres spéculations, mais elles restaient enfouies au plus profond de son cœur.
 
 « Massacre est un corps immortel. Elle représente la destruction et ne peut donc être effacée. Cette essence de massacre n'est qu'à l'état d'achèvement, elle ne peut pas encore former de corps véritable d'essence. J'ignore si ma démarche est juste... ou erronée. » Wang Lin hésitait.
 
@@ -54,7 +54,7 @@ Après un temps indéterminé, lorsqu'il effectua son dernier geste, son essence
 
 « Raffinement du sang! » rugit Wang Lin avant de fermer les yeux et de s'immobiliser.
 
-Tout en renforçant l'essence de massacre pour prévenir tout incident futur, il allait raffiner à nouveau Massacre!
+Tout en renforçant l'essence de massacre pour prévenir tout incident futur, il allait raffiner à nouveau Lu Mo!
 
 Ce n'était pas la première fois qu'il procédait ainsi; la première fois, il l'avait créée par accident.
 

@@ -22,7 +22,7 @@ Cependant, ce n'était pas la raison principale. La véritable cause était qu'�
 
 Le jeune homme au regard maléfique laissa échapper un grognement. Il détourna les yeux de la Tribulation Céleste pour fixer Wang Lin: « Cadet, remets-moi le sac de rangement et je laisserai tomber cette affaire », dit-il.
 
-« Est-ce là ce que l'Aîné désire? » Le regard de Wang Lin était grave alors qu'il fixait l'homme et sortit un sac de rangement.
+« Est-ce là ce que le Senior désire? » Le regard de Wang Lin était grave alors qu'il fixait l'homme et sortit un sac de rangement.
 
 Le regard du jeune homme maléfique se porta aussitôt sur le sac: « C'est exact. Jette-le ici. »
 
@@ -32,7 +32,7 @@ Après avoir mûrement réfléchi, Wang Lin lança résolument le sac de rangeme
 
 Le jeune homme maléfique attrapa le sac. Après l'avoir scanné avec son Sens Divin, son expression s'adoucit. Il regarda Wang Lin, le visage impassible, ne montrant ni colère ni joie.
 
-Wang Lin fixa le jeune homme. Il plaça la foudre de la Tribulation Céleste devant lui et déclara: « Aîné, le cadet a déjà rendu le sac de rangement, je vais donc prendre congé. » Sur ces mots, il recula prudemment.
+Wang Lin fixa le jeune homme. Il plaça la foudre de la Tribulation Céleste devant lui et déclara: « Senior, le cadet a déjà rendu le sac de rangement, je vais donc prendre congé. » Sur ces mots, il recula prudemment.
 
 Le jeune homme au regard maléfique observa Wang Lin. Soudain, ses yeux se mirent à briller. Deux faisceaux de lumière colorée jaillirent de son regard vers Wang Lin à une vitesse inimaginable.
 
@@ -50,7 +50,7 @@ Il possédait lui-même quelques armes de ce type et connaissait leur puissance.
 
 Wang Lin avait encore un peu de sang au coin de la bouche lorsqu'il fixa le jeune homme maléfique. À cet instant précis, d'une simple pensée, la dernière restriction se poserait sur l'étendard. S'il abandonnait l'étendard et utilisait la parcelle de Tribulation Céleste comme guide, il était certain de pouvoir diriger une partie de sa puissance vers le jeune homme maléfique.
 
-Wang Lin fixa l'inconnu et dit: « J'ai déjà rendu le sac de rangement sans même y toucher. Pourquoi l'Aîné revient-il sur sa parole? »
+Wang Lin fixa l'inconnu et dit: « J'ai déjà rendu le sac de rangement sans même y toucher. Pourquoi le Senior revient-il sur sa parole? »
 
 Le jeune homme au regard maléfique réfléchit un instant puis demanda d'un ton incertain: « La foudre rouge que tu viens d'utiliser... était-ce le Royaume Ji? »
 
@@ -64,7 +64,7 @@ C'était ce Royaume Ji qui avait totalement dissipé son intention de tuer.
 
 Le jeune homme maléfique prit une profonde inspiration, affichant une expression étrange.
 
-Wang Lin resta calme. Après un moment de silence, il dit: « Si l'Aîné n'a rien d'autre à ajouter, alors le cadet prend congé. » Il recula de nouveau avec prudence.
+Wang Lin resta calme. Après un moment de silence, il dit: « Si le Senior n'a rien d'autre à ajouter, alors le cadet prend congé. » Il recula de nouveau avec prudence.
 
 Si le jeune homme faisait le moindre mouvement, Wang Lin activerait la Tribulation Céleste sans hésiter.
 

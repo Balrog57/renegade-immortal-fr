@@ -220,7 +220,7 @@ Devant l'assemblée, il sortit les sangs d'âme et les remit à Li Muwan.
 
 Les quatre ancêtres furent surpris. Après avoir regardé Li Muwan, ils ne dirent mot. Quant à Song Qing et les anciens, ils se détendirent un peu; comparés à Wang Lin, ils trouvaient plus facile d'accepter Li Muwan, qui était déjà une ancienne de la secte.
 
-Li Muwan réceptionna les sangs d'âme et regarda l'assemblée de la Secte Yun Tian. Elle esquissa un doux sourire et dit délicatement: « Cette petite fille prendra soin de la Secte Yun Tian pour son mari. J'espère que les aînés me traiteront avec bienveillance. Quatre ancêtres, votre statut est très noble, ne prenez donc pas cette affaire de sang d'âme à cœur. Dans 500 ans, Wan Er vous le rendra sans faute. J'espère que vous ne tiendrez pas rigueur de ces cinq siècles. Je fabriquerai même gratuitement des pilules pour augmenter votre longévité en guise d'excuse. Bien que le raffinage soit difficile et les matériaux rares, j'en ferai une pour chacun de vous tous les 50 ans. Avec chaque pilule, votre espérance de vie augmentera de 50 ans. »
+Li Muwan réceptionna les sangs d'âme et regarda l'assemblée de la Secte Yun Tian. Elle esquissa un doux sourire et dit délicatement: « Cette petite fille prendra soin de la Secte Yun Tian pour son mari. J'espère que les Seniors me traiteront avec bienveillance. Quatre ancêtres, votre statut est très noble, ne prenez donc pas cette affaire de sang d'âme à cœur. Dans 500 ans, Wan Er vous le rendra sans faute. J'espère que vous ne tiendrez pas rigueur de ces cinq siècles. Je fabriquerai même gratuitement des pilules pour augmenter votre longévité en guise d'excuse. Bien que le raffinage soit difficile et les matériaux rares, j'en ferai une pour chacun de vous tous les 50 ans. Avec chaque pilule, votre espérance de vie augmentera de 50 ans. »
 
 L'expression du vieil homme aux allures féeriques changea. Il demanda d'une voix grave: « Augmenter la longévité? »
 
@@ -242,7 +242,7 @@ Song Qing regarda Wang Lin et répondit rapidement: « Il est en train de raffin
 
 Li Muwan eut un petit rire: « Le Senior frère Ouyang Zi est un alchimiste de rang 5 comme moi. S'il en veut, il peut en avoir. Ce ne sont que des pilules de rang 5. »
 
-Puis, elle s'adressa à Wang Lin pour expliquer: « Parmi les trois alchimistes de rang 5 de la Secte Yun Tian, outre Wan Er et Ouyang Zi, le troisième est le senior Tian Yunzi. »
+Puis, elle s'adressa à Wang Lin pour expliquer: « Parmi les trois alchimistes de rang 5 de la Secte Yun Tian, outre Wan Er et Ouyang Zi, le troisième est le Senior Tian Yunzi. »
 
 Wang Lin acquiesça, observant silencieusement Li Muwan gérer la situation.
 

@@ -66,7 +66,7 @@ Alors qu'il réfléchissait, il tourna la tête. Portée par une légère brise,
 
 Wang Lin agita sa main droite pour lever la restriction sur la demeure. Le vieil homme entra rapidement et, après une hésitation, abaissa lui aussi son niveau de culture au stade de la Formation du Noyau. Il pénétra dans la pièce avec un sourire amer au fond du cœur.
 
-« Aîné, j'étais pressé la dernière fois et n'ai pas pu me présenter. Je suis Sun Qiming, de la branche de la famille Sun. Je suis le responsable de cette ville. Puis-je connaître votre nom, Aîné? » Le vieil homme se montrait extrêmement respectueux. Si l'Ancien Ancestral s'était déplacé personnellement, c'était une personne qu'il ne pouvait absolument pas offenser.
+« Senior, j'étais pressé la dernière fois et n'ai pas pu me présenter. Je suis Sun Qiming, de la branche de la famille Sun. Je suis le responsable de cette ville. Puis-je connaître votre nom, Senior? » Le vieil homme se montrait extrêmement respectueux. Si l'Ancien Ancestral s'était déplacé personnellement, c'était une personne qu'il ne pouvait absolument pas offenser.
 
 Wang Lin répondit calmement: « Xu Mu. »
 

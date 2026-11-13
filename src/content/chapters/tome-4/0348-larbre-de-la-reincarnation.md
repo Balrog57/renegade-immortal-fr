@@ -10,7 +10,7 @@ Une fois que le vieil homme Hu eut fini de parler, il saisit Xu Luo et se télé
 
 Qiu Siping serra les dents et utilisa lui aussi une téléportation pour les suivre rapidement.
 
-Seule la belle Yun Meng resta en arrière. Elle s'approcha de Wang Lin et murmura: « Merci infiniment, aîné. »
+Seule la belle Yun Meng resta en arrière. Elle s'approcha de Wang Lin et murmura: « Merci infiniment, Senior. »
 
 Wang Lin resta impassible. Il la saisit, sentant sa taille fine sous sa main, tout en gardant son calme habituel. « Ferme les yeux », dit-il simplement.
 

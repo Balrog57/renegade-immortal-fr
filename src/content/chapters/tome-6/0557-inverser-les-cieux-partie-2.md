@@ -20,7 +20,7 @@ La lueur rouge émanant de la sculpture de glace de Yao Xixue s'intensifia, comm
 
 Le regard de l'homme d'âge moyen était impassible. Il ne daigna même pas regarder Wang Lin, concentrant son attention uniquement sur Yao Xixue.
 
-Yao Xixue s'inclina et dit: « Aîné, puisque vous connaissiez mon ancêtre, pourquoi ne me laisseriez-vous pas passer? Cette grotte est abandonnée depuis de nombreuses années; ce serait un gaspillage de la laisser ainsi. Pourquoi ne pas la confier à cette junior? »
+Yao Xixue s'inclina et dit: « Senior, puisque vous connaissiez mon ancêtre, pourquoi ne me laisseriez-vous pas passer? Cette grotte est abandonnée depuis de nombreuses années; ce serait un gaspillage de la laisser ainsi. Pourquoi ne pas la confier à cette junior? »
 
 L'homme d'âge moyen détourna le regard et déclara calmement: « Si vous pouvez résister à trois assauts de mon épée, alors vous serez qualifiée! Serez-vous ensemble ou séparément? »
 
@@ -56,7 +56,7 @@ Le visage de Yao Xixue se glaça et elle rétorqua froidement: « Wang Lin, si n
 
 À cet instant précis, l'homme d'âge moyen qui les observait froidement intervint soudainement: « C'est exact. Si vous ne parvenez pas à entrer dans la grotte, vous périrez tous les deux. Si vous voulez vivre, vous devez réussir votre entrée! »
 
-Wang Lin médita longuement avant de faire un pas en avant et de dire d'un ton grave: « Aîné, je vous en prie, allez-y! » Il leva son doigt vers le ciel et les pulsions démoniaques qu'il réprimait en lui jaillirent soudainement, envahissant tout son corps. Une épaisse brume noire émana de lui et, en un instant, il fut entièrement enveloppé par ce nuage sombre.
+Wang Lin médita longuement avant de faire un pas en avant et de dire d'un ton grave: « Senior, je vous en prie, allez-y! » Il leva son doigt vers le ciel et les pulsions démoniaques qu'il réprimait en lui jaillirent soudainement, envahissant tout son corps. Une épaisse brume noire émana de lui et, en un instant, il fut entièrement enveloppé par ce nuage sombre.
 
 Aux yeux de Yao Xixue, cette brume noire était de l'énergie spirituelle démoniaque!
 

@@ -50,7 +50,7 @@ Le visage de Luo Su était sombre. Une intention meurtrière traversa ses yeux, 
 
 Une multitude d'aiguilles formées par son sens divin l'entouraient. Des milliers d'entre elles se rassemblèrent en un groupe dense avant de toutes foncer vers Wang Lin.
 
-Chaque aiguille acérée contenait le sens divin transformé de Luo Su. C'était le sort qui l'avait rendu célèbre, celui-là même pour lequel tous les aînés le louaient!
+Chaque aiguille acérée contenait le sens divin transformé de Luo Su. C'était le sort qui l'avait rendu célèbre, celui-là même pour lequel tous les Seniors le louaient!
 
 Parmi les cultivateurs, la majorité des sorts se concentrent sur la puissance physique issue du corps; très peu attaquent directement l'âme originelle. Cependant, une attaque de sens divin pouvait terrifier n'importe quel cultivateur!
 

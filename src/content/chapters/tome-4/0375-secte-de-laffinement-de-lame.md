@@ -118,7 +118,7 @@ Wang Lin simula une certaine douleur au cœur en sortant deux pierres spirituell
 
 Alors que Wang Lin s'apprêtait à s'éloigner, l'homme demanda soudain: « Qu'as-tu donné à Hong Maozi? »
 
-Wang Lin répondit honnêtement: « Une épée volante qu'un aîné m'a offerte autrefois. »
+Wang Lin répondit honnêtement: « Une épée volante qu'un Senior m'a offerte autrefois. »
 
 « Pas étonnant que Hong Maozi ait été si joyeux! Qing Mu, bien que tu sois au stade de l'Établissement des Fondations, ne sois pas présomptueux. S'il n'y a pas beaucoup de cultivateurs de ce niveau parmi les disciples extérieurs, ils ne sont pas inexistants. Dans six mois, la compétition des disciples extérieurs commencera. Si tu as du talent, tu pourrais avoir une chance d'accéder à l'intérieur de la secte et de devenir disciple central. » L'homme secoua la tête et retourna dans sa demeure.
 

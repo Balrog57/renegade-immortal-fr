@@ -108,7 +108,7 @@ Hongdie tourna brusquement la tête. Le vieil homme lui adressa un sourire empre
 
 Soudain, plusieurs filaments de fumée noire s'échappèrent de ses sept orifices et s'insinuèrent dans ceux de la jeune femme comme de petits serpents.
 
-Pour la première fois, Hongdie paniqua. Sachant que lutter était vain, elle leva précipitamment sa main droite pour révéler un bracelet de jade. Sa voix, stridente, cria: « Aîné, connaissez-vous cet objet? »
+Pour la première fois, Hongdie paniqua. Sachant que lutter était vain, elle leva précipitamment sa main droite pour révéler un bracelet de jade. Sa voix, stridente, cria: « Senior, connaissez-vous cet objet? »
 
 Les yeux du vieil homme devinrent sérieux. « Le symbole des disciples centraux de Suzaku: le Bracelet de la Paix Ouverte. »
 
@@ -136,7 +136,7 @@ Chi Hu hésita encore avant d'abandonner toute résistance. Ses yeux brillèrent
 
 L'expression de Wang Lin resta sereine. Il lança un regard glacial au vieil homme avant de se retourner pour partir. Il ne voulait pas s'impliquer dans ce chaos. Puisqu'on lui avait dit de partir, il s'exécutait.
 
-Hongdie laissa transparaître un regard venimeux et s'écria soudainement: « Ai... Aîné, tuez-le! Si vous le tuez, je cesserai de résister et vous soutiendrai pleinement! Mais vous devez me promettre d'assurer ma sécurité! »
+Hongdie laissa transparaître un regard venimeux et s'écria soudainement: « Ai... Senior, tuez-le! Si vous le tuez, je cesserai de résister et vous soutiendrai pleinement! Mais vous devez me promettre d'assurer ma sécurité! »
 
 Le vieil homme fut surpris. Il leva la tête, les yeux brillants, comme s'il s'apprêtait à tendre la main vers Wang Lin.
 

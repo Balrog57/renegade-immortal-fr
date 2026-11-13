@@ -34,7 +34,7 @@ Wang Lin ne s'attarda pas sur sa remarque. Il marcha vers la proue du bateau et 
 
 Après avoir médité un instant, Wang Lin déclara: « Ce n'est pas une formation, mais une sorte de restriction! »
 
-Qiu Siping fronça légèrement les sourcils. Il regarda autour de lui et dit amèrement: « Avec notre niveau de culture, il est peu probable que ce senior ait placé cette restriction uniquement pour nous, n'est-ce pas? »
+Qiu Siping fronça légèrement les sourcils. Il regarda autour de lui et dit amèrement: « Avec notre niveau de culture, il est peu probable que ce Senior ait placé cette restriction uniquement pour nous, n'est-ce pas? »
 
 Wang Lin garda le silence, continuant de balayer la zone avec son Sens Divin. Cet homme âgé ne les arrêterait pas sans raison; il semblait qu'un problème les attendait.
 
@@ -42,13 +42,13 @@ L'homme âgé sembla se lasser de ses invectives. Il prit une autre grande gorg�
 
 D'un geste de la main droite, il fit soudainement voler le bateau vers lui. Rapidement, l'embarcation ne se trouvait plus qu'à 33 mètres de lui.
 
-Qiu Siping afficha immédiatement une expression respectueuse et dit: « Le junior Qiu Siping salue l'Aîné. »
+Qiu Siping afficha immédiatement une expression respectueuse et dit: « Le junior Qiu Siping salue le Senior. »
 
 L'homme âgé cligna des yeux et demanda: « Tu me connais? »
 
-Qiu Siping, déconcerté, balbutia: « Aîné... »
+Qiu Siping, déconcerté, balbutia: « Senior... »
 
-« Je ne te connais pas, alors comment pourrais-tu me connaître? Et si tu ne me connais pas, pourquoi m'appeler "Aîné"? Suis-je si vieux? Très bien. Laisse-moi te raconter ce qui s'est passé quand j'avais trois ans. Une fois que je t'aurai conté tout ce qui est arrivé durant ces quelques milliers de dernières années, alors tu pourras dire que tu me connais. Quand j'avais trois ans... » Dès que l'homme âgé commença à parler, il se lança dans un monologue interminable, laissant Qiu Siping totalement abasourdi et incapable de prononcer la moindre parole.
+« Je ne te connais pas, alors comment pourrais-tu me connaître? Et si tu ne me connais pas, pourquoi m'appeler "Senior"? Suis-je si vieux? Très bien. Laisse-moi te raconter ce qui s'est passé quand j'avais trois ans. Une fois que je t'aurai conté tout ce qui est arrivé durant ces quelques milliers de dernières années, alors tu pourras dire que tu me connais. Quand j'avais trois ans... » Dès que l'homme âgé commença à parler, il se lança dans un monologue interminable, laissant Qiu Siping totalement abasourdi et incapable de prononcer la moindre parole.
 
 Après un long moment, l'homme âgé s'interrompit enfin pour reprendre une gorgée de vin. La gourde était désormais vide; la bouche du vieillard se tordit et il marmonna: « Si j'avais su que je parlerais autant aujourd'hui, j'aurais emporté plus de vin. Puisqu'il n'en reste plus, venez avec moi en chercher, et je vous raconterai mes péripéties de quand j'avais 75 ans en chemin. »
 
@@ -66,7 +66,7 @@ L'esprit de Wang Lin se mit en ébullition. Cet homme ne lancerait pas une telle
 
 Qiu Siping fut, cette fois, totalement pétrifié. Si l'homme était bavard auparavant, il semblait désormais complètement insensé. Qui acceptait des disciples de la sorte?
 
-Soudain, Qiu Siping eut l'impression qu'une main lui serrait la gorge, l'empêchant de parler. Après un moment, il esquissa un sourire amer et dit: « Aîné, je... »
+Soudain, Qiu Siping eut l'impression qu'une main lui serrait la gorge, l'empêchant de parler. Après un moment, il esquissa un sourire amer et dit: « Senior, je... »
 
 Les yeux du vieillard se tournèrent vers lui: « Quoi? Pas content? Alors dis-moi, toi, oui toi, veux-tu être mon disciple? » L'homme se tourna ensuite vers Wang Lin avec un léger sourire.
 
@@ -88,7 +88,7 @@ Dès que la restriction toucha le corps de Wang Lin, elle se transforma instanta
 
 Sans changer d'expression, Wang Lin dit: « Le disciple a déjà des engagements avec Qiu Siping pour l'aider dans une affaire; je demande donc au maître de m'accorder quelques jours. »
 
-Le regard du vieillard se posa sur Qiu Siping. Ce dernier hésita un instant, puis serra les dents et dit: « Aîné, c'est vrai. Je demande à l'Aîné de bien vouloir faire preuve d'indulgence. »
+Le regard du vieillard se posa sur Qiu Siping. Ce dernier hésita un instant, puis serra les dents et dit: « Senior, c'est vrai. Je demande au Senior de bien vouloir faire preuve d'indulgence. »
 
 L'homme âgé roula des yeux: « Je te donne un mois. Après cela, rends-toi dans le pavillon de raffinage des trésors de n'importe quelle ville, donne mon nom, Sun Dian, et ils sauront. »
 

@@ -32,7 +32,7 @@ Wang Lin réfléchit un instant. Le fait que cet ancêtre soit disposé à donne
 
 Cependant, avec la personnalité de Wang Lin, puisqu'il avait décidé d'aider, il ne se laisserait pas léser en acceptant ces présents.
 
-« Aîné, je peux absorber autant que possible, n'est-ce pas? » Wang Lin regarda calmement l'ancêtre Dun Tian.
+« Senior, je peux absorber autant que possible, n'est-ce pas? » Wang Lin regarda calmement l'ancêtre Dun Tian.
 
 Le vieil homme rit et répondit avec détermination: « C'est exact. Petit ami Zeng Niu, ce vieux ne sera pas avare pour ce troisième cadeau! »
 
@@ -72,7 +72,7 @@ Les yeux de Wang Lin s'illuminèrent. Il se leva, sentant la puissance de l'éne
 
 La personnalité de Wang Lin était d'une grande fermeté. Il n'importunait personne s'il était laissé en paix, mais si quelqu'un s'en prenait à lui, il rendrait la pareille dix... cent fois! C'était un homme qui n'oubliait jamais sa vengeance!
 
-« Li Yuanfeng... » La froideur dans les yeux de Wang Lin se dissipa alors qu'il se tournait vers Dun Tian et joignit les mains. « Merci, Aîné, pour ces trois cadeaux. Si vous avez besoin que ce junior accomplisse quoi que ce soit, dites-le simplement. Je ferai de mon mieux! »
+« Li Yuanfeng... » La froideur dans les yeux de Wang Lin se dissipa alors qu'il se tournait vers Dun Tian et joignit les mains. « Merci, Senior, pour ces trois cadeaux. Si vous avez besoin que ce junior accomplisse quoi que ce soit, dites-le simplement. Je ferai de mon mieux! »
 
 En disant cela, Wang Lin signifiait sa profonde gratitude envers Senior Dun Tian.
 
@@ -80,7 +80,7 @@ Dun Tian esquissa un léger sourire. Son mécontentement précédent s'était to
 
 « Petit ami Zeng Niu, la raison pour laquelle je t'ai offert ces trois cadeaux est cruciale. Si tu n'étais pas venu dans ma Secte Lian Hun, je serais allé te chercher moi-même. »
 
-Wang Lin regarda Dun Tian et sourit. « Ce junior a déjà entendu la rumeur selon laquelle j'aurais tué un cultivateur de la Formation de l'Âme de la Secte Lian Hun; je suppose donc que l'Aîné me cherche pour m'interroger. »
+Wang Lin regarda Dun Tian et sourit. « Ce junior a déjà entendu la rumeur selon laquelle j'aurais tué un cultivateur de la Formation de l'Âme de la Secte Lian Hun; je suppose donc que Senior me cherche pour m'interroger. »
 
 Dun Tian secoua la tête en souriant. « Tout cela n'était qu'un subterfuge. Si je venais te chercher sans raison apparente, cela aurait attiré trop d'attention. Cependant, en propageant la rumeur que tu avais tué un cultivateur de la Formation de l'Âme de ma secte, personne ne s'étonnerait si je commençais à te traquer. »
 
@@ -114,7 +114,7 @@ Wang Lin réfléchissait en silence.
 
 « Le Suzaku craint que les pays de culture de rang 5 ne se retournent contre lui pour prendre le pouvoir. Il craint de ne pas pouvoir conserver la planète Suzaku. »
 
-Wang Lin médita sur ces paroles. Après un moment, il regarda Dun Tian et dit: « Aîné, quel est le rapport avec moi? Je ne suis qu'un simple junior au stade de la Formation de l'Âme. »
+Wang Lin médita sur ces paroles. Après un moment, il regarda Dun Tian et dit: « Senior, quel est le rapport avec moi? Je ne suis qu'un simple junior au stade de la Formation de l'Âme. »
 
 Le regard de Dun Tian devint solennel. Il fixa Wang Lin et déclara, mot pour mot: « Cela te concerne directement! »
 

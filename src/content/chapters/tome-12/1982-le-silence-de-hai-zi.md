@@ -8,7 +8,7 @@ slug: le-silence-de-hai-zi
 ---
 « Toi... Qui es-tu?! » L'Exalté Empyréen Hai Zi était extrêmement pâle. Ses beaux yeux étaient empreints d'une peur indescriptible. Son corps recula inconsciemment à mesure que Wang Lin s'avançait.
 
-« Wang Lin? Je ne m'appelle pas Wang Lin. Mon nom est... Massacre! » Le Wang Lin aux cheveux noirs marchait lentement vers l'Exalté Empyréen Hai Zi. Son expression était froide, dénuée de toute émotion; elle était d'une indifférence absolue.
+« Wang Lin? Je ne m'appelle pas Wang Lin. Mon nom est... Lu Mo! » Le Wang Lin aux cheveux noirs marchait lentement vers l'Exalté Empyréen Hai Zi. Son expression était froide, dénuée de toute émotion; elle était d'une indifférence absolue.
 
 Le corps véritable des cinq éléments de Wang Lin affichait une expression extrêmement grave. Il se tenait aux côtés de l'Exalté Empyréen Hai Zi, fixant le Wang Lin aux cheveux noirs. Autour de lui, l'essence du tonnerre, l'essence du commencement absolu et les trois essences éthérées s'illuminaient, comme si elles s'unissaient pour résister au Wang Lin aux cheveux noirs.
 
@@ -98,7 +98,7 @@ Ses cheveux passèrent progressivement du noir au blanc sous le passage de la cl
 
 Wang Lin n'utilisa aucun moyen pour réprimer de force le massacre qui occupait son corps originel, car il comprenait qu'une fois que le massacre se serait manifesté, plus rien ne pourrait être changé.
 
-« Désormais, sous le soleil, je suis le Wang Lin aux cheveux blancs... Dans l'obscurité, je suis le Massacre aux cheveux noirs... Comme le lever et le coucher du soleil, c'est un cycle immuable. Heureusement, j'ai le pouvoir de mon avatar dans le vide pour le contenir légèrement et rester conscient. »
+« Désormais, sous le soleil, je suis le Wang Lin aux cheveux blancs... Dans l'obscurité, je suis Lu Mo aux cheveux noirs... Comme le lever et le coucher du soleil, c'est un cycle immuable. Heureusement, j'ai le pouvoir de mon avatar dans le vide pour le contenir légèrement et rester conscient. »
 
 Le noir et le blanc restèrent éternellement ancrés en Wang Lin.
 

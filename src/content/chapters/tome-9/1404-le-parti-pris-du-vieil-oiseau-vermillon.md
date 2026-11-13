@@ -26,7 +26,7 @@ Lanmeng Daozun sourit, hocha la tête et répondit: « Je t'ai vraiment sous-est
 
 Le vieil Oiseau Vermillon fut surpris d'apprendre que Wang Lin connaissait Lanmeng Daozun. Puis son regard glissa vers Li Qianmei; il esquissa un sourire espiègle avant de passer à autre chose. Enfin, son regard se fixa sur Maître Simo.
 
-« Petit gamin, qu'est-ce que tu regardes? Es-tu mécontent de ce vieil homme? Veux-tu le défier? Viens donc te battre, ce vieux va jouer avec toi! » L'Oiseau Vermillon ne possédait aucune des manières d'un aîné alors qu'il fixait Maître Simo en faisant un geste provocateur de l'index.
+« Petit gamin, qu'est-ce que tu regardes? Es-tu mécontent de ce vieil homme? Veux-tu le défier? Viens donc te battre, ce vieux va jouer avec toi! » L'Oiseau Vermillon ne possédait aucune des manières d'un Senior alors qu'il fixait Maître Simo en faisant un geste provocateur de l'index.
 
 Le visage de Maître Simo changea. Il savait que ce vieil homme était le premier Jeune Empereur des Terres Déchues. C'était un être situé juste en dessous du Grand Empereur, et sa renommée était immense. Le Conseil Souverain menait encore des recherches sur lui; ce vieux fou n'était pas facile à gérer.
 

@@ -62,11 +62,11 @@ Ce dernier l'accepta avec un sourire espiègle et sortit la moitié d'un poulet 
 
 Après avoir parlé, il dévisagea Wang Lin, son regard empreint d'une admiration grandissante: « Pas mal, jeune homme. Ton niveau de culture a encore progressé. Il semble que le stade de la Formation de l'Âme ne soit plus très loin. N'oublie pas la sculpture sur bois que tu m'as promise, sinon, peu importe où tu iras, je te retrouverai. »
 
-Wang Lin eut un sourire discret: « Bien sûr. Je n'oublierai pas ma promesse envers l'Aîné. »
+Wang Lin eut un sourire discret: « Bien sûr. Je n'oublierai pas ma promesse envers le Senior. »
 
 Le vieil homme arracha une cuisse de poulet et en croqua une bouchée. « Jeune homme, l'Alliance des Quatre Sectes est dans un chaos total en ce moment. Tu ferais mieux de hâter ton ascension vers la Formation de l'Âme. Autrement, avec ton niveau actuel, tu n'en tireras aucun profit. »
 
-Intrigué, Wang Lin fixa le vieil homme et demanda: « L'Aîné sait-il ce qui se passe au sein de l'Alliance des Quatre Sectes? »
+Intrigué, Wang Lin fixa le vieil homme et demanda: « Le Senior sait-il ce qui se passe au sein de l'Alliance des Quatre Sectes? »
 
 Le vieil homme redressa fièrement le menton: « Il n'est rien dans ce monde de culture que ce vieux ne sache. C'est simplement qu'un petit cultivateur de l'Alliance s'est procuré, on ne sait comment, un Chaudron de Pluie de Xue Yu; naturellement, ils sont venus le réclamer. Ce n'est qu'une bagatelle. »
 

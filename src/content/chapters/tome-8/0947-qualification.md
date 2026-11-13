@@ -78,7 +78,7 @@ Après avoir recraché une bouchée de sang, Xu Ting fut envahi par la terreur. 
 
 Les yeux de Lie Yunzi brillèrent d'un éclat vif et il s'exclama, avant que son regard envers Wang Lin ne devienne sérieux.
 
-Wang Lin ne regarda plus Xu Ting mais fixa Lie Yunzi en disant calmement: « Je me demande pourquoi l'Aîné a fait appel au Cadet. » La voix de Wang Lin était sereine, ce qui rendit Lie Yunzi d'autant plus grave. Il ne considérait plus Wang Lin comme un simple cadet ordinaire.
+Wang Lin ne regarda plus Xu Ting mais fixa Lie Yunzi en disant calmement: « Je me demande pourquoi le Senior a fait appel au Cadet. » La voix de Wang Lin était sereine, ce qui rendit Lie Yunzi d'autant plus grave. Il ne considérait plus Wang Lin comme un simple cadet ordinaire.
 
 C'était l'effet recherché par Wang Lin: secouer la montagne pour alerter le tigre! Avec son intelligence, comment Lie Yunzi pouvait-il ignorer les raisons de sa recherche? Autrefois, il n'avait pas les qualifications pour exiger quoi que ce soit, mais désormais, il les avait!
 

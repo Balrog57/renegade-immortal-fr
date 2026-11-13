@@ -60,7 +60,7 @@ Li Yuan fronça les sourcils puis sourit immédiatement avant de se retourner po
 
 Lorsqu'ils atteignirent le milieu de la montagne, la main droite de Li Yuan traça des sceaux plus complexes que les précédents et les pressa dans le vide. La montagne gronda à nouveau et se contracta une fois de plus. Les pupilles de Wang Lin se rétractèrent alors qu'il pouvait désormais distinguer vaguement le sommet.
 
-Au moment même où Li Yuan formait le sceau, une voix pénétra faiblement l'oreille de Wang Lin: « Aîné, sauvez-moi. Cet homme est fou. Il... »
+Au moment même où Li Yuan formait le sceau, une voix pénétra faiblement l'oreille de Wang Lin: « Senior, sauvez-moi. Cet homme est fou. Il... »
 
 Cette voix émanait de la femme nommée Ge, mais avant qu'elle n'ait pu achever sa phrase, Li Yuan lui lança un regard glacial qui la fit taire.
 

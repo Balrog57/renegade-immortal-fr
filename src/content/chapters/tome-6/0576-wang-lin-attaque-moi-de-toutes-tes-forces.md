@@ -122,7 +122,7 @@ Quant à Wang Lin, les cultivateurs luttent toujours contre le Ciel; comment pou
 
 Le calme de Wang Lin et la stabilité de Mo Lihai dissipèrent silencieusement cette pression.
 
-L'homme en pourpre se retourna. Ses yeux brillaient comme des éclairs lorsqu'il fixa les deux visiteurs. Il les dévisagea comme un aîné regarderait la jeune génération, d'un ton empreint de supériorité: « Être capable de rester calme sous ma pression... pas mal! »
+L'homme en pourpre se retourna. Ses yeux brillaient comme des éclairs lorsqu'il fixa les deux visiteurs. Il les dévisagea comme un Senior regarderait la jeune génération, d'un ton empreint de supériorité: « Être capable de rester calme sous ma pression... pas mal! »
 
 « Mo Lihai, quel est ton degré de confiance pour obtenir le poste de vice-commandant? » L'homme alla droit au but, avec une franchise brutale.
 

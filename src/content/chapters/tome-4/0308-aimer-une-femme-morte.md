@@ -124,7 +124,7 @@ Elle lança un regard glacial à Chi Hu alors qu'elle sortait de la formation et
 
 Chi Hu afficha un sourire confiant. « Soyez sereine, cultivatrice Hongdie. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement copié par l'ancêtre de mon Clan Ju Mo, Xi Zu. Il n'aurait aucune raison de mentir. »
 
-« Xi Zu... » Le visage de Hongdie se détendit légèrement. Ce Xi Zu était un aîné de son maître et ils entretenaient des liens. Après tout, il n'existait que deux nations de cultivation organisées en tribus sur Suzaku: le Clan Ju Mo et Xue Yu.
+« Xi Zu... » Le visage de Hongdie se détendit légèrement. Ce Xi Zu était un Senior de son maître et ils entretenaient des liens. Après tout, il n'existait que deux nations de cultivation organisées en tribus sur Suzaku: le Clan Ju Mo et Xue Yu.
 
 Naturellement, les deux clans restaient en contact; on pouvait dire que le Clan Ju Mo était l'allié de Xue Yu.
 

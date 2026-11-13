@@ -68,7 +68,7 @@ Liu Fei répondit amèrement: « Même l'émissaire a été mis en fuite par les
 
 À cet instant précis, la musique s'interrompit, et la voix douce de Li Muwan s'éleva de la cour.
 
-« Deux aînés, je vous prie d'entrer pour discuter. Wan Er ne se sent pas bien, je ne sortirai donc pas. »
+« Deux Seniors, je vous prie d'entrer pour discuter. Wan Er ne se sent pas bien, je ne sortirai donc pas. »
 
 Liu Fei et Song Qing répondirent promptement. Ils échangèrent un regard avant de pénétrer précipitamment dans la cour.
 
@@ -108,7 +108,7 @@ Liu Fei ajouta: « Zeng Niu! Hélas, si cet homme n'existait pas, le Clan Ju Mo 
 
 Song Qing lança avec ironie: « Si seulement Zeng Niu pouvait venir dans mon pays, ce désastre serait résolu. » Il ne disait cela que pour se moquer de lui-même; il n'envisageait même pas une chance infime que cela arrive.
 
-Liu Fei eut un sourire amer. « Zeng Niu est un aîné capable d'arracher un bras à Hongdie. Je crains qu'il n'ait même jamais entendu parler de Chu. »
+Liu Fei eut un sourire amer. « Zeng Niu est un Senior capable d'arracher un bras à Hongdie. Je crains qu'il n'ait même jamais entendu parler de Chu. »
 
 Li Muwan murmura: « Vous pouvez partir et transmettre mes dernières volontés aux deux Grands Anciens en méditation de porte close. Une fois que je vous aurai rendu vos essences de sang, fuyez cet endroit... »
 

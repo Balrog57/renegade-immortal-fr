@@ -132,6 +132,6 @@ L'homme d'âge moyen esquissa un sourire et demanda: « Petit gars du Clan Ju Mo
 
 En entendant le nom de « Zhou Yi », l'expression de Hongdie changea brusquement, tandis qu'elle tentait de masquer son dégoût.
 
-Chi Hu s'inclina rapidement et respectueusement: « Le junior Chi Hu, du Clan Ju Mo, salue l'Aîné. Ce junior connaît le nom de l'Aîné depuis sa tendre enfance. » Étant né jeune maître du Clan Ju Mo, il avait été au centre de toutes les attentions dès son plus jeune âge. Il avait étudié les portraits de tous les cultivateurs au stade de la Transformation de l'Âme et au-delà. Dès qu'il eut aperçu la gourde rouge, il reconnut immédiatement l'individu.
+Chi Hu s'inclina rapidement et respectueusement: « Le junior Chi Hu, du Clan Ju Mo, salue le Senior. Ce junior connaît le nom du Senior depuis sa tendre enfance. » Étant né jeune maître du Clan Ju Mo, il avait été au centre de toutes les attentions dès son plus jeune âge. Il avait étudié les portraits de tous les cultivateurs au stade de la Transformation de l'Âme et au-delà. Dès qu'il eut aperçu la gourde rouge, il reconnut immédiatement l'individu.
 
 Ce Zhou Yi avait un passe-temps très singulier. Une fois ce penchant confirmé, Chi Hu s'en était très bien souvenu.

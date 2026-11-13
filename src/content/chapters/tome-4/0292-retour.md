@@ -50,7 +50,7 @@ Ils virent un bras surgir du vortex pour s'agripper à son rebord. Soudain, une 
 
 Sun Wen était stupéfait. Le cœur battant à tout rompre, il remarqua instantanément qu'il ne pouvait pas percevoir le niveau de culture de l'individu sortant du champ de bataille étranger. Cependant, ayant grandi dans un pays de culture de rang 4, il possédait une certaine expérience. Après quelques déductions, il conclut que cet homme devait être au stade de la Formation de l'Âme.
 
-Il se leva précipitamment de son siège de dragon et s'approcha de Wang Lin. Il s'inclina et dit: « Le cadet Sun Wen de Gong Sun salue l'Aîné. »
+Il se leva précipitamment de son siège de dragon et s'approcha de Wang Lin. Il s'inclina et dit: « Le cadet Sun Wen de Gong Sun salue le Senior. »
 
 L'homme qui sortait du champ de bataille étranger n'était autre que Wang Lin.
 

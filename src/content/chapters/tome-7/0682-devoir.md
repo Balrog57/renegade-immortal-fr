@@ -22,7 +22,7 @@ Wang Lin dit calmement: « Sors. »
 
 Sun Xi s'éleva prudemment de la ville. Il avait été témoin de la bataille. Que ce soient les méthodes viles de Liu Mei ou l'arrivée de l'ancêtre de la famille Huan, tout avait plongé son cœur dans un chaos total. En raison de sa chute de culture, face à Wang Lin, son cœur n'était plus que crainte et tremblement.
 
-« A... Aîné... »
+« Se... Senior... »
 
 Wang Lin regarda Sun Xi. La lumière de l'épée sous ses pieds était instable; il était évident qu'il était terrifié en cet instant.
 
