@@ -82,4 +82,4 @@ Sa main immergée dans le magma le confortait profondément. Son énergie d'orig
 
 À sa droite, l'homme en noir portant le dragon noir caché ne pénétra pas non plus dans le volcan; il s'assit et plongea sa main gauche dans la lave d'une crevasse. Tout comme Wang Lin, il absorbait l'énergie d'origine du feu, jetant parfois des regards empreints de crainte et d'hostilité vers lui.
 
-« Oiseau Vermillon... Si je dévore Suzaku, mon dragon de flammes s'éveillera-t-il une seconde fois... »
+« Suzaku... Si je dévore Suzaku, mon dragon de flammes s'éveillera-t-il une seconde fois... »

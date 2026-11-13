@@ -102,7 +102,7 @@ Cette pression était d'un choc extrême et, en se propageant, elle couvrit tout
 
 « Wang Lin! Pourquoi n'allumes-tu pas rapidement l'encens humain? Qu'attends-tu?! » Ces paroles formèrent une tempête qui résonna à travers les mondes!
 
-Sur la Planète du Grand Empereur, le vieux Oiseau Vermillon craignait que l'âme de Wang Lin ne soit piégée et qu'il ne puisse s'en extraire. Dédaignant les règles de l'épreuve, il pressa sa main contre le premier bâton d'encens et son rugissement s'engouffra dans l'âme de Wang Lin.
+Sur la Planète du Grand Empereur, le vieux Suzaku craignait que l'âme de Wang Lin ne soit piégée et qu'il ne puisse s'en extraire. Dédaignant les règles de l'épreuve, il pressa sa main contre le premier bâton d'encens et son rugissement s'engouffra dans l'âme de Wang Lin.
 
 « Il n'est pas difficile d'allumer l'encens humain. Il suffit d'enflammer le feu au sein de mon âme et de consumer ce monde illusoire jusqu'à ce qu'il ne reste rien, et l'encens sera allumé! »
 
@@ -114,9 +114,9 @@ Sur la Planète du Grand Empereur, le vieux Oiseau Vermillon craignait que l'âm
 
 « Pourtant, brûler mes sentiments de mortel comme prix est une chose que je ne peux faire! » Wang Lin leva les yeux vers le ciel.
 
-C'était la terre de son âme. Bien que le vieux Oiseau Vermillon fût puissant, ce terrain d'épreuve créé par le premier Oiseau Vermillon avec un trésor mystérieux était imprégné d'une puissance telle qu'il ne pourrait y rester longtemps!
+C'était la terre de son âme. Bien que le vieux Suzaku fût puissant, ce terrain d'épreuve créé par le premier Suzaku avec un trésor mystérieux était imprégné d'une puissance telle qu'il ne pourrait y rester longtemps!
 
-« Toi... ce n'est qu'une illusion, ce n'est pas réel. Ce vieil homme est aussi venu ici autrefois. Tu n'as qu'à détruire cela et allumer l'encens pour partir. Pourquoi dois-tu être si obstiné? » La voix du vieux Oiseau Vermillon était anxieuse; le vortex commença à s'effondrer tandis que sa voix se dissipait.
+« Toi... ce n'est qu'une illusion, ce n'est pas réel. Ce vieil homme est aussi venu ici autrefois. Tu n'as qu'à détruire cela et allumer l'encens pour partir. Pourquoi dois-tu être si obstiné? » La voix du vieux Suzaku était anxieuse; le vortex commença à s'effondrer tandis que sa voix se dissipait.
 
 Au moment même où son cri s'éteignait, la voix de Wang Lin pénétra dans le vortex.
 
@@ -124,14 +124,14 @@ Au moment même où son cri s'éteignait, la voix de Wang Lin pénétra dans le 
 
 « Si les cieux exigent que je brûle ce monde, alors je défierai les cieux. Je suivrai ma propre voie et, au lieu de consumer ce monde, j'utiliserai mon âme pour créer le feu du karma! »
 
-Sur la Planète du Grand Empereur, le vieux Oiseau Vermillon retira sa main. Il regarda Wang Lin et poussa un soupir.
+Sur la Planète du Grand Empereur, le vieux Suzaku retira sa main. Il regarda Wang Lin et poussa un soupir.
 
 Bien que Maître Simo ne sût pas ce qui se jouait au sein de l'Épreuve Humaine, il semblait avoir perçu quelques éléments. Il ne put s'empêcher de ricaner: « Senior, cela fait longtemps. Il semble que le troisième Jeune Empereur ait rencontré un incident lors de l'épreuve... »
 
-Avant qu'il n'ait pu achever sa phrase, le vieux Oiseau Vermillon se retourna brusquement et agita la main, frappant Maître Simo une fois de plus.
+Avant qu'il n'ait pu achever sa phrase, le vieux Suzaku se retourna brusquement et agita la main, frappant Maître Simo une fois de plus.
 
 Maître Simo cracha du sang et fut projeté en arrière de cent mille pieds.
 
 « Quel incident? Mon cadet va utiliser son karma pour allumer cet encens. Ce n'est pas une chose qu'un bâtard comme toi peut comprendre! »
 
-Après avoir porté ce coup, la colère du vieux Oiseau Vermillon s'apaisa et il pensa: « Le karma... le karma... Très bien. Ce gamin a le cran d'allumer le feu du karma. Le Premier Ancêtre disait que l'utilisation du feu d'âme immortel pour atteindre le Feu Éthéré n'était pas la méthode appropriée, mais c'était uniquement parce qu'allumer le feu du karma est extrêmement difficile. L'Ancêtre n'y était parvenu que grâce à l'aide de l'Empereur Céleste, voilà pourquoi il n'autorisait aucun membre du clan à la choisir! Si cet enfant réussit, il sera le premier de notre clan à l'avenir! »
+Après avoir porté ce coup, la colère du vieux Suzaku s'apaisa et il pensa: « Le karma... le karma... Très bien. Ce gamin a le cran d'allumer le feu du karma. Le Premier Ancêtre disait que l'utilisation du feu d'âme immortel pour atteindre le Feu Éthéré n'était pas la méthode appropriée, mais c'était uniquement parce qu'allumer le feu du karma est extrêmement difficile. L'Ancêtre n'y était parvenu que grâce à l'aide de l'Empereur Céleste, voilà pourquoi il n'autorisait aucun membre du clan à la choisir! Si cet enfant réussit, il sera le premier de notre clan à l'avenir! »

@@ -8,7 +8,7 @@ slug: nouveau-divin-empereur-2
 ---
 Le rugissement douloureux de Wang Lin résonna à travers le champ d'étoiles en flammes. L'activation de l'un des deux derniers tatouages de feu provoqua une déferlante d'énergie originelle dans son corps, exacerbant sa souffrance.
 
-À cet instant, Wang Lin portait une armure cramoisie, ses cheveux blancs flottant au vent, tandis qu'un immense Oiseau Vermillon blanc tournait autour de lui, absorbant l'énergie originelle de son corps. Néanmoins, la puissance équivalente à huit fois son énergie originelle était un fardeau que Wang Lin jugeait insupportable.
+À cet instant, Wang Lin portait une armure cramoisie, ses cheveux blancs flottant au vent, tandis qu'un immense Suzaku blanc tournait autour de lui, absorbant l'énergie originelle de son corps. Néanmoins, la puissance équivalente à huit fois son énergie originelle était un fardeau que Wang Lin jugeait insupportable.
 
 La douleur de la déchirure devint plus intense encore, mais elle ne fit pas fléchir Wang Lin. Au contraire, elle éveilla sa nature rebelle. Il laissa échapper un rire teinté d'une expression douloureuse, un rire féroce qui portait en lui une pointe de folie.
 

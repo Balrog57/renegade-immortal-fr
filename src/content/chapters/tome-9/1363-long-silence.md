@@ -60,7 +60,7 @@ Même pour un cultivateur du niveau de Wang Lin, raffiner et absorber huit ancie
 
 Tandis que les huit dragons se débattaient, un feu bleu surgit dans son âme originelle et les encercla. Une fois les créatures prises au piège, le feu commença leur raffinage.
 
-L'Oiseau Vermillon tournait autour des huit anciens dragons de tonnerre, crachant parfois des flammes pour accroître sa puissance durant le processus!
+Le Suzaku tournait autour des huit anciens dragons de tonnerre, crachant parfois des flammes pour accroître sa puissance durant le processus!
 
 L'âme originelle de Wang Lin était déjà composée de la moitié d'un ancien dragon de tonnerre. Le tonnerre saturait son âme, et un neuvième dragon, forgé par sa propre essence spirituelle, apparut. Il gravitait autour des huit autres, attendant l'instant propice pour les dévorer.
 

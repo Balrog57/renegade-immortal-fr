@@ -28,7 +28,7 @@ Le vieil homme lança un regard bienveillant à Wang Lin avant de se retourner p
 
 « N'importe qui n'oserait pas boire ce vin; même des cultivateurs de la troisième étape hésiteraient. Pourtant, tu l'as avalé d'un trait. »
 
-« Quel genre de vin est-ce? » demanda Wang Lin en se léchant les lèvres. Cette seule gorgée avait déjà renforcé l'essence de feu en lui. Ce qui l'excitait davantage était que ce vin ait permis à son Oiseau Vermillon de se rapprocher de son prochain éveil!
+« Quel genre de vin est-ce? » demanda Wang Lin en se léchant les lèvres. Cette seule gorgée avait déjà renforcé l'essence de feu en lui. Ce qui l'excitait davantage était que ce vin ait permis à son Suzaku de se rapprocher de son prochain éveil!
 
 « Ce n'est pas du vin, mais du sang », répondit le vieil homme avec un sourire d'une extrême bonté.
 
@@ -74,7 +74,7 @@ Le vieil homme agita sa canne pour maintenir le dragon en place. La bête, qui a
 
 « Malheur à toi, petit dragon de feu! Comment oses-tu fuir ce vieil homme?! » rugit le vieil homme en bondissant dans les airs. Il atterrit sur la tête du dragon hurlant et frappa sans pitié de sa main!
 
-À l'instant où le vieil homme leva la main gauche, l'esprit de Wang Lin vacilla et ses pupilles se contractèrent de stupeur. Il vit distinctement quelque chose apparaître derrière l'homme... un gigantesque Oiseau Vermillon!
+À l'instant où le vieil homme leva la main gauche, l'esprit de Wang Lin vacilla et ses pupilles se contractèrent de stupeur. Il vit distinctement quelque chose apparaître derrière l'homme... un gigantesque Suzaku!
 
 Sa taille surpassait de loin celle de Suzaku de Wang Lin et il couvrait le ciel tout entier. Une aura antique émanait de ce géant, enveloppé de flammes éthérées!
 
@@ -86,7 +86,7 @@ Wang Lin était pétrifié par la scène. La taille de Suzaku, l'intensité des 
 
 C'était la différence entre un jeune oiseau et son ancêtre primordial!
 
-La main gauche du vieil homme s'abattit brusquement; au moment de l'impact, le gigantesque Oiseau Vermillon bougea pour fusionner avec sa main. En un instant, l'oiseau devint un avec le bras de l'homme. De loin, on ne distinguait plus la main du vieil homme, mais seulement le bec acéré de Suzaku!
+La main gauche du vieil homme s'abattit brusquement; au moment de l'impact, le gigantesque Suzaku bougea pour fusionner avec sa main. En un instant, l'oiseau devint un avec le bras de l'homme. De loin, on ne distinguait plus la main du vieil homme, mais seulement le bec acéré de Suzaku!
 
 En un clin d'œil, ce bec perça une protubérance sur le crâne du dragon, projetant un jet de sang brûlant.
 
@@ -116,7 +116,7 @@ Le vieil homme resta debout près de lui et l'examina, affichant un sourire sati
 
 « Oui, c'est définitivement un membre de mon Clan Zhu Que et non une création de notre ennemi. Cependant, le corps de ce petit est en fait celui d'un Dieu Ancien... Haha, pas mal, pas mal du tout! » L'excitation brillait dans les yeux du vieil homme.
 
-« Le quatrième Oiseau Vermillon était trop frivole et ne pouvait cultiver mon sortilège. Le sixième semble plutôt froid et devrait être capable de... » Alors qu'il continuait à tâter le corps de Wang Lin, il s'interrompit brusquement.
+« Le quatrième Suzaku était trop frivole et ne pouvait cultiver mon sortilège. Le sixième semble plutôt froid et devrait être capable de... » Alors qu'il continuait à tâter le corps de Wang Lin, il s'interrompit brusquement.
 
 « Le Yang de son âme originelle a été brisé... Je... » La haine se lut dans les yeux du vieil homme. Il cessa ses manipulations et s'assit lourdement.
 

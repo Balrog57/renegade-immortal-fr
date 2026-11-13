@@ -78,9 +78,9 @@ Wang Lin fit un geste de la main et la mer de flammes sembla bouillir. L'océan 
 
 C'était un duel entre deux feux!
 
-Les deux flammes, issues d'une même origine mais maîtrisées par deux êtres distincts, entrèrent en collision en un clin d'œil. Une série de grondements célestes retentit et, dans un fracas assourdissant, le jeune homme marqué par le feu parvint à s'extraire de la tempête. Ses ailes de feu, semblables à celles d'un Oiseau Vermillon, dégageaient des flammes violettes alors qu'il fonçait sur Wang Lin.
+Les deux flammes, issues d'une même origine mais maîtrisées par deux êtres distincts, entrèrent en collision en un clin d'œil. Une série de grondements célestes retentit et, dans un fracas assourdissant, le jeune homme marqué par le feu parvint à s'extraire de la tempête. Ses ailes de feu, semblables à celles d'un Suzaku, dégageaient des flammes violettes alors qu'il fonçait sur Wang Lin.
 
-« Ni humain, ni Oiseau Vermillon! Rien qu'un habitant déformé du Royaume Extérieur! » Le feu provenant de l'œil gauche de Wang Lin enveloppa tout son corps et l'armure de Suzaku apparut autour de lui. À cet instant, il ressemblait à un ancien dieu du feu!
+« Ni humain, ni Suzaku! Rien qu'un habitant déformé du Royaume Extérieur! » Le feu provenant de l'œil gauche de Wang Lin enveloppa tout son corps et l'armure de Suzaku apparut autour de lui. À cet instant, il ressemblait à un ancien dieu du feu!
 
 En voyant cela, le jeune homme marqué par le feu sombra dans la folie, ses yeux remplis d'incrédulité. Il s'exclama: « L'Armure Sacrée!! »
 
@@ -94,13 +94,13 @@ Ses cris misérables résonnèrent tandis que son corps se changeait en cendres.
 
 « En tant que membre du Clan Huo Que, j'invoque l'esprit ancestral! »
 
-Au moment où sa voix résonna, son âme originelle s'effondra. Les éclats de lumière se transformèrent en feu pour donner naissance à l'illusion d'un Oiseau Vermillon! Cet oiseau était noir et enveloppé d'une aura d'hostilité pure. Il ne ressemblait même pas à un véritable Oiseau Vermillon; il tenait davantage d'un oiseau de feu à la taille démesurée!
+Au moment où sa voix résonna, son âme originelle s'effondra. Les éclats de lumière se transformèrent en feu pour donner naissance à l'illusion d'un Suzaku! Cet oiseau était noir et enveloppé d'une aura d'hostilité pure. Il ne ressemblait même pas à un véritable Suzaku; il tenait davantage d'un oiseau de feu à la taille démesurée!
 
 Rempli de haine, il poussa un rugissement et chargea Wang Lin!
 
-Wang Lin laissa échapper un bref et froid sifflement, son œil gauche brillant d'un éclat singulier. Le cri d'un véritable Oiseau Vermillon résonna depuis l'intérieur de son corps. Simultanément, un Oiseau Vermillon blanc apparut autour de lui.
+Wang Lin laissa échapper un bref et froid sifflement, son œil gauche brillant d'un éclat singulier. Le cri d'un véritable Suzaku résonna depuis l'intérieur de son corps. Simultanément, un Suzaku blanc apparut autour de lui.
 
-C'était le véritable Oiseau Vermillon! Dès son apparition, il fixa le gigantesque oiseau noir avec un mépris souverain. Sans même attendre l'ordre de Wang Lin, il chargea dans un cri strident. À cet instant, la moitié du monde fut recouverte de flammes alors qu'il tentait d'engloutir l'oiseau noir.
+C'était le véritable Suzaku! Dès son apparition, il fixa le gigantesque oiseau noir avec un mépris souverain. Sans même attendre l'ordre de Wang Lin, il chargea dans un cri strident. À cet instant, la moitié du monde fut recouverte de flammes alors qu'il tentait d'engloutir l'oiseau noir.
 
 Le géant oiseau de feu noir poussa un cri féroce, mais manifesta une intention évidente de battre en retraite.
 
@@ -110,7 +110,7 @@ Un grondement tonitruant retentit et l'oiseau noir s'effondra immédiatement, in
 
 Le feu libéré par l'oiseau noir lors de sa chute fut instantanément dévoré par Suzaku; même son essence spirituelle fut engloutie. À cet instant, tout le feu de ce monde appartenait à Wang Lin!
 
-L'Oiseau Vermillon poussa un cri de triomphe. Il était exalté; il montrait les signes d'un troisième éveil! Les flammes autour de son corps brûlaient avec une intensité et une puissance accrues!
+Le Suzaku poussa un cri de triomphe. Il était exalté; il montrait les signes d'un troisième éveil! Les flammes autour de son corps brûlaient avec une intensité et une puissance accrues!
 
 Cette scène fit changer radicalement l'expression du jeune homme marqué par le croissant de lune, qui finit par pâlir totalement. Il était couvert de sueur froide. Il n'avait même pas pu distinguer clairement la silhouette de Wang Lin avant que tout ne s'achève en un instant!
 

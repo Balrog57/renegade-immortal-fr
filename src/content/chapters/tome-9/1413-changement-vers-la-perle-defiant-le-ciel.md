@@ -10,7 +10,7 @@ Au moment où Suzaku traversait son quatrième éveil, tout le feu de l'Épreuve
 
 Les fragments du lotus de feu aux neuf couleurs formèrent une armure aux neuf couleurs autour de Suzaku. Puis la mer de feu déferla et, en un instant, fut entièrement absorbée par lui.
 
-De loin, il ne ressemblait plus à un Oiseau Vermillon, mais à un esprit de feu éternel! Le feu qui emplissait son corps, à l'intérieur comme à l'extérieur, avait déjà atteint le sommet du feu corporel et n'avait plus qu'une étape à franchir pour atteindre le royaume du Feu Éthéré!
+De loin, il ne ressemblait plus à un Suzaku, mais à un esprit de feu éternel! Le feu qui emplissait son corps, à l'intérieur comme à l'extérieur, avait déjà atteint le sommet du feu corporel et n'avait plus qu'une étape à franchir pour atteindre le royaume du Feu Éthéré!
 
 L'esprit de feu de Suzaku sembla se distordre sous les rugissements des flammes; il traversait sa phase finale de transformation. Ce processus pouvait être long ou court, mais il ne devait en aucun cas être perturbé. Si une telle interruption survenait, cette opportunité unique dans une vie s'évanouirait et le quatrième éveil serait annulé, sans aucune possibilité de le recommencer!
 
@@ -58,7 +58,7 @@ Il n'était pas le seul; les yeux de Lanmeng Daozun se rétrécirent également.
 
 À cet instant, le ciel était saturé de brouillard et d'une force magnétique infinie! Le brouillard magnétique entourant la planète descendit soudainement!
 
-L'expression du vieil Oiseau Vermillon devint extrêmement grave alors qu'il levait silencieusement les yeux.
+L'expression du vieux Suzaku devint extrêmement grave alors qu'il levait silencieusement les yeux.
 
 Même le vieil homme sur le lézard, qui était resté les yeux clos tout ce temps, ouvrit soudainement les yeux, frappé de stupeur.
 
@@ -70,13 +70,13 @@ Davantage de brouillard magnétique apparut dans le ciel. Ce brouillard forma un
 
 Les dizaines de milliers de cultivateurs alentour fuirent, le regard empli d'effroi.
 
-Seul le vieil Oiseau Vermillon et sa compagnie restèrent immobiles, fixant le vortex magnétique imminent.
+Seul le vieux Suzaku et sa compagnie restèrent immobiles, fixant le vortex magnétique imminent.
 
 Le vortex descendit brusquement. Il ne visait pas la tortue géante, mais le deuxième encens, l'encens terrestre! En un éclair, le vortex s'engouffra dans l'encens terrestre.
 
 De loin, la scène était terrifiante. C'était comme si l'encens terrestre était devenu un trou noir dévorant tout le brouillard magnétique environnant.
 
-Les yeux du vieil Oiseau Vermillon se remplirent de choc et il laissa échapper un halètement inconscient.
+Les yeux du vieux Suzaku se remplirent de choc et il laissa échapper un halètement inconscient.
 
 « Ceci est... » L'expression du Maître Simo trahissait une terreur pure. Il était hébété, incapable de comprendre ce qui se jouait à l'intérieur de l'encens terrestre!
 
@@ -126,7 +126,7 @@ La lumière spectrale percuta de plein fouet la Formation du Royaume Scellé. La
 
 L'illusion de la boussole autour de la Planète du Grand Empereur se dissipa lentement et la planète cessa de tourner, retrouvant son état initial. À l'intérieur de l'Épreuve Terrestre, la Perle Défiant le Ciel en Wang Lin absorba les dernières traces de force magnétique. Puis, une quantité infinie de force magnétique jaillit de la perle, comme si elle recrachait tout ce qu'elle avait dévoré.
 
-Le corps de Wang Lin était devenu comme un tamis alors que l'immense masse de brouillard magnétique entrait en éruption hors de lui. L'Oiseau Vermillon, qui se trouvait au moment critique de sa transition du feu corporel vers le Feu Éthéré, fut le premier à subir le choc de cette force.
+Le corps de Wang Lin était devenu comme un tamis alors que l'immense masse de brouillard magnétique entrait en éruption hors de lui. Le Suzaku, qui se trouvait au moment critique de sa transition du feu corporel vers le Feu Éthéré, fut le premier à subir le choc de cette force.
 
 Sous la poussée de la force magnétique, tous les feux corporels s'effondrèrent pour se transformer en Feu Éthéré. Cependant, sous l'effet de ce flux magnétique déchaîné, le feu subit une mutation bizarre!
 

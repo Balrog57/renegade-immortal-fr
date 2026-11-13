@@ -64,13 +64,13 @@ La main droite de la silhouette dorée heurta le sceau et fut violemment repouss
 
 Dans la deuxième statue, une autre silhouette dorée s'exclama lentement: « Tigre Blanc, ne gaspillez plus d'énergie spirituelle céleste. Ce sceau nous retient prisonniers depuis des années, mais il ne faudra plus longtemps avant que nous puissions en briser les chaînes! »
 
-« Oiseau Vermillon, tu es doué pour les complots. Quelles sont les chances de réussite de ton plan? » Une voix sombre émana de la troisième statue.
+« Suzaku, tu es doué pour les complots. Quelles sont les chances de réussite de ton plan? » Une voix sombre émana de la troisième statue.
 
 « Il n'échouera pas, et le résultat se manifestera bientôt... »
 
 Ces quatre statues gigantesques scellaient les quatre grands généraux de l'Empereur Céleste Antique: le Dragon Azure, le Tigre Blanc, Suzaku et la Tortue Noire!
 
-Si Wang Lin avait été là pour voir cela, il aurait été stupéfait. Sa première pensée aurait été la suivante: si le véritable Oiseau Vermillon était scellé ici, alors qui était cette personne se proclamant être de la première génération de Suzaku?
+Si Wang Lin avait été là pour voir cela, il aurait été stupéfait. Sa première pensée aurait été la suivante: si le véritable Suzaku était scellé ici, alors qui était cette personne se proclamant être de la première génération de Suzaku?
 
 Système stellaire de Kun Xu, Quartier Général de l'Alliance. La main droite de Wang Lin pointait vers le ciel et une empreinte de paume géante descendit sur la Peinture des Montagnes et des Rivières.
 

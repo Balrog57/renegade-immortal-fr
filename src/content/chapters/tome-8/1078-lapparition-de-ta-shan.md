@@ -22,7 +22,7 @@ C'était l'emplacement de la Secte Divine du Dragon Azure, l'une des quatre Sect
 
 À cet instant, une silhouette apparut lentement au loin. Cet homme d'âge moyen affichait une trace de nostalgie et de mélancolie dans le regard. Il contempla la Secte Divine du Dragon Azure et laissa échapper un soupir.
 
-Il leva ensuite sa main droite et pointa l'horizon. L'ombre d'un Oiseau Vermillon surgit et poussa un cri qui résonna à travers le monde avant de charger dans la brume verte.
+Il leva ensuite sa main droite et pointa l'horizon. L'ombre d'un Suzaku surgit et poussa un cri qui résonna à travers le monde avant de charger dans la brume verte.
 
 Un instant plus tard, plusieurs silhouettes jaillirent de la lumière émeraude. Les trois premiers avaient les cheveux blancs et les traits marqués par le poids des années. Derrière eux suivaient de près six anciens.
 

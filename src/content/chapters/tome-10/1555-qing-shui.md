@@ -10,7 +10,7 @@ Parce que cet homme, assis en tailleur, faisait face à Wang Lin, celui-ci pouva
 
 Wang Lin n'avait jamais vu cet homme auparavant, mais il pressentait qu'il devait s'agir de l'Empereur Divin de la Tortue Noire, celui qui avait trahi les Quatre Sectes Divines pour rejoindre l'Alliance!
 
-Les Quatre Sectes Divines ainsi que l'ancien Empereur Divin de l'Oiseau Vermillon étaient restés perplexes: comment l'Empereur Divin de la Tortue Noire avait-il pu trahir son propre clan pour devenir volontairement le chien de l'Alliance?
+Les Quatre Sectes Divines ainsi que l'ancien Empereur Divin de Suzaku étaient restés perplexes: comment l'Empereur Divin de la Tortue Noire avait-il pu trahir son propre clan pour devenir volontairement le chien de l'Alliance?
 
 En voyant la Tortue Noire et l'homme d'âge moyen, Wang Lin commença à formuler ses propres hypothèses.
 

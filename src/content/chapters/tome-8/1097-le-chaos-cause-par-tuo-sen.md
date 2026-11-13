@@ -26,7 +26,7 @@ slug: le-chaos-cause-par-tuo-sen
 
 « Cependant, le Royaume Kun Xu ne connaissait que l'existence du secret; il ignorait l'emplacement de cette planète de culture. Le Domaine Stellaire Kun Xu était trop vaste, et il était tout simplement impossible de trouver une seule planète de culture au hasard. De plus, la planète avait été transformée par les quatre premiers Empereurs Divins, il était donc impossible d'y déceler quoi que ce soit d'anormal. »
 
-« Selon l'accord des quatre premiers Empereurs Divins, seule chaque génération de l'Empereur Divin Oiseau Vermillon peut connaître la position exacte de la planète! »
+« Selon l'accord des quatre premiers Empereurs Divins, seule chaque génération de l'Empereur Divin Suzaku peut connaître la position exacte de la planète! »
 
 « C'est ainsi que la guerre entre l'Alliance et les Quatre Sectes Divines a éclaté! »
 
@@ -50,7 +50,7 @@ Alors que le message de l'homme d'âge moyen pénétrait dans l'esprit de Wang L
 
 « Pas étonnant que l'un des avatars du vieil Empereur Divin ait toujours séjourné sur la planète Suzaku... Pas étonnant que le maître de Mo Zhi l'y ait envoyé. Je crains que son maître ne soit pas un homme ordinaire. Je me demande comment il a pu déceler des indices sur cette affaire... »
 
-« Pas étonnant que Liu Mei... soit également apparu sur la planète Suzaku... Même le Clan Fu Wen se trouvait sur la planète Suzaku! » Wang Lin avait progressivement découvert l'existence de l'avatar du vieil Empereur Divin, Huanglong, au cours des trois dernières années.
+« Pas étonnant que Liu Mei... soit également apparu sur la planète Suzaku... Même le Clan Fu Wen se trouvait sur la planète Suzaku! » Wang Lin avait progressivement découvert l'existence de l'avatar du vieil Empereur Divin, Huang Long, au cours des trois dernières années.
 
 L'homme d'âge moyen avait laissé toutes ces informations en s'éloignant, mais il marqua soudain une pause. Il regarda Wang Lin avec un sourire bienveillant et dit doucement: « Si la pression devient trop grande, si les Quatre Sectes Divines n'ont plus aucun espoir de retrouver leur gloire passée, si les cieux veulent véritablement détruire mes Quatre Sectes Divines... Eh bien, alors ne te force pas. »
 
@@ -84,7 +84,7 @@ Le Maître Yan Leizi fronça les sourcils et pointa impitoyablement l'espace ent
 
 Le Maître Yan Leizi tonna: « Lie Yunzi, parle clairement! Pourquoi la Secte Shi Yin t'a-t-elle tendu une embuscade? »
 
-« L'Empereur Divin Oiseau Vermillon est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte Shi Yin et j'ai été frappé par le poison qui donne l'impression de monter au ciel et de mourir de plaisir... » Bien que le niveau de culture de Lie Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur du Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
+« L'Empereur Divin Suzaku est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte Shi Yin et j'ai été frappé par le poison qui donne l'impression de monter au ciel et de mourir de plaisir... » Bien que le niveau de culture de Lie Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur du Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
 
 Pour diverses raisons, le poison en lui était devenu extrêmement virulent.
 

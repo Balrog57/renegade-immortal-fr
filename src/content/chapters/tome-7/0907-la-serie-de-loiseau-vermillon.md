@@ -18,7 +18,7 @@ Yun Quezi subit le même sort. Ayant le niveau de culture le plus bas, il fut pr
 
 Le regard de Wang Lin se glaça. À l'instant où la voix apparut, son énergie originelle s'activa et il fut repoussé de plusieurs dizaines de pieds avant de pouvoir se stabiliser. Le visage pâle, il regarda droit devant lui.
 
-Une ondulation résonna dans l'air et le vieux cultivateur qui ressemblait à Huanglong fit un pas en avant. Dès son apparition, une chaleur effroyable se manifesta. En un instant, toutes les fissures qui s'étaient formées furent scellées et le chemin vers le 18e niveau fut clos!
+Une ondulation résonna dans l'air et le vieux cultivateur qui ressemblait à Huang Long fit un pas en avant. Dès son apparition, une chaleur effroyable se manifesta. En un instant, toutes les fissures qui s'étaient formées furent scellées et le chemin vers le 18e niveau fut clos!
 
 Le vieux cultivateur dégageait l'aura d'un être céleste et exerçait une pression immense sans même paraître en colère. Sa simple présence imposait un respect profond. Cependant, cette aura disparut aussitôt pour se rétracter en lui, ce qui le rendait encore plus redoutable.
 

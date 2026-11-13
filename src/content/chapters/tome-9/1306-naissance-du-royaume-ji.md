@@ -50,19 +50,19 @@ Wang Lin essuya le sang au coin de ses lèvres et rugit face au vortex de la Tri
 
 « Quatre Divinités... Infini... » Une voix vague, dénuée de toute émotion, résonna à travers le monde comme pour répondre à Wang Lin.
 
-Tandis que l'écho de cette voix se propageait, des rugissements de bêtes jaillirent du vortex. Un Dragon Azure émergea en rugissant, suivi d'un Oiseau Vermillon rouge qui poussa un cri faisant trembler les cieux.
+Tandis que l'écho de cette voix se propageait, des rugissements de bêtes jaillirent du vortex. Un Dragon Azure émergea en rugissant, suivi d'un Suzaku rouge qui poussa un cri faisant trembler les cieux.
 
 Une intention meurtrière se propagea alors qu'un Tigre Blanc chargeait en rugissant, et une Tortue Noire fit également son apparition!
 
 Les Quatre Esprits de la Tribulation Céleste!
 
-« C'étaient donc les Quatre Divinités! Oiseau Vermillon, reviens! » Les yeux de Wang Lin brillèrent et il sourit en pointant Suzaku. La créature trembla et poussa un cri. Elle se libéra des trois autres pour charger vers Wang Lin.
+« C'étaient donc les Quatre Divinités! Suzaku, reviens! » Les yeux de Wang Lin brillèrent et il sourit en pointant Suzaku. La créature trembla et poussa un cri. Elle se libéra des trois autres pour charger vers Wang Lin.
 
 Elle le rejoignit en un instant et l'encercla dans des rugissements d'exultation. Simultanément, un motif de Suzaku apparut sur le corps de dieu ancien de Wang Lin. En résonnant avec lui, Suzaku fusionna avec Wang Lin et des flammes jaillirent dans le vide.
 
 Après avoir absorbé le feu des Huit Diagrammes, des Cinq Éléments et de Suzaku, le feu intérieur de Wang Lin avait atteint un sommet prodigieux!
 
-L'Oiseau Vermillon en lui s'était déjà éveillé trois fois, et à chaque réveil, sa compréhension du feu augmentait considérablement. Ces trois éveils avaient porté sa maîtrise du feu à un niveau inimaginable et avaient donné naissance à des essences!
+Le Suzaku en lui s'était déjà éveillé trois fois, et à chaque réveil, sa compréhension du feu augmentait considérablement. Ces trois éveils avaient porté sa maîtrise du feu à un niveau inimaginable et avaient donné naissance à des essences!
 
 Tous les sorts de feu devaient s'incliner devant lui!
 
@@ -78,7 +78,7 @@ Le feu le plus puissant au monde est celui de la colère. Tout le monde le poss�
 
 À cet instant, après avoir absorbé les différents feux de la Tribulation Céleste, Wang Lin atteindrait son quatrième éveil. Il n'avait besoin que d'un peu plus pour franchir le stade du feu corporel et entrer dans celui du feu éthéré!
 
-L'Oiseau Vermillon autour de lui poussa un cri et pénétra dans son corps. Il nourrissait sa chair et réparait son âme originelle, donnant à Wang Lin la force nécessaire pour résister à l'arrivée des trois autres esprits!
+Le Suzaku autour de lui poussa un cri et pénétra dans son corps. Il nourrissait sa chair et réparait son âme originelle, donnant à Wang Lin la force nécessaire pour résister à l'arrivée des trois autres esprits!
 
 Cependant, la Tribulation Céleste n'était pas achevée et devenait de plus en plus puissante. À ce moment, la voix vague résonna une nouvelle fois. Elle était froide et impitoyable, dépourvue de toute émotion!
 

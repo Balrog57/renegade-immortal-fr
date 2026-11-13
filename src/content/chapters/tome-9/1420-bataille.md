@@ -18,7 +18,7 @@ Les cultivateurs de la troisième étape étaient invincibles!
 
 Tous les autres n'étaient que des fourmis devant eux!
 
-Même si Maître Simo avait été humilié par le vieux Oiseau Vermillon, la réalité était qu'ailleurs, que ce soit dans le Royaume Extérieur ou le Royaume Intérieur, il lui suffirait de frapper du pied pour déclencher une catastrophe majeure!
+Même si Maître Simo avait été humilié par le vieux Suzaku, la réalité était qu'ailleurs, que ce soit dans le Royaume Extérieur ou le Royaume Intérieur, il lui suffirait de frapper du pied pour déclencher une catastrophe majeure!
 
 Bien qu’il ne fût qu'au stade initial du Vide du Nirvana, il demeurait un dieu pour les cultivateurs de la deuxième étape!
 
@@ -42,9 +42,9 @@ Les paroles de Wang Lin, et plus particulièrement son ultime commandement — �
 
 La Grande Maîtresse Yun Luo était également sous le choc. Elle n'aurait jamais imaginé que Wang Lin oserait défier Maître Simo. À cet instant, l'homme devant elle se transformait rapidement en une figure terrifiante. Elle avait l'impression d'être en transe, incapable de distinguer l'homme devant elle de la silhouette terrifiante de sa vision.
 
-Le vieux Oiseau Vermillon afficha un sourire suffisant. C’était précisément ce qu’il attendait: il voulait que son cadet accomplisse ce que tout le monde jugeait impossible!
+Le vieux Suzaku afficha un sourire suffisant. C’était précisément ce qu’il attendait: il voulait que son cadet accomplisse ce que tout le monde jugeait impossible!
 
-« Bien que les cultivateurs de la troisième étape soient puissants, je n'ai pas infligé ces quelques gifles pour rien! » lança le vieux Oiseau Vermillon en regardant Maître Simo.
+« Bien que les cultivateurs de la troisième étape soient puissants, je n'ai pas infligé ces quelques gifles pour rien! » lança le vieux Suzaku en regardant Maître Simo.
 
 Maître Simo fixa Wang Lin, et son regard devint soudainement limpide. Il n'y avait ni joie ni tristesse dans ses yeux, seulement une froideur qui envahit tout son être. À cet instant, il semblait être une personne totalement différente. Une majesté écrasante émana de lui, faisant vaciller la réalité elle-même.
 

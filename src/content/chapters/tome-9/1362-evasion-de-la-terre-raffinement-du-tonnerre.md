@@ -58,7 +58,7 @@ Dans son élan, la puissance du Dieu Ancien gronda dans son corps et sa culture 
 
 « Ceci... C'est... Tu Si!! » Une voix stupéfaite jaillit du vortex.
 
-« Feu! » Les yeux de Wang Lin étaient emplis d'une folie sans fin lorsqu'il leva la main gauche. Un feu bleu surgit de son œil gauche et explosa instantanément de son corps. Un Oiseau Vermillon bleu apparut et poussa un cri strident!
+« Feu! » Les yeux de Wang Lin étaient emplis d'une folie sans fin lorsqu'il leva la main gauche. Un feu bleu surgit de son œil gauche et explosa instantanément de son corps. Un Suzaku bleu apparut et poussa un cri strident!
 
 À son cri, le feu bleu se propagea immédiatement, couvrant toute la zone d'une mer de flammes en un instant!
 

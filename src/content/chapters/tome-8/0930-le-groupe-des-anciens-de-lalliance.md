@@ -62,11 +62,11 @@ L'effondrement avait engendré un vortex gigantesque, créant une aspiration pui
 
 À cet instant, plusieurs vieux monstres de l'Alliance encerclèrent le Serpent aux yeux de lune pour l'empêcher d'avancer. Même le Saint Démon du Dragon des Nuages s'approcha de la bête.
 
-Cependant, le Dieu de Sang et sa suite encerclèrent également le serpent aux yeux de lune pour combattre les cultivateurs de l'Alliance. Les êtres de sang, apparaissant les uns après les autres, lançaient une offensive écrasante contre l'Alliance.
+Cependant, Xue Shenzi et sa suite encerclèrent également le serpent aux yeux de lune pour combattre les cultivateurs de l'Alliance. Les êtres de sang, apparaissant les uns après les autres, lançaient une offensive écrasante contre l'Alliance.
 
 Des grondements successifs résonnaient avec les rugissements du Serpent aux yeux de lune. Le combat entre Maître Yan Leizi et Wu Dongchan faisait trembler le monde. Les fracas à l'intérieur du brouillard noir provoqué par leur affrontement étaient d'une intensité extrême.
 
-Les fluctuations qui émanaient de leurs chocs étaient telles que même le Dieu de Sang et ses compagnons devaient s'en écarter.
+Les fluctuations qui émanaient de leurs chocs étaient telles que même Xue Shenzi et ses compagnons devaient s'en écarter.
 
 Au loin, la femme en robe bleue observait la scène sans l'ombre d'une panique. À ses côtés, le cadavre doré se tenait silencieux, l'expression glaciale. Cinq talismans jaunes tournaient lentement autour de sa tête, tandis que des éclairs parcouraient les talismans pour maintenir son sceau.
 

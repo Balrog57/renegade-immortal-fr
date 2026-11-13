@@ -96,7 +96,7 @@ Le niveau de culture du groupe de Wang Lin avait totalement dépassé ce que le 
 
 Wang Lin se tenait sur une hauteur et contemplait les fragments familiers du Royaume Céleste de la Pluie. Ses yeux brillèrent en se remémorant le passé, tandis qu'il cherchait progressivement le fragment où il avait autrefois entendu cet appel à l'aide!
 
-Des dizaines de personnes l'entouraient et tous les regards étaient tournés vers lui. Ils devaient suivre les directives de Wang Lin pour cette mission de sauvetage de l'Empereur Divin Dragon Azure. Après tout, il était l'Empereur Divin Oiseau Vermillon et, surtout, seul Wang Lin savait où l'Empereur Divin Dragon Azure était emprisonné!
+Des dizaines de personnes l'entouraient et tous les regards étaient tournés vers lui. Ils devaient suivre les directives de Wang Lin pour cette mission de sauvetage de l'Empereur Divin Dragon Azure. Après tout, il était l'Empereur Divin Suzaku et, surtout, seul Wang Lin savait où l'Empereur Divin Dragon Azure était emprisonné!
 
 Le corps de Wang Lin s'élança. Un grondement tonitruant se fit entendre lorsqu'il plongea vers le bas. Personne n'hésita à le suivre.
 

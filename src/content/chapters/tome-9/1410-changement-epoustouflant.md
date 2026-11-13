@@ -12,11 +12,11 @@ Wang Lin se trouvait au cœur des flammes, debout sur le dos de Suzaku noir. Il 
 
 Le premier des neuf châtiments karmiques était rouge. Il représentait l'immense carnage né de l'obsession de Wang Lin. Ce châtiment de carnage déferla et brûla avec violence.
 
-L’Oiseau Vermillon sous les pieds de Wang Lin poussa des cris déchirants sous la chaleur de ce feu écarlate. Même l'âme récemment reformée de Wang Lin faillit s'effondrer; il était sur le point d'être brûlé vif.
+L’Suzaku sous les pieds de Wang Lin poussa des cris déchirants sous la chaleur de ce feu écarlate. Même l'âme récemment reformée de Wang Lin faillit s'effondrer; il était sur le point d'être brûlé vif.
 
 Il avait pourtant surestimé la puissance des neuf châtiments karmiques, mais il n'avait pas imaginé que le premier serait déjà si difficile à supporter.
 
-Au sein de ce feu rouge, un instant semblait une éternité. L'Oiseau Vermillon Noir ne put plus résister et son corps se rétracta rapidement. Le feu noir qui recouvrait sa peau vira brusquement au rouge.
+Au sein de ce feu rouge, un instant semblait une éternité. Le Suzaku Noir ne put plus résister et son corps se rétracta rapidement. Le feu noir qui recouvrait sa peau vira brusquement au rouge.
 
 S'il devenait totalement rouge, Suzaku ferait partie intégrante du premier châtiment. Sa puissance augmenterait alors et il dévorerait Wang Lin!
 
@@ -38,11 +38,11 @@ Les cultivateurs environnants laissèrent échapper un halètement et reculèren
 
 Simultanément, la combustion du premier bâton d'encens s'interrompit brusquement. C'était comme si une force interne avait jailli pour stopper sa progression.
 
-Le vieil Oiseau Vermillon fixait le premier bâton d'encens avec inquiétude dans les yeux.
+Le vieux Suzaku fixait le premier bâton d'encens avec inquiétude dans les yeux.
 
 À l'intérieur de l'Épreuve Humaine, Wang Lin avait dévoré tout le feu rouge. Il avait l'impression qu'un million de foudres de feu explosaient simultanément dans son corps. La douleur intense lui donnait la sensation qu'il allait se désintégrer.
 
-Wang Lin poussa un rugissement et agita la main. L'Oiseau Vermillon à moitié rouge se précipita vers lui et ils fusionnèrent instantanément en un seul être.
+Wang Lin poussa un rugissement et agita la main. Le Suzaku à moitié rouge se précipita vers lui et ils fusionnèrent instantanément en un seul être.
 
 L'expression de Wang Lin était féroce alors qu'il laissait le feu brûler en lui. Il endurait cette douleur fulgurante tout en continuant à raffiner le feu rouge. Il tentait de faire de ce brasier sa propre force!
 
@@ -60,7 +60,7 @@ C'était là la véritable terreur des neuf châtiments karmiques. Ce n'était p
 
 Les trois châtiments couvraient le ciel de l'Épreuve Humaine. À l'extérieur, le premier bâton d'encens réagissait pour refléter la situation: des fumées orange, jaune et verte s'élevaient en tourbillons au-dessus du bâton.
 
-« Le premier châtiment n'est pas encore passé, et les châtiments orange, jaune et vert arrivent de concert. Comment... comment est-il censé survivre à cela?! » L'expression du vieil Oiseau Vermillon changea radicalement. C'était la première fois qu'il observait les neuf châtiments karmiques, et il ne s'attendait pas à une telle férocité.
+« Le premier châtiment n'est pas encore passé, et les châtiments orange, jaune et vert arrivent de concert. Comment... comment est-il censé survivre à cela?! » L'expression du vieux Suzaku changea radicalement. C'était la première fois qu'il observait les neuf châtiments karmiques, et il ne s'attendait pas à une telle férocité.
 
 Maître Simo était le plus ravi de la situation. Il afficha un sourire venimeux en fixant le premier bâton d'encens, pensant: « Bien que j'ignore ce qui se passe exactement, il semble que ce petit bâtard aura du mal à échapper à la mort! C'est regrettable que je ne puisse percer son secret, mais c'est une excellente chose qu'il périsse! »
 
@@ -110,7 +110,7 @@ Les dizaines de milliers de cultivateurs qui fixaient le premier bâton d'encens
 
 Le temps passa lentement, une respiration, puis une autre... En un éclair, plus de cinq respirations s'étaient écoulées!
 
-L’Oiseau Vermillon de la quatrième génération n'avait duré que cinq respirations, mais là, contre toute attente, Wang Lin tenait également depuis cinq respirations!
+L’Suzaku de la quatrième génération n'avait duré que cinq respirations, mais là, contre toute attente, Wang Lin tenait également depuis cinq respirations!
 
 Six respirations!
 
@@ -124,7 +124,7 @@ Ce qui provoqua ce cri de stupeur n'était pas la durée de sept respirations, m
 
 Le bâton d'encens s'était éteint!
 
-Cette scène soudaine provoqua un tumulte indescriptible. Même les yeux du vieil Oiseau Vermillon s'écarquillèrent, remplis d'incrédulité.
+Cette scène soudaine provoqua un tumulte indescriptible. Même les yeux du vieux Suzaku s'écarquillèrent, remplis d'incrédulité.
 
 « Ceci... ceci est... »
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1405 - Dream like life
 slug: une-vie-semblable-a-un-reve
 ---
-« Que s'élève l'Encens Bleu! » L'ancien Oiseau Vermillon agita la main. Son air désinvolte de tout à l'heure s'était évanoui, laissant place à une gravité solennelle. À cet instant, une puissance immense émana de son corps, empreinte d'une aura tyrannique.
+« Que s'élève l'Encens Bleu! » L'ancien Suzaku agita la main. Son air désinvolte de tout à l'heure s'était évanoui, laissant place à une gravité solennelle. À cet instant, une puissance immense émana de son corps, empreinte d'une aura tyrannique.
 
 C'était comme si sa parole faisait loi!
 
@@ -18,7 +18,7 @@ Ces trois bâtons d'encens, d'un bleu sombre, perçaient le ciel. La tortue géa
 
 Le premier est qu'allumer ces bâtons est une tâche ardue! Le second est qu'une fois un bâton d'encens allumé, bien qu'il mesure des dizaines de milliers de pieds, il brûle très rapidement. Vous devrez déployer tous vos efforts pour ralentir sa combustion, afin que votre âme puisse partir et revenir dans votre corps! »
 
-L'expression de l'ancien Oiseau Vermillon était très grave lorsqu'il fixa Wang Lin.
+L'expression de l'ancien Suzaku était très grave lorsqu'il fixa Wang Lin.
 
 « Chaque épreuve comporte ses dangers. Celle du Jeune Empereur des Terres Déchues ne fait pas exception. Si vous ne parvenez pas à l'allumer, il n'y aura aucune conséquence; mais si vous l'allumez et que vous ne parvenez pas à en sortir, votre âme brûlera jusqu'à la mort avec lui! En ma présence, vous ne mourrez pas réellement, mais vous me décevriez.
 
@@ -28,9 +28,9 @@ Osez-vous tenter l'aventure? Répondez-moi! » Les yeux du vieil homme brillaien
 
 Wang Lin resta calme et répondit lentement: « Pourquoi n'oserais-je pas? »
 
-« Bien. J'espère que vous me surprendrez une troisième fois! » L'ancien Oiseau Vermillon éclata de rire et agita sa main droite. Une rafale de vent enveloppa Wang Lin, qui s'élança tel un éclair vers le premier bâton d'encens!
+« Bien. J'espère que vous me surprendrez une troisième fois! » L'ancien Suzaku éclata de rire et agita sa main droite. Une rafale de vent enveloppa Wang Lin, qui s'élança tel un éclair vers le premier bâton d'encens!
 
-Le regard du Maître Simo cachait une malveillance venimeuse. Son visage était toujours livide, et aucun sortilège ne pourrait le guérir en peu de temps. Après tout, l'ancien Oiseau Vermillon avait agi ainsi délibérément pour l'humilier.
+Le regard du Maître Simo cachait une malveillance venimeuse. Son visage était toujours livide, et aucun sortilège ne pourrait le guérir en peu de temps. Après tout, l'ancien Suzaku avait agi ainsi délibérément pour l'humilier.
 
 À présent, le Maître Simo n'osait plus faire preuve d'autant d'arrogance qu'auparavant, mais son intention meurtrière envers Wang Lin était devenue plus ardente encore.
 
@@ -48,7 +48,7 @@ Lanmeng Daozun observa calmement Wang Lin et soupira intérieurement.
 
 « Je peux ignorer le Conseil Souverain, et même si le Souverain sort de sa culture méditative, je pourrai refuser, mais... que ferai-je si Meng Er vient? Que devrai-je faire... » En pensant à son épouse, Lanmeng Daozun ressentit une piqûre au cœur. Il ne pourrait jamais oublier cette année où sa femme sembla mourir et devint une étrangère.
 
-L'homme vêtu de peau de bête ferma les yeux, ignorant tout le reste. C'était comme si rien au monde n'avait d'importance, hormis le combat contre l'ancien Oiseau Vermillon.
+L'homme vêtu de peau de bête ferma les yeux, ignorant tout le reste. C'était comme si rien au monde n'avait d'importance, hormis le combat contre l'ancien Suzaku.
 
 Le lézard géant sous lui expulsa deux volutes de vapeur blanche et referma ses yeux froids.
 

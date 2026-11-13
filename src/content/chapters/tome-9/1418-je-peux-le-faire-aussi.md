@@ -10,7 +10,7 @@ Wang Lin fronça les sourcils. Les paroles de Suzaku de la première génératio
 
 « Les Cinq Doigts Brise-Vide sont un processus permettant de rassembler la puissance nécessaire pour déchirer le vide. Ce n'est qu'en cultivant jusqu'aux limites de la deuxième étape que l'on peut emprunter la puissance de son essence pour briser la Porte Kong d'un seul coup! »
 
-« Votre culture est trop chaotique. Tout d'abord, votre corps de Dieu Ancien... Dieu Ancien, Dieu Ancien... Je ne m'attendais pas à ce qu'un membre de mon clan Oiseau Vermillon devienne un Dieu Ancien! » Une étrange lueur brilla dans les yeux de Suzaku de la première génération alors qu'il contemplait l'épée de sang devant lui.
+« Votre culture est trop chaotique. Tout d'abord, votre corps de Dieu Ancien... Dieu Ancien, Dieu Ancien... Je ne m'attendais pas à ce qu'un membre de mon clan Suzaku devienne un Dieu Ancien! » Une étrange lueur brilla dans les yeux de Suzaku de la première génération alors qu'il contemplait l'épée de sang devant lui.
 
 « Ce vieil homme ne sait pas grand-chose sur la culture des Dieux Anciens, mais à mon époque, leur pouvoir faisait trembler les cieux. À l'époque, bien que Dao Gu Ye Mo ne figurât pas parmi les Souverains Célestes, sa culture suffisait à leur inspirer de la crainte... »
 
@@ -42,15 +42,15 @@ Le cœur de Wang Lin tressaillit et il s'apprêta à parler.
 
 « Ne pose pas de questions, je ne peux rien dire. Si je parle, je mourrai! Ils veulent se battre, ils veulent voler, mais ce vieil homme est fatigué. Je n'ai aucune envie de participer, je veux juste... rentrer chez moi. » La voix de Suzaku de la première génération sonnait la lassitude.
 
-« Je vous laisserai le temps de réfléchir, j'espère que vous en tiendrez compte sérieusement... » L'Oiseau Vermillon de la première génération poussa un soupir.
+« Je vous laisserai le temps de réfléchir, j'espère que vous en tiendrez compte sérieusement... » Le Suzaku de la première génération poussa un soupir.
 
 La respiration de Wang Lin devint saccadée alors qu'il luttait intérieurement. Les paroles de Suzaku de la première génération étaient extrêmement tentantes, plus encore que l'offre de Lanmeng Daozun!
 
-Lanmeng Daozun n'appartenait pas au clan Oiseau Vermillon. Dans son cœur, Wang Lin penchait davantage vers Suzaku de la première génération.
+Lanmeng Daozun n'appartenait pas au clan Suzaku. Dans son cœur, Wang Lin penchait davantage vers Suzaku de la première génération.
 
 Wang Lin hésita et demanda: « Si j'abandonne mon corps de Dieu Ancien et mes autres essences, une fois la troisième étape atteinte, pourrai-je recultiver mes essences? »
 
-« Bien sûr. Les cultivateurs de la troisième étape cultivent également les essences; plus ils en possèdent, plus leur compréhension est profonde, et leur niveau de culture augmente de la même manière. Cependant, la nouvelle essence ne pourra jamais atteindre une véritable perfection et stagnera à la troisième étape. Ce chemin ne vous présente aucun danger; c'est une voie paisible qui vous permettra de préserver votre obsession. Ce vieil homme a lui aussi été frappé par le feu karmique et sait à quel point elle est cruciale pour des gens comme nous... » L'Oiseau Vermillon de la première génération regarda Wang Lin comme s'il contemplait son propre reflet, avant de soupirer.
+« Bien sûr. Les cultivateurs de la troisième étape cultivent également les essences; plus ils en possèdent, plus leur compréhension est profonde, et leur niveau de culture augmente de la même manière. Cependant, la nouvelle essence ne pourra jamais atteindre une véritable perfection et stagnera à la troisième étape. Ce chemin ne vous présente aucun danger; c'est une voie paisible qui vous permettra de préserver votre obsession. Ce vieil homme a lui aussi été frappé par le feu karmique et sait à quel point elle est cruciale pour des gens comme nous... » Le Suzaku de la première génération regarda Wang Lin comme s'il contemplait son propre reflet, avant de soupirer.
 
 L'esprit de Wang Lin vacilla et sa respiration se fit plus lourde. Devant lui, la balance du choix commença à pencher. Une voix empreinte de deux mille ans d'épuisement résonnait dans son cœur. Portée par la perspective d'une vie tranquille, une pointe d'excitation continuait de lui murmurer:
 
@@ -64,7 +64,7 @@ L'esprit de Wang Lin vacilla et sa respiration se fit plus lourde. Devant lui, l
 
 Le combat intérieur de Wang Lin s'intensifia et sa respiration devint anxieuse. Ce court laps de temps lui semblait durer des millénaires. Après un long moment, Wang Lin leva soudain les yeux vers Suzaku de la première génération. D'une voix légèrement rauque, il dit: « L'Ancêtre ne peut emmener que nous trois? Puis-je en prendre d'autres? Ce junior a des amis qu'il ne peut abandonner... »
 
-L'Oiseau Vermillon de la première génération réfléchit, et un instant plus tard, sa voix résonna dans le monde:
+Le Suzaku de la première génération réfléchit, et un instant plus tard, sa voix résonna dans le monde:
 
 « Vous emmener tous les trois est ma limite... Soit... si le jour du départ vient réellement, ce vieil homme pourra tout au plus t'accorder une place supplémentaire! S'il y en a davantage, je crains que nous ne puissions pas rentrer. »
 
@@ -86,7 +86,7 @@ Le corps de Wang Lin trembla tandis qu'il fixait Li Muwan dans le cercueil.
 
 Le cœur de Wang Lin fut envahi par le désespoir et son regard s'assombrit. Il fixait le cercueil comme si son propre cœur avait été déchiré, une douleur lancinante parcourant tout son corps.
 
-L'Oiseau Vermillon de la première génération réfléchit un instant et dit lentement: « Cependant, ce n'est pas parce que ce vieil homme ne peut pas le faire que d'autres en sont incapables. Dans ma terre natale, il existe trois personnes capables de réparer son âme et de la ressusciter! Seulement... ces trois individus jouissent de statuts extrêmement élevés, et ce vieil homme ne peut les contraindre à aider... Quoi qu'il en soit, sois assuré que je ferai de mon mieux... »
+Le Suzaku de la première génération réfléchit un instant et dit lentement: « Cependant, ce n'est pas parce que ce vieil homme ne peut pas le faire que d'autres en sont incapables. Dans ma terre natale, il existe trois personnes capables de réparer son âme et de la ressusciter! Seulement... ces trois individus jouissent de statuts extrêmement élevés, et ce vieil homme ne peut les contraindre à aider... Quoi qu'il en soit, sois assuré que je ferai de mon mieux... »
 
 Wang Lin ne leva pas les yeux et retira lentement son regard du cercueil. Sa main droite effleura le bois avant de le replacer dans son espace de stockage.
 

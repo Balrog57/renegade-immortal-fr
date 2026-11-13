@@ -50,7 +50,7 @@ Son trésor de vie ayant été détruit, Yu Fei cracha une bouffée de sang et s
 
 Yu Fei s'engouffra directement dans le vortex.
 
-« Xu Mu, le Domaine Sha Yu compte deux Tueurs, celui des Âmes et celui du Meurtre; outre moi, il y en a un autre! Bien que ton corps soit puissant, face aux sorts du Tueur d'Âmes, tu mourras quand même! » Les yeux de Yu Fei brillaient d'une haine monstrueuse alors qu'il disparaissait dans le vortex.
+« Xu Mu, le Royaume Sha Yu compte deux Tueurs, celui des Âmes et celui du Meurtre; outre moi, il y en a un autre! Bien que ton corps soit puissant, face aux sorts du Tueur d'Âmes, tu mourras quand même! » Les yeux de Yu Fei brillaient d'une haine monstrueuse alors qu'il disparaissait dans le vortex.
 
 Voyant Yu Fei sur le point de s'échapper, les yeux de Wang Lin se remplirent d'intention meurtrière. Sa nature était constante: « S'ils ne me cherchent pas, je ne les cherche pas. S'ils me cherchent, je les tue! »
 
@@ -66,13 +66,13 @@ Au moment où les deux se croisèrent, les deux doigts de Wang Lin formèrent un
 
 ***
 
-Dans le Domaine Sha Yu du Système Stellaire de l'Alliance, composé de deux temples, quatre saints et huit domaines!
+Dans le Royaume Sha Yu du Système Stellaire de l'Alliance, composé de deux temples, quatre saints et huit domaines!
 
-Un vortex elliptique apparut soudainement près d'un édifice ressemblant à une épée plantée dans le vide. Une force d'attraction mystérieuse émana du vortex, attirant l'attention des cultivateurs du Domaine Sha Yu.
+Un vortex elliptique apparut soudainement près d'un édifice ressemblant à une épée plantée dans le vide. Une force d'attraction mystérieuse émana du vortex, attirant l'attention des cultivateurs du Royaume Sha Yu.
 
 Le corps de Yu Fei surgit du vortex. Son visage était livide et son bras gauche continuait de saigner. Une fois sorti, le vortex derrière lui se rétracta brusquement.
 
-En réalisant qu'il était revenu dans son familier Domaine Sha Yu, il se détendit, bien que terrifié par ce qui venait de se passer. Il leva les yeux vers la tour et s'apprêta à parler.
+En réalisant qu'il était revenu dans son familier Royaume Sha Yu, il se détendit, bien que terrifié par ce qui venait de se passer. Il leva les yeux vers la tour et s'apprêta à parler.
 
 Cependant, à cet instant précis, une aura extrêmement puissante jaillit de la tour dans un rugissement de colère.
 
@@ -88,13 +88,13 @@ Même son âme originelle ne put échapper à la destruction et fut annihilée a
 
 Même son sac de rangement fut pulvérisé, dispersant tout son contenu. Parmi ces objets, une branche fut projetée en arrière, mais elle fut promptement saisie par les deux doigts émergeant du vortex.
 
-Cette scène provoqua un tollé dans le Domaine Sha Yu. Le rayon de lumière rouge jaillissant de la tour chargea immédiatement les deux doigts. Cependant, dès que ces derniers eurent frappé, ils se rétractèrent dans le vortex, lequel disparut aussitôt.
+Cette scène provoqua un tollé dans le Royaume Sha Yu. Le rayon de lumière rouge jaillissant de la tour chargea immédiatement les deux doigts. Cependant, dès que ces derniers eurent frappé, ils se rétractèrent dans le vortex, lequel disparut aussitôt.
 
 Un rugissement de rage monta du rayon rouge et, en un éclair, un bras droit desséché jaillit pour tenter de s'engouffrer dans le vortex dissipé. Dans un craquement sec, ce bras desséché parvint à arracher la moitié de la branche d'arbre du vortex.
 
 « Xu Mu!!! » Le rayon rouge s'éclaircit et révéla une silhouette. C'était un homme extrêmement vieux aux cheveux rouges. À cet instant, il poussa un cri de rage pure.
 
-Au fil des millénaires, leur Domaine Sha Yu n'avait jamais vu l'un des leurs être assassiné au sein même de ses propres murs devant leurs yeux impuissants. Une telle honte équivalait à voir l'ennemi frapper jusqu'au cœur de leur sanctuaire!
+Au fil des millénaires, leur Royaume Sha Yu n'avait jamais vu l'un des leurs être assassiné au sein même de ses propres murs devant leurs yeux impuissants. Une telle honte équivalait à voir l'ennemi frapper jusqu'au cœur de leur sanctuaire!
 
 Des rugissements s'élevèrent des autres tours et des cultivateurs, animés par une intention meurtrière, apparurent. Chacun d'eux fixait l'endroit où Yu Fei avait péri, avant de sombrer peu à peu dans le silence.
 

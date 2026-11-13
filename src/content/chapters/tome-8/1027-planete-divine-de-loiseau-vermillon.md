@@ -46,7 +46,7 @@ Cet endroit possédait une énergie spirituelle semblable à celle des planètes
 
 Même les cultivateurs ne pouvaient supporter longtemps ce poison de feu. Ce champ stellaire était nommé la Terre Suzaku, et ces neuf planètes étaient les Planètes Divines de Suzaku!
 
-La première Planète Divine était la plus vénérée! Dans sa partie méridionale se dressait une statue géante rouge sombre, qui s'élevait jusqu'aux cieux: celle d'un Oiseau Vermillon prenant son envol!
+La première Planète Divine était la plus vénérée! Dans sa partie méridionale se dressait une statue géante rouge sombre, qui s'élevait jusqu'aux cieux: celle d'un Suzaku prenant son envol!
 
 Sa queue, déployée comme une flamme vive, couvrait cinq kilomètres de terrain. Si la queue était déjà si imposante, il était inutile de mentionner la taille du corps de Suzaku!
 
@@ -116,7 +116,7 @@ Au moment où il jaillit, huit autres piliers de flammes surgirent des huit autr
 
 À l'instant où ils convergèrent, un cri de Suzaku, d'innombrables fois plus retentissant et plus puissant que celui que Wang Lin avait produit dans le monde-bouteille, résonna à travers tout le champ stellaire embrasé!
 
-Apparaissant avec ce cri, un Oiseau Vermillon de la taille d'une planète se manifesta. C'était comme s'il n'était pas apparu depuis des éons. Les flammes naturelles que tous les cultivateurs de l'Alliance redoutaient commencèrent à converger vers ce point!
+Apparaissant avec ce cri, un Suzaku de la taille d'une planète se manifesta. C'était comme s'il n'était pas apparu depuis des éons. Les flammes naturelles que tous les cultivateurs de l'Alliance redoutaient commencèrent à converger vers ce point!
 
 Les vibrations provoquées par cet événement firent trembler tout le champ stellaire dans un grondement assourdissant!
 
@@ -130,7 +130,7 @@ Lorsque les neuf se rapprochèrent de l'esprit de Suzaku, celui-ci poussa un aut
 
 Simultanément, l'esprit de Suzaku tourna rapidement sur lui-même pour devenir une sphère de feu géante. Les flammes commencèrent à s'entrelacer, puis une image apparut!
 
-L'individu dans l'image avait de longs cheveux flottants et le tatouage de Suzaku couvrait son corps. Il dégageait une chaleur immense et, de loin, il ressemblait lui-même à un Oiseau Vermillon!
+L'individu dans l'image avait de longs cheveux flottants et le tatouage de Suzaku couvrait son corps. Il dégageait une chaleur immense et, de loin, il ressemblait lui-même à un Suzaku!
 
 C'était Wang Lin!
 

@@ -78,7 +78,7 @@ Toutefois, la taille du géant avait considérablement changé. Il ne mesurait p
 
 Dès que le géant se reforma, la flamme de Suzaku descendit et l'encercla. Les yeux de Wang Lin s'illuminèrent et il pointa le doigt vers l'avant.
 
-L'Oiseau Vermillon poussa un autre cri. Il se transforma en une boule de feu et chargea le géant tel un météore. Il perça l'eau de mer et s'engouffra à l'intérieur du colosse.
+Le Suzaku poussa un autre cri. Il se transforma en une boule de feu et chargea le géant tel un météore. Il perça l'eau de mer et s'engouffra à l'intérieur du colosse.
 
 Des rugissements de douleur continuaient de jaillir du géant des mers. Déjà entouré de flammes, il brûlait désormais de l'intérieur par l'impact de Suzaku!
 
@@ -90,7 +90,7 @@ Pourtant, une lueur de férocité traversa ses yeux emplis de frustration.
 
 Tandis que le géant se débattait en vain et que son corps continuait de se dissiper en brume, il devenait de plus en plus petit. Juste au moment où il allait disparaître complètement, le géant poussa un rugissement tonitruant et tout son corps commença à se contracter jusqu'à ne former qu'une unique goutte d'eau. Puis, contre toute attente, il perça les flammes et chargea droit sur Wang Lin.
 
-L'Oiseau Vermillon poussa un nouveau cri et poursuivit la goutte d'eau de près.
+Le Suzaku poussa un nouveau cri et poursuivit la goutte d'eau de près.
 
 La goutte était si rapide qu'elle atteignit instantanément Wang Lin. C'était manifestement son ultime combat avant la mort! Mais Wang Lin ne paniqua pas; une lueur bleue jaillit de son œil droit, et un bouclier de lumière azur apparut immédiatement devant lui!
 

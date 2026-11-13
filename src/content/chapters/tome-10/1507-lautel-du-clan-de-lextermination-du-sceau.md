@@ -24,7 +24,7 @@ Dans le Luotian, une planète maculée de sang flottait parmi les étoiles. Au m
 
 La silhouette de Wang Lin apparut aux abords de cette planète sanglante.
 
-Fixant l'astre pourpre, Wang Lin agita la main droite et son espace de stockage s'ouvrit. L'ancien démon, enfermé dans le corps du Dieu de Sang, apparut, et Wang Lin lui saisit le cou.
+Fixant l'astre pourpre, Wang Lin agita la main droite et son espace de stockage s'ouvrit. L'ancien démon, enfermé dans le corps de Xue Shenzi, apparut, et Wang Lin lui saisit le cou.
 
 « Parle! Quel est ce secret? »
 

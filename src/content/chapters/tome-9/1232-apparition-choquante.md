@@ -8,7 +8,7 @@ slug: apparition-choquante
 ---
 « Feu du monde, écoutez mon commandement: brûlez! » La voix de Wang Lin laissait transparaître une intention glaciale. À l'instant même où il parla, le feu entourant le mille-pattes subit un changement stupéfiant!
 
-L'Oiseau Vermillon de Wang Lin avait traversé son troisième éveil et s'était fusionné avec la loi du feu, devenant une partie intégrante de celle-ci. Face à Wang Lin, tout pratiquant de techniques de feu était sans recours : à moins que leur feu ne soit en dehors de la loi, il pourrait l'éteindre dès qu'il le souhaiterait!
+Le Suzaku de Wang Lin avait traversé son troisième éveil et s'était fusionné avec la loi du feu, devenant une partie intégrante de celle-ci. Face à Wang Lin, tout pratiquant de techniques de feu était sans recours : à moins que leur feu ne soit en dehors de la loi, il pourrait l'éteindre dès qu'il le souhaiterait!
 
 Dès que les paroles de Wang Lin furent prononcées, la mer de feu entourant le mille-pattes rouge trembla soudainement avant de s'élancer sur la créature.
 
@@ -86,13 +86,13 @@ Le corps du mille-pattes marqua un temps d'arrêt indescriptible et ses yeux dev
 
 Wang Lin leva sa main droite et pointa du doigt. Face à quiconque manipule le feu, nul besoin de sorts complexes pour décider de l'issue du combat! Sous la pointe de son doigt, le feu bleu profond qui l'entourait se condensa et jaillit.
 
-En s'élançant, la lumière bleue vacilla et se métamorphosa en un immense Oiseau Vermillon bleu. L'oiseau poussa un cri et chargea le mille-pattes.
+En s'élançant, la lumière bleue vacilla et se métamorphosa en un immense Suzaku bleu. L'oiseau poussa un cri et chargea le mille-pattes.
 
 Le mille-pattes poussa immédiatement un rugissement; sa partie supérieure se redressa telle un serpent pour faire face à Suzaku. Le feu autour de lui se condensa frénétiquement pour former une force monstrueuse à l'extérieur de son corps, avant de percuter l'oiseau qui approchait à grande vitesse.
 
 Un grondement assourdissant résonna à travers le Royaume Luan Shou Wu, et le sens des bêtes de plusieurs spécimens de rang 12 se dirigea instantanément vers ce point. Cependant, à cet instant précis, une aura d'une puissance telle qu'elle choqua même Wang Lin émana des profondeurs du Royaume et supprima les autres bêtes de rang 12!
 
-Le fracas fut céleste lorsque les deux feux entrèrent en collision. L'Oiseau Vermillon poussa un cri chargé de regret avant de se replier dans le corps de Wang Lin. Dès son retour, Wang Lin s'envola au loin.
+Le fracas fut céleste lorsque les deux feux entrèrent en collision. Le Suzaku poussa un cri chargé de regret avant de se replier dans le corps de Wang Lin. Dès son retour, Wang Lin s'envola au loin.
 
 La mer de feu devant le mille-pattes s'effondra instantanément et son corps explosa sous la pression du feu repoussé. La moitié de sa carcasse était un amas sanglant, mais il ne mourut pas. Il laissa échapper un sifflement misérable et se retira rapidement dans la brume qui se dissipait.
 

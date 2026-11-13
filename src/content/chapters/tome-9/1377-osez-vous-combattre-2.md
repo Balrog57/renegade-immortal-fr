@@ -90,13 +90,13 @@ Le sang atterrit sur la pilule dorée, qui s'assombrit instantanément pour éme
 
 Wang Lin agita la main droite et les Cristaux de Mutation de Feu Déchaîné qu'il avait obtenus s'envolèrent. Le feu issu de son œil gauche enveloppa les cristaux qui commencèrent à fusionner.
 
-« Ces cristaux ne pourront pas éveiller mon Oiseau Vermillon pour la quatrième fois, mais avec ma maîtrise du feu, je peux en faire des trésors. Leur force destructrice ne sera pas inférieure à celle de la Pilule d'Effondrement du Dragon que je viens de raffiner! »
+« Ces cristaux ne pourront pas éveiller mon Suzaku pour la quatrième fois, mais avec ma maîtrise du feu, je peux en faire des trésors. Leur force destructrice ne sera pas inférieure à celle de la Pilule d'Effondrement du Dragon que je viens de raffiner! »
 
 Wang Lin n'hésita pas à utiliser le sortilège de fusion. Un motif de Suzaku apparut vaguement dans son œil gauche, rendant les flammes encore plus ardentes!
 
 « Cinquième niveau de Fléau Céleste, et alors? Si vous venez avec votre avatar, je vous ferai périr ici même! Si vous venez avec votre corps originel en utilisant votre culture de la troisième étape, je ne crois pas que vous survivrez. Après tout, un cultivateur de la troisième étape peut aisément détruire toute la Terre Déchue! Même si personne ne l'arrête, je n'aurai qu'à fuir. L'appât est déjà posé auprès du Clan Huo Que, ils viendront naturellement à ma rencontre! »
 
-Wang Lin laissa échapper un reniflement froid et le feu devant lui se rétracta. Tous les Cristaux de Mutation avaient été raffinés en un unique cristal bleu foncé. Il contenait non seulement l'essence du feu, mais portait aussi l'ombre d'un Oiseau Vermillon!
+Wang Lin laissa échapper un reniflement froid et le feu devant lui se rétracta. Tous les Cristaux de Mutation avaient été raffinés en un unique cristal bleu foncé. Il contenait non seulement l'essence du feu, mais portait aussi l'ombre d'un Suzaku!
 
 L'intention meurtrière dans ses yeux s'intensifia. Il leva la main droite vers le ciel et deux bêtes-cerfs apparurent. Dès leur manifestation, Wang Lin cria: « Il reste un dernier sceau sur l'épée brisée plantée dans l'os de cerf. Je veux voir si je peux le rompre maintenant que mon essence de tonnerre est complète! »
 

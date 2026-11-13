@@ -86,7 +86,7 @@ Les anciens dieux portaient leurs étoiles entre les sourcils, les anciens démo
 
 Les sept étoiles de l'ancien démon tournèrent rapidement. Au moment où il fit un pas, le cri de Suzaku retentit à travers le monde. L'énergie démoniaque autour de Bei Luo fluctua; il s'immobilisa entre deux royaumes, puis leva les yeux.
 
-« L'Oiseau Vermillon des quatre Grandes Bêtes Divines du royaume scellé... »
+« Le Suzaku des quatre Grandes Bêtes Divines du royaume scellé... »
 
 Bei Luo réfléchit un instant avant que les étoiles de son œil droit ne disparaissent. Puis, d'un pas, il disparut sans laisser de trace.
 
@@ -98,13 +98,13 @@ Les ombres hideuses dans la rivière sous le pont commencèrent à trembler, ter
 
 La bouteille de jade blanc devant l'individu trembla lorsque les ondes du cri de Suzaku jaillirent de l'intérieur. Les vibrations atteignirent leur paroxysme et le cri était sur le point de percer la paroi!
 
-« Maudit soit, comment un Oiseau Vermillon d'un royaume scellé a-t-il pu entrer?! »
+« Maudit soit, comment un Suzaku d'un royaume scellé a-t-il pu entrer?! »
 
 On entendit un grincement de dents dans l'obscurité du brouillard noir. L'homme leva sa main droite et d'innombrables filaments d'énergie démoniaque apparurent autour de son doigt, se condensant en une ombre démoniaque. D'un geste du doigt, l'ombre fonça en rugissant vers la bouteille et s'y fondit en un instant.
 
 Dans le monde de la bouteille, la mer de flammes qui entourait Wang Lin se précipita vers Suzaku.
 
-Cet Oiseau Vermillon mesurait environ cent pieds de haut et était d'un rouge éclatant. Lorsqu'il déployait ses ailes, son envergure atteignait des centaines de pieds. Sa queue enflammée lui conférait une majesté absolue!
+Ce Suzaku mesurait environ cent pieds de haut et était d'un rouge éclatant. Lorsqu'il déployait ses ailes, son envergure atteignait des centaines de pieds. Sa queue enflammée lui conférait une majesté absolue!
 
 Plus particulièrement, les yeux de Suzaku affichaient un regard froid; il était le miroir exact du regard de Wang Lin.
 
@@ -134,7 +134,7 @@ Le Dragon Azure était le plus puissant. Ceux qui l'éveillaient étaient rares,
 
 Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Divin de Suzaku faisait face à son troisième Fléau Céleste — ce qui l'empêchait d'utiliser pleinement sa culture —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement!
 
-L'Oiseau Vermillon était le plus difficile à éveiller parmi les Quatre Divinités; même le Dragon Azure ne pouvait l'égaler. Ceux qui réussissaient leur éveil et survivaient aux épreuves pour devenir un Empereur Divin étaient bien trop peu nombreux!
+Le Suzaku était le plus difficile à éveiller parmi les Quatre Divinités; même le Dragon Azure ne pouvait l'égaler. Ceux qui réussissaient leur éveil et survivaient aux épreuves pour devenir un Empereur Divin étaient bien trop peu nombreux!
 
 Ceux qui possédaient un talent prodigieux et la légendaire constitution de Suzaku devaient accumuler une puissance de flammes suffisante par leur culture pour activer l'éveil de Suzaku! Ce n'était qu'à cette condition qu'ils pourraient supporter une chaleur inimaginable sans mourir durant le processus!
 

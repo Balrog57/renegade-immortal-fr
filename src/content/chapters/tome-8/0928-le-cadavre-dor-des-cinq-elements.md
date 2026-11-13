@@ -44,7 +44,7 @@ L'impact causé par l'effondrement de la feuille fut dispersé par le vortex et 
 
 Le vortex et les gouttes de pluie formés par *Invoquez la Pluie* furent projetés par Wang Lin pour charger la femme en robe bleue.
 
-À ce moment précis, le Saint Démon Noir, qui perdait manifestement face au Dieu de Sang et à l'être de sang, s'échappa rapidement. En un éclair, il chargea directement vers Wang Lin.
+À ce moment précis, le Saint Démon Noir, qui perdait manifestement face à Xue Shenzi et à l'être de sang, s'échappa rapidement. En un éclair, il chargea directement vers Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent et il recula sans hésiter. Bien qu'il tentât de tuer cette femme, il ne cherchait pas réellement sa mort. Il devait simplement faire croire que lui, Xu Mu, fournissait des efforts durant cette bataille.
 

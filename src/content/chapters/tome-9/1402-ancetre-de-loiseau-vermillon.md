@@ -54,7 +54,7 @@ Le vieil homme fixa les cinq essences différentes flottant au-dessus de Wang Li
 
 « Pas d'autres? C'est bien, c'est bien. » Le vieil homme regardait Wang Lin comme s'il contemplait un monstre.
 
-« Cinq essences... Cinq Essences... Maudit soit-il, ce petit gars est plus un monstre que le quatrième Oiseau Vermillon!! Comment un tel monstre peut-il apparaître dans ce monde?! » Bien qu'il parlât ainsi, l'excitation dans ses yeux était indescriptible.
+« Cinq essences... Cinq Essences... Maudit soit-il, ce petit gars est plus un monstre que le quatrième Suzaku!! Comment un tel monstre peut-il apparaître dans ce monde?! » Bien qu'il parlât ainsi, l'excitation dans ses yeux était indescriptible.
 
 Le clair de lune était intense et la brise légère continuait de souffler, faisant bruisser la végétation. La nuit passa lentement et l'aube finit par se lever, dissipant l'obscurité et le froid nocturnes.
 
@@ -72,7 +72,7 @@ Le vieil homme regarda Wang Lin avec une lueur étrange dans les yeux. Il toussa
 
 Wang Lin fut surpris un instant en le regardant, puis une pensée lui traversa l'esprit: « Vous... seriez-vous... Suzaku de la première génération? »
 
-Le vieil homme rit et secoua la tête. « Ce vieil homme n'est pas Suzaku de la première génération, mais le deuxième! Le temps a passé et les choses sont complexes. L'Oiseau Vermillon de la quatrième génération est également présent. Tu es le deuxième membre du clan que je vois après lui. »
+Le vieil homme rit et secoua la tête. « Ce vieil homme n'est pas Suzaku de la première génération, mais le deuxième! Le temps a passé et les choses sont complexes. Le Suzaku de la quatrième génération est également présent. Tu es le deuxième membre du clan que je vois après lui. »
 
 Wang Lin resta silencieux un moment, puis demanda avec hésitation: « Êtes-vous le Grand Empereur? »
 

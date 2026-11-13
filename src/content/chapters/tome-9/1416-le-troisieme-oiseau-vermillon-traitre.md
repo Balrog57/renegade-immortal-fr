@@ -8,7 +8,7 @@ slug: le-troisieme-oiseau-vermillon-traitre
 ---
 À l'intérieur de l'Épreuve Céleste, Wang Lin fixa la statue géante et ses yeux s'illuminèrent.
 
-Cette statue était bien trop étrange; peu importe comment Wang Lin la regardait, elle ne ressemblait pas à un cultivateur. Elle semblait plutôt avoir été façonnée à partir d'un Oiseau Vermillon.
+Cette statue était bien trop étrange; peu importe comment Wang Lin la regardait, elle ne ressemblait pas à un cultivateur. Elle semblait plutôt avoir été façonnée à partir d'un Suzaku.
 
 Après avoir médité un instant, Wang Lin joignit les mains devant la statue et s'inclina. Il dit: « Ce junior, de la sixième génération de Suzaku, salue l'Ancêtre. »
 
@@ -46,13 +46,13 @@ Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et o
 
 Le vieil homme au visage Yin et Yang hésita un instant avant de changer de direction, guidant Wang Yue vers la localisation de la Tombe Antique.
 
-Sur la Planète du Grand Empereur, les dizaines de milliers de cultivateurs avaient tous les yeux rivés sur l'encens céleste quand l'expression du jeune homme changea brusquement. Sans hésiter, il joignit les mains devant le Vieux Oiseau Vermillon et sourit: « Amis, j'ai une autre affaire à régler, je ne resterai donc pas pour la cérémonie. Adieu! »
+Sur la Planète du Grand Empereur, les dizaines de milliers de cultivateurs avaient tous les yeux rivés sur l'encens céleste quand l'expression du jeune homme changea brusquement. Sans hésiter, il joignit les mains devant le Vieux Suzaku et sourit: « Amis, j'ai une autre affaire à régler, je ne resterai donc pas pour la cérémonie. Adieu! »
 
 Sur ces mots, il se retourna et fit un pas dans le vide. Son corps se changea en éclats de lumière et disparut. Ce changement soudain stupéfia l'assistance, et les visages de tous les cultivateurs du troisième niveau se crispèrent.
 
-Les yeux de Lanmeng Daozun se rétrécirent tandis qu'il levait le regard. Après une courte réflexion, il salua le Vieux Oiseau Vermillon: « Cette affaire est étrange, je dois aller vérifier. » Puis il jeta un regard à Li Qianmei à ses côtés, soupira intérieurement et agita sa grande manche; une lumière bleue enveloppa le père et la fille avant qu'ils ne disparaissent.
+Les yeux de Lanmeng Daozun se rétrécirent tandis qu'il levait le regard. Après une courte réflexion, il salua le Vieux Suzaku: « Cette affaire est étrange, je dois aller vérifier. » Puis il jeta un regard à Li Qianmei à ses côtés, soupira intérieurement et agita sa grande manche; une lumière bleue enveloppa le père et la fille avant qu'ils ne disparaissent.
 
-Il y avait aussi le vieil homme assis sur le lézard; ses yeux brillaient d'une lueur singulière. Sa bouche, scellée par une aiguille, tressaillit, puis il salua le Vieux Oiseau Vermillon sans prononcer un mot. Sa main droite frappa le lézard qui s'élança dans un sifflement.
+Il y avait aussi le vieil homme assis sur le lézard; ses yeux brillaient d'une lueur singulière. Sa bouche, scellée par une aiguille, tressaillit, puis il salua le Vieux Suzaku sans prononcer un mot. Sa main droite frappa le lézard qui s'élança dans un sifflement.
 
 La Grande Maîtresse Yun Luo et le Maître Simo échangèrent un regard. Elle joignit les mains, prête à parler, quand soudain de la fumée s'échappa de l'encens céleste.
 
@@ -70,7 +70,7 @@ Dès son apparition, le feu dégagea une force destructrice terrifiante. Trois r
 
 Ce n'était pas une épreuve : ce feu tentait de raffiner son âme!
 
-Wang Lin sentait clairement que si son Oiseau Vermillon n'avait pas connu son quatrième éveil et si le Feu Éthéré n'était pas apparu dans son corps, son âme aurait été réduite en cendres après seulement trois respirations.
+Wang Lin sentait clairement que si son Suzaku n'avait pas connu son quatrième éveil et si le Feu Éthéré n'était pas apparu dans son corps, son âme aurait été réduite en cendres après seulement trois respirations.
 
 Sur la Planète du Grand Empereur, son corps, privé de son âme, commença à trembler et de grosses perles de sueur roulèrent sur son front. Cependant, dès qu'elles apparaissaient, elles se transformaient en brume. Son corps était tel un morceau de fer incandescent sur le point d'être détruit par la chaleur intérieure!
 
@@ -82,13 +82,13 @@ Sur la Planète du Grand Empereur, les cultivateurs fixaient le corps de Wang Li
 
 Après avoir tenu cinq respirations, Wang Lin rugit immédiatement: « Le Clan Zhu Que réside dans le Système Stellaire Antique, alors pourquoi le Clan Huo Que existe-t-il? »
 
-« Le troisième Oiseau Vermillon traître a été créé par l'ennemi. Il a volé mes trésors et s'est enfui pour fonder le Clan Huo Que. Étant scellé ici, je n'ai pu faire le ménage! De plus, l'existence du Clan Huo Que me sert; » répondit simplement la voix bourdonnante avant de retomber dans le silence.
+« Le troisième Suzaku traître a été créé par l'ennemi. Il a volé mes trésors et s'est enfui pour fonder le Clan Huo Que. Étant scellé ici, je n'ai pu faire le ménage! De plus, l'existence du Clan Huo Que me sert; » répondit simplement la voix bourdonnante avant de retomber dans le silence.
 
 Le feu autour de Wang Lin redoubla d'intensité. Le brasier de l'Ancêtre se transforma en une tempête de flammes. Emporté par l'orage, le feu aux neuf couleurs entourant Wang Lin s'effondra. Une douleur atroce le submergea alors qu'il recrachait une bouffée d'énergie de son âme. Son visage devint instantanément blême comme la mort.
 
 La blessure infligée à son âme atteignit son corps physique. Sur la Planète du Grand Empereur, son corps trembla et du sang jaillit du coin de sa bouche. Cependant, avant même qu'il ne puisse toucher le sol, il fut réduit en cendres et se dissipa en une fumée noire.
 
-Témoin de cette scène, le Vieux Oiseau Vermillon prit un air grave et son expression devint extrêmement sombre.
+Témoin de cette scène, le Vieux Suzaku prit un air grave et son expression devint extrêmement sombre.
 
 « L'Ancêtre de la première génération a-t-il perdu la raison pour utiliser la Flamme Infinie de Suzaku pour une épreuve?! Le but de l'Épreuve Céleste devrait être d'offrir une grande fortune; quel est le sens d'un tel comportement?! »
 

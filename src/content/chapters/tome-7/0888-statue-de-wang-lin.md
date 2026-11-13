@@ -29,7 +29,7 @@ Zhou Wutai se tenait au sommet du Mont Suzaku. Ses yeux brillaient comme des éc
 
 Seuls quelques-uns de ces cultivateurs avaient déjà rencontré Wang Lin. Tous s'étaient améliorés au cours des centaines d'années écoulées. La vieille femme nommée Bai Xue descendit du ciel. En tant qu'Ancienne de la Secte du Chemin Immortel, la planète Suzaku était son foyer; elle devait donc la protéger coûte que coûte!
 
-Il convient de noter que l'un des vieillards, vêtu d'une robe jaune, dégageait une aura céleste et portait une épée dans le dos. Cependant, comme il se tenait à l'arrière, il était évident que son statut parmi eux n'était pas très élevé. Si Wang Lin avait vu cette personne, il aurait été choqué: c'était le chef de la Secte Heng Yue, Huanglong!
+Il convient de noter que l'un des vieillards, vêtu d'une robe jaune, dégageait une aura céleste et portait une épée dans le dos. Cependant, comme il se tenait à l'arrière, il était évident que son statut parmi eux n'était pas très élevé. Si Wang Lin avait vu cette personne, il aurait été choqué: c'était le chef de la Secte Heng Yue, Huang Long!
 
 À cet instant, il affichait une expression sérieuse, sans la moindre fausseté. Cependant, des lueurs d'amusement y perçaient par moments, mais nul ne pouvait les déceler.
 

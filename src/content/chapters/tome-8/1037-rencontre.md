@@ -108,9 +108,9 @@ Des flammes rouges surgissaient de l'horizon lointain, comme si elles venaient c
 
 Ces flammes rouges se rapprochaient progressivement, devenant de plus en plus éclatantes. La lumière était d'une intensité extrême, donnant l'impression que des flammes infinies allaient balayer les étoiles elles-mêmes. Elles avançaient à une vitesse inimaginable.
 
-Un Oiseau Vermillon colossal, dont les ailes s'étendaient sur plusieurs centaines de li, volait en tête de ce brasier.
+Un Suzaku colossal, dont les ailes s'étendaient sur plusieurs centaines de li, volait en tête de ce brasier.
 
-Cet Oiseau Vermillon était composé de feu pur, et sa chaleur prodigieuse pouvait être ressentie de très loin. Cette chaleur allait bouleverser tous les cultivateurs.
+Ce Suzaku était composé de feu pur, et sa chaleur prodigieuse pouvait être ressentie de très loin. Cette chaleur allait bouleverser tous les cultivateurs.
 
 Partout où Suzaku passait, les pupilles des cultivateurs alentour se rétractèrent et ils s'empressèrent de fuir pour l'éviter. Ils n'osaient absolument pas s'en approcher. Tout cultivateur puissant doté d'une certaine connaissance du monde sentit soudainement un nom ancien exploser dans son esprit en apercevant l'oiseau!
 

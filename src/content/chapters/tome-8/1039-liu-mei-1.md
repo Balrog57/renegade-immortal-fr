@@ -92,7 +92,7 @@ Atteindre le sommet du stade avancé du Scruteur du Nirvana n'était pas diffici
 
 Cependant, c'était un processus de longue haleine, car il fallait expérimenter et voir l'immensité du monde pour réussir. Personne ne pouvait égaler Wang Lin, dont l'esprit pouvait s'étendre sur tout le Système Stellaire de l'Alliance grâce à la Perle Défiant le Ciel pour observer toutes les lois existantes.
 
-L'esprit de Wang Lin continua sa progression et il vit une mer de flammes approcher. Un géant Oiseau Vermillon émettant une chaleur extrême menait cette mer de feu.
+L'esprit de Wang Lin continua sa progression et il vit une mer de flammes approcher. Un géant Suzaku émettant une chaleur extrême menait cette mer de feu.
 
 De vastes fissures apparaissaient dans l'espace par où passait Suzaku, comme si la réalité pouvait s'effondrer d'un simple contact. Tous les météores qui s'approchaient de lui étaient réduits en cendres.
 
@@ -104,9 +104,9 @@ De loin, on aurait dit qu'il y avait pas moins de 1 000 cultivateurs derrière S
 
 Ces individus se déplaçaient avec rapidité derrière l'oiseau flamboyant!
 
-L'Oiseau Vermillon semblait familier à Wang Lin. Au moment où son esprit le frôla, les yeux ardents de la créature s'illuminèrent et son corps trembla. Un cri puissant de Suzaku retentit immédiatement!
+Le Suzaku semblait familier à Wang Lin. Au moment où son esprit le frôla, les yeux ardents de la créature s'illuminèrent et son corps trembla. Un cri puissant de Suzaku retentit immédiatement!
 
-Une fois l'esprit de Wang Lin passé, la confusion envahit le géant Oiseau Vermillon.
+Une fois l'esprit de Wang Lin passé, la confusion envahit le géant Suzaku.
 
 L'oiseau n'était pas le seul troublé. Les cultivateurs derrière lui étaient également perplexes, en particulier les six Anciens qui se regardèrent avec surprise.
 

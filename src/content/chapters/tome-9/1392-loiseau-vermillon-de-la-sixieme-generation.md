@@ -44,7 +44,7 @@ Après plusieurs tentatives, Xu Liguo continua de jurer tout en fixant l'extéri
 
 Ce jour-là, alors que Xu Liguo était encore dans un état second, il se retourna soudainement. Au plus profond de la grotte, la boule de feu brûlait depuis un mois.
 
-Peu après, un rugissement violent retentit de la boule de feu; les flammes prirent la forme d'un immense Oiseau Vermillon, parmi des étincelles tourbillonnantes, et poussèrent un cri strident!
+Peu après, un rugissement violent retentit de la boule de feu; les flammes prirent la forme d'un immense Suzaku, parmi des étincelles tourbillonnantes, et poussèrent un cri strident!
 
 Puis, une silhouette apparut lentement de l'intérieur du brasier. D'abord floue, la silhouette devint plus nette à mesure que la personne avançait!
 
@@ -56,7 +56,7 @@ Liu Jinbiao ressemblait exactement à ce qu'il était, mais le sentiment qu'il d
 
 Alors qu'il se tenait là, une pression invisible émanait de lui, assez puissante pour terrasser quiconque le voyait.
 
-Un feu entourait Liu Jinbiao, révélant l'apparence d'un Oiseau Vermillon. Son regard était indifférent et calme. Il manifestait sa puissance sans colère, et lorsqu'il balaya Xu Liguo du regard, ce dernier en eut le souffle coupé.
+Un feu entourait Liu Jinbiao, révélant l'apparence d'un Suzaku. Son regard était indifférent et calme. Il manifestait sa puissance sans colère, et lorsqu'il balaya Xu Liguo du regard, ce dernier en eut le souffle coupé.
 
 La culture de Liu Jinbiao était erratique; tantôt extrêmement puissante, tantôt ordinaire, mais c'était cette instabilité qui le rendait mystérieux. Bien que son regard fût indifférent, une profonde sensation d'ancienneté émanait de ses yeux.
 

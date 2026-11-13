@@ -24,7 +24,7 @@ Le tatouage de feu bleu brûlait entre ses sourcils. Wang Lin poussa un rugissem
 
 Il semblait que Suzaku soit devenu l'âme originelle de Wang Lin. À cet instant, son âme originelle réintégra ce corps!
 
-Puis, une nouvelle armure se matérialisa autour de lui. C'était une armure en forme de Suzaku, entièrement bleue. Revêtu de cette parure, Wang Lin ressemblait à un noble Oiseau Vermillon!
+Puis, une nouvelle armure se matérialisa autour de lui. C'était une armure en forme de Suzaku, entièrement bleue. Revêtu de cette parure, Wang Lin ressemblait à un noble Suzaku!
 
 « J'ordonne au feu du monde de converger! » rugit Wang Lin. Toutes les flammes bleues qui emplissaient le Royaume aux Sept Couleurs commencèrent à se rassembler comme pour saluer leur seigneur!
 

@@ -6,29 +6,29 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1427 - Engraved Ambition
 slug: lambition-gravee
 ---
-« Souvenez-vous, sauf si cela est absolument nécessaire, n’utilisez pas ce sort! » Le vieux Oiseau Vermillon avait l'air extrêmement sérieux. Après avoir fini de parler, il prit une profonde inspiration et forma un étrange sceau avec ses mains.
+« Souvenez-vous, sauf si cela est absolument nécessaire, n’utilisez pas ce sort! » Le vieux Suzaku avait l'air extrêmement sérieux. Après avoir fini de parler, il prit une profonde inspiration et forma un étrange sceau avec ses mains.
 
-À mesure que le sceau apparaissait, des flammes éthérées jaillirent des sourcils du vieux Oiseau Vermillon pour pénétrer dans la formation. Cela fit briller le sceau d'un éclat rouge, et les deux fusionnèrent pour former un os de feu d'environ dix pieds de long.
+À mesure que le sceau apparaissait, des flammes éthérées jaillirent des sourcils du vieux Suzaku pour pénétrer dans la formation. Cela fit briller le sceau d'un éclat rouge, et les deux fusionnèrent pour former un os de feu d'environ dix pieds de long.
 
 Il n'était peut-être pas approprié de l'appeler un os; cela ressemblait plutôt à un bâton, mais il était parfaitement droit.
 
-Dès que cet os de feu apparut, le regard du vieux Oiseau Vermillon se fit grave. Ses mains formèrent de nouveaux sceaux et de fines lignes commencèrent à apparaître. Elles n'entouraient pas l'os de feu, mais s'étendaient depuis sa pointe.
+Dès que cet os de feu apparut, le regard du vieux Suzaku se fit grave. Ses mains formèrent de nouveaux sceaux et de fines lignes commencèrent à apparaître. Elles n'entouraient pas l'os de feu, mais s'étendaient depuis sa pointe.
 
-L'objet formé par le sort du vieux Oiseau Vermillon avait un aspect plutôt étrange. Si l'on tendait des feuilles de papier huilé entre les lignes, il ressemblerait énormément aux ombrelles utilisées par les mortels les jours de pluie.
+L'objet formé par le sort du vieux Suzaku avait un aspect plutôt étrange. Si l'on tendait des feuilles de papier huilé entre les lignes, il ressemblerait énormément aux ombrelles utilisées par les mortels les jours de pluie.
 
-Wang Lin observait la scène intensément. Il avait vu le vieux Oiseau Vermillon créer deux séries de sceaux distinctes. La première série comprenait 999 sceaux en un instant. La seconde était encore plus impressionnante; il en avait créé exactement 9 999 en un éclair!
+Wang Lin observait la scène intensément. Il avait vu le vieux Suzaku créer deux séries de sceaux distinctes. La première série comprenait 999 sceaux en un instant. La seconde était encore plus impressionnante; il en avait créé exactement 9 999 en un éclair!
 
 Aucune fluctuation d'énergie originelle ne fut libérée, et les nuages ne se dissipèrent pas. Les environs restaient extrêmement calmes.
 
 C'était comme si rien n'avait changé.
 
-Après avoir terminé ces deux séries de sceaux, le vieux Oiseau Vermillon devint encore plus solennel. Il prit une profonde inspiration et ses yeux brillèrent d'une lueur étrange. Ses mains s'activèrent de concert pour former des sceaux, puis une lumière commença à se propager dans toutes les directions, pénétrant la surface du lac.
+Après avoir terminé ces deux séries de sceaux, le vieux Suzaku devint encore plus solennel. Il prit une profonde inspiration et ses yeux brillèrent d'une lueur étrange. Ses mains s'activèrent de concert pour former des sceaux, puis une lumière commença à se propager dans toutes les directions, pénétrant la surface du lac.
 
-Les mains du vieux Oiseau Vermillon s'agitèrent de plus en plus vite et, sans aucune pause, les sceaux apparurent les uns après les autres. Un, cent, mille, dix mille, cent mille... si rapidement qu'ils ne devinrent qu'un flou pour l'œil!
+Les mains du vieux Suzaku s'agitèrent de plus en plus vite et, sans aucune pause, les sceaux apparurent les uns après les autres. Un, cent, mille, dix mille, cent mille... si rapidement qu'ils ne devinrent qu'un flou pour l'œil!
 
 La vélocité de ses mains était telle qu'il était impossible de les suivre à l'œil nu; même en utilisant le Sens Divin, on aurait été stoppé par une force mystérieuse.
 
-Le vieux Oiseau Vermillon laissa échapper un rugissement. Le nombre de sceaux dans ses mains avait déjà dépassé le million. Un million de sceaux apparurent simultanément pour former une tempête qui chargea l'os de feu!
+Le vieux Suzaku laissa échapper un rugissement. Le nombre de sceaux dans ses mains avait déjà dépassé le million. Un million de sceaux apparurent simultanément pour former une tempête qui chargea l'os de feu!
 
 En un éclair, la tempête fusionna avec l'os de feu et s'élança vers le ciel!
 
@@ -38,7 +38,7 @@ La tempête semblait avoir formé une immense ombrelle qui ne s'était pas encor
 
 Le ciel entier était occupé par ces dragons de feu qui encerclaient l'ombrelle en rugissant. Ce spectacle pouvait être vu depuis n'importe quel point de la Planète du Grand Empereur!
 
-« Parapluie du Royaume Brûlant! » Le vieux Oiseau Vermillon poussa un cri et la tempête cessa soudainement de tourner. Elle resta suspendue, immobile, dans les airs!
+« Parapluie du Royaume Brûlant! » Le vieux Suzaku poussa un cri et la tempête cessa soudainement de tourner. Elle resta suspendue, immobile, dans les airs!
 
 Une pression indicible descendit lentement du ciel. La végétation se courba et d'épaisses brumes d'eau jaillirent. Les poissons du lac nagèrent frénétiquement et des bulles bouillonnèrent à la surface de l'eau.
 
@@ -50,7 +50,7 @@ Le ciel était couvert d'une distorsion infinie, comme s'il ne pouvait supporter
 
 Toutes les planètes enveloppées par ce phénomène montraient les signes d'une sécheresse de dix mille ans. C'étaient les prémices d'une destruction inévitable.
 
-La respiration du vieux Oiseau Vermillon devint rauque. Il était évident que l'utilisation de ce sort lui imposait un stress immense.
+La respiration du vieux Suzaku devint rauque. Il était évident que l'utilisation de ce sort lui imposait un stress immense.
 
 « Le premier groupe contient 999 sceaux, le deuxième en compte 9 999, et les troisième et quatrième groupes en comptent chacun 990 000!
 
@@ -66,25 +66,25 @@ La respiration du vieux Oiseau Vermillon devint rauque. Il était évident que l
 
 « Je ne devrais pas vous transmettre ce sort, car il est trop dangereux et la moindre erreur mènerait au désastre! L'ancêtre a également dit que le sort était incomplet, car l'Ancien Souverain Céleste l'aurait, semble-t-il, secrètement appris d'un tiers; mais comme votre compréhension est très élevée, vous pourrez décider par vous-même! »
 
-Les paroles du vieux Oiseau Vermillon résonnaient tandis que Wang Lin fixait l'ombrelle dans le ciel. Son esprit était bouleversé!
+Les paroles du vieux Suzaku résonnaient tandis que Wang Lin fixait l'ombrelle dans le ciel. Son esprit était bouleversé!
 
-Il pensait initialement que le vieux Oiseau Vermillon lui transmettrait un sort de Dao. Il n'aurait jamais imaginé apprendre un sort possédant une puissance aussi inimaginable!
+Il pensait initialement que le vieux Suzaku lui transmettrait un sort de Dao. Il n'aurait jamais imaginé apprendre un sort possédant une puissance aussi inimaginable!
 
 « Ouvrir l'ombrelle huit fois peut détruire un monde de 10 milliards d'habitants... Est-ce que cela peut encore être considéré comme un simple sort?! »
 
-La respiration du vieux Oiseau Vermillon s'accéléra encore. Il agita la main et la tempête, qui s'était immobilisée, trembla puis commença à se dissiper.
+La respiration du vieux Suzaku s'accéléra encore. Il agita la main et la tempête, qui s'était immobilisée, trembla puis commença à se dissiper.
 
-« Je ne peux que vous le montrer, je ne peux pas l'ouvrir. Si je le faisais, cela causerait des dégâts colossaux ici! » Le vieux Oiseau Vermillon mordit le bout de sa langue et cracha un jet de sang chargé de sa culture du Vide Arcanique vers la tempête. Le sang se transforma en une brume monstrueuse qui fusionna avec la tempête pour la faire disparaître progressivement.
+« Je ne peux que vous le montrer, je ne peux pas l'ouvrir. Si je le faisais, cela causerait des dégâts colossaux ici! » Le vieux Suzaku mordit le bout de sa langue et cracha un jet de sang chargé de sa culture du Vide Arcanique vers la tempête. Le sang se transforma en une brume monstrueuse qui fusionna avec la tempête pour la faire disparaître progressivement.
 
 Il fallut un demi-bâton d'encens avant que la tempête ne s'évanouisse totalement. La Planète du Grand Empereur retrouva peu à peu son état normal et les distorsions s'estompèrent lentement.
 
 Bien que ce phénomène n'ait pas duré longtemps, il avait laissé Wang Lin le cuir chevelu hérissé et le regard étincelant. Bien que le sort n'ait pas été pleinement activé, Wang Lin en avait perçu l'essence. Son cœur battait la chamade.
 
-Le vieux Oiseau Vermillon ne se détendit qu'une fois le monde revenu à la normale. Il agita la main et une tablette de jade vola du vide vers Wang Lin.
+Le vieux Suzaku ne se détendit qu'une fois le monde revenu à la normale. Il agita la main et une tablette de jade vola du vide vers Wang Lin.
 
-« Ce jade contient tous les sceaux et la méthode pour ouvrir l'ombrelle. Mémorisez-les rapidement, et une fois que vous ne ferez plus d'erreur, détruisez le jade! » Après avoir parlé, le vieux Oiseau Vermillon s'assit, ferma les yeux et commença à cultiver.
+« Ce jade contient tous les sceaux et la méthode pour ouvrir l'ombrelle. Mémorisez-les rapidement, et une fois que vous ne ferez plus d'erreur, détruisez le jade! » Après avoir parlé, le vieux Suzaku s'assit, ferma les yeux et commença à cultiver.
 
-Wang Lin réceptionna la tablette de jade et la fixa. La scène du déploiement du sort par le vieux Oiseau Vermillon tournait en boucle dans son esprit. Wang Lin était tenté!
+Wang Lin réceptionna la tablette de jade et la fixa. La scène du déploiement du sort par le vieux Suzaku tournait en boucle dans son esprit. Wang Lin était tenté!
 
 Au cours de sa vie, il avait rarement été attiré par des sorts ou des trésors. Il avait passé sa vie à étudier les restrictions et en était devenu un grand maître. Pour un homme ordinaire, former près de deux millions de sceaux était une tâche quasi impossible.
 
@@ -92,7 +92,7 @@ C'était la réalité, et neuf respirations étaient bien trop courtes!
 
 Cependant, lorsqu'il était au stade de la Formation du Noyau, Wang Lin avait déjà l'habitude de former des sceaux très rapidement. Certaines restrictions ne pouvaient être posées ou brisées qu'en un instant, nécessitant ainsi une exécution massive de sceaux en un temps record.
 
-Le premier obstacle que la plupart des gens rencontraient n'était pas si difficile pour Wang Lin! Ce qui le choqua véritablement, ce fut ce que le vieux Oiseau Vermillon avait révélé sur le Parapluie du Royaume Brûlant!
+Le premier obstacle que la plupart des gens rencontraient n'était pas si difficile pour Wang Lin! Ce qui le choqua véritablement, ce fut ce que le vieux Suzaku avait révélé sur le Parapluie du Royaume Brûlant!
 
 « Issu de l'Ancien Souverain Céleste... Donc, il vient de l'Ancien Empereur Céleste qui l'a appris secrètement. Il est incomplet... » Wang Lin prit une profonde inspiration, une lueur de terreur dans les yeux.
 
@@ -102,7 +102,7 @@ Bien que ces paroles restent incertaines, si elles étaient vraies, leur portée
 
 « Que vaut mon niveau de culture actuel... Quelle est la taille de ce monde? Qu'y a-t-il au-delà de ce monde... » Après un moment, Wang Lin exhala longuement et une détermination farouche remplit son regard.
 
-Plus il en apprenait, plus il se sentait petit, mais Wang Lin ne renonça pas. Au contraire, cela attisa la volonté défiante qui brûlait dans son cœur, tout comme les paroles qu'il avait dites auparavant au premier Oiseau Vermillon!
+Plus il en apprenait, plus il se sentait petit, mais Wang Lin ne renonça pas. Au contraire, cela attisa la volonté défiante qui brûlait dans son cœur, tout comme les paroles qu'il avait dites auparavant au premier Suzaku!
 
 « Je le peux aussi! »
 

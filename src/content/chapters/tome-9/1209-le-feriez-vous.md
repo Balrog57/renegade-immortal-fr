@@ -52,13 +52,13 @@ La lumière aux sept couleurs tomba du ciel, mais elle commença immédiatement 
 
 L'œil gauche de Wang Lin dégageait un feu stupéfiant. Ce feu fut d'abord rouge, puis devint rapidement blanc. Cela fit que l'œil gauche de Wang Lin devint presque entièrement blanc!
 
-L'Oiseau Vermillon était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral de l'oiseau de feu invoqué par le membre du Clan Huo Que, le troisième éveil de Suzaku était arrivé!
+Le Suzaku était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral de l'oiseau de feu invoqué par le membre du Clan Huo Que, le troisième éveil de Suzaku était arrivé!
 
 À ce moment-là, la lumière aux sept couleurs continuait d'être repoussée et une vague de chaleur se propagea, prenant Wang Lin pour centre. La Restriction Temporelle s'était déjà rétablie, mais à cause du sceau, la température devint ici encore plus élevée!
 
 L'armure rouge cramoisi autour de Wang Lin absorba la chaleur émanant de son corps. Des flammes monstrueuses remplirent les environs. Ces flammes brûlantes semblaient défier le ciel lui-même!
 
-L'Oiseau Vermillon était l'être qui contrôlait tout le feu du monde. Nul n'en connaissait l'origine, mais la légende racontait qu'à la naissance du monde, celui-ci contenait cinq éléments, et que Suzaku était né de l'élément feu!
+Le Suzaku était l'être qui contrôlait tout le feu du monde. Nul n'en connaissait l'origine, mais la légende racontait qu'à la naissance du monde, celui-ci contenait cinq éléments, et que Suzaku était né de l'élément feu!
 
 Aujourd'hui, que la légende fût vraie ou non n'avait plus d'importance. L'essentiel était que le Clan Zhu Que existait depuis des temps immémoriaux. Ils étaient nés du feu et ne s'éteignaient jamais!
 

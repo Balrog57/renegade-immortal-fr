@@ -8,7 +8,7 @@ slug: les-quatre-tresors-sacres
 ---
 Dès l'instant où la goutte de sang rouge apparut, une flamme qui semblait ne pas appartenir à ce monde balaya le ciel. Le firmament fut alors enveloppé d'une lumière rouge.
 
-Finalement, cette flamme, dont l'existence même défiait les lois de ce monde, convergea vers la partie sud du ciel pour prendre la forme d'un Oiseau Vermillon. Celui-ci poussa un cri et surplomba l'assemblée avec une pointe de noblesse.
+Finalement, cette flamme, dont l'existence même défiait les lois de ce monde, convergea vers la partie sud du ciel pour prendre la forme d'un Suzaku. Celui-ci poussa un cri et surplomba l'assemblée avec une pointe de noblesse.
 
 Simultanément, les divers anciens de la Secte Divine du Dragon Azure, aux côtés de l'Empereur Divin de Suzaku, échangèrent des regards. L'ancien situé en tête, dont la robe était brodée de neuf Dragons Azure, prit une profonde inspiration et forma un sceau devant sa poitrine. Il laissa alors échapper un rugissement tandis qu'une aura puissante se propageait.
 
@@ -48,7 +48,7 @@ L'expression de Tian Yunzi devint sombre. L'Ancien Démon Ta Jia fixa également
 
 L'Empereur Divin de Suzaku s'était préparé. D'un geste de la main droite, il projeta la goutte de sang qu'il tenait vers Suzaku au sud, afin qu'elle fusionne avec lui.
 
-L'Oiseau Vermillon poussa aussitôt un cri strident, et les flammes qui l'entouraient s'intensifièrent violemment. Il chargea droit sur Tian Yunzi et l'Ancien Démon Ta Jia.
+Le Suzaku poussa aussitôt un cri strident, et les flammes qui l'entouraient s'intensifièrent violemment. Il chargea droit sur Tian Yunzi et l'Ancien Démon Ta Jia.
 
 Au même moment, les Sectes Divines du Dragon Azure, du Tigre Blanc et de la Tortue Noire firent de même. Les trois bêtes divines poussèrent des rugissements et fondirent sur leurs cibles, provoquant un impact inimaginable.
 

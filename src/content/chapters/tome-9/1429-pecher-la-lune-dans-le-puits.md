@@ -32,7 +32,7 @@ Tandis que le tatouage de tonnerre grondait, il fonça sur Liu Jinbiao aux côt�
 
 La silhouette au cœur des flammes ne tenta pas d'arrêter Wang Lin.
 
-« Très bien... Ce seigneur voit en toi Qing Lin, Qing Shui, et même Sima Mo... Tu savais que j'étais ici et pourtant tu as osé venir. Le vieil Oiseau Vermillon de la première génération t'a sans doute donné ce courage... Ou peut-être as-tu pensé que, gravement blessé, ce seigneur n'a jamais guéri au fil des ans, ce qui t'a donné l'envie de m'épier... »
+« Très bien... Ce seigneur voit en toi Qing Lin, Qing Shui, et même Sima Mo... Tu savais que j'étais ici et pourtant tu as osé venir. Le vieux Suzaku de la première génération t'a sans doute donné ce courage... Ou peut-être as-tu pensé que, gravement blessé, ce seigneur n'a jamais guéri au fil des ans, ce qui t'a donné l'envie de m'épier... »
 
 « C'est exact! » Une lueur d'intention meurtrière jaillit des yeux de Wang Lin alors que son visage se durcissait. Il fit un pas en avant et chargea la flamme aux sept couleurs. Le feu aux neuf couleurs de son œil gauche jaillit, formant un brasier éthéré qui bombarda les flammes septicolores.
 

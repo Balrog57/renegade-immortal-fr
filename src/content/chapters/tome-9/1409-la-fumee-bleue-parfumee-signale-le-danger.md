@@ -40,41 +40,41 @@ Le feu du karma s'embrasa et détruisit tout, mais il ne put détruire ni le cœ
 
 « Quel est l'intérêt de cultiver le dao impitoyable des cieux? J'ai cultivé avec mon obsession et j'ai utilisé cette obsession pour former le cycle du karma. Alors, si je n'atteins pas le paradis? Et alors si je vais en enfer, dans les neuf tours des dix-huit enfers? Tant que l'enfer est libre, qu'y a-t-il de mal à cela?! »
 
-Juste au moment où le feu du karma allait l'anéantir, un cri de Oiseau Vermillon retentit, fracassant le silence!
+Juste au moment où le feu du karma allait l'anéantir, un cri de Suzaku retentit, fracassant le silence!
 
-Un Oiseau Vermillon apparut au cœur des flammes noires. L'oiseau était immense, et il n'était plus bleu mais noir! C'était comme un phénix noir renaissant au sein du brasier sombre.
+Un Suzaku apparut au cœur des flammes noires. L'oiseau était immense, et il n'était plus bleu mais noir! C'était comme un phénix noir renaissant au sein du brasier sombre.
 
 Le cri de Suzaku résonna à travers le monde entier. Il pénétra l'Épreuve Humaine et se propagea depuis le bâton d'encens sur le dos de la tortue. Il ébranla la Planète du Grand Empereur tout entière!
 
 Miaoyin Daozun, élégant comme un jeune homme, attendait depuis plusieurs jours, mais il n'avait montré aucune impatience. Il venait de sortir une autre pêche et s'apprêtait à la manger quand son corps fut parcouru d'un tremblement. Il fixa le premier bâton d'encens!
 
-Le cri du Oiseau Vermillon résonna aux quatre coins du monde!
+Le cri du Suzaku résonna aux quatre coins du monde!
 
 Les yeux de Lanmeng Daozun brillèrent d'une lueur étrange, teintée d'un soupçon de choc.
 
-« Le cri d'un Oiseau Vermillon... Ce n'est pas un oiseau ordinaire, c'est... »
+« Le cri d'un Suzaku... Ce n'est pas un oiseau ordinaire, c'est... »
 
-Le cri de ce Oiseau Vermillon n'avait effectivement rien d'ordinaire. Il contenait une nature défiante et puissante qui ne céderait jamais rien. On aurait dit qu'il venait des enfers plutôt que des cieux!
+Le cri de ce Suzaku n'avait effectivement rien d'ordinaire. Il contenait une nature défiante et puissante qui ne céderait jamais rien. On aurait dit qu'il venait des enfers plutôt que des cieux!
 
 « Impossible! La Grande Maîtresse Yun Luo avait prévu que ce petit bâtard ferait face à une épreuve de vie ou de mort extrêmement difficile à surmonter! » L'expression du Maître Simo changea radicalement alors qu'il fixait le premier bâton d'encens.
 
 Le visage de la Grande Maîtresse Yun Luo afficha également un choc profond. Sa main droite, dissimulée sous sa manche, s'agita avec une telle rapidité qu'elle créa des images rémanentes. Cependant, ses doigts tremblèrent et les empreintes de ses cinq doigts se déchirèrent, laissant jaillir le sang. C'était comme si une force avait stoppé sa divination! Ou bien la situation actuelle de Wang Lin dépassait les capacités de son pouvoir divinatoire!
 
-Le vieux Oiseau Vermillon laissa paraître une pointe d'excitation et éclata d'un rire. Ses yeux s'illuminèrent. En tant que deuxième génération de Suzaku, il comprenait parfaitement ce cri. Rien qu'en l'entendant, il pouvait comprendre ce qui se jouait au sein de l'Épreuve Humaine!
+Le vieux Suzaku laissa paraître une pointe d'excitation et éclata d'un rire. Ses yeux s'illuminèrent. En tant que deuxième génération de Suzaku, il comprenait parfaitement ce cri. Rien qu'en l'entendant, il pouvait comprendre ce qui se jouait au sein de l'Épreuve Humaine!
 
-« Bon garçon, il a réussi à reformer son Oiseau Vermillon sous le feu du karma!! Après cela viendront les neuf rétributions karmiques. C'est la partie la plus périlleuse! »
+« Bon garçon, il a réussi à reformer son Suzaku sous le feu du karma!! Après cela viendront les neuf rétributions karmiques. C'est la partie la plus périlleuse! »
 
 Seul le vieil homme assis sur le lézard gardait les yeux clos, comme si rien de tout cela ne pouvait retenir son attention.
 
 La femme aux côtés de Lanmeng Daozun fixait intensément le premier bâton d'encens. Elle se mordillait la lèvre inférieure, tandis que des larmes chargées d'émotions complexes coulaient sur ses joues.
 
-À l'intérieur de l'Épreuve Humaine, le Oiseau Vermillon noir déploya ses ailes et s'élança vers les cieux. Son corps était enveloppé de flammes noires infinies dégageant une température inimaginable. Pourtant, cette chaleur n'affectait pas le monde extérieur, restant condensée sur le corps de l'oiseau.
+À l'intérieur de l'Épreuve Humaine, le Suzaku noir déploya ses ailes et s'élança vers les cieux. Son corps était enveloppé de flammes noires infinies dégageant une température inimaginable. Pourtant, cette chaleur n'affectait pas le monde extérieur, restant condensée sur le corps de l'oiseau.
 
-Le cri du Oiseau Vermillon devint encore plus puissant, porteur d'une fluctuation capable de bouleverser les esprits!
+Le cri du Suzaku devint encore plus puissant, porteur d'une fluctuation capable de bouleverser les esprits!
 
-L'Oiseau Vermillon noir était formé par l'âme de Wang Lin!
+Le Suzaku noir était formé par l'âme de Wang Lin!
 
-« Le feu du karma est allumé et va consumer le cycle du karma. Aidez mon Oiseau Vermillon à s'éveiller pour la quatrième fois! » L'Oiseau Vermillon noir siffla et chargea vers le ciel. Lorsqu'il atteignit son apogée, un brasier noir jaillit de son corps.
+« Le feu du karma est allumé et va consumer le cycle du karma. Aidez mon Suzaku à s'éveiller pour la quatrième fois! » Le Suzaku noir siffla et chargea vers le ciel. Lorsqu'il atteignit son apogée, un brasier noir jaillit de son corps.
 
 De loin, ce feu ressemblait à une torche géante, dont le cœur était Suzaku dansant!
 
@@ -84,9 +84,9 @@ En un clin d'œil, tout le ciel fut recouvert par ce feu noir, mais aucune créa
 
 Cette mer de feu couvrant la voûte céleste devint de plus en plus puissante, telle une vague violente balayant les cieux.
 
-« Bâton d'encens humain, embrase-toi!! » Le rugissement de Wang Lin devint la voix du Oiseau Vermillon et se propagea dans l'éther. La mer de feu se contracta soudainement vers Wang Lin pour former un pilier de flammes s'élançant vers le ciel.
+« Bâton d'encens humain, embrase-toi!! » Le rugissement de Wang Lin devint la voix du Suzaku et se propagea dans l'éther. La mer de feu se contracta soudainement vers Wang Lin pour former un pilier de flammes s'élançant vers le ciel.
 
-L'âme de Wang Lin se reforma au sommet du Oiseau Vermillon noir, au cœur des flammes. Il leva les yeux vers le firmament et agita la main.
+L'âme de Wang Lin se reforma au sommet du Suzaku noir, au cœur des flammes. Il leva les yeux vers le firmament et agita la main.
 
 *Grondements, grondements, grondements!*
 

@@ -6,19 +6,19 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 913 - Summon the Rain
 slug: invoquer-la-pluie
 ---
-L'expression du vieil homme se ternit et il s'écria: « Quel tueur Yu Fei? Xu Mu, me prends-tu pour un enfant de trois ans? N'invente pas de noms, et encore moins celui de Domaine Sha Yu! »
+L'expression du vieil homme se ternit et il s'écria: « Quel tueur Yu Fei? Xu Mu, me prends-tu pour un enfant de trois ans? N'invente pas de noms, et encore moins celui de Royaume Sha Yu! »
 
 Le visage de Wang Lin demeura impassible; il ne daigna même pas regarder le vieil homme. Au lieu de cela, son regard se posa sur Maître Yan Leizi.
 
-Tandis que Maître Yan Leizi fixait Wang Lin, la froideur de ses traits s'adoucit et il dit: « L'Alliance Xiu Zhen possède bel et bien un Domaine Sha Yu, et le Duo Tueur d'Âmes y existe réellement. Cependant, as-tu la preuve que tu l'as tué? »
+Tandis que Maître Yan Leizi fixait Wang Lin, la froideur de ses traits s'adoucit et il dit: « L'Alliance Xiu Zhen possède bel et bien un Royaume Sha Yu, et le Duo Tueur d'Âmes y existe réellement. Cependant, as-tu la preuve que tu l'as tué? »
 
 Dès que Maître Yan Leizi prit la parole, le vieil homme à ses côtés se tut immédiatement.
 
 Sans changer d'expression, Wang Lin frappa son sac de rangement, faisant apparaître une demi-branche d'arbre dans sa main. Des éclairs de tonnerre tourbillonnaient encore autour du bois. Wang Lin la projeta directement vers Maître Yan Leizi.
 
-Dans un rugissement de tonnerre, la branche vola vers Maître Yan Leizi qui l'attrapa. En l'examinant de plus près, il reconnut aussitôt qu'il s'agissait de l'un des trésors précieux du Domaine Sha Yu. Grâce à sa culture, il pouvait ressentir deux forces au sein de la branche: l'une appartenait manifestement à Wang Lin, et l'autre était une aura puissante et maléfique!
+Dans un rugissement de tonnerre, la branche vola vers Maître Yan Leizi qui l'attrapa. En l'examinant de plus près, il reconnut aussitôt qu'il s'agissait de l'un des trésors précieux du Royaume Sha Yu. Grâce à sa culture, il pouvait ressentir deux forces au sein de la branche: l'une appartenait manifestement à Wang Lin, et l'autre était une aura puissante et maléfique!
 
-« Exact, c'est bel et bien l'énergie d'épée d'un cultivateur de niveau Saint adjoint du Domaine Sha Yu! » Le regard de Maître Yan Leizi envers Wang Lin se fit empreint d'admiration.
+« Exact, c'est bel et bien l'énergie d'épée d'un cultivateur de niveau Saint adjoint du Royaume Sha Yu! » Le regard de Maître Yan Leizi envers Wang Lin se fit empreint d'admiration.
 
 Après avoir inspecté la branche, il la renvoya à Wang Lin avec un sourire: « Bien, Xu Mu, tu peux cultiver ici en toute tranquillité. Dans un mois, les renforts de Luotian arriveront et tu rejoindras l'armée pour envahir la région du Nord! »
 

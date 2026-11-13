@@ -10,23 +10,23 @@ Ce jeune homme était Wang Lin, celui qui avait quitté la Terre Yao Ling il y a
 
 Il y a deux ans, Wang Lin avait été gravement blessé sur la Terre Yao Ling. Son corps était profondément endommagé et son âme originelle était sur le point de s'effondrer. De plus, à cause des paroles de Mu Bingmei, la douleur dans son cœur avait provoqué une explosion de ses blessures, le faisant perdre connaissance.
 
-Lorsqu'il se réveilla, il était assis sur cette pierre blanche. Le vieil homme derrière lui était l'Empereur Divin du Oiseau Vermillon.
+Lorsqu'il se réveilla, il était assis sur cette pierre blanche. Le vieil homme derrière lui était l'Empereur Divin du Suzaku.
 
-Au cours de ces deux années, l'avatar de Wang Lin et son corps originel s'étaient séparés. Son corps originel s'était enfoncé profondément dans la Planète Divine du Oiseau Vermillon, tandis que son avatar était ici pour guérir.
+Au cours de ces deux années, l'avatar de Wang Lin et son corps originel s'étaient séparés. Son corps originel s'était enfoncé profondément dans la Planète Divine du Suzaku, tandis que son avatar était ici pour guérir.
 
 Durant ces deux années, l'énergie d'origine du feu de Wang Lin avait progressé par bonds prodigieux. Lorsqu'il était à la Terre Yao Ling, il avait déjà senti qu'il était proche du stade de Purificateur du Nirvana, mais il lui fallait encore une percée dans son domaine pour franchir le pas.
 
 Cette percée ne pouvait être forcée; plus on se montrait impatient, plus elle devenait difficile. Au cours des deux dernières années, l'esprit clair, Wang Lin avait continué à chercher la compréhension tout en absorbant l'énergie d'origine du feu. Son énergie d'origine avait désormais atteint son apogée.
 
-« Le pouvoir des Neuf Mystérieuses Transformations du Oiseau Vermillon augmente de plusieurs fois à chaque transformation. Cependant, ce sort est extrêmement difficile à cultiver et très peu d'Empereurs Divins du Oiseau Vermillon ont réussi à l'atteindre jusqu'à son apogée. » Derrière Wang Lin, le vieil homme leva sa main droite et pointa le dos de ce dernier.
+« Le pouvoir des Neuf Mystérieuses Transformations du Suzaku augmente de plusieurs fois à chaque transformation. Cependant, ce sort est extrêmement difficile à cultiver et très peu d'Empereurs Divins du Suzaku ont réussi à l'atteindre jusqu'à son apogée. » Derrière Wang Lin, le vieil homme leva sa main droite et pointa le dos de ce dernier.
 
 Une vague d'énergie d'origine entra immédiatement dans le corps de Wang Lin en provenance du vieil homme.
 
-« Avec ton niveau de culture actuel, tes deux éveils, l'apparition du Oiseau Vermillon blanc et l'armure de flamme du Oiseau Vermillon, tu devrais être capable de maîtriser la première transformation! »
+« Avec ton niveau de culture actuel, tes deux éveils, l'apparition du Suzaku blanc et l'armure de flamme du Suzaku, tu devrais être capable de maîtriser la première transformation! »
 
 Soudain, toutes les flammes entourant Wang Lin se propagèrent vers l'extérieur. Des vagues de craquements retentirent alors dans les environs, tel un tonnerre rugissant qui résonnait à travers le champ d'étoiles.
 
-Sur l'une des Planètes Divines du Oiseau Vermillon, s'élevait une montagne perçant le ciel. Cette montagne était recouverte de flammes et brûlait sans cesse. Curieusement, une végétation y poussait; bien qu'elle ne fût pas verte, des arbres rouge pourpre couvraient les flancs de la montagne.
+Sur l'une des Planètes Divines du Suzaku, s'élevait une montagne perçant le ciel. Cette montagne était recouverte de flammes et brûlait sans cesse. Curieusement, une végétation y poussait; bien qu'elle ne fût pas verte, des arbres rouge pourpre couvraient les flancs de la montagne.
 
 Une brise légère, chargée d'une vague de chaleur, souffla en faisant bruisser les feuilles. Combiné au tonnerre rugissant, l'ensemble possédait un certain charme.
 

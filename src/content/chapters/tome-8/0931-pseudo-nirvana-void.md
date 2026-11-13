@@ -28,7 +28,7 @@ Wang Lin sentit clairement que ces quatre hommes dégageaient la même aura que 
 
 Après l'apparition des quatre gardes célestes en armure dorée, l'expression de l'Estimé Xuan Bao resta impassible tandis qu'il levait sa main droite. En un éclair, les quatre gardes chargèrent le Serpent aux yeux de lune.
 
-Alors que le Serpent aux yeux de lune rugissait, ses tentacules balayaient tout sur leur passage. Simultanément, le Dieu de Sang et les autres qui l'entouraient s'élancèrent immédiatement contre les quatre gardes célestes. Le Dieu de Sang forma un sceau en avançant; une lumière sanglante se propagea alors qu'il agit de la main.
+Alors que le Serpent aux yeux de lune rugissait, ses tentacules balayaient tout sur leur passage. Simultanément, Xue Shenzi et les autres qui l'entouraient s'élancèrent immédiatement contre les quatre gardes célestes. Xue Shenzi forma un sceau en avançant; une lumière sanglante se propagea alors qu'il agit de la main.
 
 Une mer de sang surgit de nulle part et chargea en avant. Cependant, lorsque cette mer de sang percuta les gardes célestes, elle ne fit que les ébranler légèrement, sans leur faire marquer la moindre pause. Les gardes se scindèrent en quatre directions pour encercler le Serpent aux yeux de lune aux côtés des cultivateurs de Luotian.
 
@@ -44,7 +44,7 @@ Cette tempête était d'une puissance redoutable et s'élança vers l'avant tand
 
 Cependant, ces neuf papillons étaient d'un noir total; il était évident que la puissance de ces créatures tendait vers un autre extrême par rapport au sien!
 
-« Quelle est l'identité de ce vieil homme?! » Le cuir chevelu de Wang Lin en fut parcouru d'un frisson. Même Qing Shui n'avait jamais provoqué un tel choc chez lui. Même le mystérieux cultivateur qui avait stoppé la bataille entre Qing Shui et le Dieu de Sang n'avait jamais suscité une telle incrédulité.
+« Quelle est l'identité de ce vieil homme?! » Le cuir chevelu de Wang Lin en fut parcouru d'un frisson. Même Qing Shui n'avait jamais provoqué un tel choc chez lui. Même le mystérieux cultivateur qui avait stoppé la bataille entre Qing Shui et Xue Shenzi n'avait jamais suscité une telle incrédulité.
 
 Un garde céleste et ce papillon étaient deux trésors que Wang Lin possédait. Les voir entre les mains d'un autre fit atteindre son choc à son paroxysme.
 
@@ -96,9 +96,9 @@ Le regard de Wang Lin se tournait occasionnellement vers la femme en robe bleue.
 
 Les quatre gardes célestes dorés encerclaient le Serpent aux yeux de lune, créant un cercle d'or qui l'emprisonnait.
 
-Alors que le Dieu de Sang et ses compagnons ripostaient, les neuf papillons battirent des ailes pour former une tempête prenant le Serpent aux yeux de lune pour centre. Un vortex semblant relier le ciel et la terre se forma.
+Alors que Xue Shenzi et ses compagnons ripostaient, les neuf papillons battirent des ailes pour former une tempête prenant le Serpent aux yeux de lune pour centre. Un vortex semblant relier le ciel et la terre se forma.
 
-Le Dieu de Sang et son groupe affichaient des visages sombres au sein du vortex. Ils utilisèrent leurs trésors magiques respectifs, provoquant des grondements incessants. Le Serpent aux yeux de lune était plus furieux que jamais; être piégé deux fois l'avait rendu presque fou. Il ouvrit sa gueule béante et laissa échapper un rugissement de rage.
+Xue Shenzi et son groupe affichaient des visages sombres au sein du vortex. Ils utilisèrent leurs trésors magiques respectifs, provoquant des grondements incessants. Le Serpent aux yeux de lune était plus furieux que jamais; être piégé deux fois l'avait rendu presque fou. Il ouvrit sa gueule béante et laissa échapper un rugissement de rage.
 
 Dans son rugissement, les paroles des anciens dieux résonnèrent. Le Serpent aux yeux de lune utilisait un sort de l'Ancien Dieu!
 
@@ -114,6 +114,6 @@ Cette flèche était démesurée: elle mesurait plus de 300 pieds de long et sep
 
 Ce qui fit vaciller tous les cultivateurs environnants, c'étaient ces taches de sang rouge foncé!
 
-Dès l'apparition de la flèche, même l'expression du Dieu de Sang et de ses compagnons changea. Même Maître Yan Leizi, qui combattait Wu Dongchan, trembla en voyant cette flèche de 300 pieds.
+Dès l'apparition de la flèche, même l'expression de Xue Shenzi et de ses compagnons changea. Même Maître Yan Leizi, qui combattait Wu Dongchan, trembla en voyant cette flèche de 300 pieds.
 
 « Flèche du Pseudo-Vide du Nirvana! »

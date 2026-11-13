@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1430 - Umbrella Opens to Destroy the Realm !"
 slug: lombrelle-souvre-pour-detruire-le-royaume
 ---
-Profitant de cette opportunité qu'il avait créée en faisant échouer le sort de l'homme tapi dans la flamme aux sept couleurs, Wang Lin n'hésita pas à sortir le trésor que le premier Oiseau Vermillon lui avait confié pour tuer le traître, le troisième Oiseau Vermillon!
+Profitant de cette opportunité qu'il avait créée en faisant échouer le sort de l'homme tapi dans la flamme aux sept couleurs, Wang Lin n'hésita pas à sortir le trésor que le premier Suzaku lui avait confié pour tuer le traître, le troisième Suzaku!
 
 Après que Wang Lin eut invoqué Suzaku, le feu dans le ciel commença à tourbillonner violemment!
 
@@ -14,11 +14,11 @@ La mer de feu s'éleva rapidement et un vortex gigantesque apparut au centre, ju
 
 Au moment où le trou noir apparut, un cri de Suzaku résonna soudainement à l'intérieur!
 
-Le cri de Suzaku était assourdissant. À son apparition, Wang Lin ressentit un choc profond. Son Oiseau Vermillon, éveillé quatre fois, se manifesta et témoigna son respect!
+Le cri de Suzaku était assourdissant. À son apparition, Wang Lin ressentit un choc profond. Son Suzaku, éveillé quatre fois, se manifesta et témoigna son respect!
 
 C'était comme si Suzaku de Wang Lin ressentait une peur instinctive face à ce cri!
 
-L'Oiseau Vermillon aux sept couleurs derrière l'homme d'âge mûr leva la tête et poussa un cri. La peur se lisait dans ses yeux, et il n'osait point s'envoler!
+Le Suzaku aux sept couleurs derrière l'homme d'âge mûr leva la tête et poussa un cri. La peur se lisait dans ses yeux, et il n'osait point s'envoler!
 
 Cette scène fut si soudaine que les pupilles de l'homme d'âge mûr se rétractèrent.
 
@@ -30,21 +30,21 @@ Sous cette pression, une scène terrifiante que Wang Lin n'oublierait jamais se 
 
 Un bec gigantesque de Suzaku descendit du vortex. Le simple bec couvrait la majeure partie du ciel, et la pression décupla de façon exponentielle.
 
-L'esprit originel de Suzaku! Cette plume était un trésor inestimable pour le premier Oiseau Vermillon, car il n'en possédait qu'une seule!
+L'esprit originel de Suzaku! Cette plume était un trésor inestimable pour le premier Suzaku, car il n'en possédait qu'une seule!
 
-Ce que la plume avait invoqué était un véritable Oiseau Vermillon, issu de la patrie du premier Oiseau Vermillon! Ce n'était pas une créature formée par les cultivateurs du clan, mais un être vivant!
+Ce que la plume avait invoqué était un véritable Suzaku, issu de la patrie du premier Suzaku! Ce n'était pas une créature formée par les cultivateurs du clan, mais un être vivant!
 
 Le bec de Suzaku descendit brusquement du vortex, provoquant un bombement de la mer de feu, le bec marquant le point le plus bas!
 
 Dans sa descente, le feu bouillonnait!
 
-Sa vitesse était inimaginable. En plongeant, il piqua impitoyablement l'homme d'âge mûr! Durant ce processus, le ciel tout entier semblait s'être transformé en la tête de Suzaku. Ses yeux étaient emplis de colère, et Wang Lin le reconnut instantanément. Il ressemblait énormément au premier Oiseau Vermillon!
+Sa vitesse était inimaginable. En plongeant, il piqua impitoyablement l'homme d'âge mûr! Durant ce processus, le ciel tout entier semblait s'être transformé en la tête de Suzaku. Ses yeux étaient emplis de colère, et Wang Lin le reconnut instantanément. Il ressemblait énormément au premier Suzaku!
 
 Le monde continuait de gronder. Le bec de Suzaku descendit rapidement et, en un instant, atteignit les mille pieds de la flamme aux sept couleurs. Cela était comparable au doigt d'un Dieu Ancien, mais l'élan était bien plus puissant. Seul un Dieu Ancien adulte d'au moins 8 étoiles utilisant personnellement le sort pourrait égaler cela!
 
-À l'intérieur de la flamme aux sept couleurs, l'homme d'âge mûr poussa un rugissement et agita la main. Les flammes autour de lui s'élancèrent vers le ciel pour former un autre Oiseau Vermillon qui fonça sur le bec descendant!
+À l'intérieur de la flamme aux sept couleurs, l'homme d'âge mûr poussa un rugissement et agita la main. Les flammes autour de lui s'élancèrent vers le ciel pour former un autre Suzaku qui fonça sur le bec descendant!
 
-Des grondements tonitruants résonnèrent. L'Oiseau Vermillon aux sept couleurs poussa un cri déchirant dès qu'il toucha le bec, et il s'effondra soudainement!
+Des grondements tonitruants résonnèrent. Le Suzaku aux sept couleurs poussa un cri déchirant dès qu'il toucha le bec, et il s'effondra soudainement!
 
 L'homme d'âge mûr cracha du sang et ses mains formèrent des sceaux tandis que son expression devenait féroce. Il rugit: « Terre, Eau, Feu, Vent! »
 
@@ -68,7 +68,7 @@ Wang Lin avait passé sa vie à chercher l'avantage dans les situations pérille
 
 Tuer le Souverain!
 
-« Quel premier Oiseau Vermillon perfide!! » Une lueur de froideur passa dans les yeux de Wang Lin. Le premier Oiseau Vermillon avait vécu bien trop longtemps, et Wang Lin n'était naturellement pas de taille. Bien qu'il ait deviné le plan du premier, il avait toujours un temps de retard!
+« Quel premier Suzaku perfide!! » Une lueur de froideur passa dans les yeux de Wang Lin. Le premier Suzaku avait vécu bien trop longtemps, et Wang Lin n'était naturellement pas de taille. Bien qu'il ait deviné le plan du premier, il avait toujours un temps de retard!
 
 « L'ancêtre de la deuxième génération m'a soudainement transmis le sort le plus puissant du clan car il avait tout percé et tentait de m'aider... »
 

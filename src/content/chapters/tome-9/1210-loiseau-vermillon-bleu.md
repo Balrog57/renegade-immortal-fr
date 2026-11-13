@@ -42,9 +42,9 @@ Tandis que Wang Lin restait assis, sa chair divine ancestrale se dessécha comme
 
 Le feu autour de lui était à son paroxysme. Une chaleur infinie émanait de son corps, formant un vortex qui tournait lentement au-dessus de sa tête.
 
-Un cri de douleur s'échappa de son être. L'Oiseau Vermillon blanc luttait pour prendre son envol. Il semblait que ce troisième éveil était à la fois une épreuve et une crise existentielle!
+Un cri de douleur s'échappa de son être. Le Suzaku blanc luttait pour prendre son envol. Il semblait que ce troisième éveil était à la fois une épreuve et une crise existentielle!
 
-L'esprit de Wang Lin était embrumé. Il avait l'impression de devenir lui-même un Oiseau Vermillon. La graine de feu en son sein libérait sans cesse une chaleur infinie, mais plus elle s'en dégageait, plus la température augmentait. À la fin, il semblait sur le point de s'autoconsumer!
+L'esprit de Wang Lin était embrumé. Il avait l'impression de devenir lui-même un Suzaku. La graine de feu en son sein libérait sans cesse une chaleur infinie, mais plus elle s'en dégageait, plus la température augmentait. À la fin, il semblait sur le point de s'autoconsumer!
 
 Il avait la sensation qu'au moindre retard dans l'évacuation de cette chaleur, il serait réduit en cendres.
 
@@ -56,7 +56,7 @@ La chaleur augmenta jusqu'à ce que son corps ne puisse plus la relâcher assez 
 
 Wang Lin ouvrit soudainement les yeux et poussa un rugissement, comme s'il voulait expulser toute la chaleur accumulée. Une puissante onde thermique jaillit de sa bouche lors de ce cri de douleur. La vague de chaleur tourbillonna autour de lui, et chaque pore de sa peau luttait contre elle.
 
-« Oiseau Vermillon... éveil... Oiseau Vermillon... » La conscience de Wang Lin devenait floue. Il évacuait la chaleur par pur instinct. Cependant, cette méthode ne pouvait que retarder l'échéance; elle ne traiterait pas le mal à la racine.
+« Suzaku... éveil... Suzaku... » La conscience de Wang Lin devenait floue. Il évacuait la chaleur par pur instinct. Cependant, cette méthode ne pouvait que retarder l'échéance; elle ne traiterait pas le mal à la racine.
 
 Si cela persistait, Wang Lin mourrait sans aucun doute!
 
@@ -98,9 +98,9 @@ Cependant, la sueur perlant sur son front et l'effroi dans ses yeux témoignaien
 
 « Ceci... Quelle est cette flamme? » Il avait vu tant de choses au cours de sa vie de cultivateur, mais il n'avait jamais rencontré de telles flammes bleues. Elles pouvaient détruire le corps d'un cultivateur Briseur du Nirvana et consumer son âme originelle. Ce spectacle bouleversa profondément le vieil homme!
 
-À la source des flammes bleues, là où Wang Lin était assis, la lumière était si éclatante qu'aucune autre couleur ne pouvait subsister. Au cœur de ces flammes d'une beauté indescriptible, le cri d'un Oiseau Vermillon résonna!
+À la source des flammes bleues, là où Wang Lin était assis, la lumière était si éclatante qu'aucune autre couleur ne pouvait subsister. Au cœur de ces flammes d'une beauté indescriptible, le cri d'un Suzaku résonna!
 
-Au moment où ce cri retentit, un Oiseau Vermillon bleu apparut au milieu des flammes, comme s'il venait de renaître. À son apparition, toutes les flammes bleues du Royaume aux Sept Couleurs semblèrent s'emballer, comme pour l'acclamer!
+Au moment où ce cri retentit, un Suzaku bleu apparut au milieu des flammes, comme s'il venait de renaître. À son apparition, toutes les flammes bleues du Royaume aux Sept Couleurs semblèrent s'emballer, comme pour l'acclamer!
 
 Sous Suzaku Bleu, une silhouette gracile s'avança, un pas après l'autre...
 

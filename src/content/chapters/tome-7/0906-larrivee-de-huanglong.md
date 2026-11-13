@@ -114,6 +114,6 @@ Ta Shan restait impassible, mais Lei Ji inspira brusquement. Le tonnerre devant 
 
 Le monde de la culture respecte les forts!
 
-Au moment où la 18e couche fut ouverte par la force du tonnerre sur la planète Suzaku, le vieux cultivateur ressemblant à Huanglong fit brusquement un pas en avant et disparut.
+Au moment où la 18e couche fut ouverte par la force du tonnerre sur la planète Suzaku, le vieux cultivateur ressemblant à Huang Long fit brusquement un pas en avant et disparut.
 
 « On ne peut pas entrer dans la 18e couche! »

@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1412 - Nine Colors Fuse Into One!"
 slug: neuf-couleurs-fusionnent-en-une
 ---
-Le dragon de cent mille pieds possédait naturellement une quantité immense de sang, mais ce que l'Ancien Oiseau Vermillon convoitait, c'était le sang de dragon flamboyant niché dans la protubérance sur le crâne de la créature.
+Le dragon de cent mille pieds possédait naturellement une quantité immense de sang, mais ce que l'Ancien Suzaku convoitait, c'était le sang de dragon flamboyant niché dans la protubérance sur le crâne de la créature.
 
-Ce sang contenait l'essence même du feu intérieur du dragon. Il était bien plus précieux et rare que le reste de son sang. D'un coup de paume, l'Ancien Oiseau Vermillon força l'extraction de tout ce sang flamboyant, qui retomba sur le bâton d'encens ardent.
+Ce sang contenait l'essence même du feu intérieur du dragon. Il était bien plus précieux et rare que le reste de son sang. D'un coup de paume, l'Ancien Suzaku força l'extraction de tout ce sang flamboyant, qui retomba sur le bâton d'encens ardent.
 
 À l'instant où les gouttes touchèrent l'objet, elles furent absorbées par le bâton d'encens et disparurent.
 
@@ -24,9 +24,9 @@ Cependant, les trois précédents ne faisaient pas le poids face à celui-ci. Ce
 
 Depuis des temps immémoriaux, trop peu de personnes avaient réussi un quatrième éveil de Suzaku! Pas plus de cinq!
 
-L'Oiseau Vermillon de première génération, de deuxième, de troisième et de quatrième génération... hormis eux, seul Wang Lin y parvenait! Bien que l'ancêtre de la troisième étape du Clan Huo Que possédât une once de Feu Éthéré, il n'était pas un véritable Oiseau Vermillon à l'origine; comment aurait-il pu s'éveiller?
+Le Suzaku de première génération, de deuxième, de troisième et de quatrième génération... hormis eux, seul Wang Lin y parvenait! Bien que l'ancêtre de la troisième étape du Clan Huo Que possédât une once de Feu Éthéré, il n'était pas un véritable Suzaku à l'origine; comment aurait-il pu s'éveiller?
 
-Même s'il parvenait à engendrer du Feu Éthéré, ce ne serait qu'une voie déviante comparée au feu d'un authentique Oiseau Vermillon!
+Même s'il parvenait à engendrer du Feu Éthéré, ce ne serait qu'une voie déviante comparée au feu d'un authentique Suzaku!
 
 La difficulté de ce quatrième éveil était indescriptible. La puissance des sorts de Feu Éthéré pouvait faire trembler n'importe quel cultivateur de terreur.
 
@@ -34,7 +34,7 @@ Toutefois, l'éveil exigeait une quantité inimaginable de flammes. Seule une ac
 
 Le lotus de feu aux neuf couleurs sous Wang Lin libéra un flux infini de flammes multicolores qui pénétrèrent son corps. Ce feu apparut dans son œil gauche, faisant tournoyer le vortex encore plus rapidement.
 
-Simultanément, l'immense Oiseau Vermillon aux neuf couleurs poussa un cri plus puissant que jamais. Ses hurlements déchirèrent les cieux et firent trembler toute l'Épreuve Terrestre.
+Simultanément, l'immense Suzaku aux neuf couleurs poussa un cri plus puissant que jamais. Ses hurlements déchirèrent les cieux et firent trembler toute l'Épreuve Terrestre.
 
 « Pas assez... il n'y a pas assez de feu! » Wang Lin leva les yeux et des flammes jaillirent de son corps. Le vortex aux neuf couleurs s'échappa de son œil gauche pour former autour de lui une tempête de feu multicolore, une bourrasque capable de consumer le monde entier.
 
@@ -50,7 +50,7 @@ Cette sphère commença à brûler et fut immédiatement absorbée par Suzaku au
 
 Le brasier dans toute l'Épreuve Terrestre s'intensifia.
 
-Alors que la pluie de sang continuait de tomber et que les mains de Wang Lin enchaînaient les sceaux, le feu autour de lui brûlait avec une fureur déchaînée. L'Oiseau Vermillon poussait des cris alors que la pluie de sang fusionnait avec lui, embrasant ses neuf plumes colorées.
+Alors que la pluie de sang continuait de tomber et que les mains de Wang Lin enchaînaient les sceaux, le feu autour de lui brûlait avec une fureur déchaînée. Le Suzaku poussait des cris alors que la pluie de sang fusionnait avec lui, embrasant ses neuf plumes colorées.
 
 « Toujours pas assez... » Les yeux de Wang Lin brillaient d'une détermination farouche. Il sentait que le feu n'avait pas encore atteint le seuil nécessaire au quatrième éveil.
 
@@ -64,7 +64,7 @@ Un Feu Éthéré commença à brûler dans l'Épreuve Terrestre. Ce feu ne déga
 
 En un instant, cette monstrueuse flamme éthérée enveloppa Wang Lin et pénétra rapidement dans Suzaku aux neuf couleurs en pleine lutte.
 
-L'homme d'âge moyen était le maître de Lu Yun, Suzaku de la cinquième génération, et lui-même Oiseau Vermillon de la quatrième génération!
+L'homme d'âge moyen était le maître de Lu Yun, Suzaku de la cinquième génération, et lui-même Suzaku de la quatrième génération!
 
 Il avait éveillé son oiseau et atteint le royaume du Feu Éthéré. Dès que cette force fusionna avec Suzaku de Wang Lin, un cri noble et majestueux retentit.
 
@@ -78,19 +78,19 @@ Soudain, le rouge s'effondra et se dissipa! Peu après, l'orange trembla avant d
 
 L'intégralité de l'Épreuve Terrestre brûlait sous cette mer de feu.
 
-À cet instant, sur la Planète du Grand Empereur, le dragon fixait l'Ancien Oiseau Vermillon. Tout le sang flamboyant de sa protubérance avait été extrait, jusqu'à la dernière goutte.
+À cet instant, sur la Planète du Grand Empereur, le dragon fixait l'Ancien Suzaku. Tout le sang flamboyant de sa protubérance avait été extrait, jusqu'à la dernière goutte.
 
-L'Ancien Oiseau Vermillon le dévisagea et rugit: « Malédiction! Qu'est-ce que tu regardes? Puisque le sang flamboyant est épuisé, donne-moi du sang de dragon ordinaire. Tu es si colossal qu'une petite perte de sang ne te fera rien! »
+L'Ancien Suzaku le dévisagea et rugit: « Malédiction! Qu'est-ce que tu regardes? Puisque le sang flamboyant est épuisé, donne-moi du sang de dragon ordinaire. Tu es si colossal qu'une petite perte de sang ne te fera rien! »
 
 Le dragon s'apprêtait à protester avec rage, mais l'Ancien fut plus rapide. D'un geste de la main, il imposa une force invisible qui scella la gueule du dragon, étouffant son cri dans sa gorge.
 
-Profitant de cette énergie refoulée, l'Ancien Oiseau Vermillon agita la main. Une plaie longue de mille pieds s'ouvrit sur le corps du dragon, et le sang jaillit comme une cascade.
+Profitant de cette énergie refoulée, l'Ancien Suzaku agita la main. Une plaie longue de mille pieds s'ouvrit sur le corps du dragon, et le sang jaillit comme une cascade.
 
 « Tu as déjà donné tout ton sang flamboyant; si tu t'arrêtes là, tout cela sera vain. Si ce gamin ne parvient pas à s'éveiller, je ne tiendrai pas ma promesse! »
 
 Le ressentiment dans les yeux du dragon atteignit son paroxysme, mais en entendant ces paroles, il ferma les yeux. Il commença à expulser son propre sang avec acharnement, tout en rugissant intérieurement:
 
-« Ces Oiseaux Vermillon sont tous des pervers! C'est le premier qui m'a trompé pour me faire quitter le Domaine de la Flamme, avant de passer son temps à me pomper mon sang. Quelle vie est-ce là?! Maintenant que le deuxième m'a promis la liberté, ce vieux dragon doit tenter sa chance! »
+« Ces Suzaku sont tous des pervers! C'est le premier qui m'a trompé pour me faire quitter le Domaine de la Flamme, avant de passer son temps à me pomper mon sang. Quelle vie est-ce là?! Maintenant que le deuxième m'a promis la liberté, ce vieux dragon doit tenter sa chance! »
 
 D'immenses quantités de sang de dragon s'engouffrèrent dans l'Épreuve Terrestre. La pluie de sang tombant du ciel rendit les flammes encore plus puissantes.
 
@@ -98,11 +98,11 @@ Bien que ce sang ne fût pas comparable au sang flamboyant, son volume était bi
 
 La tempête autour de Wang Lin rugissait. Après la disparition du rouge et de l'orange, le jaune s'éteignit à son tour, suivi du vert fantomatique!
 
-Sur la Planète du Grand Empereur, les yeux de l'Ancien Oiseau Vermillon brillèrent. Serrant les dents, il forma un sceau de la main gauche et pointa l'espace entre ses sourcils vers le bâton d'encens terrestre. Un Feu Éthéré jaillit de son doigt!
+Sur la Planète du Grand Empereur, les yeux de l'Ancien Suzaku brillèrent. Serrant les dents, il forma un sceau de la main gauche et pointa l'espace entre ses sourcils vers le bâton d'encens terrestre. Un Feu Éthéré jaillit de son doigt!
 
 « Petit compagnon, pour t'aider, ce vieil homme a tout donné. Que tu parviennes à ce quatrième éveil dépendra désormais de ta propre chance! »
 
-Dans l'Épreuve Terrestre, après la pluie de sang, le Feu Éthéré de l'Ancien Oiseau Vermillon s'engouffra et fusionna avec Suzaku de Wang Lin.
+Dans l'Épreuve Terrestre, après la pluie de sang, le Feu Éthéré de l'Ancien Suzaku s'engouffra et fusionna avec Suzaku de Wang Lin.
 
 Cette force provoqua la disparition des flammes indigo, bleues et violettes! À ce stade, sept couleurs avaient déjà fusionné. Seuls le noir et le blanc continuaient de lutter!
 
@@ -122,4 +122,4 @@ Au moment précis de cette fusion ultime, Suzaku de Wang Lin jaillit. L'oiseau �
 
 Le quatrième éveil de Suzaku était accompli!
 
-« Quatrième éveil, transforme mon feu corporel en Feu Éthéré! » Wang Lin se redressa brusquement. Le lotus de feu aux neuf couleurs sous lui vola en éclats en d'innombrables fragments qui convergèrent vers son Oiseau Vermillon.
+« Quatrième éveil, transforme mon feu corporel en Feu Éthéré! » Wang Lin se redressa brusquement. Le lotus de feu aux neuf couleurs sous lui vola en éclats en d'innombrables fragments qui convergèrent vers son Suzaku.

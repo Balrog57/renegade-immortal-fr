@@ -36,9 +36,9 @@ Voyant que l'affaire allait se résoudre calmement, Xu Kongzi sentit son cœur s
 
 Dès qu'il posa les yeux sur Wang Lin, Zhou Yi libéra instantanément une puissante aura glaciale. Se transformant en un rayon d'énergie de l'épée, il fonça droit sur Xu Kongzi.
 
-Au moment où Zhou Yi s'élança, Wang Lin fit de même. Sa main traça un sceau et des flammes jaillirent de ses yeux. Le feu s'échappa de son bras droit pour prendre rapidement la forme d'un Oiseau Vermillon devant lui!
+Au moment où Zhou Yi s'élança, Wang Lin fit de même. Sa main traça un sceau et des flammes jaillirent de ses yeux. Le feu s'échappa de son bras droit pour prendre rapidement la forme d'un Suzaku devant lui!
 
-L'Oiseau Vermillon poussa un cri strident et chargea Xu Kongzi aux côtés de Zhou Yi.
+Le Suzaku poussa un cri strident et chargea Xu Kongzi aux côtés de Zhou Yi.
 
 « Vous cherchez la mort! » L'intention de tuer brilla dans les yeux de Xu Kongzi alors qu'il agitait sa main droite. Un vortex jaune apparut de nulle part et s'élança en avant.
 
@@ -78,7 +78,7 @@ Tandis qu'il le traquait, une énergie démoniaque jaillissait du corps de Bei L
 
 Ce qui accablait Xu Kongzi, c'était que Suzaku dévasté se reformait de manière inattendue. Il dégageait des flammes plus ardentes qu'auparavant et chargeait à nouveau.
 
-Peu importe le nombre de fois où Xu Kongzi détruisait l'oiseau tout en étant harcelé par Bei Luo, celui-ci renaissait des flammes. C'était comme si cet Oiseau Vermillon possédait une âme immortelle!
+Peu importe le nombre de fois où Xu Kongzi détruisait l'oiseau tout en étant harcelé par Bei Luo, celui-ci renaissait des flammes. C'était comme si ce Suzaku possédait une âme immortelle!
 
 Zhou Yi, transformé en un rayon de lumière d'épée, suivait la mêlée de près. Il n'approchait pas Xu Kongzi de manière imprudente, mais il bondissait dès qu'une opportunité se présentait.
 

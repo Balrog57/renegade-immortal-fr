@@ -26,7 +26,7 @@ Ce vieil homme était l'Empereur Divin du Dragon Azure! Son visage était marqu�
 
 Le rugissement de l'Empereur Divin du Dragon Azure fit vibrer les chaînes alors que son corps se convulsait dans la lutte. Dans un élan de rage, il se précipita et frappa violemment la paroi de la chambre de sa tête.
 
-Alors que les grondements tonitruants faisaient apparaître des fissures sur le mur, celui-ci finit par reprendre sa forme initiale. La lumière des Quatre Trésors Sacrés s'intensifia, et les illusions d'un Oiseau Vermillon, d'un Dragon Azure, d'un Tigre Blanc et d'une Tortue Noire apparurent, semblant maintenir l'Empereur Divin du Dragon Azure au sol.
+Alors que les grondements tonitruants faisaient apparaître des fissures sur le mur, celui-ci finit par reprendre sa forme initiale. La lumière des Quatre Trésors Sacrés s'intensifia, et les illusions d'un Suzaku, d'un Dragon Azure, d'un Tigre Blanc et d'une Tortue Noire apparurent, semblant maintenir l'Empereur Divin du Dragon Azure au sol.
 
 Un Dragon Azure affaibli se dessina vaguement au-dessus de lui. Ce dragon était très vieux et dégageait une aura ancestrale. Pour une raison inconnue, d'innombrables tumeurs de couleur sang apparurent sur son corps; c'était un spectacle terrifiant!
 
@@ -34,7 +34,7 @@ Après un temps indéterminé, les rugissements de l'Empereur Divin du Dragon Az
 
 « J'ai encore gagné... » dit-il en reprenant son souffle. Alors qu'il s'apprêtait à reprendre sa culture, sa tête se redressa brusquement. Un éclair de stupeur passa dans ses yeux. Après un court instant de réflexion, il laissa éclater un rire de jubilation et deux traînées de larmes coulèrent sur ses joues.
 
-« Excellent! Excellent! Vraiment un Empereur Divin digne, choisi par le vieil Oiseau Vermillon. Il a été capable de renaître par le feu et a accompli le troisième éveil de Suzaku. Je crois qu'il est le premier membre du clan à avoir achevé ce troisième éveil depuis les temps anciens! Bien! Pour que tu obtiennes une telle fortune, il n'a pas été vain que je subisse cette épreuve indicible! »
+« Excellent! Excellent! Vraiment un Empereur Divin digne, choisi par le vieux Suzaku. Il a été capable de renaître par le feu et a accompli le troisième éveil de Suzaku. Je crois qu'il est le premier membre du clan à avoir achevé ce troisième éveil depuis les temps anciens! Bien! Pour que tu obtiennes une telle fortune, il n'a pas été vain que je subisse cette épreuve indicible! »
 
 Alors que l'Empereur Divin du Dragon Azure riait, des pas résonnèrent dans le temple. Les quatre anciens entrèrent et leurs voix parvinrent de l'extérieur de la chambre.
 
@@ -82,7 +82,7 @@ Ces sorts, façonnés par la lumière aux sept couleurs, étaient les techniques
 
 Dès qu'elle apparut, l'épée aux sept couleurs fondit sur sa cible. Elle se transforma en un torrent d'énergie tranchante qui chargea Suzaku Bleu au cœur des flammes!
 
-L'Oiseau Vermillon Bleu poussa un cri et toutes les flammes du monde jaillirent pour percuter l'énergie de l'épée, provoquant un séisme céleste. Au même moment, la figure dans le ciel fit un pas en avant et agita la main. Des filaments d'énergie de massacre apparurent soudainement!
+Le Suzaku Bleu poussa un cri et toutes les flammes du monde jaillirent pour percuter l'énergie de l'épée, provoquant un séisme céleste. Au même moment, la figure dans le ciel fit un pas en avant et agita la main. Des filaments d'énergie de massacre apparurent soudainement!
 
 Ces brins de destruction remplirent le ciel et tombèrent comme une pluie sur Suzaku Bleu. Pourtant, dès que l'oiseau poussa un cri, les filaments de massacre s'effondrèrent un à un! Il semblait que tous les sorts de ce monde devaient se briser devant Suzaku Bleu!
 
@@ -92,7 +92,7 @@ La boussole pivota et poussa un rugissement, mais avant qu'elle ne puisse déplo
 
 « Effondre-toi! » rugit Wang Lin. La boussole commença à brûler et s'effondra brusquement!
 
-Flottant dans les airs, la main gauche de Wang Lin forma un sceau et pointa vers le bas. L'Oiseau Vermillon Bleu poussa un cri en emportant avec lui une mer de flammes large de cent mille pieds pour charger le vieil homme aux cheveux blancs.
+Flottant dans les airs, la main gauche de Wang Lin forma un sceau et pointa vers le bas. Le Suzaku Bleu poussa un cri en emportant avec lui une mer de flammes large de cent mille pieds pour charger le vieil homme aux cheveux blancs.
 
 Tout cela se joua en un instant. À l'instant même où le vieillard lançait ses sorts, la contre-attaque de Wang Lin les pulvérisait tous. Simultanément, son intention meurtrière se verrouilla sur l'adversaire.
 

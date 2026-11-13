@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1419 - Come!!"
 slug: venez
 ---
-Wang Lin flottait dans les airs et joignit ses mains devant la statue du premier Oiseau Vermillon. Il agita ensuite sa main droite, et l'épée de sang émit un chant avant de voler vers lui.
+Wang Lin flottait dans les airs et joignit ses mains devant la statue du premier Suzaku. Il agita ensuite sa main droite, et l'épée de sang émit un chant avant de voler vers lui.
 
-Ses paroles témoignaient de sa détermination. En entendant cela, le premier Oiseau Vermillon resta silencieux et réfléchit.
+Ses paroles témoignaient de sa détermination. En entendant cela, le premier Suzaku resta silencieux et réfléchit.
 
 Wang Lin leva les yeux vers le ciel. Un feu brûlait dans son œil gauche et des éclairs jaillissaient de son œil droit. Ils semblaient soutenir l'univers tout entier alors qu'il se tenait là, la voix résonnante:
 
@@ -18,27 +18,27 @@ Ses paroles puissantes résonnèrent à travers le monde comme un tonnerre grond
 
 Si quitter ce monde signifiait devenir un être céleste, alors les paroles de Wang Lin signifiaient non seulement qu'il allait devenir un être céleste, mais qu'il ferait en sorte que tous ses amis le deviennent aussi!
 
-Après avoir médité un instant, le premier Oiseau Vermillon laissa échapper un soupir.
+Après avoir médité un instant, le premier Suzaku laissa échapper un soupir.
 
-« Peut-être as-tu raison... Soit, tu as réussi l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang de Suzaku sur une planète abandonnée des Terres Déchues pour attirer le Clan Huo Que... Ton véritable but est l'essence de feu du Clan Huo Que... Ton Oiseau Vermillon s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Oiseau Vermillon, ton essence de feu augmentera considérablement!
+« Peut-être as-tu raison... Soit, tu as réussi l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang de Suzaku sur une planète abandonnée des Terres Déchues pour attirer le Clan Huo Que... Ton véritable but est l'essence de feu du Clan Huo Que... Ton Suzaku s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Suzaku, ton essence de feu augmentera considérablement!
 
 « Bien que ce traître ait été fabriqué par quelqu'un, c'était la personne la plus talentueuse que j'aie jamais vue. Bien que je l'aie gravement blessé, sa culture était puissante et son esprit rusé. Il a dû se ménager une issue de secours.
 
-« Ce vieil homme soupçonne également qu'il possède une autre identité dans le Système Stellaire Antique. Cependant, je suis incapable de quitter cet endroit, je ne peux donc pas enquêter. Si tu as des projets concernant le Clan Huo Que, méfie-toi du traître... Il pourrait être en culture fermée dans la terre sainte du clan... S'il est vraiment là-bas, alors je te donnerai cet objet condensé à partir de ma propre Flamme Infinie de Suzaku. Avec cela, même si tu rencontres le troisième Oiseau Vermillon, tu pourras sauver ta vie... Et si j'ai tort, prends ceci comme une arme pour te protéger! »
+« Ce vieil homme soupçonne également qu'il possède une autre identité dans le Système Stellaire Antique. Cependant, je suis incapable de quitter cet endroit, je ne peux donc pas enquêter. Si tu as des projets concernant le Clan Huo Que, méfie-toi du traître... Il pourrait être en culture fermée dans la terre sainte du clan... S'il est vraiment là-bas, alors je te donnerai cet objet condensé à partir de ma propre Flamme Infinie de Suzaku. Avec cela, même si tu rencontres le troisième Suzaku, tu pourras sauver ta vie... Et si j'ai tort, prends ceci comme une arme pour te protéger! »
 
-Alors que le premier Oiseau Vermillon parlait, le feu aux neuf couleurs entre ses sourcils brilla. Il se condensa en une plume de neuf couleurs qui vola lentement vers Wang Lin.
+Alors que le premier Suzaku parlait, le feu aux neuf couleurs entre ses sourcils brilla. Il se condensa en une plume de neuf couleurs qui vola lentement vers Wang Lin.
 
 « Le traître possède un trésor de mon Clan Zhu Que, mais il ignore comment le contrôler. Je vais t'enseigner la méthode, et si tu as la puissance nécessaire pour le reprendre, je te ferai don de ce trésor! »
 
 Au moment où Wang Lin saisit la plume aux neuf couleurs, une incantation complexe fut gravée dans son âme.
 
-« Essaie de garder les membres du Clan Huo Que en vie, car ils me seront d'une grande utilité! Je t'aiderai à rendre plus réelle cette goutte de sang de Suzaku que tu as laissée sur la planète abandonnée. Personne d'autre que le troisième Oiseau Vermillon ne pourra percer son secret. Tu peux partir. » La voix du premier Oiseau Vermillon s'affaiblit progressivement jusqu'à disparaître totalement. La statue perdit sa vitalité et sembla redevenir un objet inanimé.
+« Essaie de garder les membres du Clan Huo Que en vie, car ils me seront d'une grande utilité! Je t'aiderai à rendre plus réelle cette goutte de sang de Suzaku que tu as laissée sur la planète abandonnée. Personne d'autre que le troisième Suzaku ne pourra percer son secret. Tu peux partir. » La voix du premier Suzaku s'affaiblit progressivement jusqu'à disparaître totalement. La statue perdit sa vitalité et sembla redevenir un objet inanimé.
 
-Wang Lin regarda la statue du premier Oiseau Vermillon et, après un instant, s'inclina profondément. Puis il fit volte-face et disparut.
+Wang Lin regarda la statue du premier Suzaku et, après un instant, s'inclina profondément. Puis il fit volte-face et disparut.
 
 Sur la Planète du Grand Empereur, l'encens céleste semblait pouvoir brûler éternellement. Le temps passait lentement, une respiration après l'autre... Vingt-trois respirations s'étaient écoulées!
 
-Bien que la conversation entre Wang Lin et le premier Oiseau Vermillon eût été longue, grâce à l'intervention de ce dernier, seules quelques respirations s'étaient écoulées à l'extérieur.
+Bien que la conversation entre Wang Lin et le premier Suzaku eût été longue, grâce à l'intervention de ce dernier, seules quelques respirations s'étaient écoulées à l'extérieur.
 
 Vingt-quatrième respiration!
 
@@ -48,7 +48,7 @@ Les cultivateurs environnants étaient tous frappés de stupeur. Maître Simo fr
 
 La Grande Maîtresse Yun Luo forma des sceaux si rapidement que sa main laissait des images rémanentes, tout en fixant calmement Wang Lin.
 
-Seul le vieux Oiseau Vermillon affichait une expression sombre. Il devinait vaguement l'intention de l'Ancêtre: cette épreuve était un test d'identité... Vingt-sixième respiration!
+Seul le vieux Suzaku affichait une expression sombre. Il devinait vaguement l'intention de l'Ancêtre: cette épreuve était un test d'identité... Vingt-sixième respiration!
 
 Vingt-septième respiration!
 
@@ -60,7 +60,7 @@ Les cultivateurs environnants commençaient à débattre. Chaque respiration qui
 
 Cette flamme déchaînée chargea vers la petite partie restante de l'encens. En un instant, le bâton fut entièrement consumé.
 
-Ce changement soudain attira l'attention de tous les cultivateurs. Même les yeux du vieux Oiseau Vermillon s'illuminèrent alors qu'il observait attentivement.
+Ce changement soudain attira l'attention de tous les cultivateurs. Même les yeux du vieux Suzaku s'illuminèrent alors qu'il observait attentivement.
 
 Bien que cela semble lent, tout se produisit en un éclair. L'encens rétrécissait rapidement et le feu était sur le point d'atteindre le corps de Wang Lin.
 
@@ -114,7 +114,7 @@ La scène était proprement stupéfiante. Le monstrueux Feu Éthéré ressemblai
 
 Cette tempête tourbillonnait violemment, générant des rafales de vent impétueuses. Les cultivateurs alentour furent tous projetés en arrière de plusieurs dizaines de milliers de pieds par la bourrasque.
 
-« C'est... un rassemblement de Feu Éthéré externe!! » Les yeux du vieux Oiseau Vermillon s'écarquillèrent, remplis de choc.
+« C'est... un rassemblement de Feu Éthéré externe!! » Les yeux du vieux Suzaku s'écarquillèrent, remplis de choc.
 
 Le visage de la Grande Maîtresse Yun Luo était pâle et son esprit tremblait. À cet instant, si Wang Lin avait eu une perle et une aiguille flottant devant lui, il aurait ressemblé presque exactement à la figure qu'elle avait vue autrefois.
 

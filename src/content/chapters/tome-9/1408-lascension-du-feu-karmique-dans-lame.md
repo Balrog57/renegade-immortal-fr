@@ -32,9 +32,9 @@ Le regard de Wang Lin était calme. Le Feu Éthéré était difficile à obtenir
 
 Ce chemin était une marche entre la vie et la mort. Wang Lin pouvait encore choisir de quitter cet endroit et d'échouer à l'épreuve.
 
-« Le vieil Oiseau Vermillon m'a si bien traité, comment pourrais-je abandonner si facilement? » murmura Wang Lin, une détermination farouche brillant dans ses yeux.
+« Le vieux Suzaku m'a si bien traité, comment pourrais-je abandonner si facilement? » murmura Wang Lin, une détermination farouche brillant dans ses yeux.
 
-Tout comme il refusait de consumer ce monde, Wang Lin tenait énormément à son bienfaiteur. Il ne pouvait décevoir le vieil Oiseau Vermillon!
+Tout comme il refusait de consumer ce monde, Wang Lin tenait énormément à son bienfaiteur. Il ne pouvait décevoir le vieux Suzaku!
 
 Wang Lin prit une profonde inspiration et ferma les yeux. À cet instant, une flamme bleue jaillit de son corps. La flamme ne se propagea pas, mais brûla intensément à l'intérieur même de son être.
 
@@ -58,7 +58,7 @@ C'était comme si deux mille ans s'étaient abattus sur Wang Lin pendant que son
 
 « Abandonne... Tu ne pourras pas résister à la combustion de ton âme. Bien que ce vieil homme ne l'ait pas vécu, d'après ce que j'ai entendu de l'Ancêtre, je peux dire qu'il redoute encore ce sentiment... »
 
-Le vortex effondré réapparut dans le ciel. Le vieil Oiseau Vermillon était revenu, poussé par l'inquiétude. Ses paroles étaient empreintes de sollicitude et de compassion.
+Le vortex effondré réapparut dans le ciel. Le vieux Suzaku était revenu, poussé par l'inquiétude. Ses paroles étaient empreintes de sollicitude et de compassion.
 
 Wang Lin serra les dents, son esprit déjà embrumé. La douleur intense agissait comme une marée qui menaçait de l'engloutir. Cette souffrance était bien plus puissante que tout ce que Wang Lin avait connu jusqu'alors!
 
@@ -66,11 +66,11 @@ Seule la calamité de l'Ancien Dieu, où son corps s'effondrait et se reformait 
 
 « Tu continues à brûler ton âme, mais ton obsession ne s'est pas encore transformée en feu karmique. Ce niveau de douleur n'est que le commencement. Une fois que le feu karmique sera apparu, tu devras affronter les neuf rétributions karmiques. Même l'Ancêtre n'a pu les traverser que grâce à la protection d'autrui. Tu peux encore renoncer. Dès que ton obsession se transformera en feu karmique, elle détruira ton âme en un instant. Il ne te restera aucune chance de la transformer en flamme karmique! »
 
-« Sans la protection de l'Empereur Céleste, l'Ancêtre n'aurait pas réussi! » La voix du vieil Oiseau Vermillon était chargée d'anxiété.
+« Sans la protection de l'Empereur Céleste, l'Ancêtre n'aurait pas réussi! » La voix du vieux Suzaku était chargée d'anxiété.
 
 « Cette petite fille est l'obsession de ton cœur... Dans cette Épreuve Humaine, tout n'est qu'illusion. Pourquoi te condamner à une telle situation de vie ou de mort pour une simple illusion? »
 
-« Wang Lin, pourquoi es-tu si obstiné?! » La voix du vieil Oiseau Vermillon devint plus pressante, teintée d'une certaine dureté.
+« Wang Lin, pourquoi es-tu si obstiné?! » La voix du vieux Suzaku devint plus pressante, teintée d'une certaine dureté.
 
 Wang Lin ne répondit pas. À cet instant, sa conscience n'était plus qu'un brouillard. La douleur se mua en souvenirs qui défilèrent à travers son âme.
 
@@ -78,7 +78,7 @@ Sa première rencontre avec Li Muwan... la Mer Xiu Mo... la Secte Yun Tian... la
 
 Tous ces souvenirs brûlaient au plus profond de son être.
 
-« Cela fait bien assez longtemps. Si tu persistes, ta vie est en danger. Puisque tu refuses de te détacher de ce monde, alors même si tu devais ensuite me traiter avec indifférence, je détruirai ce monde pour toi! » Tandis que les paroles du vieil Oiseau Vermillon résonnaient, une mer de feu surgit soudainement du vortex. Les flammes se propagèrent dans toutes les directions et, en un clin d'œil, enveloppèrent le monde. Elles s'apprêtaient à descendre pour tout consumer!
+« Cela fait bien assez longtemps. Si tu persistes, ta vie est en danger. Puisque tu refuses de te détacher de ce monde, alors même si tu devais ensuite me traiter avec indifférence, je détruirai ce monde pour toi! » Tandis que les paroles du vieux Suzaku résonnaient, une mer de feu surgit soudainement du vortex. Les flammes se propagèrent dans toutes les directions et, en un clin d'œil, enveloppèrent le monde. Elles s'apprêtaient à descendre pour tout consumer!
 
 À cet instant précis, Li Muwan apparut au sommet de la montagne. Haletante, elle venait d'atteindre le sommet. Elle ne voyait pas le brasier, mais dans la vision trouble de Wang Lin, il pouvait voir cette mer de feu tenter d'engloutir Li Muwan telle une gueule béante!
 
@@ -88,7 +88,7 @@ Li Muwan fut stupéfaite. Alors qu'il l'enlaçait, Wang Lin se tourna vers le ci
 
 « Je peux le faire! »
 
-« Toi! » Le vieil Oiseau Vermillon était furieux; le brasier qu'il avait projeté du ciel fut stoppé net.
+« Toi! » Le vieux Suzaku était furieux; le brasier qu'il avait projeté du ciel fut stoppé net.
 
 « Ancêtre, j'ai cultivé toute ma vie pour elle seule! Même si ce n'est qu'une illusion, ce Junior refuse de la blesser, et encore moins de la détruire! » Wang Lin regarda le ciel, des larmes coulant sur ses joues pour venir mouiller Li Muwan dans ses bras. Ses larmes brûlantes semblèrent pénétrer le cœur de la jeune femme, dont les yeux se remplirent de confusion.
 
@@ -96,9 +96,9 @@ Au moment où Wang Lin prononça ces mots, le feu dans son âme explosa, devenan
 
 Une volute de feu noir apparut au sein de ce brasier. Ce feu noir modifia les couleurs du monde et supprima totalement la flamme bleue qui brûlait dans l'âme de Wang Lin.
 
-« Le feu karmique! » Le vieil Oiseau Vermillon inspira brusquement, puis poussa un long soupir.
+« Le feu karmique! » Le vieux Suzaku inspira brusquement, puis poussa un long soupir.
 
-« Maintenant que ton obsession s'est muée en feu karmique, personne ne peut empêcher le feu karmique de te consumer, hormis le premier Ancêtre. Laisse tomber... Puisque tu l'as choisi, laisse tomber... » La voix du vieil Oiseau Vermillon s'estompa progressivement, la mer de feu se dissipa et le vortex s'effondra.
+« Maintenant que ton obsession s'est muée en feu karmique, personne ne peut empêcher le feu karmique de te consumer, hormis le premier Ancêtre. Laisse tomber... Puisque tu l'as choisi, laisse tomber... » La voix du vieux Suzaku s'estompa progressivement, la mer de feu se dissipa et le vortex s'effondra.
 
 Le feu noir envahit instantanément le corps de Wang Lin, supplantant la flamme bleue. En un instant, près de 80 % du feu bleu était devenu noir.
 

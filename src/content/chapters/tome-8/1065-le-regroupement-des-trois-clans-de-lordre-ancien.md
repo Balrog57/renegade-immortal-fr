@@ -76,17 +76,17 @@ Une fois Hu Juan partie, les yeux de Wang Lin s'illuminèrent. Il était déterm
 
 À l'intérieur du magma, Wang Lin absorba l'énergie sans le moindre ménagement. La lave sembla couler à contre-courant alors que l'énergie d'origine du feu pénétrait son corps avec frénésie. L'énergie parcourut ses méridiens, permettant à son corps gravement blessé de se rétablir.
 
-Wang Lin ne faisait preuve d'aucune prudence comme lors de ses absorptions précédentes; il était d'une imprudence extrême. L'Oiseau Vermillon sur son corps apparut autour de lui, provoquant une réaction de l'énergie d'origine du feu qui s'engouffra vers lui. Tandis que cette énergie se précipitait vers Wang Lin, des quantités massives de magma tombèrent du septième étage vers le huitième. L'Ancien Démon Bei Luo et Xu Kongzi chargeaient dans la lave, poursuivis par l'Ancien Démon Ta Jia. À cet instant, tout cela, combiné à l'agitation frénétique de Wang Lin, fit s'effondrer toute la masse de magma à l'intérieur du volcan.
+Wang Lin ne faisait preuve d'aucune prudence comme lors de ses absorptions précédentes; il était d'une imprudence extrême. Le Suzaku sur son corps apparut autour de lui, provoquant une réaction de l'énergie d'origine du feu qui s'engouffra vers lui. Tandis que cette énergie se précipitait vers Wang Lin, des quantités massives de magma tombèrent du septième étage vers le huitième. L'Ancien Démon Bei Luo et Xu Kongzi chargeaient dans la lave, poursuivis par l'Ancien Démon Ta Jia. À cet instant, tout cela, combiné à l'agitation frénétique de Wang Lin, fit s'effondrer toute la masse de magma à l'intérieur du volcan.
 
 C'est alors qu'un rugissement assourdissant, qui fit trembler le magma même, retentit des profondeurs du volcan. Une tête de dragon gigantesque émergea de la lave. À ce moment-là, tout le magma que Wang Lin n'avait pas absorbé ou qui était tombé au huitième étage commença à bouger comme s'il possédait une intelligence propre, chargeant tous vers le dragon.
 
 En un clin d'œil, tout le magma du septième étage disparut, laissant place à un dragon de feu d'une démesure indescriptible qui fixait les créatures en contrebas.
 
-Simultanément, dans l'espace infini où se trouvait la poussière abritant la Terre Yao Ling, un incendie ravageait l'horizon. Un Oiseau Vermillon géant, poussant des cris stridents, s'approchait lentement.
+Simultanément, dans l'espace infini où se trouvait la poussière abritant la Terre Yao Ling, un incendie ravageait l'horizon. Un Suzaku géant, poussant des cris stridents, s'approchait lentement.
 
-Cet Oiseau Vermillon était doté d'une intelligence. Contre toute attente, il ne se dirigeait pas vers l'entrée de la Mer Dong de l'étoile Tianyun, mais vers la véritable localisation de la Terre Yao Ling!
+Ce Suzaku était doté d'une intelligence. Contre toute attente, il ne se dirigeait pas vers l'entrée de la Mer Dong de l'étoile Tianyun, mais vers la véritable localisation de la Terre Yao Ling!
 
-Une multitude de cultivateurs suivaient cet Oiseau Vermillon, parmi lesquels se trouvaient six Anciens. Ces derniers portaient tous des robes rouges et dégageaient chacun une aura puissante. Tous étaient des cultivateurs au stade du Briseur du Nirvana!
+Une multitude de cultivateurs suivaient ce Suzaku, parmi lesquels se trouvaient six Anciens. Ces derniers portaient tous des robes rouges et dégageaient chacun une aura puissante. Tous étaient des cultivateurs au stade du Briseur du Nirvana!
 
 « Selon les recherches avec l'esprit véritable, c'est ici que se trouve la personne qui s'est éveillée, et c'est aussi le lieu de ce mystérieux sentiment de danger. Ce voyage pourrait être extrêmement périlleux, mais même si je dois tout risquer, je dois protéger celui qui s'est éveillé! » Les six Anciens échangèrent des regards empreints de détermination. Tous les autres membres de la Secte Divine de Suzaku affichaient la même résolution!
 

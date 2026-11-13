@@ -66,9 +66,9 @@ Cependant, cette fois, Wang Lin ne fusionna pas les flammes avec son énergie or
 
 Tout convergea vers la marque, la rendant beaucoup plus visible et vivante! Le marquage de Suzaku!
 
-La forme de ce marquage avait radicalement changé au cours des mois depuis son apparition. À mesure que Wang Lin absorbait davantage de flammes, le motif évoluait. Ce qui n'était qu'une simple empreinte se transformait lentement en un véritable Oiseau Vermillon!
+La forme de ce marquage avait radicalement changé au cours des mois depuis son apparition. À mesure que Wang Lin absorbait davantage de flammes, le motif évoluait. Ce qui n'était qu'une simple empreinte se transformait lentement en un véritable Suzaku!
 
-C'était comme si un Oiseau Vermillon grandissait à vue d'œil. Il continuait de se solidifier, prêt à s'affranchir du marquage!
+C'était comme si un Suzaku grandissait à vue d'œil. Il continuait de se solidifier, prêt à s'affranchir du marquage!
 
 « Pas assez! » Wang Lin ouvrit soudainement les bras et balaya l'espace autour de lui. Toutes les flammes furent attirées vers lui, enveloppant son corps. Rapidement, elles pénétrèrent dans ses pores.
 
@@ -82,7 +82,7 @@ Cette mer de flammes fut créée par l'énergie originelle émanant du corps de 
 
 Alors que les flammes terrestres s'agitaient, un flux infini commença à converger de toutes les directions. C'était comme si un trou noir s'était ouvert, absorbant la totalité des flammes du désert de sable noir.
 
-Les masses de feu continuèrent d'irriguer son corps pour atteindre la marque entre ses sourcils. Lorsque l'éclat rouge atteignit son paroxysme, un Oiseau Vermillon flamboyant prit forme!
+Les masses de feu continuèrent d'irriguer son corps pour atteindre la marque entre ses sourcils. Lorsque l'éclat rouge atteignit son paroxysme, un Suzaku flamboyant prit forme!
 
 À l'instant où l'oiseau apparut, un cri capable de déchirer le vide retentit dans ce monde en bouteille.
 

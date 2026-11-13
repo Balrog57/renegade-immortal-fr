@@ -74,23 +74,23 @@ Dans l'Épreuve Terrestre, une fois que tout le brouillard magnétique eut quitt
 
 L'Épreuve Terrestre retomba dans le calme; seul le Feu Éthéré autour de Suzaku de Wang Lin brûlait silencieusement.
 
-Après un long moment, Wang Lin regarda l'oiseau et inspira profondément. L'Oiseau Vermillon poussa un cri et pénétra dans son œil gauche. Simultanément, le Feu Éthéré enveloppa le corps de Wang Lin. Ce feu était incolore et dégageait une aura de destruction pure.
+Après un long moment, Wang Lin regarda l'oiseau et inspira profondément. Le Suzaku poussa un cri et pénétra dans son œil gauche. Simultanément, le Feu Éthéré enveloppa le corps de Wang Lin. Ce feu était incolore et dégageait une aura de destruction pure.
 
 Wang Lin expira un air vicié et leva les yeux vers le ciel. Un instant plus tard, au lieu de partir, il fit un pas en avant. Il parcourut des millions de kilomètres pour atteindre la lisière de l'Épreuve Terrestre, là où se trouvait la montagne dénuée de flammes.
 
-L'Oiseau Vermillon de la quatrième génération était assis silencieusement sur cette montagne vide. Se trouvant en ce lieu, il avait clairement ressenti ce que Wang Lin venait de traverser, et il en était bouleversé.
+Le Suzaku de la quatrième génération était assis silencieusement sur cette montagne vide. Se trouvant en ce lieu, il avait clairement ressenti ce que Wang Lin venait de traverser, et il en était bouleversé.
 
 Cependant, n'étant pas un être ordinaire, il réprima rapidement son choc et fixa silencieusement l'horizon.
 
 Devant lui, le monde se tordit et Wang Lin en émergea. Il apparut à quelques dizaines de pieds de Suzaku de la quatrième génération et resta là, silencieux lui aussi.
 
-L'Oiseau Vermillon de la quatrième génération tourna son regard vers Wang Lin et murmura: « Après le quatrième éveil de Suzaku, le Feu Éthéré doit encore être nourri pendant un certain temps. Garde cela à l'esprit. »
+Le Suzaku de la quatrième génération tourna son regard vers Wang Lin et murmura: « Après le quatrième éveil de Suzaku, le Feu Éthéré doit encore être nourri pendant un certain temps. Garde cela à l'esprit. »
 
 Wang Lin afficha une expression complexe face à l'homme d'âge mûr devant lui. Il joignit les mains et demanda: « Le Senior est-il Suzaku de la quatrième génération? »
 
 « Je le suis », répondit l'homme en hochant la tête.
 
-Wang Lin resta silencieux. Après un long moment, il murmura: « L'Oiseau Vermillon de la cinquième génération a beaucoup fait pour ce junior. Avant de mourir, il n'oubliait jamais d'avoir autrefois accompagné Suzaku de la quatrième génération comme son petit serviteur chargé des remèdes... »
+Wang Lin resta silencieux. Après un long moment, il murmura: « Le Suzaku de la cinquième génération a beaucoup fait pour ce junior. Avant de mourir, il n'oubliait jamais d'avoir autrefois accompagné Suzaku de la quatrième génération comme son petit serviteur chargé des remèdes... »
 
 Une tristesse traversa les yeux de l'homme d'âge mûr qui hocha la tête. Sa voix, empreinte de mélancolie, murmura: « Je sais... »
 
@@ -108,7 +108,7 @@ Une fois levé, Wang Lin regarda Suzaku de la quatrième génération avec une e
 
 Il pouvait accepter Suzaku de la deuxième génération, mais il ne pouvait accepter celui de la quatrième... Si ce dernier n'était pas parti, le vieil Empereur aurait déjà accompli son quatrième éveil. Si ce dernier n'était pas parti, le vieil Empereur ne serait pas mort.
 
-L'Oiseau Vermillon de la quatrième génération contemplait la dépouille de son disciple, le corps tremblant. Une immense tristesse envahit ses yeux. Il se leva lentement et sa main droite, vacillante, effleura le visage de son disciple.
+Le Suzaku de la quatrième génération contemplait la dépouille de son disciple, le corps tremblant. Une immense tristesse envahit ses yeux. Il se leva lentement et sa main droite, vacillante, effleura le visage de son disciple.
 
 « Lu Yun... ton maître... t'a fait du tort... » Des larmes coulèrent sur les joues de Suzaku de la quatrième génération.
 

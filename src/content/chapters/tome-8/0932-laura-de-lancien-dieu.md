@@ -68,7 +68,7 @@ Le doigt du dieu ancien s'effondra subitement! Un grondement de tonnerre retenti
 
 Si Wang Lin en était réduit à cela, il n'en était rien autrement pour les autres: leurs corps s'écrasèrent instantanément en amas de chair et de sang. Ils furent terrassés par l'onde de choc!
 
-Même le Dieu de Sang et ses compagnons virent leurs expressions changer radicalement et reculèrent précipitamment. En un instant, plus aucun cultivateur ne se trouvait à proximité du Serpent aux yeux de lune!
+Même Xue Shenzi et ses compagnons virent leurs expressions changer radicalement et reculèrent précipitamment. En un instant, plus aucun cultivateur ne se trouvait à proximité du Serpent aux yeux de lune!
 
 Seuls les quatre gardes célestes dorés restaient accrochés au serpent, travaillant de concert avec les neuf papillons noirs pour perpétuer la tempête.
 

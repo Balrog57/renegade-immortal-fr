@@ -14,7 +14,7 @@ L'inimaginable énergie d'origine du feu balayait son corps comme une tempête. 
 
 Une douleur intense le déchirait. Son corps était tel un récipient devant supporter neuf fois sa capacité normale; on pouvait imaginer l'atrocité de la souffrance.
 
-Les Neuf Transformations Mystérieuses du Oiseau Vermillon s'accomplissent en empruntant neuf vies de culture et en les compressant continuellement jusqu'à forcer l'éveillé à subir la première Transformation du Oiseau Vermillon!
+Les Neuf Transformations Mystérieuses du Suzaku s'accomplissent en empruntant neuf vies de culture et en les compressant continuellement jusqu'à forcer l'éveillé à subir la première Transformation du Suzaku!
 
 La douleur cuisante fit saillir les veines de son visage. Le simple afflux de deux fois son énergie d'origine lui donnait presque l'impression que ses méridiens allaient exploser.
 
@@ -36,7 +36,7 @@ L'Empereur Divin de Suzaku observait Wang Lin avec anticipation et tension, sa m
 
 « Je suis trop impatient. Son talent est ordinaire; le forcer ainsi pourrait lui nuire... Hélas. » Il avait déjà pris sa décision: dès que Wang Lin montrerait qu'il ne pouvait plus tenir, il viendrait à son aide sans attendre.
 
-L'apparition de l'Armure du Oiseau Vermillon apaisa la douleur dans le corps de Wang Lin. Il prit une profonde inspiration, leva sa main gauche et pointa le sixième tatouage sur son bras droit. Aussitôt, une vague d'énergie d'origine du feu jaillit.
+L'apparition de l'Armure du Suzaku apaisa la douleur dans le corps de Wang Lin. Il prit une profonde inspiration, leva sa main gauche et pointa le sixième tatouage sur son bras droit. Aussitôt, une vague d'énergie d'origine du feu jaillit.
 
 « Puisque je dois endurer cette douleur quoi qu'il arrive, alors... » Un regard impitoyable s'anima dans les yeux de Wang Lin. Sa main gauche ne s'arrêta pas après l'activation du sixième tatouage; elle pointa trois fois de suite!
 
@@ -50,11 +50,11 @@ L'action insensée de Wang Lin fit se rétracter les pupilles de l'Empereur Divi
 
 L'apport de quatre fois sa capacité d'énergie d'origine, s'ajoutant à l'énergie déjà présente dans son corps et son armure, signifiait que sept fois son énergie habituelle affluait désormais en lui. Dans un bruit sourd, Wang Lin cracha du sang et leva immédiatement la main droite pour pointer entre ses sourcils.
 
-Un Oiseau Vermillon blanc jaillit instantanément du sommet de son crâne et poussa aussitôt son cri. La masse colossale d'énergie d'origine se déversa aussitôt dans l'oiseau, le faisant croître jusqu'à ce qu'il couvre le ciel.
+Un Suzaku blanc jaillit instantanément du sommet de son crâne et poussa aussitôt son cri. La masse colossale d'énergie d'origine se déversa aussitôt dans l'oiseau, le faisant croître jusqu'à ce qu'il couvre le ciel.
 
-Cet Oiseau Vermillon avait été capturé par Tian Yunzi, mais depuis l'arrivée de l'Empereur Divin de Suzaku, comment pouvait-il laisser cet homme s'emparer de l'esprit de Suzaku?
+Ce Suzaku avait été capturé par Tian Yunzi, mais depuis l'arrivée de l'Empereur Divin de Suzaku, comment pouvait-il laisser cet homme s'emparer de l'esprit de Suzaku?
 
-Alors que le Oiseau Vermillon se manifestait, Wang Lin endura la douleur atroce qui le ravageait et poussa un rugissement en levant sa main gauche pour pointer l'un des deux derniers tatouages de feu!
+Alors que le Suzaku se manifestait, Wang Lin endura la douleur atroce qui le ravageait et poussa un rugissement en levant sa main gauche pour pointer l'un des deux derniers tatouages de feu!
 
 En un instant, ce tatouage se mua en énergie d'origine et pénétra rapidement dans son corps. À cet instant, Wang Lin eut la sensation que tout son être brûlait, comme s'il était raffiné à l'intérieur d'un fourneau céleste naturel.
 
@@ -66,7 +66,7 @@ Lei Ji et Da Tou étaient sur un sommet montagneux. Ils cessèrent leur culture 
 
 Dans le désert, la tempête s'était dissipée. Maître Fu Fengzi leva les yeux vers le ciel et murmura: « Quelle puissante énergie d'origine. Se pourrait-il que... se pourrait-il qu'il récolte enfin les fruits de ses trois années de culture? »
 
-Sur une autre planète de culture, Situ Nan interrompit sa pratique et regarda le ciel, les yeux brillants d'une pointe de tension. L'Ancien du Oiseau Vermillon à ses côtés ne le pressa pas de reprendre sa culture; il contemplait lui aussi le ciel avec un mélange d'anticipation et d'excitation.
+Sur une autre planète de culture, Situ Nan interrompit sa pratique et regarda le ciel, les yeux brillants d'une pointe de tension. L'Ancien du Suzaku à ses côtés ne le pressa pas de reprendre sa culture; il contemplait lui aussi le ciel avec un mélange d'anticipation et d'excitation.
 
 À cet instant, même son vieux cœur ne put s'empêcher de ressentir une multitude d'émotions.
 
