@@ -20,7 +20,7 @@ slug: loiseau-vermillon-de-la-sixieme-generation
 
 Les yeux de Wang Lin s'illuminèrent et, un demi-sourire aux lèvres, il dit lentement: « C'est plutôt intéressant... »
 
-Après avoir été réprimandé par Liu Jinbiao, Xu Liguo ne répliqua pas, mais réfléchit un instant. Son regard envers Liu Jinbiao changea avant qu'il ne joigne les mains et ne dise: « Les paroles du camarade cultivateur Jinbiao ont élargi mes horizons. Parmi les 3 000 grands Daos, il existe le Dao de la tromperie! Bien, bien, bien! Je veux savoir si le Dao que je recherche figure également parmi les 3 000 grands Daos! »
+Après avoir été réprimandé par Liu Jinbiao, Xu Liguo ne répliqua pas, mais réfléchit un instant. Son regard envers Liu Jinbiao changea avant qu'il ne joigne les mains et ne dise: « Les paroles du Daoïste Jinbiao ont élargi mes horizons. Parmi les 3 000 grands Daos, il existe le Dao de la tromperie! Bien, bien, bien! Je veux savoir si le Dao que je recherche figure également parmi les 3 000 grands Daos! »
 
 Les yeux de Liu Jinbiao étaient remplis de joie, comme s'il était devenu une personne différente. La fierté et l'indifférence qu'il affichait auparavant s'étaient effondrées en un instant. Son dos était toujours voûté et une pointe de peur subsistait dans son regard. « Ce n'est qu'une simple compétence de tromperie, rien qui vaille la peine d'être mentionné devant Seigneur Xu. Tant que le Seigneur Xu ne maltraite pas trop cet humble serviteur, il sera satisfait. »
 

@@ -62,7 +62,7 @@ Les sept étoiles entre les sourcils de Wang Lin tournaient rapidement, et une �
 
 Un tel avatar serait difficile à trouver n'importe où ailleurs. Pourtant, il pouvait en trouver un dans cette tombe, et plus précisément dans ce palais!
 
-Il restait encore quelques corps pétrifiés appartenant aux trois clans de l'Ordre Antique. Parmi eux se trouvait un Diable Ancien de dix mille pieds de haut, qui conservait encore son expression féroce. Il était particulièrement frappant parmi les autres cadavres!
+Il restait encore quelques corps pétrifiés appartenant aux trois clans anciens. Parmi eux se trouvait un Diable Ancien de dix mille pieds de haut, qui conservait encore son expression féroce. Il était particulièrement frappant parmi les autres cadavres!
 
 Wang Lin leva la main droite et fit un geste. Le corps du Diable Ancien vola vers lui et atterrit devant ses pieds. Il pressa alors sa main droite sur le corps.
 

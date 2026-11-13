@@ -8,7 +8,7 @@ slug: neuf-palais-huit-diagrammes
 ---
 La montagne de nuages ressemblait à un voile de brume qui enveloppait la Formation du Royaume Scellé et pesait sur Wang Lin. Des grondements tonnerreux résonnaient et le visage de Wang Lin devint encore plus pâle, mais son expression resta imperturbable. Il fixait la montagne de nuages tout en s'appuyant contre la formation, immobile!
 
-« J'ai vu le pouvoir de la Tribulation Céleste à maintes reprises et j'ai survécu à chacune d'elles. La rétribution d'aujourd'hui est étrange, mais elle ne pourra toujours pas me détruire! Mon cœur de dao ne peut être brisé, donc mon esprit ne peut mourir. Mon corps est aussi immuable que le Mont Tai, et même les cieux ne pourront m'empêcher d'accomplir mon dao! » La voix de Wang Lin était calme et lente.
+« J'ai vu le pouvoir de la Tribulation Céleste à maintes reprises et j'ai survécu à chacune d'elles. La Tribulation Céleste d'aujourd'hui est étrange, mais elle ne pourra toujours pas me détruire! Mon cœur de dao ne peut être brisé, donc mon esprit ne peut mourir. Mon corps est aussi immuable que le Mont Tai, et même les cieux ne pourront m'empêcher d'accomplir mon dao! » La voix de Wang Lin était calme et lente.
 
 Ses mains formèrent un sceau et l'épée de sang tourna autour de lui en émettant des sifflements stridents. La lumière sanglante enveloppa Wang Lin. La montagne de nuages rugit en s'abattant sur lui, mais Wang Lin fit un geste de la main. Une ombre de Dieu Ancien apparut autour de lui; au même instant, sa main droite se serra en un poing pour frapper la montagne, tandis que sa main gauche pressait la Formation du Royaume Scellé!
 
@@ -56,7 +56,7 @@ Alors que la voix diffuse résonnait, la fissure où se trouvait le pavillon de 
 
 À l'intérieur de la brèche, neuf planètes identiques formaient une formation dégageant la puissance du Royaume Céleste Antique!
 
-Palais Céleste, Palais Aquatique, Palais Montagneux, Palais Tonnerre, Palais Central, Palais Xun, Palais Li, Palais Kun, Palais Dui. Différentes runes dorées apparaissaient sur chaque planète, dégageant une aura inimaginable. Dès l'instant où les neuf planètes apparurent, elles grondèrent et jaillirent de la fissure. Elles rétrécirent, devenant de plus en plus petites, jusqu'à charger dans le vide!
+Palais Qian, Palais Kan, Palais Gen, Palais Zhen, Palais Zhong, Palais Xun, Palais Li, Palais Kun, Palais Dui. Différentes runes dorées apparaissaient sur chaque planète, dégageant une aura inimaginable. Dès l'instant où les neuf planètes apparurent, elles grondèrent et jaillirent de la fissure. Elles rétrécirent, devenant de plus en plus petites, jusqu'à charger dans le vide!
 
 Elles pénétrèrent la brèche et entrèrent dans le vide où se trouvait la Formation du Royaume Scellé. Elles tournoyaient tout en descendant sur Wang Lin!
 

@@ -34,7 +34,7 @@ Cependant, en voyant l'opportunité parfaite offerte par l'effondrement des deux
 
 « Cette âme d'origine n'est pas puissante, elle se situe seulement au début du stade Briseur du Nirvana. Tant que je peux asservir cette âme au sein du roi moustique, je pourrai contrôler le roi lui-même! » Song Luohai serra les dents, produisant des craquements sinistres dans son corps. Il jaillit soudainement de sa cachette comme un éclair, traversant l'onde de choc des deux bêtes blanches pour charger la créature de Wang Lin.
 
-Son timing était impeccable. Bien que sa cupidité ait supplanté son bon sens, il n'en demeurait pas moins réfléchi. Dès qu'il s'élança, ses mains formèrent un sceau et sa puissance de Briseur du Nirvana de stade intermédiaire se propagea avec fureur. L'illusion d'un soleil et d'une lune apparut entre ses mains; il engagea son attaque la plus dévastatrice! Membre de la Secte de l'Âme Silencieuse, il appartenait à une faction spécialisée dans les sorts de l'esprit. Ils ne cherchaient pas à endommager le corps, mais visaient directement l'âme!
+Son timing était impeccable. Bien que sa cupidité ait supplanté son bon sens, il n'en demeurait pas moins réfléchi. Dès qu'il s'élança, ses mains formèrent un sceau et sa puissance de Briseur du Nirvana de stade intermédiaire se propagea avec fureur. L'illusion d'un soleil et d'une lune apparut entre ses mains; il engagea son attaque la plus dévastatrice! Membre de la Secte Ji Hun, il appartenait à une faction spécialisée dans les sorts de l'esprit. Ils ne cherchaient pas à endommager le corps, mais visaient directement l'âme!
 
 Alors que son sort se déployait, Song Luohai poussa un rugissement. Ce cri portait en lui un sortilège ciblant les âmes d'origine. Sous cette onde sonore, une âme d'origine vacillait et pouvait être frappée de vertiges instantanés.
 
@@ -56,7 +56,7 @@ Des milliers de bêtes rouges et des centaines de bleues... C'était la premièr
 
 Un grondement tonitruant monta de l'essaim, entremêlé aux cris d'effroi de Song Luohai.
 
-« Je reconnais mes torts! Daoïste, ayez pitié! Daoïste, je vous en supplie! Je suis un Ancien de la Secte de l'Âme Silencieuse! Si vous me laissez partir, je vous le rendrai au centuple! » Sa voix n'était plus qu'un mélange d'angoisse et de supplications désespérées.
+« Je reconnais mes torts! Daoïste, ayez pitié! Daoïste, je vous en supplie! Je suis un Ancien de la Secte Ji Hun! Si vous me laissez partir, je vous le rendrai au centuple! » Sa voix n'était plus qu'un mélange d'angoisse et de supplications désespérées.
 
 L'expression de Wang Lin resta sereine. Il émit un ordre, faisant pousser un cri au roi moustique, et l'assaut de l'essaim redoubla de sauvagerie!
 

@@ -64,11 +64,11 @@ Après avoir gravement blessé l'homme d'âge moyen au sein de la flamme aux sep
 
 La culture de cet homme fluctuait, tantôt haute, tantôt basse. Il avait pu s'opposer à l'esprit originel de Suzaku, utiliser la technique « Pêcher la Lune dans le Puits » et celle des Quatre Éléments, il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
 
-« Sa culture est liée au feu et il possède Suzaku aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain...? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Antique. Personne ne savait à quel clan il appartenait!
+« Sa culture est liée au feu et il possède Suzaku aux sept couleurs. Il devrait être le Nie Que de troisième génération... Mais est-il vraiment le Souverain...? » La raison pour laquelle Wang Lin avait supposé que le Nie Que de troisième génération était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Antique. Personne ne savait à quel clan il appartenait!
 
 De plus, dans les Terre Yao Ling, Wang Lin avait rencontré un individu qui s'était avéré être le disciple du Souverain! Cet homme utilisait des sorts de feu! Ce sort n'était pas celui d'un cultivateur ordinaire; il était manifeste que cet homme touchait aux limites de l'essence du feu.
 
-Tout cela menait Wang Lin à une conclusion logique. En combinant ces indices, il avait déterminé que le traître du troisième Oiseau Vermillon était le Souverain! C'était pour cette raison que le Conseil du Souverain connaissait la vérité sur les Terres Déchues et n'osait point agir!
+Tout cela menait Wang Lin à une conclusion logique. En combinant ces indices, il avait déterminé que le Nie Que de troisième génération était le Souverain! C'était pour cette raison que le Conseil du Souverain connaissait la vérité sur les Terres Déchues et n'osait point agir!
 
 Cependant, après avoir vu le Souverain en personne, Wang Lin était devenu suspicieux.
 

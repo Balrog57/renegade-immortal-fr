@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1063 - Qing Lins Words Before Being Possessed
 slug: les-dernieres-paroles-de-qing-lin-avant-detre-possedee
 ---
-Le Xu Kongzi fixa Wang Lin. Après avoir été contraint de réprimer sa colère pendant si longtemps, il ne pouvait plus se contenir. À cet instant, oubliant qu'il ne devait pas perdre son sang-froid aussi facilement compte tenu de son niveau de culture, il chargea Wang Lin.
+Xu Kongzi fixa Wang Lin. Après avoir été contraint de réprimer sa colère pendant si longtemps, il ne pouvait plus se contenir. À cet instant, oubliant qu'il ne devait pas perdre son sang-froid aussi facilement compte tenu de son niveau de culture, il chargea Wang Lin.
 
 « Petit bâtard, je vais te dépécer vivant aujourd'hui! »
 
 Wang Lin recula rapidement, le regard devenu glacial.
 
-Alors que le Xu Kongzi poursuivait Wang Lin, le brouillard sombre saturé de sorts s'étendit soudainement une fois de plus, et cette fois, Tian Yunzi fut projeté à l'extérieur. Bien qu'il parût pâle, il n'avait rien de piteux. Dès qu'il fut expulsé, le brouillard noir se mua en la lumière noire qui avait blessé Wang Wei et chargea Tian Yunzi.
+Alors que Xu Kongzi poursuivait Wang Lin, le brouillard sombre saturé de sorts s'étendit soudainement une fois de plus, et cette fois, Tian Yunzi fut projeté à l'extérieur. Bien qu'il parût pâle, il n'avait rien de piteux. Dès qu'il fut expulsé, le brouillard noir se mua en la lumière noire qui avait blessé Wang Wei et chargea Tian Yunzi.
 
 Les yeux de Tian Yunzi s'illuminèrent. Il s'élança et sa main droite toucha l'espace entre ses sourcils. Un rayon de lumière aux sept couleurs jaillit de son front et forma une barrière qui percuta la lumière noire.
 
@@ -62,9 +62,9 @@ C'était le véritable corps de l'Ancien Démon Bei Luo. Dès qu'il apparut, il 
 
 Tout en poursuivant Bei Luo, l'ancien démon lança un regard glacial à Wang Lin, au loin.
 
-Wang Lin se déplaçait aussi vite que possible pour éviter le Xu Kongzi, qui se comportait comme un chien enragé, mais sa vitesse restait bien trop lente face à celle de son poursuivant. En ce moment de crise, Wang Lin sortit le talisman de vitesse du clan des Tatouages et l'appliqua sur son corps, portant immédiatement sa vitesse à son paroxysme.
+Wang Lin se déplaçait aussi vite que possible pour éviter Xu Kongzi, qui se comportait comme un chien enragé, mais sa vitesse restait bien trop lente face à celle de son poursuivant. En ce moment de crise, Wang Lin sortit le talisman de vitesse du clan des Tatouages et l'appliqua sur son corps, portant immédiatement sa vitesse à son paroxysme.
 
-« Va vers le palais. Ma femme est là... Elle a été emmenée avant que le Maître ne soit possédé, il doit donc y avoir eu un message. » La voix de Wang Wei parvint derrière Wang Lin. Ses blessures étaient totalement guéries. Après avoir parlé, il quitta Wang Lin pour charger le Xu Kongzi.
+« Va vers le palais. Ma femme est là... Elle a été emmenée avant que le Maître ne soit possédé, il doit donc y avoir eu un message. » La voix de Wang Wei parvint derrière Wang Lin. Ses blessures étaient totalement guéries. Après avoir parlé, il quitta Wang Lin pour charger Xu Kongzi.
 
 Wang Lin changea immédiatement de direction sans s'arrêter. Il atteignit en un éclair le palais effondré et, d'un balayage de son sens divin, il repéra Hu Juan, inconsciente.
 
@@ -74,7 +74,7 @@ S'approchant d'elle, Wang Lin rassembla une énergie d'origine de feu dans sa ma
 
 À son réveil, une trace de confusion passa dans les yeux de Hu Juan, mais elle se rétablit promptement. Elle se leva, ses mains formant un sceau, puis elle pointa le ciel. Un grondement résonna dans l'éther et six piliers de lumière s'abattirent à moins de cent pieds de Hu Juan.
 
-Au loin, la main droite de Wang Wei traça un sceau, créant un rideau d'eau qui emprisonna le Xu Kongzi. Une intention meurtrière brilla dans ses yeux, mais ce n'était manifestement pas le moment de combattre. Il laissa échapper un reniflement froid, et l'eau emprisonnant le Xu Kongzi se mua soudain en une multitude de flèches d'eau qui se rétractèrent rapidement. Sans attendre le résultat, Wang Wei apparut instantanément aux côtés de Hu Juan et Wang Lin. Le pilier de lumière brilla et les trois disparurent aussitôt.
+Au loin, la main droite de Wang Wei traça un sceau, créant un rideau d'eau qui emprisonna Xu Kongzi. Une intention meurtrière brilla dans ses yeux, mais ce n'était manifestement pas le moment de combattre. Il laissa échapper un reniflement froid, et l'eau emprisonnant Xu Kongzi se mua soudain en une multitude de flèches d'eau qui se rétractèrent rapidement. Sans attendre le résultat, Wang Wei apparut instantanément aux côtés de Hu Juan et Wang Lin. Le pilier de lumière brilla et les trois disparurent aussitôt.
 
 Au même moment, l'homme en noir arriva également, paniqué. Il se précipita dans les piliers de lumière et disparut à son tour.
 
@@ -84,7 +84,7 @@ Tout ce qui s'était produit aurait semblé incroyable à n'importe qui d'autre.
 
 Les yeux du Xu Kongzi se remplirent de peur et d'amertume. Son corps vacilla et il chargea directement vers les piliers de lumière. Quant à Tian Yunzi, il avait inexplicablement disparu, et nul ne savait où il s'était rendu.
 
-« Tout à l'heure, j'ai senti que je perdais le contrôle de moi-même, mais maintenant j'en suis certain... Je ne pensais pas que le premier Fléau Céleste arriverait si vite... » Le Xu Kongzi se précipita dans le pilier de lumière et disparut.
+« Tout à l'heure, j'ai senti que je perdais le contrôle de moi-même, mais maintenant j'en suis certain... Je ne pensais pas que le premier Fléau Céleste arriverait si vite... » Xu Kongzi se précipita dans le pilier de lumière et disparut.
 
 L'Ancien Démon Bei Luo, poursuivi par l'ancien démon, laissait échapper des rugissements de rage. Lorsqu'il vit que le réseau de transfert pour quitter les lieux s'était ouvert, il se précipita vers lui sans hésiter. Cependant, alors qu'il approchait, l'ancien démon qui le traquait afficha un regard sanguinaire. Il lâcha la lame qu'il tenait et ouvrit soudainement les bras.
 
@@ -100,7 +100,7 @@ Le ciel fut déchiré alors qu'il chargeait vers les hauteurs.
 
 Quant à Wang Lin et au Couple Céleste, les trois apparurent instantanément dans le palais du huitième étage. Hu Juan s'exclama rapidement: « Lorsque le Maître m'a parlé tout à l'heure, il n'a prononcé qu'une seule phrase! "Temple Yu Jie Zun, Cristal d'Âme Originelle, le sang de Qing Shuang!" »
 
-Les yeux de Wang Wei se rétrécirent. Avant qu'il ne puisse parler, l'homme en noir et le Xu Kongzi émergèrent du réseau de transfert. Au même moment, le corps spirituel misérable de l'Ancien Démon Bei Luo apparut également.
+Les yeux de Wang Wei se rétrécirent. Avant qu'il ne puisse parler, l'homme en noir et Xu Kongzi émergèrent du réseau de transfert. Au même moment, le corps spirituel misérable de l'Ancien Démon Bei Luo apparut également.
 
 De plus, à cet instant précis, le sol sur lequel tout le monde se tenait s'effondra. Tandis que la terre cédait, des filaments d'énergie démoniaque jaillirent des fissures. Lorsque le sol fut totalement détruit, le dragon formé d'énergie démoniaque surgit. Il ouvrit une gueule capable de dévorer le monde et tenta d'engloutir tout le monde.
 

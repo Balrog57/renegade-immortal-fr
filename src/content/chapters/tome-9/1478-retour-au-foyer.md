@@ -78,7 +78,7 @@ On pouvait dire que ces personnes étaient l'essence même des différents clans
 
 À cet instant, au sein de la neuvième carte, parmi les fluctuations infinies, Wang Lin émergea. Il se trouvait dans une zone distincte du palais, évitant ainsi la femme séduisante.
 
-Wang Lin n'accordait aucun intérêt aux cultivateurs présents dans la tombe. Miaoyin Daozun, Jiutian Mozun, la Grande Désolation et les autres avaient tous un niveau de culture insondable. Bien qu'ils aient été blessés par le rugissement, ils avaient survécu des dizaines de milliers d'années et possédaient assurément diverses techniques divines.
+Wang Lin n'accordait aucun intérêt aux cultivateurs présents dans la tombe. Miaoyin Daozun, Jiutian Mozun, Da Huang et les autres avaient tous un niveau de culture insondable. Bien qu'ils aient été blessés par le rugissement, ils avaient survécu des dizaines de milliers d'années et possédaient assurément diverses techniques divines.
 
 Wang Lin n'avait pas l'idée folle de tous les massacrer comme lorsqu'il avait affronté le Souverain. Ce serait irréaliste et contraire à son plan actuel.
 
@@ -94,7 +94,7 @@ Ce pavillon colossal possédait trois fenêtres et sa porte était hermétiqueme
 
 Une pression écrasante émana du pavillon, enveloppant toute la zone.
 
-Dès l'apparition du pavillon, tous les cultivateurs de la tombe le remarquèrent, en particulier Miaoyin Daozun, Jiutian Mozun et la Grande Désolation.
+Dès l'apparition du pavillon, tous les cultivateurs de la tombe le remarquèrent, en particulier Miaoyin Daozun, Jiutian Mozun et Da Huang.
 
 Wang Lin n'hésita pas. Dès que le Palais Terrestre fut invoqué, il le rangea dans son espace de stockage. Puis, il se retourna et fit un pas.
 

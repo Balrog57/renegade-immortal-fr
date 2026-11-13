@@ -40,7 +40,7 @@ Voyant le loup approcher, Wang Lin esquissa un sourire narquois et recula. Il ag
 
 Dès que la tortue se manifesta, une lumière fantomatique perça dans toutes les directions telle des épées acérées. Dans un scintillement violent, la carapace s'étendit follement. En un clin d'œil, elle se transforma en une bête tortue d'une taille incomparable!
 
-Cette carapace de tortue lui avait été offerte par le vieil Oiseau Vermillon. C'était la Restriction d'Âme Antique qui se trouvait initialement au-dessus de l'arène!
+Cette carapace de tortue lui avait été offerte par le vieux Suzaku. C'était la Restriction d'Âme Antique qui se trouvait initialement au-dessus de l'arène!
 
 La tortue apparut et protégea Wang Lin sous son dôme. Elle laissa échapper un sifflement lorsque le loup percuta sa carapace.
 

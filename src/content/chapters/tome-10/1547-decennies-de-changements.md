@@ -40,11 +40,11 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « Les cinq Royaumes aux Sept Couleurs devinrent autant de portails vers le Royaume Intérieur, permettant aux cultivateurs du Royaume Extérieur de pénétrer chez nous. Utilisant ces Royaumes comme bases, ils purent envahir le Royaume Intérieur... Les pertes furent lourdes...
 
-« Lors de la seconde bataille, Senior Maître Hong Shan fut scellé par Han Yi Tongzi, allié à d'autres grands experts du Royaume Extérieur. Finalement, il fut piégé à l'intérieur du Royaume aux Sept Couleurs de Zhao He He, gardé par 30 000 cultivateurs! Actuellement, celui qui se trouve sur la plateforme de combat du Royaume Intérieur est l'un de ses avatars.
+« Lors de la seconde bataille, Senior Maître Hong Shan fut scellé par Han Yi Tongzi, allié à d'autres grands experts du Royaume Extérieur. Finalement, il fut piégé à l'intérieur du Royaume aux Sept Couleurs de Zhao He, gardé par 30 000 cultivateurs! Actuellement, celui qui se trouve sur la plateforme de combat du Royaume Intérieur est l'un de ses avatars.
 
 « Senior Maître Nan Yunzi fut gravement blessé par le Souverain et s'est retiré en culture fermée. À ce jour, il ne montre aucun signe de sortie!
 
-« La seconde bataille affecta les quatre grands systèmes stellaires. Au moment le plus critique, l'Empereur Céleste Qing Lin quitta le Royaume Céleste de la Pluie pour mener les combats. Même avec les grands experts de Zhao He He pour les ralentir, nous ne parvenions pas à stopper l'avancée de l'armée du Royaume Extérieur!
+« La seconde bataille affecta les quatre grands systèmes stellaires. Au moment le plus critique, l'Empereur Céleste Qing Lin quitta le Royaume Céleste de la Pluie pour mener les combats. Même avec les grands experts de Zhao He pour les ralentir, nous ne parvenions pas à stopper l'avancée de l'armée du Royaume Extérieur!
 
 « Le Royaume Extérieur possède bien plus de grands experts que notre Royaume Intérieur. En fin de compte, l'Empereur Céleste Qing Lin utilisa un ancien sort céleste invoquant une lumière antique pour sceller la connexion entre les Royaumes aux Sept Couleurs et le Royaume Extérieur. Cela permit de sceller les passages pour une courte période, nous permettant de survivre de justesse à la seconde bataille!
 
@@ -52,7 +52,7 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « La bataille s'est apaisée pendant un certain temps. Le Royaume Extérieur aura besoin de temps pour briser la lumière antique. Après cela, tous les grands experts du Royaume Intérieur se sont reposés, puis ont rassemblé les forces restantes pour lancer la troisième bataille. L'objectif était de pulvériser les cinq Royaumes aux Sept Couleurs...
 
-« Mais finalement, nous n'avons réussi à en détruire que trois, et les deux camps subirent de lourdes pertes. Plusieurs grands experts du Royaume Extérieur furent tués ou gravement blessés, mais il en fut de même pour nous. L'Empereur Céleste Qing Lin fut gravement blessé, deux membres de Zhao He He périrent, et les autres furent tous contraints à une culture fermée pour guérir.
+« Mais finalement, nous n'avons réussi à en détruire que trois, et les deux camps subirent de lourdes pertes. Plusieurs grands experts du Royaume Extérieur furent tués ou gravement blessés, mais il en fut de même pour nous. L'Empereur Céleste Qing Lin fut gravement blessé, deux membres de Zhao He périrent, et les autres furent tous contraints à une culture fermée pour guérir.
 
 « Nous sommes maintenant dans la neuvième année suivant la troisième bataille. Selon les calculs de l'avatar de Maître Hong Shan, il ne faudra pas longtemps avant que le Royaume Extérieur ne brise la lumière antique. Les cultivateurs du Royaume Extérieur reviendront alors, et les combats éclateront simultanément à l'intérieur et à l'extérieur des deux Royaumes aux Sept Couleurs restants. Le Royaume Intérieur est en péril! »
 
@@ -60,17 +60,17 @@ Maître Yan Leizi expliqua rapidement à Wang Lin tout ce qui s'était passé. I
 
 Après avoir exposé ces faits avec ferveur, il cracha une bouchée de sang et parut extrêmement sinistre. Ses blessures se rouvrirent et il semblait toucher à sa fin.
 
-« Seigneur du Royaume Scellé!! Le Royaume Intérieur est en danger. Il n'y avait pas de Royaume aux Sept Couleurs dans Luotian. Celui de la Mer Yun a été détruit par vous. Après votre disparition, nous avons découvert les cinq autres sites. Hormis celui de Kun Xu, tous se trouvaient à Zhao He He!
+« Seigneur du Royaume Scellé!! Le Royaume Intérieur est en danger. Il n'y avait pas de Royaume aux Sept Couleurs dans Luotian. Celui de la Mer Yun a été détruit par vous. Après votre disparition, nous avons découvert les cinq autres sites. Hormis celui de Kun Xu, tous se trouvaient à Zhao He!
 
-« En conséquence, Zhao He He est tombée dès le début de la seconde bataille... À ce jour, nous ne pouvons toujours pas reprendre ce territoire, devenu le repaire du Royaume Extérieur. Ils y oppriment sans cesse les cultivateurs locaux.
+« En conséquence, Zhao He est tombée dès le début de la seconde bataille... À ce jour, nous ne pouvons toujours pas reprendre ce territoire, devenu le repaire du Royaume Extérieur. Ils y oppriment sans cesse les cultivateurs locaux.
 
-« Lors de la première bataille, la Mer Yun faillit s'effondrer, mais elle est restée sous notre contrôle. Luotian est le secteur le plus stable et n'a pas subi de grands bouleversements. Cependant, le système stellaire Kun Xu subit le même sort que Zhao He He. En raison du Royaume aux Sept Couleurs situé au Siège de l'Alliance, ce système stellaire est contrôlé par les deux camps!
+« Lors de la première bataille, la Mer Yun faillit s'effondrer, mais elle est restée sous notre contrôle. Luotian est le secteur le plus stable et n'a pas subi de grands bouleversements. Cependant, le système stellaire Kun Xu subit le même sort que Zhao He. En raison du Royaume aux Sept Couleurs situé au Siège de l'Alliance, ce système stellaire est contrôlé par les deux camps!
 
 « Maître Hong Shan a tenté de détruire les Royaumes aux Sept Couleurs restants par crainte de devoir affronter deux fronts lors de la quatrième bataille. Il a essayé maintes fois, mais le Royaume Intérieur n'a plus la puissance nécessaire pour les anéantir... Tout le monde est en culture fermée... »
 
 Wang Lin médita silencieusement, une lueur de froideur dans les yeux. Il ne s'était pas attendu à ce que le temps s'écoule si différemment à l'intérieur de la Bête des Limbes. Tant de combats avaient eu lieu au monde extérieur!
 
-« Zhao He He est tombée... le Siège de l'Alliance est occupé par les cultivateurs du Royaume Extérieur... » Une intention meurtrière traversa le regard de Wang Lin.
+« Zhao He est tombée... le Siège de l'Alliance est occupé par les cultivateurs du Royaume Extérieur... » Une intention meurtrière traversa le regard de Wang Lin.
 
 « Pourquoi es-tu ici? » L'intention meurtrière de Wang Lin fit s'échapper inconsciemment la lumière dorée. Lorsqu'elle toucha Maître Yan Leizi, il se sentit comme une fourmi face à un dieu; Wang Lin était pour lui comme les cieux eux-mêmes. Il avait depuis longtemps pressenti que Wang Lin était devenu encore plus puissant qu'auparavant.
 

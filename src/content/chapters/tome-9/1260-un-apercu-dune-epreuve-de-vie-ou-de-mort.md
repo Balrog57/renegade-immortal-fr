@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1260 - Glimpse of a Life and Death Trial
 slug: un-apercu-dune-epreuve-de-vie-ou-de-mort
 ---
-Non seulement le Grand Ancien de la Secte Éternelle était terrifié, mais les dizaines de milliers de cultivateurs environnants étaient également pétrifiés.
+Non seulement le Grand Ancien de la Secte Wu Ji était terrifié, mais les dizaines de milliers de cultivateurs environnants étaient également pétrifiés.
 
 La puissance de la Nuit Brisée avait déjà stupéfié tous ces cultivateurs; il n'était donc pas nécessaire d'évoquer l'effet de la réversion temporelle. Grâce au Temps qui s'écoule, en plus du vieil homme aux cheveux blancs, tous les cultivateurs alentour furent aspirés et ressentirent divers degrés de retour dans le temps.
 
@@ -18,7 +18,7 @@ Il était devenu célèbre en une seule bataille!
 
 Le ressentiment dans le cœur de Feng Hai s'était effondré. Il fut violemment dissipé par la stupeur qui l'envahissait, et il n'osa plus laisser les pensées révoltées lui traverser l'esprit comme auparavant. Il avait personnellement vu la Nuit Brisée et le Temps qui s'écoule, et cela lui avait fait dresser les poils sur la peau. Il savait que si l'un de ces sorts avait été dirigé contre lui, il serait sans aucun doute mort!
 
-Certains Anciens de la Secte Éternelle partageaient des pensées similaires. Ils restaient désormais tous silencieux, contemplant avec respect la silhouette droite de Wang Lin au-dessus de la plateforme effondrée.
+Certains Anciens de la Secte Wu Ji partageaient des pensées similaires. Ils restaient désormais tous silencieux, contemplant avec respect la silhouette droite de Wang Lin au-dessus de la plateforme effondrée.
 
 Profond et mystérieux!
 
@@ -34,9 +34,9 @@ Wang Lin représentait la Secte Gui Yuan. Après cet événement, une chose se r
 
 Les gens préféreraient traverser le Monde Shou Wu plutôt que de provoquer la Secte Gui Yuan!
 
-Le Maître de la Secte Éternelle poussa un soupir. Bien qu'il ait surestimé la force de Wang Lin, il était, en fin de compte, resté bien en deçà de la réalité. Que ce soit ce doigt, l'extraction de l'âme planétaire, la Nuit Brisée ou le sort temporel utilisé à la fin, tout cela suffisait à démontrer la puissance de Wang Lin.
+Le Maître de la Secte Wu Ji poussa un soupir. Bien qu'il ait surestimé la force de Wang Lin, il était, en fin de compte, resté bien en deçà de la réalité. Que ce soit ce doigt, l'extraction de l'âme planétaire, la Nuit Brisée ou le sort temporel utilisé à la fin, tout cela suffisait à démontrer la puissance de Wang Lin.
 
-« Cet homme doit être un cultivateur du Fléau Céleste, mais en raison de ses blessures, son niveau de culture a chuté. Pourtant, ses sorts lui permettent de lutter contre un Grand Ancien! De plus, il n'a aucune malveillance; autrement, il aurait utilisé une multitude de trésors pour prolonger cette bataille! Ma Secte Éternelle doit absolument traiter un tel cultivateur avec les plus grands égards, et ne pas l'offenser ni restreindre sa liberté... Cependant, avec lui, ma Secte Éternelle s'élèvera lors de la compétition avec les autres sectes de rang 8! »
+« Cet homme doit être un cultivateur du Fléau Céleste, mais en raison de ses blessures, son niveau de culture a chuté. Pourtant, ses sorts lui permettent de lutter contre un Grand Ancien! De plus, il n'a aucune malveillance; autrement, il aurait utilisé une multitude de trésors pour prolonger cette bataille! Ma Secte Wu Ji doit absolument traiter un tel cultivateur avec les plus grands égards, et ne pas l'offenser ni restreindre sa liberté... Cependant, avec lui, ma Secte Wu Ji s'élèvera lors de la compétition avec les autres sectes de rang 8! »
 
 Lu Yanfei regarda la silhouette de Wang Lin, sous le choc. Même elle ne s'attendait pas à ce qu'il soit aussi puissant. En repensant aux paroles de son maître, qui avait utilisé son pouvoir de sélection des esprits avant de mourir il y a cent ans, les yeux de Lu Yanfei s'embuèrent d'un éclat de larmes.
 
@@ -64,25 +64,25 @@ Bien que le battement d'ailes d'un papillon semble gracieux et léger, nul ne sa
 
 Le visage de Wang Lin était extrêmement pâle, mais il resta calme. Joignant les mains, il dit: « Le Daoïste est trop aimable. »
 
-À cet instant, un rire s'éleva des gradins. C'était le Maître de la Secte Éternelle qui, souriant, se leva. Il s'approcha de Wang Lin, à quelques dizaines de pieds, et reprit: « Pourquoi le Daoïste Lu fait-il preuve d'une telle modestie? Tout le monde a été témoin de ce qui s'est produit aujourd'hui. Même ce vieil homme admire les sorts du Daoïste Lu. »
+À cet instant, un rire s'éleva des gradins. C'était le Maître de la Secte Wu Ji qui, souriant, se leva. Il s'approcha de Wang Lin, à quelques centaines de pieds, et reprit: « Pourquoi le Daoïste Lu fait-il preuve d'une telle modestie? Tout le monde a été témoin de ce qui s'est produit aujourd'hui. Même ce vieil homme admire les sorts du Daoïste Lu. »
 
 Wang Lin sourit et joignit les mains, mais garda le silence.
 
-Le vieil homme aux cheveux blancs regarda le Maître de la Secte Éternelle et dit doucement: « Avec le Daoïste Lu appartenant à la Secte Gui Yuan, il serait inapproprié qu'ils restent dans la région de rang 5. »
+Le vieil homme aux cheveux blancs regarda le Maître de la Secte Wu Ji et dit doucement: « Avec le Daoïste Lu appartenant à la Secte Gui Yuan, il serait inapproprié qu'ils restent dans la région de rang 5. »
 
-En tant que Grand Ancien de la Secte Éternelle, il s'était consacré à la culture sans jamais se soucier des affaires mondaines. Le fait qu'il demande la promotion d'une secte démontrait sa volonté de se lier d'amitié avec Wang Lin et de compenser leur tentative de le tester et de lui donner une leçon.
+En tant que Grand Ancien de la Secte Wu Ji, il s'était consacré à la culture sans jamais se soucier des affaires mondaines. Le fait qu'il demande la promotion d'une secte démontrait sa volonté de se lier d'amitié avec Wang Lin et de compenser leur tentative de le tester et de lui donner une leçon.
 
-Le Maître de la Secte Éternelle sourit et hocha la tête. « L'Ancien Liu a raison. Le Daoïste Lu vient de la Secte Gui Yuan, il serait donc déplacé qu'ils demeurent dans la région de rang 5. Daoïste Lu, que diriez-vous de transférer la Secte Gui Yuan vers la région de rang 7? »
+Le Maître de la Secte Wu Ji sourit et hocha la tête. « L'Ancien Liu a raison. Le Daoïste Lu vient de la Secte Gui Yuan, il serait donc déplacé qu'ils demeurent dans la région de rang 5. Daoïste Lu, que diriez-vous de transférer la Secte Gui Yuan vers la région de rang 7? »
 
 L'expression de Wang Lin resta neutre tandis qu'il joignait les mains en souriant. « Si vous faites cela, je vous en remercie tous les deux. »
 
-Le Maître de la Secte Éternelle agita ses manches et sourit chaleureusement. « Aucun problème, c'est une chose que ce vieil homme doit faire. Quant à la question dont nous avons parlé précédemment... »
+Le Maître de la Secte Wu Ji agita ses manches et sourit chaleureusement. « Aucun problème, c'est une chose que ce vieil homme doit faire. Quant à la question dont nous avons parlé précédemment... »
 
-« Je peux participer à la compétition de rang 8, mais je suis gravement blessé et j'ai besoin de vous demander un objet pour m'aider à récupérer. Si vous pouvez me l'accorder, alors je donnerai naturellement tout ce que j'ai lors de la compétition! » Wang Lin, impassible, sourit en regardant le Maître de la Secte Éternelle.
+« Je peux participer à la compétition de rang 8, mais je suis gravement blessé et j'ai besoin de vous demander un objet pour m'aider à récupérer. Si vous pouvez me l'accorder, alors je donnerai naturellement tout ce que j'ai lors de la compétition! » Wang Lin, impassible, sourit en regardant le Maître de la Secte Wu Ji.
 
 En entendant les paroles de Wang Lin, même le Grand Ancien fut intrigué et demanda: « Oh? Que désire le Daoïste Lu? »
 
-« Le Daoïste peut poser la question, il n'y a aucun mal. Tant que cela est en mon pouvoir, oubliez la compétition de rang 8; même s'il n'y avait pas de compétition, je donnerais ce qu'il faut au Daoïste Lu pour l'aider à guérir », répondit le Maître de la Secte Éternelle avec un sourire.
+« Le Daoïste peut poser la question, il n'y a aucun mal. Tant que cela est en mon pouvoir, oubliez la compétition de rang 8; même s'il n'y avait pas de compétition, je donnerais ce qu'il faut au Daoïste Lu pour l'aider à guérir », répondit le Maître de la Secte Wu Ji avec un sourire.
 
 Les yeux de Wang Lin brillèrent et ses lèvres bougèrent pour envoyer un message par Sens Divin aux deux hommes.
 
@@ -92,21 +92,21 @@ Après avoir entendu le message, les expressions des deux hommes changèrent. Il
 
 Wang Lin s'inclina avec un sourire. « Puisque le Maître le demande, je suivrai naturellement votre suggestion. »
 
-Le Maître de la Secte Éternelle sourit et se tourna vers la foule sur les gradins. Son expression devint sérieuse lorsqu'il déclara: « Ancien Feng, la compétition est finie, occupez-vous du reste. Cependant, la compétition entre les sectes de rang 8 approche; que les cultivateurs ici présents restent donc quelques jours supplémentaires. » Finalement, la voix du Maître devint glaciale et empreinte d'une intention meurtrière.
+Le Maître de la Secte Wu Ji sourit et se tourna vers la foule sur les gradins. Son expression devint sérieuse lorsqu'il déclara: « Ancien Feng, la compétition est finie, occupez-vous du reste. Cependant, la compétition entre les sectes de rang 8 approche; que les cultivateurs ici présents restent donc quelques jours supplémentaires. » Finalement, la voix du Maître devint glaciale et empreinte d'une intention meurtrière.
 
 Pour le bon déroulement de la compétition des sectes de rang 8, pour que Wang Lin serve de surprise lors de cette compétition, et pour empêcher toute fuite d'informations concernant Wang Lin, il était prêt à tout, même à offenser certains, afin de garantir le secret.
 
 Les yeux de Feng Hai s'illuminèrent et il hocha la tête, comprenant l'intention du Maître.
 
-Le Maître de la Secte Éternelle regarda Li Qianmei, Wang Shanshan et Mu Bingmei avec une certaine hésitation. Il ne les appela pas, mais adressa un sourire à Wang Lin avant de s'envoler.
+Le Maître de la Secte Wu Ji regarda Li Qianmei, Wang Shanshan et Mu Bingmei avec une certaine hésitation. Il ne les appela pas, mais adressa un sourire à Wang Lin avant de s'envoler.
 
 Wang Lin le suivit immédiatement, mais avant de partir, il se retourna et laissa échapper un soupir tout en restant silencieux.
 
-Le Grand Ancien s'envola aux côtés de Wang Lin et commença à lui présenter la Secte Éternelle. Ils discutèrent et rirent, dans une ambiance joyeuse, comme si l'incident désagréable n'avait jamais eu lieu.
+Le Grand Ancien s'envola aux côtés de Wang Lin et commença à lui présenter la Secte Wu Ji. Ils discutèrent et rirent, dans une ambiance joyeuse, comme si l'incident désagréable n'avait jamais eu lieu.
 
-La Secte Éternelle ne se trouvait pas sur cette planète de culture, mais ailleurs. Les trois étant des cultivateurs puissants, leur vitesse était prodigieuse. Guidés par le Maître, ils quittèrent la planète pour s'élancer vers une autre, et la secte apparut progressivement devant eux!
+La Secte Wu Ji ne se trouvait pas sur cette planète de culture, mais ailleurs. Les trois étant des cultivateurs puissants, leur vitesse était prodigieuse. Guidés par le Maître, ils quittèrent la planète pour s'élancer vers une autre, et la secte apparut progressivement devant eux!
 
-En tant que secte de rang 8, le domaine de la Secte Éternelle englobait la planète de culture tout entière. De nombreux édifices spectaculaires se dressaient aux quatre coins de l'astre, et d'innombrables places remplissaient le paysage.
+En tant que secte de rang 8, le domaine de la Secte Wu Ji englobait la planète de culture tout entière. De nombreux édifices spectaculaires se dressaient aux quatre coins de l'astre, et d'innombrables places remplissaient le paysage.
 
 À mesure qu'ils approchaient, Wang Lin sentit la puissance des restrictions émanant de toute la planète. Ils ressentirent également des centaines de fissures spatiales sur l'astre. Il devait y avoir d'autres mondes cachés en leur sein!
 

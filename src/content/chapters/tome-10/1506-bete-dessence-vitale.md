@@ -56,7 +56,7 @@ Wang Lin força l'ouverture de la gueule de la Bête des Limbes. Le rugissement 
 
 Le souffle du rugissement fit voler les cheveux de Wang Lin et tenta de le repousser.
 
-Pourtant, le corps de Wang Lin ne recula pas d'un pouce. Après avoir forcé l'ouverture, il fit brusquement basculer ses mains de haut en bas, puis les retira. Puis, il créa d'innombrables restrictions imprégnées de l'aura de l'Ordre Ancien, et une tempête de restrictions s'engouffra dans la gueule de la Bête des Limbes!
+Pourtant, le corps de Wang Lin ne recula pas d'un pouce. Après avoir forcé l'ouverture, il fit brusquement basculer ses mains de haut en bas, puis les retira. Puis, il créa d'innombrables restrictions imprégnées de la force de Dao Gu, et une tempête de restrictions s'engouffra dans la gueule de la Bête des Limbes!
 
 Ces restrictions pénétrèrent son corps, se dirigeant vers ses organes, ses vaisseaux sanguins, ses os et chaque recoin de son être!
 
@@ -66,7 +66,7 @@ Après cet effort, Wang Lin recula de mille pieds, le visage rougi. Tout s'étai
 
 Une fois en retrait, il lança un regard froid à la Bête des Limbes désormais prisonnière des trois sceaux!
 
-« En ce jour faste, en tant que Dieu Ancien à sept étoiles royal, fort de mon héritage de l'Ordre Ancien, je te scelle pour devenir ma bête d'essence vitale! »
+« En ce jour faste, en tant que Dieu Ancien à sept étoiles royal, fort de mon héritage de Dao Gu, je te scelle pour devenir ma bête d'essence vitale! »
 
 « Bête des Limbes, accepte le sceau! » Wang Lin leva la main droite et pointa la créature.
 

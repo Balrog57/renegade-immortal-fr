@@ -94,7 +94,7 @@ Soudain, une partie de l'essaim qui couvrait le ciel se déplaça, révélant le
 
 Wang Lin vit alors quelque chose qu'il n'oublierait jamais. Son visage pâlit instantanément et il ordonna au roi des moustiques de battre en retraite avec l'essaim, sans la moindre hésitation.
 
-Une immense fissure s'était ouverte au-dessus des trois continents. On aurait dit que le ciel avait été déchiré, laissant apparaître une faille spatiale indescriptible! Une pression capable de faire trembler les cieux émana de cette brèche alors qu'une bête moustique gigantesque, mesurant plus de 100 000 pieds, sortait lentement la moitié de son corps, comme si elle luttait pour s'extirper.
+Une immense fissure s'était ouverte au-dessus des trois continents. On aurait dit que le ciel avait été déchiré, laissant apparaître une faille spatiale indescriptible! Une pression capable de faire trembler les cieux émana de cette brèche alors qu'une bête moustique gigantesque, mesurant des centaines de milliers de pieds, sortait lentement la moitié de son corps, comme si elle luttait pour s'extirper.
 
 La gueule terrifiante de ce monstre semblait capable de transpercer une planète de culture pour en aspirer toute l'essence!
 

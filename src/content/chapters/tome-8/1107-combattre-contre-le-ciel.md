@@ -18,9 +18,9 @@ En un instant, une flamme apparut dans son œil gauche et une armure de feu roug
 
 Son manteau blanc flottait derrière lui avec ses cheveux blancs, et Suzaku blanc ornait son armure. Wang Lin chargea droit vers les flammes célestes.
 
-Il plongea instantanément au cœur des flammes divines, et celles qui s'approchaient de lui furent immédiatement absorbées par son armure. L'Oiseau Vermillon surgit de l'armure et poussa un cri strident.
+Il plongea instantanément au cœur des flammes divines, et celles qui s'approchaient de lui furent immédiatement absorbées par son armure. Suzaku surgit de l'armure et poussa un cri strident.
 
-L'Oiseau Vermillon semblait danser au sein des flammes célestes.
+Suzaku semblait danser au sein des flammes célestes.
 
 Cette Tribulation Céleste par le feu était une épreuve que Wang Lin pouvait endurer!
 
@@ -104,7 +104,7 @@ Il combattait le ciel pour s'approprier le droit de commander la foudre! Alors q
 
 « Dao céleste, Tribulation Céleste! S'il existe un véritable ciel, et si le ciel veut me détruire, alors je détruirai le ciel! Moi, Wang Lin, ne crois ni au Dao céleste, ni à la Tribulation Céleste. Le prétendu Dao céleste n'est qu'un Dao auto-proclamé, et la prétendue Tribulation Céleste n'est qu'une tribulation auto-proclamée! » Voyant les éclairs retourner vers les nuages, Wang Lin serra le poing de sa main gauche.
 
-« Feu des cieux, écoutez le commandement de mon Oiseau Vermillon: rassemblez-vous! » À l'instant même, une immense quantité de flammes blanches apparut aux côtés de l'ancien dragon de tonnerre et se mua en un gigantesque Oiseau Vermillon. Cet oiseau déploya ses ailes et poussa un cri!
+« Feu des cieux, écoutez le commandement de mon Suzaku: rassemblez-vous! » À l'instant même, une immense quantité de flammes blanches apparut aux côtés de l'ancien dragon de tonnerre et se mua en un gigantesque Suzaku. Suzaku déploya ses ailes et poussa un cri!
 
 Une mer de flammes surgit de nulle part pour converger vers la main gauche de Wang Lin. Simultanément, une masse de flammes jaillit des nuages de la Tribulation Céleste tel un entonnoir pour s'engouffrer dans la sphère de feu tenue par sa main gauche.
 

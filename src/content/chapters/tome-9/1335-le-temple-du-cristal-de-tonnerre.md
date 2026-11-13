@@ -46,7 +46,7 @@ Une fois entrés dans le périmètre du Temple, la densité de cultivateurs augm
 
 À cet instant précis, une aura d'une puissance inouïe émana de derrière Wang Lin et Dahong. Cette aura se propageait comme une vague grondante, accompagnée de fracas de tonnerre. Les expressions des cultivateurs alentour changèrent instantanément, tous tournant leurs regards avec respect.
 
-C'était un homme d'âge moyen vêtu de noir, portant une couronne taoïste, les mains derrière le dos. En passant devant Wang Lin, il créa une puissante bourrasque de vent.
+C'était un homme d'âge moyen vêtu de noir, portant une couronne daoïste, les mains derrière le dos. En passant devant Wang Lin, il créa une puissante bourrasque de vent.
 
 « Un vieux monstre Ascendant! »
 

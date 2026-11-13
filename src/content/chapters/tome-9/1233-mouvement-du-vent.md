@@ -56,7 +56,7 @@ Elle poussa un soupir. Lu Yanfei détacha alors son regard du ciel; la mélancol
 
 Alors que les trois Senior frères de Lu Yanfei se tenaient près du réseau de transfert, une pression s'intensifia. Ils regardèrent autour d'eux pour embrasser une dernière fois le paysage.
 
-Lorsque Lu Yanfei arriva, chacun pénétra dans la formation. Au moment où celle-ci s'activa et les téléporta vers la Secte Éternelle dans la région de rang 8, une larme cristalline roula sur la joue de Lu Yanfei.
+Lorsque Lu Yanfei arriva, chacun pénétra dans la formation. Au moment où celle-ci s'activa et les téléporta vers la Secte Wu Ji dans la région de rang 8, une larme cristalline roula sur la joue de Lu Yanfei.
 
 « Quand tu reviendras, peut-être découvriras-tu que la Secte Gui Yuan... n'existe plus... »
 

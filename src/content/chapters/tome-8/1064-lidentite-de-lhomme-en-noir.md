@@ -34,7 +34,7 @@ Quoi que faisait l'ancien démon, il ne parvenait pas à les expulser. Même en 
 
 Le visage de Wang Lin pâlit. L'énergie de cette lame était immense; même le vieil homme sur la gourde ne pourrait y échapper. L'esprit de Wang Lin resta d'une clarté absolue alors que le fourneau du dieu antique se matérialisait autour de lui. Il pointa du doigt l'homme en noir qui observait la scène à distance.
 
-Il n'avait pas choisi le Xu Kongzi car le danger était imminent et il devait impérativement réussir. Bien que le Xu Kongzi fût gravement blessé, il demeurait au stade du Briseur du Nirvana; Wang Lin n'était pas sûr de réussir!
+Il n'avait pas choisi Xu Kongzi car le danger était imminent et il devait impérativement réussir. Bien que Xu Kongzi fût gravement blessé, il demeurait au stade du Briseur du Nirvana; Wang Lin n'était pas sûr de réussir!
 
 L'expression de l'homme en noir changea radicalement lorsqu'il sentit une lumière l'envelopper. L'énergie de la lame approchait si près que Wang Lin pouvait ressentir l'oppressante acuité qui s'en dégageait.
 
@@ -50,7 +50,7 @@ Au moment où l'énergie de la lame descendit, l'œil droit de Wang Lin brilla d
 
 Un fracas de tonnerre retentit et une fissure fendit le milieu du bouclier azur. Bien qu'il ne se soit pas brisé, il fut endommagé.
 
-Bien que Wang Lin ne le possédât que depuis peu, ce bouclier avait résisté à toutes les attaques jusqu'ici. Même un être aussi puissant que le Xu Kongzi n'avait pu que le repousser sans le fissurer.
+Bien que Wang Lin ne le possédât que depuis peu, ce bouclier avait résisté à toutes les attaques jusqu'ici. Même un être aussi puissant que Xu Kongzi n'avait pu que le repousser sans le fissurer.
 
 De plus en plus de craquelures apparurent sur la protection azur. Wang Lin saisit cette opportunité pour reculer avec le corps de Qing Shuang, mais malgré sa fuite, il ne pouvait échapper à l'énergie de la lame.
 

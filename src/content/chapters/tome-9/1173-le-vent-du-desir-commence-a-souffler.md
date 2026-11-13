@@ -36,7 +36,7 @@ La transaction entre la vieille femme et le vieil homme en noir fut également u
 
 Les dix mille jades célestes de Wang Lin attirèrent l'attention des vieux monstres présents. Toutefois, une telle somme n'était pas si déconcertante pour eux. Après avoir observé Wang Lin, leurs regards se tournèrent vers la plume.
 
-L'homme au visage balafré toucha l'anneau à son doigt et dit lentement: « L'Oiseau Vermillon d'autrefois est mort, toutes les plumes de son corps s'étant embrasées d'elles-mêmes; cette plume n'est donc manifestement pas une originale. J'en propose trois mille jades célestes. »
+L'homme au visage balafré toucha l'anneau à son doigt et dit lentement: « Le Suzaku d'autrefois est mort, toutes les plumes de son corps s'étant embrasées d'elles-mêmes; cette plume n'est donc manifestement pas une originale. J'en propose trois mille jades célestes. »
 
 « Cinq mille jades célestes », sourit faiblement Wu Qing.
 

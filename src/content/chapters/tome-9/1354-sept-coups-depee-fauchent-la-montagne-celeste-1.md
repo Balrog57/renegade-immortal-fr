@@ -94,7 +94,7 @@ Ce tonnerre devint si impétueux qu'il finit par étouffer tout autre son dans l
 
 Ces ondulations étaient le produit de la Formation des Nuages de Tonnerre de l'Ancien. Elles frappaient le sang et l'esprit, provoquant l'effondrement du corps et le fracas de l'âme!
 
-Les grondements tonitruants résonnaient sans relâche. Le corps de Wang Lin trembla et il cracha du sang. Ses mains formèrent un sceau et le Monde des Vents et de la Pluie apparut autour de lui pour résister à l'assaut.
+Les grondements tonitruants résonnaient sans relâche. Le corps de Wang Lin trembla et il cracha du sang. Ses mains formèrent un sceau et le Monde Hu Feng Huan Yu apparut autour de lui pour résister à l'assaut.
 
 Le visage du Daoïste Esprit Dispersé pâlit également; il agita sa manche et recracha du sang. Son sang fusionna avec l'illusion des 7 Millions de Mondes, qui commença à se rétracter rapidement, prête à massacrer l'Ancien piégé à l'intérieur!
 

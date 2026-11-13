@@ -70,7 +70,7 @@ Dans la terre sainte du Clan Long Jia, le jeune maître avait également déploy
 
 Le Patriarche du Clan Long Jia détourna également son regard du ciel et se calma légèrement.
 
-« Il ignore ses propres limites. Maître Simo est un cultivateur du troisième niveau; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué le Grand Ancien du Clan Shan Lei, il est impuissant face à Maître Simo! »
+« Il ignore ses propres limites. Maître Simo est un cultivateur du troisième pas; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué le Grand Ancien du Clan Shan Lei, il est impuissant face à Maître Simo! »
 
 « Cependant, le simple fait qu'il puisse blesser Maître Simo prouve qu'il n'est pas un être ordinaire. Heureusement, il n'a aucune chance de survie, sinon, s'il venait se venger de notre clan pour notre aide, il serait difficile de s'en défaire. »
 
@@ -128,7 +128,7 @@ Maître Simo ouvrit les bras et la Restriction Temporelle se déploya pour rési
 
 Les pupilles de Wang Lin se contractèrent alors qu'il s'apprêtait à utiliser un sort. Cependant, précisément à ce moment, un rire retentit. Il était très faible, mais il parvint jusqu'aux oreilles de chaque être vivant sur la planète!
 
-« Intéressant. Si tu parviens à vaincre cet avatar de cultivateur du troisième niveau en cinq respirations, je te promets la sécurité dans la Terre Déchue! »
+« Intéressant. Si tu parviens à vaincre cet avatar de cultivateur du troisième pas en cinq respirations, je te promets la sécurité dans la Terre Déchue! »
 
 Dans la terre sainte du Clan Long Jia, l'expression du Neuvième Ancien Déchu, le Patriarche du Clan Long Jia, changea radicalement lorsqu'il s'exclama: « Grand Empereur! »
 

@@ -62,13 +62,13 @@ Le visage antique sur l'arbre gigantesque regarda au loin et, après un long sil
 
 Dans la chambre secrète de la Secte Divine, le Shui Daozi tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna à plusieurs reprises.
 
-« Maître Démon, vous avez fui le Royaume Extérieur et je vous ai offert l'intégralité de la Secte Fantôme comme disciple pour vous aider à guérir. Maintenant que vous êtes rétabli et devenu un démon ancien à neuf étoiles, il est temps d'honorer notre pacte! »
+« Maître Démon, vous avez fui le Royaume Extérieur et je vous ai offert l'intégralité de la Secte Gui comme disciple pour vous aider à guérir. Maintenant que vous êtes rétabli et devenu un démon ancien à neuf étoiles, il est temps d'honorer notre pacte! »
 
-Les yeux de l'ombre démoniaque située à l'extérieur de la Secte Fantôme s'illuminèrent et, après une courte réflexion, il hocha la tête. Il scruta le vide vers le Royaume Extérieur, une lueur de haine glaciale brillant dans son regard.
+Les yeux de l'ombre démoniaque située à l'extérieur de la Secte Gui s'illuminèrent et, après une courte réflexion, il hocha la tête. Il scruta le vide vers le Royaume Extérieur, une lueur de haine glaciale brillant dans son regard.
 
-Puis, le visage humain sur le grand arbre fixa profondément Wang Lin et dit doucement: « La Tribulation Céleste est une calamité mais aussi une fortune. En raison des lois du Royaume Céleste Antique, je ne peux t'en dire davantage. Prends soin de toi... La Tribulation Céleste n'est pas un phénomène propre au Royaume Céleste Antique. Même l'Empereur Céleste a sa propre rétribution...
+Puis, le visage humain sur le grand arbre fixa profondément Wang Lin et dit doucement: « La Tribulation Céleste est une calamité mais aussi une fortune. En raison des lois du Royaume Céleste Antique, je ne peux t'en dire davantage. Prends soin de toi... La Tribulation Céleste n'est pas un phénomène propre au Royaume Céleste Antique. Même l'Empereur Céleste a sa propre Tribulation Céleste...
 
-« La Tribulation Céleste remonte aux temps primordiaux, à l'aube du monde, issue du Dao céleste mort... La rétribution à laquelle tu fais face n'est qu'une petite calamité, ce n'est ni une grande, ni la Rétribution Ji capable de détruire toute vie... » Tandis qu'il parlait, il ferma lentement les yeux et l'arbre gigantesque s'effondra, se dissipant dans le vide.
+« La Tribulation Céleste remonte aux temps primordiaux, à l'aube du monde, issue du Dao céleste mort... La Tribulation Céleste à laquelle tu fais face n'est qu'une petite calamité, ce n'est ni une grande, ni la Rétribution Ji capable de détruire toute vie... » Tandis qu'il parlait, il ferma lentement les yeux et l'arbre gigantesque s'effondra, se dissipant dans le vide.
 
 Le jade se mua en une lumière cristalline et retomba sur la Formation du Royaume Scellé. Cette dernière brilla intensément et trembla. Les esprits d'artefact apparurent les uns après les autres, comme pour tenter de résister à cette lumière.
 

@@ -60,13 +60,13 @@ Les cultivateurs environnants avaient été projetés en arrière, mais aucun ne
 
 Un tumulte empreint d'un choc sans précédent s'éleva.
 
-Au-delà d'eux, même le vieil Oiseau Vermillon écarquilla les yeux. Il n'avait pas pour intention que Wang Lin l'emporte contre Maître Simo. Tant qu'ils atteignaient une égalité grâce à son aide secrète, cela aurait suffi pour que Wang Lin démontre sa puissance!
+Au-delà d'eux, même le vieux Suzaku écarquilla les yeux. Il n'avait pas pour intention que Wang Lin l'emporte contre Maître Simo. Tant qu'ils atteignaient une égalité grâce à son aide secrète, cela aurait suffi pour que Wang Lin démontre sa puissance!
 
 Être capable de tenir tête à un cultivateur du troisième niveau tout en étant au deuxième niveau suffisait à ébranler tout le Système Stellaire Antique. Même si cela impliquait son soutien occulte et qu'il dissuadait Maître Simo d'utiliser ses techniques mortelles, la réalité demeurait immuable!
 
-Cependant, Wang Lin s'apprêtait à affiner Maître Simo. Cette perspective fit suffoquer le vieil Oiseau Vermillon.
+Cependant, Wang Lin s'apprêtait à affiner Maître Simo. Cette perspective fit suffoquer le vieux Suzaku.
 
-« Bien! Il est véritablement digne d'être un Junior de mon clan. Peu importe son succès ou son échec; avoir le courage d'entreprendre cela fait de lui un individu illustre! » Les yeux du vieil Oiseau Vermillon se remplirent de soulagement.
+« Bien! Il est véritablement digne d'être un Junior de mon clan. Peu importe son succès ou son échec; avoir le courage d'entreprendre cela fait de lui un individu illustre! » Les yeux du vieux Suzaku se remplirent de soulagement.
 
 Hormis le Royaume des Flammes Joss, scellé par la Feuille Ancienne, seule subsistait le Fourneau de l'Empereur. Wang Lin, assis au sommet, faisait circuler son énergie originelle et continuait d'alimenter le fourneau avec ses essences de feu et de tonnerre pour entamer son affinage!
 

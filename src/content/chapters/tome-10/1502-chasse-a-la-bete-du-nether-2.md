@@ -70,7 +70,7 @@ Des grondements tonitruants éclatèrent soudainement. Le bang sonique provoqué
 
 Ce vacarme était semblable à l'effondrement d'un domaine stellaire. Il aurait suffi de cela pour briser l'esprit de n'importe qui et mettre leurs corps en pièces!
 
-« En tant que Dieu Ancien Royal, j'utilise la puissance de mon héritage de l'Ordre Ancien pour sceller ton corps extérieur en tant que ma bête d'essence vitale! » Tandis que les grondements retentissaient, la main droite de Wang Lin percuta la Bête des Limbes, formant une rune de l'Ordre Ancien de la taille d'une paume.
+« En tant que Dieu Ancien Royal, j'utilise la puissance de mon héritage de Dao Gu pour sceller ton corps extérieur en tant que ma bête d'essence vitale! » Tandis que les grondements retentissaient, la main droite de Wang Lin percuta la Bête des Limbes, formant une rune de Dao Gu de la taille d'une paume.
 
 « Le sceau extérieur est achevé! Vient maintenant le sceau intérieur, mais je ne peux pénétrer dans ce royaume! Enfin, le plus difficile: le sceau de l'âme! Ce n'est qu'une fois ces trois sceaux posés que cette bête pourra devenir la bête d'essence vitale de mon Dieu Ancien! »
 

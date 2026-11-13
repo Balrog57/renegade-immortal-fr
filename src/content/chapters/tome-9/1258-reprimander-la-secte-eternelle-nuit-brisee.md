@@ -1,6 +1,6 @@
 ---
 n: 1258
-title: Réprimander la Secte Éternelle, Nuit Brisée
+title: Réprimander la Secte Wu Ji, Nuit Brisée
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1258 - Rebuking the Everlasting Secte, Sundered Night
@@ -54,7 +54,7 @@ Plus important encore, si Wang Lin acceptait de gaspiller toute son énergie ori
 
 Il possédait une horde de moustiques!
 
-C'était son atout ultime, son sort de survie. C'est grâce à cela qu'il n'avait pas hésité à aider la Secte Gui Yuan à s'élever au sein de la Secte Éternelle!
+C'était son atout ultime, son sort de survie. C'est grâce à cela qu'il n'avait pas hésité à aider la Secte Gui Yuan à s'élever au sein de la Secte Wu Ji!
 
 À cet instant, alors que le filet de loi se refermait, Wang Lin éclata de rire. Ses mains bougèrent et la terre gronda. Une mer illusionnaire apparut. Bien qu'irréelle, elle était parcourue de vagues déferlantes.
 
@@ -62,7 +62,7 @@ Le monde fut plongé dans les ténèbres, seul le filet rouge de la loi descenda
 
 Cette scène étrange fit changer l'expression du vieil homme, dont les yeux se plissèrent. Il abandonna tout mépris pour devenir extrêmement sérieux.
 
-Lorsqu'il avait attaqué, il n'avait pas l'intention de tuer; c'était un test, une menace. Il avait vu la force de Wang Lin et savait qu'un tel individu devait intégrer la Secte Éternelle plutôt que de s'y opposer avec arrogance. Il attaquait pour lui donner une leçon, pour lui montrer que le monde était vaste et que la Secte Éternelle ne devait pas être provoquée!
+Lorsqu'il avait attaqué, il n'avait pas l'intention de tuer; c'était un test, une menace. Il avait vu la force de Wang Lin et savait qu'un tel individu devait intégrer la Secte Wu Ji plutôt que de s'y opposer avec arrogance. Il attaquait pour lui donner une leçon, pour lui montrer que le monde était vaste et que la Secte Wu Ji ne devait pas être provoquée!
 
 Cependant, en voyant Wang Lin invoquer Nuit Brisée, il prit une profonde inspiration. Son intention de donner une simple leçon s'était évaporée, laissant place à une véritable intention de combat!
 
@@ -70,7 +70,7 @@ Cependant, en voyant Wang Lin invoquer Nuit Brisée, il prit une profonde inspir
 
 Les cultivateurs dans les gradins furent enveloppés par l'obscurité. Ils étaient tous confus par une force inconnue qui les submergeait et faisait trembler leurs esprits.
 
-Même les anciens de la Secte Éternelle n'étaient pas épargnés!
+Même les anciens de la Secte Wu Ji n'étaient pas épargnés!
 
 Ils ignoraient que, jadis, dans la Terre Yao Ling, Wang Lin avait utilisé Nuit Brisée pour tuer Xu Kongzi et forcer Tian Yunzi aux robes grises à battre en retraite. Deux avatars de Tian Yunzi, pourtant au stade avancé de Briseur du Nirvana, y avaient péri!
 
@@ -116,6 +116,6 @@ La lumière dorée l'enveloppait alors qu'il s'avançait sur les restes du filet
 
 « Oses-tu recevoir mon sort? » La voix de Wang Lin était impérieuse, descendant des cieux comme une sentence divine!
 
-Ces mots étaient d'une similitude frappante avec ceux du vieil homme, mais la situation était désormais inversée: c'était Wang Lin qui les prononçait! Si cela s'était produit plus tôt, on aurait pu taxer Wang Lin d'arrogance. Mais maintenant, après l'usage de Nuit Brisée, alors que tout le monde était encore prisonnier des ténèbres et que même les anciens de la Secte Éternelle se sentaient déchirés par la nuit...
+Ces mots étaient d'une similitude frappante avec ceux du vieil homme, mais la situation était désormais inversée: c'était Wang Lin qui les prononçait! Si cela s'était produit plus tôt, on aurait pu taxer Wang Lin d'arrogance. Mais maintenant, après l'usage de Nuit Brisée, alors que tout le monde était encore prisonnier des ténèbres et que même les anciens de la Secte Wu Ji se sentaient déchirés par la nuit...
 
 À cet instant, ces mêmes mots dégageaient une aura terrifiante. Le souffle de tous sembla s'arrêter!

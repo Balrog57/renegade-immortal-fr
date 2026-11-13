@@ -24,17 +24,17 @@ Wang Lin oserait même affronter des cultivateurs du Vide du Nirvana au stade in
 
 Au troisième pas, les stades Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulation du Vide comprenaient toutes les phases initiale, intermédiaire, tardive et parfaite, tout comme au second pas. La différence entre chaque niveau était immense, comparable à celle entre un cultivateur du Purificateur du Nirvana et un Briseur du Nirvana!
 
-Les yeux de Wang Lin brillaient comme le feu alors qu'il siégeait sur le trône, laissant la force de rejet secouer son corps aussi violemment qu'au dix-huitième souffle. Cependant, la puissance qui, au dix-huitième souffle, suffisait à briser son corps ne pouvait plus l'affecter outre mesure.
+Les yeux de Wang Lin brillaient comme le feu alors qu'il siégeait sur le trône, laissant la force de rejet secouer son corps aussi violemment qu'à la dix-huitième respiration. Cependant, la puissance qui, à la dix-huitième respiration, suffisait à briser son corps ne pouvait plus l'affecter outre mesure.
 
-Dans la continuité du dix-huitième souffle, il s'agissait maintenant des dix-neuvième, vingtième et vingt-et-unième souffles!
+Dans la continuité de la dix-huitième respiration, il s'agissait maintenant des dix-neuvième, vingtième et vingt-et-unième respirations!
 
-Ces trois souffles passèrent en un instant, et la force de rejet augmenta considérablement. Alors que cette force percutait Wang Lin, l'aura de l'héritage jaillit également.
+Ces trois respirations passèrent en un instant, et la force de rejet augmenta considérablement. Alors que cette force percutait Wang Lin, l'aura de l'héritage jaillit également.
 
 Cette aura d'héritage fut dévorée par Wang Lin avec frénésie. Son corps et le Diable Ancien étaient comme deux trous noirs terrifiants; l'aura de l'héritage était scindée en deux et absorbée par chacun d'eux.
 
 Absorber l'héritage était extrêmement difficile avec la force de rejet qui entrait constamment en collision avec lui, mais Wang Lin n'abandonna pas. Il savait que s'il manquait cette chance maintenant, il serait extrêmement difficile d'obtenir une autre opportunité!
 
-Vingt-deuxième souffle, vingt-troisième souffle, vingt-quatrième souffle!
+Vingt-deuxième respiration, vingt-troisième respiration, vingt-quatrième respiration!
 
 La force de rejet émanant du trône avait atteint un degré terrifiant, et des grondements tonitruants résonnaient. Même avec le corps de Dieu Antique à 7 étoiles de Wang Lin, la situation commençait à devenir insupportable.
 

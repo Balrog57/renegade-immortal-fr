@@ -82,7 +82,7 @@ Zhang Jingyun devint encore plus exalté alors qu'il avançait, enveloppé d'une
 
 « Cultivateur du royaume inférieur, surmonte la Tribulation Céleste pour ascender au rang de céleste! » Alors que les paroles de Zhang Jingyun retentissaient, un éclair épais comme un seau jaillit des nuages!
 
-Le vieil homme nommé Lu Bei regarda avec stupeur les plus de dix silhouettes dans les nuages de rétribution et sentit son cuir chevelu s'engourdir. Il ne s'attendait pas à ce que sa rétribution attire autant d'êtres célestes!
+Le vieil homme nommé Lu Bei regarda avec stupeur les plus de dix silhouettes dans les nuages de Tribulation Céleste et sentit son cuir chevelu s'engourdir. Il ne s'attendait pas à ce que sa Tribulation Céleste attire autant d'êtres célestes!
 
 Cependant, un sentiment de fierté envahit également son cœur. Il poussa un rugissement, déploya toute sa culture et chargea vers la Tribulation Céleste!
 
@@ -92,7 +92,7 @@ Pourtant, il ne désespéra pas. Son regard restait indomptable. Ses mains form�
 
 Tandis que Wang Lin observait la scène, son esprit vacillait. Il ne parvint pas à se calmer pendant un long moment. À ce moment-là, un jeune homme en noir, l'un des nouveaux venus, demanda: « Daoïstes, pourquoi ne pas le tuer directement avec une seule Tribulation Céleste au lieu d'augmenter progressivement sa puissance? »
 
-À l'instant où cette question fut posée, les yeux de Wang Lin brillèrent d'une lueur étrange. La rétribution qu'il avait connue était identique: le premier coup n'était souvent pas le plus fort, et la puissance croissait graduellement!
+À l'instant où cette question fut posée, les yeux de Wang Lin brillèrent d'une lueur étrange. La Tribulation Céleste qu'il avait connue était identique: le premier coup n'était souvent pas le plus fort, et la puissance croissait graduellement!
 
 Avant d'entrer dans ces 7 Millions de Mondes, cette question ne s'était jamais posée à lui. Il pensait que c'était ainsi que les choses devaient être. Mais désormais, ce doute frappa son esprit comme un éclair!
 

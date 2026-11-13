@@ -90,7 +90,7 @@ Toute l'énergie originelle sur des dizaines de milliers de kilomètres se rasse
 
 Les deux sorts se rejoignirent et entrèrent en collision, provoquant un tonnerre céleste qui fit vibrer une bonne partie de Peng Lai! La main gauche de Wang Lin ne s'arrêta pas et pointa une seconde fois le dos de sa main droite.
 
-Lors de ce second contact, toute l'énergie originelle dans un rayon de 100 000 kilomètres se précipita frénétiquement pour pénétrer le vortex créé par Wu Qing.
+Lors de ce second contact, toute l'énergie originelle dans un rayon de 50 000 kilomètres se précipita frénétiquement pour pénétrer le vortex créé par Wu Qing.
 
 Mais ce n'était pas fini. Wang Lin retira négligemment sa main gauche. Puis, comme s'il tentait de saisir les cieux, il forma un troisième doigt!
 

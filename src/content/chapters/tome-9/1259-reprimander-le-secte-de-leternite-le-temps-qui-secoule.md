@@ -34,7 +34,7 @@ Dès l'apparition de la porte de pierre, une pression indicible enveloppa le mon
 
 Le vieil homme aux cheveux blancs, en pleine charge, s'arrêta brusquement et haleta. Ses yeux étaient remplis d'incrédulité. Lorsqu'il avait vu la Nuit Brisée, il pensait avoir atteint la limite des sorts de Wang Lin. Mais face à cette porte de pierre, il fut ébranlé. Avec son niveau de culture, il pouvait ressentir le pouvoir du temps avec une clarté accrue, et un mauvais pressentiment l'assaillit.
 
-« Comment cet homme peut-il posséder autant de sorts?! Depuis qu'il est arrivé, il n'a sorti aucun trésor; il n'a fait usage que de sorts. Posséder une telle force par la seule magie... n'est-il pas un peu trop puissant? » Le vieil homme prit une profonde inspiration et l'intention de combat dans ses yeux s'intensifia. Compte tenu de son rang au sein de la Secte Éternelle, il ne lui était pas permis de battre en retraite!
+« Comment cet homme peut-il posséder autant de sorts?! Depuis qu'il est arrivé, il n'a sorti aucun trésor; il n'a fait usage que de sorts. Posséder une telle force par la seule magie... n'est-il pas un peu trop puissant? » Le vieil homme prit une profonde inspiration et l'intention de combat dans ses yeux s'intensifia. Compte tenu de son rang au sein de la Secte Wu Ji, il ne lui était pas permis de battre en retraite!
 
 Son niveau de culture ne lui permettait pas non plus de fuir sans combattre, bien qu'il ait eu le vague sentiment que le monde avait légèrement changé depuis l'apparition de la porte.
 
@@ -50,7 +50,7 @@ La silhouette du vieil homme aux cheveux blancs se rapprocha et la lumière roug
 
 Alors que le vieil homme avançait, la mer rugissait et les vagues déferlaient. La plateforme commença à se fragmenter et à s'effondrer.
 
-Cette plateforme, qui occupait presque la moitié de la planète, s'écroula et se changea en gravats. Même le ciel se couvrit de fissures, comme s'il allait être déchiré sous la charge du vieil homme!
+Cette plateforme, qui occupait un peu moins de la moitié de la planète, s'écroula et se changea en gravats. Même le ciel se couvrit de fissures, comme s'il allait être déchiré sous la charge du vieil homme!
 
 Plus stupéfiant encore, à cet instant précis, un point rouge éclatant apparut entre les sourcils de presque tous les spectateurs. Ces points étaient d'un rouge sanglant, comme s'ils contenaient l'essence même du sang de leurs corps.
 
@@ -66,7 +66,7 @@ Dès que le regard de Wang Lin l'atteignit, l'esprit du vieil homme trembla. Il 
 
 Le sort « Le Temps qui s'écoule » n'attaquait ni le corps, ni l'âme originelle, mais les souvenirs!
 
-Lors de son voyage vers la Secte Éternelle, Wang Lin avait découvert que ce sort avait un effet similaire au sort de Dispersion du Dao utilisé par le vieil homme dans le Royaume aux Sept Couleurs!
+Lors de son voyage vers la Secte Wu Ji, Wang Lin avait découvert que ce sort avait un effet similaire au sort de Dispersion du Dao utilisé par le vieil homme dans le Royaume aux Sept Couleurs!
 
 Un souffle équivalait à cent ans!
 

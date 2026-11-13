@@ -24,7 +24,7 @@ Le choc fut brutal. La bête moustique bleue, manifestement loin d'être faible,
 
 Tout cela se produisit en un éclair, d'une rapidité dépassant l'imagination. En un instant, les quatre bêtes moustiques bleues périrent l'une après l'autre, ne laissant que le roi moustique bourdonner dans les airs, fixant froidement les centaines de bêtes bleues qui l'attendaient.
 
-Song Luohai se cachait sous une pierre au pied de la montagne, dissimulant son aura. Il était un Ancien de la Secte de l'Âme Silencieuse. Plutôt que de participer à la compétition des sectes de rang 8, il s'était tapi ici.
+Song Luohai se cachait sous une pierre au pied de la montagne, dissimulant son aura. Il était un Ancien de la Secte Ji Hun. Plutôt que de participer à la compétition des sectes de rang 8, il s'était tapi ici.
 
 Cela faisait trois mois qu'il était là, progressant avec prudence. Son objectif était le roi de cet essaim de moustiques.
 
@@ -40,7 +40,7 @@ Même la région de rang 9 lui accorderait des faveurs. Tous ces avantages étai
 
 Song Luohai avait le sentiment que ces deux créatures avaient vaguement perçu son existence sans pour autant découvrir sa cachette, ce qui les avait empêchées de bouger. Mais au moindre mouvement de sa part, elles le détecteraient instantanément.
 
-Le cœur de Song Luohai était lourd d'amertume depuis quinze jours. Il était extrêmement tendu et n'osait plus bouger. Bien qu'il fût un Ancien de la Secte de l'Âme Silencieuse, il se situait en bas de la hiérarchie, étant seulement au stade intermédiaire du Briseur du Nirvana.
+Le cœur de Song Luohai était lourd d'amertume depuis quinze jours. Il était extrêmement tendu et n'osait plus bouger. Bien qu'il fût un Ancien de la Secte Ji Hun, il se situait en bas de la hiérarchie, étant seulement au stade intermédiaire du Briseur du Nirvana.
 
 Alors que Song Luohai commençait à désespérer, il vit une bête moustique bleue passer à toute allure. Au départ, cela ne l'intéressait guère; il n'avait pas de temps à perdre avec ce qui ne concernait pas sa propre survie.
 

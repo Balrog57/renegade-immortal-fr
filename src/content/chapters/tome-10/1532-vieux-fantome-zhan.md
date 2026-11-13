@@ -10,7 +10,7 @@ Le Royaume Intérieur était plongé dans un silence absolu. Les cultivateurs du
 
 Cependant, la concubine impériale céleste rouge affichait une expression sombre. Elle n'avait pas prévu l'apparition de cet arc et, après avoir entendu les paroles de Feng Yi, une pointe de colère traversa son visage. Elle comprit qu'elle n'était qu'un pion entre les mains de quelqu'un.
 
-La concubine impériale céleste rouge laissa échapper un ricanement glacial et lança un regard à Rêve Pourpre de Zhao He. Sans accorder plus d'attention à qui que ce soit, elle s'élança vers l'ouverture de la Formation de Scellement du Royaume.
+La concubine impériale céleste rouge laissa échapper un ricanement glacial et lança un regard à Zi Meng de Zhao He. Sans accorder plus d'attention à qui que ce soit, elle s'élança vers l'ouverture de la Formation de Scellement du Royaume.
 
 Personne ne tenta de l'arrêter, et le regard de Maître Nan Yunzi jeta un éclair à peine perceptible. La concubine impériale céleste rouge venait de pénétrer dans le Système Stellaire Antique et avait disparu sans laisser de trace.
 
@@ -28,7 +28,7 @@ Le regard de Maître Hong Shan se durcit. Tout en reculant, il fit un pas en ava
 
 Au même instant, Maître Nan Yunzi frappa son front de la paume. Son corps trembla et des ombres nuageuses apparurent derrière lui. Ces nuages se condensèrent en statues alignées pour former une matrice de combat, lesquelles suivirent le rayon rouge de Maître Hong Shan vers la paume géante.
 
-Rêve Pourpre de Zhao He, la belle femme d'âge mûr, Maître Lu Fu et Tai Aluo attaquèrent tous simultanément. Divers sorts furent lancés et fusionnèrent avec ceux de Maître Hong Shan et de Maître Nan Yunzi, créant une tempête dévastatrice qui s'abattit sur la paume géante!
+Zi Meng de Zhao He, la belle femme d'âge mûr, Maître Lu Fu et Tai Aluo attaquèrent tous simultanément. Divers sorts furent lancés et fusionnèrent avec ceux de Maître Hong Shan et de Maître Nan Yunzi, créant une tempête dévastatrice qui s'abattit sur la paume géante!
 
 Sur l'ordre de Wang Lin, l'Estimé Ling Dong et Zhou Jin lancèrent également leurs sorts. On pourrait dire que tous les cultivateurs du troisième niveau du Royaume Intérieur avaient uni leurs forces pour engendrer cette tempête.
 

@@ -64,7 +64,7 @@ Sur la cinquième carte, Wang Lin était pensif. Il s'apprêtait à retirer son 
 
 Cette voix résonna dans l'esprit de Wang Lin. À l'instant même où elle s'estompait, l'esprit de Wang Lin sembla fusionner avec le Tombeau Ancien. À ses côtés, il pouvait clairement percevoir quatre auras ténues!
 
-« L'Dao Gu Ye Mo... » L'esprit de Wang Lin fut secoué. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Suzaku de la première génération! Il se souvenait parfaitement des paroles de celui-ci:
+« Dao Gu Ye Mo... » L'esprit de Wang Lin fut secoué. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Suzaku de la première génération! Il se souvenait parfaitement des paroles de celui-ci:
 
 « Ce vieil homme ne connaît pas grand-chose à la culture des Dieux Anciens, mais à mon époque, le pouvoir des Dieux Anciens faisait trembler les cieux. À l'époque, bien que Ye Mo de Dao Gu ne figurât pas parmi les Souverains Célestes, sa culture suffisait à faire redouter de lui un Souverain Céleste... »
 

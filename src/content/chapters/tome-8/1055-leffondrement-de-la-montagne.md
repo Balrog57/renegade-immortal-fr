@@ -22,7 +22,7 @@ Le visage de Xu Kongzi était d'une pâleur mortelle. Il avait déjà été grav
 
 Malgré son expression féroce, ses yeux ne fixaient ni Wang Lin ni Zhou Yi, mais restaient verrouillés sur Tian Yunzi.
 
-L'expression de Tian Yunzi demeura impassible; le regard de Xu Kongzi ne lui causait aucun malaise. Il dit calmement: « Daoïste Xu Kongzi, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, Tian Yunzi tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple du Nuage Céleste me fera cette faveur. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
+L'expression de Tian Yunzi demeura impassible; le regard de Xu Kongzi ne lui causait aucun malaise. Il dit calmement: « Daoïste Xu Kongzi, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, Tian Yunzi tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple Yun Xian me fera cette faveur. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
 
 L'expression de Ling Tianhou devint sombre. Comment ne pouvait-il pas voir que Tian Yunzi était intervenu secrètement? Il se déplaça silencieusement aux côtés de Xu Kongzi et lança un regard glacial à Wang Lin et son groupe.
 
@@ -78,7 +78,7 @@ Contemplant le volcan imposant, Wang Lin ferma les yeux et déploya son Sens Div
 
 Sa main immergée dans le magma le confortait profondément. Son énergie d'origine s'agita en lui pour former un vortex. Une force d'aspiration émana du corps de Wang Lin, utilisant sa main droite comme un pont; l'énergie d'origine de feu de la lave fut alors doucement aspirée dans son organisme.
 
-« J'ai déjà maîtrisé les trois premiers des six sorts de l'Empereur Céleste Bai Fan. Cependant, selon le Senior Frère Qing Shui, les trois derniers contiennent l'essence véritable du pouvoir de Bai Fan, et le premier d'entre eux est l'Effondrement de la Montagne! Dans le Royaume Sha Yu, j'ai vu Qing Shui l'utiliser, et c'était très similaire à une éruption volcanique... » Wang Lin méditait tout en absorbant cette énergie, les yeux fixés sur le volcan majestueux.
+« J'ai déjà maîtrisé les trois premiers des six sorts de l'Empereur Céleste Bai Fan. Cependant, selon le Senior frère Qing Shui, les trois derniers contiennent l'essence véritable du pouvoir de Bai Fan, et le premier d'entre eux est l'Effondrement de la Montagne! Dans le Royaume Sha Yu, j'ai vu Qing Shui l'utiliser, et c'était très similaire à une éruption volcanique... » Wang Lin méditait tout en absorbant cette énergie, les yeux fixés sur le volcan majestueux.
 
 À sa droite, l'homme en noir portant le dragon noir caché ne pénétra pas non plus dans le volcan; il s'assit et plongea sa main gauche dans la lave d'une crevasse. Tout comme Wang Lin, il absorbait l'énergie d'origine du feu, jetant parfois des regards empreints de crainte et d'hostilité vers lui.
 

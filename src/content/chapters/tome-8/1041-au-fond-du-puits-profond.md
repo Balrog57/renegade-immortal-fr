@@ -46,7 +46,7 @@ La femme en argent montait toujours la garde sur le côté. Lorsqu'elle vit l'av
 
 Un instant plus tard, Wang Lin ouvrit lentement les yeux; l'aura meurtrière se retira alors qu'il retrouvait son état normal. Ses yeux brillèrent et il se redressa.
 
-« L'Oiseau Vermillon que j'ai vu lorsque j'ai emprunté le pouvoir de la perle défiant le ciel était exactement le même que mon tatouage. Je crois qu'il existe un lien… » Wang Lin sortit de la grotte fracturée. La femme en argent le suivit silencieusement, son regard posé sur le dos de Wang Lin, empreint d'une trace de confusion.
+« Le Suzaku que j'ai vu lorsque j'ai emprunté le pouvoir de la perle défiant le ciel était exactement le même que mon tatouage. Je crois qu'il existe un lien… » Wang Lin sortit de la grotte fracturée. La femme en argent le suivit silencieusement, son regard posé sur le dos de Wang Lin, empreint d'une trace de confusion.
 
 À peine eut-il franchi l'entrée de la grotte que Wang Lin recula brusquement en s'exclamant.
 

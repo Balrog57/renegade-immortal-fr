@@ -28,7 +28,7 @@ Cependant, lors de son passage à Luotian, Wang Lin avait hérité de l'une des 
 
 Il avait le vague sentiment que les choses n'étaient pas aussi simples qu'elles en avaient l'air.
 
-Wang Lin déploya son Sens Divin et scanna méticuleusement l'herbe, centimètre par centimètre. Son expression devint progressivement grave, d'autant plus lorsqu'il aperçut, au centre de la restriction non loin de là, une lueur noire à peine perceptible. Il pensa immédiatement au gaz noir que la vieille femme avait utilisé pour absorber le sang et la chair du dragon et pénétrer dans la Formation de Scellement Céleste en Neuf Étapes.
+Wang Lin déploya son Sens Divin et scanna méticuleusement l'herbe, pouce par pouce. Son expression devint progressivement grave, d'autant plus lorsqu'il aperçut, au centre de la restriction non loin de là, une lueur noire à peine perceptible. Il pensa immédiatement au gaz noir que la vieille femme avait utilisé pour absorber le sang et la chair du dragon et pénétrer dans la Formation de Scellement Céleste en Neuf Étapes.
 
 Lorsqu'il avait vu la restriction de la vieille femme, il l'avait trouvée étrange, mais ne pouvant l'observer trop près, il n'avait pu percer son mystère. Cependant, face à cette restriction, sa réflexion lui apporta une illumination.
 

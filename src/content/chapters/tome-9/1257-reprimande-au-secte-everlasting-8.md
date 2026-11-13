@@ -1,6 +1,6 @@
 ---
 n: 1257
-title: Réprimande à la Secte Éternelle (8)
+title: Réprimande à la Secte Wu Ji (8)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1257 - Rebuking the Everlasting Secte (8)
@@ -36,7 +36,7 @@ Ces sorts ne s'apprenaient pas, ils se comprenaient par la seule grâce de la fo
 
 Le silence perdura après le départ de Du Lin et Yin Yue, comme si personne n'osait rompre cette éternité de mutisme.
 
-Les anciens de la Secte Éternelle regardaient tous Wang Lin avec respect. Ils ne parvenaient pas à percer les mystères de sa culture ou de ses sorts. Qu'il s'agisse de son doigt pointé vers le ciel, du feu céleste ou du plus saisissant des sorts, l'extraction de l'âme planétaire, tout était stupéfiant. Les anciens ne pouvaient qu'être saisis d'admiration devant lui.
+Les anciens de la Secte Wu Ji regardaient tous Wang Lin avec respect. Ils ne parvenaient pas à percer les mystères de sa culture ou de ses sorts. Qu'il s'agisse de son doigt pointé vers le ciel, du feu céleste ou du plus saisissant des sorts, l'extraction de l'âme planétaire, tout était stupéfiant. Les anciens ne pouvaient qu'être saisis d'admiration devant lui.
 
 Ils ignoraient de quels sorts Wang Lin disposait, mais ils pressentaient que ce qu'il venait de montrer n'était pas sa limite. Trop de secrets et de surprises fracassantes sommeillaient encore en lui.
 
@@ -52,7 +52,7 @@ Un silence absolu engendre souvent une pression invisible. À cet instant, la so
 
 Personne n'osait s'avancer; tous fixaient la plateforme et l'homme sous la pluie qui semblait incarner les cieux eux-mêmes. À cet instant, l'apparence et la prestance de Wang Lin furent gravées profondément dans leurs esprits. C'était une vision qu'ils ne pourraient jamais oublier.
 
-Dans ce silence, les yeux du Maître de la Secte Éternelle s'illuminèrent alors qu'il fixait Wang Lin et déclara lentement: « Le Daoïste Lu a blessé les trois disciples qui devaient participer à la compétition entre les sectes de rang 8. Vous devrez fournir une explication à ce vieil homme! »
+Dans ce silence, les yeux du Maître de la Secte Wu Ji s'illuminèrent alors qu'il fixait Wang Lin et déclara lentement: « Le Daoïste Lu a blessé les trois disciples qui devaient participer à la compétition entre les sectes de rang 8. Vous devrez fournir une explication à ce vieil homme! »
 
 Son regard sembla se transformer en deux rayons d'énergie tranchante, tels des sabres, projetés vers Wang Lin. Son regard semblait intimider le tonnerre au point que celui-ci n'osait plus approcher la plateforme, et même la pluie parut suspendre sa chute dans les airs.
 
@@ -74,7 +74,7 @@ Le regard de Li Qianmei se glaça et une intention meurtrière jaillit de son co
 
 Les yeux de Mu Bingmei devinrent froids et l'énergie originelle en elle s'agita, révélant sa culture de Briseur du Nirvana. Ses mains formèrent un sceau et elle s'apprêtait à attaquer, mais elle sentit immédiatement une force irrésistible la subjuguer, rendant toute utilisation de sa culture impossible.
 
-La puissance du Maître de la Secte Éternelle était désormais révélée au monde. Être capable de diriger une secte de rang 8 signifiait que sa culture dépassait l'entendement!
+La puissance du Maître de la Secte Wu Ji était désormais révélée au monde. Être capable de diriger une secte de rang 8 signifiait que sa culture dépassait l'entendement!
 
 Le visage de Mu Bingmei pâlit. Elle percevait l'intention meurtrière tapie dans la pression du Maître de la Secte. Bien qu'il s'agisse probablement d'un simulacre, cette inquiétude troublait son esprit. N'ayant pas le temps de réfléchir, elle forma un sceau étrange, un sort transmis par des générations de Saintes de Kun Xu.
 
@@ -102,6 +102,6 @@ Un grondement de tonnerre retentit tandis qu'un rayon de lumière surgissait de 
 
 « Oses-tu recevoir l'un de mes sorts? »
 
-« Grand Ancien! » Tous les membres de la Secte Éternelle se levèrent et joignirent les mains, leurs visages empreints d'un immense respect.
+« Grand Ancien! » Tous les membres de la Secte Wu Ji se levèrent et joignirent les mains, leurs visages empreints d'un immense respect.
 
 Wang Lin leva la tête. La lumière dorée émanant de son corps était comme un soleil s'élevant de l'océan; elle était éblouissante. Alors qu'il contemplait la lumière qui approchait, ses propres yeux devinrent d'or.

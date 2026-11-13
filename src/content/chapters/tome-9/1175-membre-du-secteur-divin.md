@@ -26,7 +26,7 @@ L'homme d'âge moyen marqua une pause, puis tendit à nouveau la main pour sorti
 
 La voix de Wang Lin était calme, mais elle dégageait une majesté naturelle lorsqu'il déclara lentement: « Je ne poursuivrai plus l'offense de Wu Qing à mon égard, mais cela ne suffit pas à effacer l'offense de la Secte Mo Cong. »
 
-Cette aura n'était pas celle d'un cultivateur ordinaire. Même un expert du Briseur du Nirvana ne pourrait dégager une telle présence, à moins d'être le chef d'une secte puissante. Wang Lin avait été autrefois l'Empereur Divin de la Secte Divine de Suzaku. Il n'avait nul besoin de forcer les choses; il lui suffisait de se remémorer la Secte Zhu Que pour manifester naturellement cette majesté.
+Cette aura n'était pas celle d'un cultivateur ordinaire. Même un expert du Briseur du Nirvana ne pourrait dégager une telle présence, à moins d'être le chef d'une secte puissante. Wang Lin avait été autrefois l'Empereur Divin de la Secte Divine de Suzaku. Il n'avait nul besoin de forcer les choses; il lui suffisait de se remémorer la Secte Divine de Suzaku pour manifester naturellement cette majesté.
 
 L'homme d'âge moyen eut un sourire désabusé et sortit deux pilules enrobées de cire. Il regarda Wang Lin et dit amèrement: « Deux pilules de rang 10. C'est ma limite. »
 
@@ -54,7 +54,7 @@ Une fois de retour à l'auberge, Wang Lin compta son butin. En plus de ce que l'
 
 « Si je peux accomplir mon troisième Éveil de Suzaku, je deviendrai encore plus puissant... Malheureusement, cette seule plume ne suffit pas. »
 
-La plume entre ses doigts se transforma instantanément en une flamme prenant la forme d'un Oiseau Vermillon. Elle s'échappa de sa main et tournoia autour de lui comme si elle était ravie, avant de pénétrer dans l'œil gauche de Wang Lin pour y disparaître.
+La plume entre ses doigts se transforma instantanément en une flamme prenant la forme de Suzaku. Elle s'échappa de sa main et tournoia autour de lui comme si elle était ravie, avant de pénétrer dans l'œil gauche de Wang Lin pour y disparaître.
 
 Au moment où Suzaku pénétra son œil, une mer de flammes enveloppa ses environs. Cependant, ces flammes ne détruisirent rien dans l'auberge; elles brûlèrent plutôt le vide lui-même. Après un long moment, les flammes furent absorbées par son corps. Wang Lin prit une profonde inspiration et commença à méditer.
 

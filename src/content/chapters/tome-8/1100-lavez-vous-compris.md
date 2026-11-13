@@ -24,7 +24,7 @@ Wang Lin tendit silencieusement la cruche qu'il tenait à Chen Daozi. Ce dernier
 
 À cet instant, Ling Er apporta du vin depuis la ville. Les yeux rougis par l'émotion, elle posa délicatement les cruches à côté de Chen Daozi.
 
-Wang Lin saisit une cruche et la vida d'un seul trait. Son regard devint résolu lorsqu'il déclara: « Chen Daozi, je suis responsable de cette affaire. Si je ne vous avais pas emmenés tous les trois, une telle tragédie ne serait pas survenue. L'homme qui a tué votre cadet est l'Ancien Diable Ta Jia. Il ne faudra plus longtemps avant que vous puissiez le tuer de vos propres mains et venger votre cadet! »
+Wang Lin saisit une cruche et la vida d'un seul trait. Son regard devint résolu lorsqu'il déclara: « Chen Daozi, je suis responsable de cette affaire. Si je ne vous avais pas emmenés tous les trois, une telle tragédie ne serait pas survenue. L'homme qui a tué votre Junior frère est l'Ancien Démon Ta Jia. Il ne faudra plus longtemps avant que vous puissiez le tuer de vos propres mains et venger votre Junior frère! »
 
 Le corps de Chen Daozi trembla, ses yeux brillant d'excitation face à Wang Lin.
 

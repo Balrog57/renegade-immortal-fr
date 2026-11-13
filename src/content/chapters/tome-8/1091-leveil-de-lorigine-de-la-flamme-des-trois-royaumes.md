@@ -12,7 +12,7 @@ Alors que Wang Lin avançait, presque tous les cultivateurs des planètes qu’i
 
 Ces clameurs exprimaient l'enthousiasme et les attentes que tous les membres de la Secte Divine de Suzaku avaient nourris pendant d'innombrables années.
 
-De plus en plus de cultivateurs suivaient Wang Lin. En particulier, les plus jeunes le regardaient avec une profonde révérence. À mesure qu'il progressait, toujours plus de membres de la Secte Zhu Que se mettaient en marche derrière lui.
+De plus en plus de cultivateurs suivaient Wang Lin. En particulier, les plus jeunes le regardaient avec une profonde révérence. À mesure qu'il progressait, toujours plus de membres de la Secte Divine de Suzaku se mettaient en marche derrière lui.
 
 « Maître! » Un cri enthousiaste s'éleva parmi les membres de la Secte, faisant marquer un temps d'arrêt à Wang Lin. Lei Ji et Da Tou volèrent rapidement vers lui.
 

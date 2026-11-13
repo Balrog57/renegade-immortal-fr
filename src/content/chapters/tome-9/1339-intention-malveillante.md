@@ -12,7 +12,7 @@ Cependant, le Maître Zhou Tian n'aurait même pas eu ce laps de temps!
 
 Alors qu'il fuyait, la voix moqueuse de Wang Lin résonna dans son esprit. Avant même qu'il ne puisse réfléchir, ses pupilles se rétractèrent et Wang Lin apparut soudainement devant lui. Ce regard glacial, chargé de tonnerre, perça l'âme du Maître Zhou Tian!
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
 C'était comme si des millions d'éclairs s'étaient engouffrés dans les yeux du Maître Zhou Tian pour exploser à l'intérieur de son corps et de son âme originelle. Une tempête inimaginable se déchaîna en lui, déchirant sa chair.
 
@@ -44,7 +44,7 @@ Un laps de temps extrêmement court s'était écoulé depuis qu'il avait attaqu�
 
 Après avoir tué le Maître Zhou Tian comme on écrase une fourmi, il se précipita en avant, brisant toutes les barrières sur son passage. Il franchit la sortie et pénétra dans un lieu crucial pour le Clan Shan Lei: les 7 Millions de Mondes!
 
-Depuis la création des 7 Millions de Mondes, hormis les mystérieux cultivateurs ayant aidé l'ancêtre du troisième pas du Clan Shan Lei à les façonner, aucun étranger n'y était jamais entré!
+Depuis la création des 7 Millions de Mondes, hormis les mystérieux cultivateurs ayant aidé l'ancêtre de la troisième étape du Clan Shan Lei à les façonner, aucun étranger n'y était jamais entré!
 
 Wang Lin serait le premier après ces êtres mystérieux!
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1342 - The Path of a Powerful Thunder Cultivator!"
 slug: la-voie-dun-puissant-cultivateur-du-tonnerre
 ---
-Les 7 Millions de Mondes comptaient sept millions de mondes, ce qui donnait à cet endroit une apparence infinie. Mais les membres du Clan Shan Lei n'avaient pas besoin de chercher aveuglément. Chaque fois qu'un être était sur le point de subir sa rétribution divine, le talisman que tenaient les membres du clan le détectait. Alors, le cultivateur du Clan Shan Lei le plus proche était téléporté sur les lieux pour incarner le Dao Céleste!
+Les 7 Millions de Mondes comptaient sept millions de mondes, ce qui donnait à cet endroit une apparence infinie. Mais les membres du Clan Shan Lei n'avaient pas besoin de chercher aveuglément. Chaque fois qu'un être était sur le point de subir sa Tribulation Céleste, le talisman que tenaient les membres du clan le détectait. Alors, le cultivateur du Clan Shan Lei le plus proche était téléporté sur les lieux pour incarner le Dao Céleste!
 
 Alors que Wang Lin traversait les 7 Millions de Mondes et contemplait les planètes, un sentiment complexe envahit son cœur. Son expression était sombre tandis qu'il observait ce monde qui ne pouvait être distingué du monde réel. Après un long moment, il laissa échapper un soupir. Puis, d'un revers de la main droite, plus de dix marques du Clan Shan Lei apparurent dans sa paume.
 
@@ -60,7 +60,7 @@ L'éclair dans les yeux de Wang Lin scintilla et, d'une simple pensée, le tonne
 
 Cela ressemblait énormément à ce qu'il avait vu, la seule différence étant l'absence des huit autres tonnerres compagnons! Il était dommage que le seul présent soit trop faible; bien qu'existant, il n'en était qu'une trace.
 
-Son œil droit brilla et l'essence incomplète retourna instantanément dans son orbite. Il murmura: « Je n'ai pas envie de tuer des gens qui subissent leur rétribution divine, mais je peux tuer les membres du Clan Shan Lei pour m'en emparer... »
+Son œil droit brilla et l'essence incomplète retourna instantanément dans son orbite. Il murmura: « Je n'ai pas envie de tuer des gens qui subissent leur Tribulation Céleste, mais je peux tuer les membres du Clan Shan Lei pour m'en emparer... »
 
 Avec un ricanement, Wang Lin disparut. Son sens divin se propagea comme une onde et un cauchemar commença dans les 7 Millions de Mondes.
 
@@ -98,6 +98,6 @@ En seulement quelques jours, près de mille cultivateurs avaient été tués par
 
 Ces éclairs de Tonnerre Spirituel furent tous absorbés par son œil droit, qui continuait de croître!
 
-Le quatrième jour, après que l'orage de Wang Lin eut englouti trois cultivateurs Scruteur du Nirvana, son talisman indiquant une rétribution divine se mit à trembler alors qu'il s'apprêtait à bouger. Cependant, les vibrations cessèrent net, car quelqu'un d'autre était déjà parti avant lui!
+Le quatrième jour, après que l'orage de Wang Lin eut englouti trois cultivateurs Scruteur du Nirvana, son talisman indiquant une Tribulation Céleste se mit à trembler alors qu'il s'apprêtait à bouger. Cependant, les vibrations cessèrent net, car quelqu'un d'autre était déjà parti avant lui!
 
 L'orage se contracta violemment pour former un puissant vortex, et Wang Lin en sortit. Ses yeux brillèrent alors qu'il avançait, le talisman à la main, avant de disparaître!

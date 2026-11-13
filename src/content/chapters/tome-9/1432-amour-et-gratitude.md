@@ -72,11 +72,11 @@ La folie de Qing Shui, qui l'avait poussé à tuer sa femme, était le fruit des
 
 « Ce vieil homme, Lu Yun, a vécu toute sa vie pour la Secte Divine de Suzaku... Même si je vais bientôt mourir, je peux désormais mourir avec le sourire... Tu es excellent, prends soin de la Secte Divine de Suzaku pour moi. »
 
-Le dernier souhait de l'ancien Empereur Oiseau Vermillon était que Wang Lin veille sur la secte. Face à toute la bonté reçue, il ne pouvait supporter la colère et le regard déçu de l'Empereur Divin défunt.
+Le dernier souhait de l'ancien Empereur Divin de Suzaku était que Wang Lin veille sur la secte. Face à toute la bonté reçue, il ne pouvait supporter la colère et le regard déçu de l'Empereur Divin défunt.
 
 La deuxième génération de Suzaku n'avait connu Wang Lin que quelques jours. Son rire franc, son expression satisfaite, son admiration et sa gentillesse lui revinrent en mémoire. Il avait pêché un dragon pour offrir son sang à Wang Lin et avait tenté de le sauver à maintes reprises lors des épreuves. Il avait même rugi face à la première génération de Suzaku dans le bâton d'encens céleste!
 
-La deuxième génération lui avait transmis la méthode pour contrôler le dragon de flamme et la carapace de tortue de la Restriction de l'Âme Ancienne. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan Zhu Que: l'Ombrelle Brûlante du Royaume!
+La deuxième génération lui avait transmis la méthode pour contrôler le dragon de flamme et la carapace de tortue de la Restriction de l'Âme Ancienne. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan Suzaku: l'Ombrelle Brûlante du Royaume!
 
 « Petit gars, n'oublie pas que la prochaine fois que nous nous verrons, tu devras choisir la septième génération pour ce vieil homme. Choisis un enfant déterminé! Tu as l'air plutôt froid, mais même toi, tu as été espiègle à un moment donné. Quel dommage... Ah, qu'est-ce qu'il y a de si bien dans la culture duale, ce vieil homme ne comprend vraiment pas... »
 

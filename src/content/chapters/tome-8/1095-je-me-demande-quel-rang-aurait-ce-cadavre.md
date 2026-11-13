@@ -96,7 +96,7 @@ Laissons de côté le sort de Lie Yunzi pour l'instant. Après son départ, dans
 
 Cependant, Wang Lin lui demanda de rester pour assister à la cérémonie d'investiture qui aurait lieu dans quelques jours.
 
-Alors que la femme s'apprêtait à se lever pour s'excuser, Wang Lin lui posa soudainement une question: « Cher cultivateur Li, la Secte Shi Yin utilisant toujours des cadavres comme compagnons, vous devez posséder de vastes connaissances sur les différentes formes de corps au monde. Je me demande... quel est considéré comme le corps suprême? »
+Alors que la femme s'apprêtait à se lever pour s'excuser, Wang Lin lui posa soudainement une question: « Cher Daoïste Li, la Secte Shi Yin utilisant toujours des cadavres comme compagnons, vous devez posséder de vastes connaissances sur les différentes formes de corps au monde. Je me demande... quel est considéré comme le corps suprême? »
 
 Les yeux de la belle femme s'illuminèrent. Elle était très intriguée par ce nouvel Empereur Divin, d'autant plus que sa façon de malmener Lie Yunzi plus tôt avait radicalement changé l'image qu'elle se faisait de lui.
 
@@ -106,7 +106,7 @@ Comme pour le tenter, elle entrouvrit ses lèvres dans un sourire provocateur: �
 
 Wang Lin acquiesça.
 
-« C’est donc ainsi. Je pensais que les informations que j'avais reçues concernant un cadavre concernaient réellement le premier rang mondial! J'aurais voulu que le cultivateur Li vérifie, mais puisque c'est ainsi, laissons tomber. »
+« C’est donc ainsi. Je pensais que les informations que j'avais reçues concernant un cadavre concernaient réellement le premier rang mondial! J'aurais voulu que le Daoïste Li vérifie, mais puisque c'est ainsi, laissons tomber. »
 
 Les yeux de la femme brillèrent et elle sourit: « Oh? Je me demande quel genre de cadavre pourrait inspirer une telle confiance à l'Empereur Divin. »
 

@@ -30,7 +30,7 @@ C'est là qu'il avait trouvé ce corps brisé et l'avait ramené ici.
 
 « Enfin, quelqu'un pour m'accompagner... Bien que ce soit un mort, comment un cadavre peut-il croître à nouveau? Oh... Peut-être, qui sait. Je le dis, il va pleuvoir aujourd'hui... Xiao Hong, va chercher la Pierre de Jade de l'Abri de Pluie... Hein? Je l'ai mangée la dernière fois que j'étais ivre, tu dis... Alors va demander à la famille Li d'en fournir une autre. Bon sang, s'ils refusent, dis-leur que ce roi demandera à mon grand frère de venir la voler demain! »
 
-« C'est peut-être ça... Peut-être qu'il n'y a pas assez d'argent... Et s'il n'y en a pas assez... Petit Gui, va trouver mon grand frère et dis-lui de m'en donner. S'il refuse, dis-lui que demain ce roi va... Euh, j'irai la voler moi-même! » Le cultivateur ne savait même plus ce qu'il marmonnait. Ce phénomène avait commencé lorsqu'il était piégé dans le Royaume aux Sept Couleurs. Sans ces divagations incessantes, il serait sans doute devenu véritablement fou.
+« C'est peut-être ça... Peut-être qu'il n'y a pas assez d'argent... Et s'il n'y en a pas assez... Xiao Gui, va trouver mon grand frère et dis-lui de m'en donner. S'il refuse, dis-lui que demain ce roi va... Euh, j'irai la voler moi-même! » Le cultivateur ne savait même plus ce qu'il marmonnait. Ce phénomène avait commencé lorsqu'il était piégé dans le Royaume aux Sept Couleurs. Sans ces divagations incessantes, il serait sans doute devenu véritablement fou.
 
 Après avoir marmonné longtemps, il laissa échapper un grand soupir et regarda le cadavre. Son expression changea brusquement pour devenir féroce.
 

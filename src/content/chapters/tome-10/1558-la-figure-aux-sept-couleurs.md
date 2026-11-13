@@ -64,7 +64,7 @@ Tandis que Wang Lin reprenait son souffle, la douleur dans son cœur s'estompa p
 
 Les pupilles de Wang Lin se contractèrent légèrement et il demanda: « Je me demande ce que Votre Excellence entend par les 3 000 gouttes de sang de Ye Mo! »
 
-La figure aux sept couleurs sembla rire en secouant la tête: « Si vous parvenez à extraire trois épines, je pourrai vous révéler un secret sur l'Ancien... »
+La figure aux sept couleurs sembla rire en secouant la tête: « Si vous parvenez à extraire trois épines, je pourrai vous révéler un secret sur Dao Gu... »
 
 Wang Lin ne pouvait sonder les pensées de cette entité. Cet être avait déployé des efforts colossaux pour observer Qing Shui depuis sa naissance, afin de le maintenir dans un état de chagrin et de désespoir, mettant en place cette formation pour récolter l'Essence du Massacre.
 
@@ -98,19 +98,19 @@ Wang Lin essuya le sang au coin de sa bouche et sourit à Qing Shui. Cependant, 
 
 La figure aux sept couleurs sourit en fixant Wang Lin. Elle commença à parler avec une pointe de nostalgie.
 
-« Au commencement, il n'y avait aucun cultivateur du Pays Antique, et encore moins l'Ancien Ye Mo... Pourtant, il est venu. Avant sa mort, il dispersa 3 000 gouttes de son sang. 1 000 devinrent des Dieux Anciens, 1 000 devinrent des Diables Anciens et 1 000 devinrent des Démons Anciens. Au fil des âges, ces 3 000 gouttes ont fusionné ou se sont diluées. »
+« Au commencement, il n'y avait aucun cultivateur du Pays Antique, et encore moins Dao Gu Ye Mo... Pourtant, il est venu. Avant sa mort, il dispersa 3 000 gouttes de son sang. 1 000 devinrent des Dieux Anciens, 1 000 devinrent des Diables Anciens et 1 000 devinrent des Démons Anciens. Au fil des âges, ces 3 000 gouttes ont fusionné ou se sont diluées. »
 
 « C'est là l'origine de vos trois Clans Anciens. »
 
 L'esprit de Wang Lin vacilla. Il ne pouvait croire entièrement ces paroles, mais elles ressemblaient étrangement à ce que l'âme de l'Ancien Démon dans le tambour avait affirmé lors de son Ascendant dans la Terre Yao Ling!
 
-L'Ancien Démon Bei Luo avait un jour déclaré que l'Ancien était la première génération de cultivateurs défiant le ciel. Il était mort en combattant le Dao Céleste, et c'est après cela que les Dieux Anciens, les Démons Anciens et les Diables Anciens étaient apparus!
+L'Ancien Démon Bei Luo avait un jour déclaré que Dao Gu était la première génération de cultivateurs défiant le ciel. Il était mort en combattant le Dao Céleste, et c'est après cela que les Dieux Anciens, les Démons Anciens et les Diables Anciens étaient apparus!
 
 Les trois Clans Anciens constituaient la seconde génération de cultivateurs défiant le ciel!
 
 Bien que cela ne fût pas exactement identique aux propos de la figure aux sept couleurs, si l'on combinait les deux récits, une image limpide se dessinait!
 
-« L'Ancien Ye Mo a été attiré ici par le Souverain Céleste, ou la figure aux sept couleurs. Cette bataille était le conflit ancestral où l'Ancien combattait le Ciel mentionné par Bei Luo! »
+« Dao Gu Ye Mo a été attiré ici par le Souverain Céleste, ou la figure aux sept couleurs. Cette bataille était le conflit ancestral où Dao Gu combattait le Ciel mentionné par Bei Luo! »
 
 « Les 3 000 gouttes de sang se sont finalement transformées en trois Clans Anciens. Les gouttes ayant fusionné ont donné naissance aux lignées royales! Dans quelle mesure tout cela est-il vrai? » Wang Lin prit une profonde inspiration.
 

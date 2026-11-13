@@ -66,7 +66,7 @@ Le visage de Zhou Jin était livide et sa poitrine s'affaissa. Il cracha du sang
 
 La tempête provoquée par le rugissement du dieu ancien balaya le palais. Les corps d'innombrables cultivateurs s'effondrèrent. Même les huit montagnes de cadavres tombèrent en poussière, et même les huit dragons se désintégrèrent!
 
-Seuls les cadavres des membres des trois clans de l'Ordre Ancien, réduits de moitié, ne s'effondrèrent pas sous ce rugissement.
+Seuls les cadavres des membres des trois clans anciens, réduits de moitié, ne s'effondrèrent pas sous ce rugissement.
 
 Tuo Sen était devenu fou!
 

@@ -14,7 +14,7 @@ Derrière cette première vague, une multitude dix fois plus nombreuse rugissait
 
 Plus loin encore, les immenses chars de guerre avançaient dans un grondement sourd et lent. Ils commencèrent à briller, projetant des rayons de lumière destructrice!
 
-À cet instant précis, une faille gigantesque sembla se déchirer au-dessus du palais. Près de cent membres des trois clans de l'Ordre Ancien, hauts de dix mille pieds, en émergèrent. C'était comme si le monde lui-même était sur le point de s'effondrer, et leurs rugissements étouffèrent ceux des cultivateurs.
+À cet instant précis, une faille gigantesque sembla se déchirer au-dessus du palais. Près de cent membres des trois clans anciens, hauts de dix mille pieds, en émergèrent. C'était comme si le monde lui-même était sur le point de s'effondrer, et leurs rugissements étouffèrent ceux des cultivateurs.
 
 Tandis que les grondements tonitruants résonnaient, ces cent membres apparurent. Sorts, puissance physique brute, trésors et attaques diverses commencèrent immédiatement à semer le chaos. Avec seulement une centaine d'individus, ils livraient bataille à des centaines de milliers de cultivateurs!
 
@@ -70,13 +70,13 @@ Les huit dragons géants conservèrent leur posture de combat, flottant immobile
 
 Non seulement eux, mais tous les cultivateurs touchés par les ondulations subirent le même sort. Leur force vitale se changea en aura de mort, entraînant leur décès immédiat!
 
-« Dieu, Démon, Diable, Ancien Dao, aucun Céleste! » murmura Wang Lin en transformant sa main en paume pour pousser doucement vers l'avant. Les étoiles anciennes entre ses sourcils tournèrent rapidement, passant soudainement de six à neuf étoiles. Les douze étoiles dans ses yeux passèrent également de douze à dix-huit!
+« Dieu, Démon, Diable, Ancien Dao, pas d'Immortel! » murmura Wang Lin en transformant sa main en paume pour pousser doucement vers l'avant. Les étoiles anciennes entre ses sourcils tournèrent rapidement, passant soudainement de six à neuf étoiles. Les douze étoiles dans ses yeux passèrent également de douze à dix-huit!
 
 Dieu Ancien à 9 étoiles!
 Démon Ancien à 9 étoiles!
 Diable Ancien à 9 étoiles!
 
-La puissance des trois clans semblait fusionner pour former la puissance de l'Ordre Ancien. Cette force afflua dans la main droite de Wang Lin alors qu'il poussait. Une ombre gigantesque apparut soudainement devant lui!
+La puissance des trois clans semblait fusionner pour former la puissance de Dao Gu. Cette force afflua dans la main droite de Wang Lin alors qu'il poussait. Une ombre gigantesque apparut soudainement devant lui!
 
 Cette ombre ne possédait qu'une tête, mais celle-ci était aussi vaste que le monde. Elle dégageait une aura antique, aussi vieille que les cieux eux-mêmes. Cependant, elle restait légèrement floue, rendant impossible la perception de ses traits.
 
@@ -84,7 +84,7 @@ Une fois apparue, la tête ouvrit la bouche et expira un souffle violent. Ce ven
 
 À ce moment précis, le lettré d'âge mûr tenant le parapluie de l'autre côté de la plateforme poussa un soupir. De sa main droite, il ouvrit l'ombrelle et une lumière aux sept couleurs en émana. L'objet devint semblable à un soleil, brillant d'un éclat intense.
 
-La puissance de l'Ordre Ancien et la lumière septicolore entrèrent en collision, faisant trembler le monde. C'est alors qu'un rugissement monstrueux retentit!
+La puissance de Dao Gu et la lumière septicolore entrèrent en collision, faisant trembler le monde. C'est alors qu'un rugissement monstrueux retentit!
 
 Derrière l'homme au parapluie, le cultivateur aux yeux clos tenait soudain un grand arc marqué de neuf sceaux. L'arc était fait d'os, le soleil et la lune gravés à une extrémité, le ciel étoilé imprimé à l'autre. Sa corde, faite d'un matériau inconnu, exhalait une aura ancestrale.
 
@@ -100,7 +100,7 @@ La flèche brisa tout sur son passage. Un grondement tonitruant, tel un rayon ca
 
 Elle traversa la lumière septicolore de l'homme au parapluie, le souffle destructeur exhalé par la tête géante et tout ce qui existait. C'était comme si ni le firmament, ni le temps, rien ne pouvait l'arrêter!
 
-Le choc provoqua une onde de choc puissante. La flèche transperça l'aura de l'Ordre Ancien et s'abattit sur l'œil gauche de la tête colossale!
+Le choc provoqua une onde de choc puissante. La flèche transperça l'aura de Dao Gu et s'abattit sur l'œil gauche de la tête colossale!
 
 Elle pénétra par l'orbite gauche pour ressortir de l'autre côté.
 

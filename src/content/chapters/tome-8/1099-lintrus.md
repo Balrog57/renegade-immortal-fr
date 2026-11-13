@@ -92,7 +92,7 @@ Wang Lin adressa un signe de tête à Treize et dit doucement à la femme: « Li
 
 La culpabilité dans les yeux de Wang Lin s'intensifia. D'un mouvement de manches, il disparut avec Ling Er. Après leur départ, une paire d'yeux s'alluma à l'intérieur de la grotte au sommet de la montagne.
 
-Le corps originel de Wang Lin ouvrit les yeux, révélant lui aussi une profonde culpabilité. Le Blaireau Marqué d'Étoiles était sur son épaule et lui léchait occasionnellement le cou.
+Le corps originel de Wang Lin ouvrit les yeux, révélant lui aussi une profonde culpabilité. La Zibeline Marquée d'Étoiles était sur son épaule et lui léchait occasionnellement le cou.
 
 Nul ne vit qu'en dessous de la taille, le corps originel de Wang Lin n'était plus qu'un amas d'ossements dégageant une aura sinistre...
 

@@ -82,7 +82,7 @@ Le pouvoir d'un Ancien Dieu à 9 étoiles était inimaginable et leur corps extr
 
 « Supposons que le cultivateur aux sept couleurs soit l'Empereur Céleste Antique. Avant d'obtenir le Compas Défiant, il aurait volé le Dao Céleste et, pour une raison quelconque, aurait eu besoin de le fortifier. Constatant qu'il était trop difficile de le nourrir avec des esprits de Dao, il aurait tendu un piège! » Le regard de Wang Lin devint plus intense alors qu'il poursuivait son analyse. Il se souvenait que la première génération de Suzaku avait mentionné des Anciens Dieux dans sa terre natale. Bien qu'ils ne fussent pas les souverains, ils pouvaient tenir tête, avec audace, même aux souverains de son monde.
 
-Le premier Oiseau Vermillon avait cité un nom: Dao Gu Ye Mo.
+Suzaku de la première génération avait cité un nom: Dao Gu Ye Mo.
 
 « Pourquoi "Dao Gu" et non "Ancien Dieu Ye Mo", "Ancien Diable" ou "Ancien Démon"? Est-ce que ce titre permet de déterminer que Ye Mo n'était ni dieu, ni diable, ni démon, mais un membre de Dao Gu? »
 

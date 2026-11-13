@@ -18,7 +18,7 @@ Maître Simo n'eut pas le temps de s'interroger sur la cause de ce phénomène. 
 
 Ce changement d’expression provoqua une nouvelle fluctuation de ses émotions, faisant brûler le Feu Éthéré avec encore plus de violence!
 
-Le Vieux Oiseau Vermillon observa la scène et laissa échapper un rictus presque imperceptible. « Ces quelques gifles n'étaient pas seulement destinées à lui donner une leçon, mais aussi à planter la graine du Feu Éthéré en son sein. Autrement, il lui aurait été trop difficile de combattre un cultivateur du troisième niveau. Petit gars, tout dépendra de ta capacité à saisir cette opportunité... »
+Le Vieux Suzaku observa la scène et laissa échapper un rictus presque imperceptible. « Ces quelques gifles n'étaient pas seulement destinées à lui donner une leçon, mais aussi à planter la graine du Feu Éthéré en son sein. Autrement, il lui aurait été trop difficile de combattre un cultivateur du troisième niveau. Petit gars, tout dépendra de ta capacité à saisir cette opportunité... »
 
 Wang Lin avait affronté d'innombrables situations de vie ou de mort; il ne laisserait passer aucune occasion. Voyant le Feu Éthéré rugir, une lueur froide passa dans ses yeux. Tout en réprimant les blessures subies précédemment, Wang Lin forma un sceau de ses mains et pointa vers l'avant.
 
@@ -82,7 +82,7 @@ Les yeux de ces âmes étaient emplis de ferveur et dégageaient des Flammes Jos
 
 Les cultivateurs environnants s'emballèrent et reculèrent, nul n'osant rester à proximité.
 
-Les yeux du Vieux Oiseau Vermillon s'illuminèrent en fixant Maître Simo, sans pour autant trahir ses pensées.
+Les yeux du Vieux Suzaku s'illuminèrent en fixant Maître Simo, sans pour autant trahir ses pensées.
 
 « Mes disciples, adorez-moi! » rugit Maître Simo, et les innombrables âmes s'inclinèrent toutes devant lui!
 
@@ -116,7 +116,7 @@ Soudain, Wang Lin aperçut une minuscule silhouette assise au cœur de cette fla
 
 « Sauve-moi... » Au moment où le vent violet frappa, Wang Lin crut entendre une voix ténue émaner de la flamme entre les sourcils de Maître Simo!
 
-« Maître Simo possède donc tant de disciples des Flammes Joss! » L'expression du Vieux Oiseau Vermillon changea et il s'apprêta à charger pour venir en aide au jeune homme.
+« Maître Simo possède donc tant de disciples des Flammes Joss! » L'expression du Vieux Suzaku changea et il s'apprêta à charger pour venir en aide au jeune homme.
 
 Cependant, juste au moment où il faisait un pas, la voix de Wang Lin résonna à travers le monde:
 

@@ -50,7 +50,7 @@ En contemplant cette pierre, Wang Lin sembla revivre tous les combats qu'il avai
 
 Le lettré en blanc qui connaissait Wang Lin dit doucement: « 5 000 jades célestes! »
 
-L'Ancien de la Secte des Sorts Dao, assis sur l'une des tablettes à l'avant, déclara calmement: « 10 000 jades célestes! »
+L'Ancien de la Secte Dao Fa, assis sur l'une des tablettes à l'avant, déclara calmement: « 10 000 jades célestes! »
 
 Personne d'autre n'enchérissait pour cette pierre. Hormis quelques cultivateurs puissants, la plupart la jugeaient sans valeur. Cependant, plus tôt, lorsque Wang Lin avait remis ses objets à la Secte Bao Yu, tout le monde avait pu clairement voir la forme de ces deux trésors.
 
@@ -70,13 +70,13 @@ Les cultivateurs au stade du Briseur du Nirvana ne furent pas déstabilisés. En
 
 Le lettré en blanc dit calmement: « 20 000 jades célestes! »
 
-« Bien que cet objet soit inutile pour nous, cultivateurs Briseurs de Nirvana, les juniors de la secte pourront en comprendre le sortilège... Plus important encore, il provient probablement du Royaume Céleste et a été raffiné ainsi! » L'Ancien de la Secte des Sorts Dao réfléchit un instant puis déclara lentement: « 30 000 jades célestes. »
+« Bien que cet objet soit inutile pour nous, cultivateurs Briseurs de Nirvana, les juniors de la secte pourront en comprendre le sortilège... Plus important encore, il provient probablement du Royaume Céleste et a été raffiné ainsi! » L'Ancien de la Secte Dao Fa réfléchit un instant puis déclara lentement: « 30 000 jades célestes. »
 
 « 40 000 jades célestes! » Une voix parvint de loin. C'était Ouyang Long, assis sur une tablette à l'arrière.
 
-L'Ancien de la Secte des Sorts Dao répondit: « 1 000 cristaux d'origine! »
+L'Ancien de la Secte Dao Fa répondit: « 1 000 cristaux d'origine! »
 
-Un silence absolu tomba sur l'assemblée. Personne d'autre n'osa enchérir et, finalement, l'Ancien de la Secte des Sorts Dao remporta l'objet.
+Un silence absolu tomba sur l'assemblée. Personne d'autre n'osa enchérir et, finalement, l'Ancien de la Secte Dao Fa remporta l'objet.
 
 Bien que cette pierre de montagne fût rare, elle n'avait provoqué qu'un léger remous lors de l'enchère. Cependant, le choc suscité par l'objet suivant dépassa tout ce que Wang Lin pouvait imaginer.
 
@@ -104,7 +104,7 @@ Le vieil homme balafré eut un souffle court et murmura: « L'Armure Démoniaque
 
 Les cultivateurs présents étaient tous des experts érudits, puissants et dotés d'une grande force mentale. Pourtant, à cet instant précis, leur volonté vacilla devant cette armure!
 
-L'Ancien de la Secte des Sorts Dao joignit les mains vers Wang Lin: « Daoïste Lu, souhaitez-vous vraiment vendre cela? »
+L'Ancien de la Secte Dao Fa joignit les mains vers Wang Lin: « Daoïste Lu, souhaitez-vous vraiment vendre cela? »
 
 Sa question plongea immédiatement l'assemblée dans le silence. Tous les regards se tournèrent vers Wang Lin.
 
@@ -112,19 +112,19 @@ Wang Lin restait calme en contemplant l'armure démoniaque. Il n'avait pas imagi
 
 Wang Lin dit simplement: « Je ne veux que des cristaux d'origine. »
 
-« Très bien. Je suis prêt à offrir 3 000 cristaux d'origine pour l'acheter! » déclara l'Ancien de la Secte des Sorts Dao d'un ton résolu.
+« Très bien. Je suis prêt à offrir 3 000 cristaux d'origine pour l'acheter! » déclara l'Ancien de la Secte Dao Fa d'un ton résolu.
 
 « Cette femme en offre 5 000! » La vieille dame qui avait échangé la carte stellaire avec Wang Lin lança son offre, le regard mystérieux fixé sur l'armure.
 
 Le lettré en blanc prit une grande inspiration: « Je crois que vous voulez tous l'acquérir pour étudier les sorts de la Secte Divine. Seuls ses membres possèdent de tels objets, et ils sont rarement divulgués. Je dois l'obtenir. J'offre 8 000 cristaux d'origine! »
 
-L'Ancien de la Secte des Sorts Dao hésita, puis serra les dents: « 10 000 cristaux d'origine! » Sa secte ne disposait pas de telles richesses; 10 000 était sa limite absolue.
+L'Ancien de la Secte Dao Fa hésita, puis serra les dents: « 10 000 cristaux d'origine! » Sa secte ne disposait pas de telles richesses; 10 000 était sa limite absolue.
 
 À l'annonce de ce prix, les cultivateurs environnants haletèrent. Un tel niveau d'enchère n'était pas à la portée du commun des mortels. C'est alors qu'une voix excentrique retentit:
 
 « La secte Mi Luo de rang 7 offre 13 000 cristaux d'origine! » Les regards se tournèrent vers un jeune homme en jaune qui tenait un éventail.
 
-L'Ancien de la Secte des Sorts Dao fixa l'armure et soupira, renonçant à la lutte. Le silence revint sur les autres; ils avaient atteint leur limite.
+L'Ancien de la Secte Dao Fa fixa l'armure et soupira, renonçant à la lutte. Le silence revint sur les autres; ils avaient atteint leur limite.
 
 « 15 000 cristaux d'origine! » La voix d'Ouyang Long résonna, teintée d'un tremblement. Même pour lui, ce prix faisait chanceler son esprit.
 

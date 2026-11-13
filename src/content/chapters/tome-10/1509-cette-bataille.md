@@ -14,7 +14,7 @@ Ce vieil homme portait une robe verte, son expression était sombre, et il étai
 
 Alors qu'il cultivait, il ouvrit soudainement les yeux et regarda devant lui. De la fumée apparut et se transforma en une grue de nuages.
 
-« Grand Vide de la Secte Fantôme, je suis prêt à offrir 500 millions de disciples Yin et Yang au Saint Démon, en échange d'une intervention de votre Seigneur Saint Démon de la Secte Fantôme! »
+« Da Xu de la Secte Fantôme, je suis prêt à offrir 500 millions de disciples Yin et Yang au Saint Démon, en échange d'une intervention de votre Seigneur Saint Démon de la Secte Fantôme! »
 
 Au même moment, les six jades de décret de Shui Daozi déclenchèrent une vague monstrueuse à l'intérieur du Royaume Intérieur!
 

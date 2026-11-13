@@ -8,7 +8,7 @@ slug: est-il-venu
 ---
 Les yeux de Feng Hai se rétractèrent de manière imperceptible et il s'élança rapidement. Les six anciens derrière lui le suivirent, le cœur lourd de doutes.
 
-Leur mouvement entraîna celui des membres de la Secte Éternelle qui les suivaient. Le déplacement de plusieurs centaines de personnes attira immédiatement l'attention des cultivateurs sur toute la plateforme!
+Leur mouvement entraîna celui des membres de la Secte Wu Ji qui les suivaient. Le déplacement de plusieurs centaines de personnes attira immédiatement l'attention des cultivateurs sur toute la plateforme!
 
 Toutes sortes de spéculations commencèrent à circuler, et certains, impatients, s'envolèrent directement vers le nord. Quelqu'un ayant pris la tête, une foule encore plus nombreuse suivit.
 
@@ -24,7 +24,7 @@ Sa voix, telle une onde de choc, réprima instantanément le chaos et força tou
 
 Tout en fronçant les sourcils, l'ancien aux cheveux roux aperçut la silhouette de Li Qianmei et se précipita vers elle, suivi d'une douzaine d'autres anciens.
 
-Li Qianmei s'élança rapidement, faisant fi du fait qu'elle avait alerté toute la Secte Éternelle. Elle vola droit vers le nord, en direction de la Secte Gui Yuan. Arrivée à proximité, elle atterrit et son regard balaya les environs.
+Li Qianmei s'élança rapidement, faisant fi du fait qu'elle avait alerté toute la Secte Wu Ji. Elle vola droit vers le nord, en direction de la Secte Gui Yuan. Arrivée à proximité, elle atterrit et son regard balaya les environs.
 
 La joie de Lu Yingjie fut d'autant plus intense. Auparavant, il ne voyait Li Qianmei que de loin et n'osait pas déployer son sens divin; il n'avait donc pas entendu Li Qianmei interroger la Secte Gui Yuan. À cet instant, il prit une profonde inspiration et afficha un sourire bienveillant. Dès que Li Qianmei fut proche, il dit: « Dame Li, cela fait cent ans que nous ne nous sommes pas vus. Je me demande si vous vous souvenez encore de moi. »
 
@@ -32,13 +32,13 @@ Zhao Long, à ses côtés, manifesta également un air de respect et joignit les
 
 Après leurs paroles, l'assistance fut stupéfaite. Il était évident que personne n'aurait imaginé que la raison pour laquelle la Fille des Cieux s'était précipitée ainsi soit Lu Yingjie!
 
-« On raconte que Lu Yingjie est un grand romantique. Je ne pensais pas que même Li Qianmei le connaîtrait, ou qu'elle viendrait jusqu'à la Secte Éternelle à cause de lui. »
+« On raconte que Lu Yingjie est un grand romantique. Je ne pensais pas que même Li Qianmei le connaîtrait, ou qu'elle viendrait jusqu'à la Secte Wu Ji à cause de lui. »
 
 « Si cela s'avère vrai, la Secte Xian Yin sera célèbre avant même d'avoir pu participer au concours. Je ne m'y attendais pas, je ne m'y attendais pas! »
 
 « Je me demande bien ce que Lu Yingjie a fait pour gagner les faveurs de Li Qianmei. Cela me dépasse. »
 
-Même les membres de la Secte Éternelle qui avaient suivi Li Qianmei regardèrent Lu Yingjie avec étonnement, mais Feng Hai et ses compagnons fronçaient les sourcils. Ils avaient clairement entendu Li Qianmei demander après la Secte Gui Yuan, et l'apparition de Lu Yingjie ne faisait qu'accroître leurs doutes.
+Même les membres de la Secte Wu Ji qui avaient suivi Li Qianmei regardèrent Lu Yingjie avec étonnement, mais Feng Hai et ses compagnons fronçaient les sourcils. Ils avaient clairement entendu Li Qianmei demander après la Secte Gui Yuan, et l'apparition de Lu Yingjie ne faisait qu'accroître leurs doutes.
 
 Lu Yingjie afficha un sourire plus large encore, porté par toute cette attention. Il fit quelques pas en avant pour rejoindre Li Qianmei qui venait de se poser.
 
@@ -60,7 +60,7 @@ Li Qianmei réfléchit silencieusement en mordillant sa lèvre inférieure. Apr�
 
 Ces mots parvinrent distinctement aux oreilles des cultivateurs environnants, provoquant une agitation immédiate. Tout le monde se demandait qui était ce « lui »!
 
-Même les membres de la Secte Éternelle se posaient la même question. Les yeux de Feng Hai s'illuminèrent alors qu'une réponse à ses doutes commençait à se dessiner. À cet instant, l'ancien aux cheveux roux et sa suite d'une douzaine d'autres arrivèrent. Un éclair de choc passa dans ses yeux en apercevant Feng Hai; tous deux étaient plongés dans leurs propres réflexions.
+Même les membres de la Secte Wu Ji se posaient la même question. Les yeux de Feng Hai s'illuminèrent alors qu'une réponse à ses doutes commençait à se dessiner. À cet instant, l'ancien aux cheveux roux et sa suite d'une douzaine d'autres arrivèrent. Un éclair de choc passa dans ses yeux en apercevant Feng Hai; tous deux étaient plongés dans leurs propres réflexions.
 
 Lu Yingjie entendit également ces paroles. Malgré sa force mentale, son expression changea. Après ce qu'il venait de subir, il lui était extrêmement difficile de rester serein. Son visage devint très disgracieux, et il eut le vague pressentiment que quelque chose de funeste allait se produire.
 
@@ -92,11 +92,11 @@ Un cri déchirant retentit alors que Zhao Long crachait du sang et se faisait pr
 
 Une odeur de sang se propagea alors que l'âme originelle de Zhao Long s'échappait, les yeux écarquillés par la panique et la terreur.
 
-Li Qianmei regarda calmement Feng Hai de la Secte Éternelle ainsi que l'ancien aux cheveux roux et dit d'une voix douce: « Si cela vous pose problème, je donnerai des explications à la Secte Éternelle. » Puis, elle se tourna vers Lu Yingjie et ajouta: « Puisque tu veux le combattre, je te laisserai la vie sauve. Mais s'il ne vient pas, alors je prendrai la tienne ainsi que celle de cet homme nommé Zhao! »
+Li Qianmei regarda calmement Feng Hai de la Secte Wu Ji ainsi que l'ancien aux cheveux roux et dit d'une voix douce: « Si cela vous pose problème, je donnerai des explications à la Secte Wu Ji. » Puis, elle se tourna vers Lu Yingjie et ajouta: « Puisque tu veux le combattre, je te laisserai la vie sauve. Mais s'il ne vient pas, alors je prendrai la tienne ainsi que celle de cet homme nommé Zhao! »
 
 Ce coup d'éclat et ces paroles lapidaires produisirent un impact colossal. Tous ceux qui assistèrent à la scène en eurent le souffle coupé, les yeux écarquillés par le choc.
 
-Les membres de la Secte Éternelle restèrent également silencieux. Feng Hai regarda l'ancien aux cheveux roux avant de tousser et de demander: « Camarade cultivatrice Li, puis-je savoir qui est cette personne dont vous parlez? L'Oncle-Maître de Lu Yanfei, de la Secte Gui Yuan? »
+Les membres de la Secte Wu Ji restèrent également silencieux. Feng Hai regarda l'ancien aux cheveux roux avant de tousser et de demander: « Camarade cultivatrice Li, puis-je savoir qui est cette personne dont vous parlez? L'Oncle-Maître de Lu Yanfei, de la Secte Gui Yuan? »
 
 Li Qianmei acquiesça. Puis, elle poussa un soupir et regarda le ciel. Nul ne savait à quoi elle pensait.
 

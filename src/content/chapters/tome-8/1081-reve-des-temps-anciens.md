@@ -88,7 +88,7 @@ Plus loin encore, une vague monstrueuse d'énergie démoniaque déferla, et des 
 
 Dans une autre direction, une énergie diabolique ébranlait les cieux, et d'anciens démons chargeaient avec une soif de sang démente dans le regard!
 
-C'était une bataille titanesque entre les trois clans de l'Ordre Ancien!
+C'était une bataille titanesque entre les trois clans anciens!
 
 Au sol, d'innombrables cultivateurs raffineurs de Qi s'agitaient, mais ils étaient bien plus puissants que n'importe quel cultivateur de l'ère actuelle. Regroupés par clans familiaux et arborant divers tatouages entre les sourcils, ils entamèrent un massacre frénétique!
 

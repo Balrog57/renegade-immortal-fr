@@ -58,7 +58,7 @@ Les yeux de Lie Yunzi étaient également emplis de confusion. Il fixait le vide
 
 N'importe quel cultivateur de la deuxième étape du Royaume Intérieur aurait perdu la raison face à un tel spectacle. Deux cultivateurs de la troisième étape en tant qu'esclaves... c'était terrifiant!
 
-Le cœur du Dieu de Sang battait la chamade et le désespoir emplissait son regard. Il n'aurait jamais pu imaginer une telle éventualité. Même Maître Lu Fu avait été contraint de reculer. Le monde était vaste, mais en cet instant, il avait l'impression d'être dans une cage!
+Le cœur de Xue Shenzi battait la chamade et le désespoir emplissait son regard. Il n'aurait jamais pu imaginer une telle éventualité. Même Maître Lu Fu avait été contraint de reculer. Le monde était vaste, mais en cet instant, il avait l'impression d'être dans une cage!
 
 À l'instant même où Zhou Jin et Ling Dong apparurent, leurs auras de la troisième étape balayèrent Luotian et s'engouffrèrent dans les trois autres systèmes stellaires!
 
@@ -116,7 +116,7 @@ Dans le système stellaire de l'Alliance, là où se trouve la Secte Shi Yin, un
 
 « La promesse du Seigneur du Royaume Scellé... serait-ce lui...? »
 
-Dans le système stellaire de Luotian, au cœur de la magnifique formation planétaire, Wang Lin regarda calmement Maître Lu Fu. Il ne chercha pas à l'humilier, mais passa lentement devant lui pour se diriger vers le stupéfait Dieu de Sang.
+Dans le système stellaire de Luotian, au cœur de la magnifique formation planétaire, Wang Lin regarda calmement Maître Lu Fu. Il ne chercha pas à l'humilier, mais passa lentement devant lui pour se diriger vers le stupéfait Xue Shenzi.
 
 Le visage de Maître Lu Fu était livide; il laissa Wang Lin passer sans chercher à l'arrêter. Son expression complexe trahissait une profonde amertume.
 
@@ -126,6 +126,6 @@ C'est pourquoi Wang Lin avait accepté la Bataille Littéraire sans intention de
 
 Il avait initialement prévu d'utiliser la Bataille Littéraire pour offrir à Maître Lu Fu une porte de sortie honorable. Cependant, la pression exercée par Maître Lu Fu finit par lasser Wang Lin. Il avait alors convoqué Ling Dong et Zhou Jin afin de lui infliger un choc inimaginable!
 
-Wang Lin dépassa l'amer Maître Lu Fu et s'avança lentement dans le vortex. Il se retrouva face au Dieu de Sang.
+Wang Lin dépassa l'amer Maître Lu Fu et s'avança lentement dans le vortex. Il se retrouva face à Xue Shenzi.
 
-Le visage du Dieu de Sang était blême, et dès que Wang Lin fut là, il poussa un cri strident. Ses mains formèrent un sceau, tentant une ultime lutte avant la mort. Il recula précipitamment en agitant ses manches, faisant apparaître une ombre démoniaque illusoire derrière lui!
+Le visage de Xue Shenzi était blême, et dès que Wang Lin fut là, il poussa un cri strident. Ses mains formèrent un sceau, tentant une ultime lutte avant la mort. Il recula précipitamment en agitant ses manches, faisant apparaître une ombre démoniaque illusoire derrière lui!

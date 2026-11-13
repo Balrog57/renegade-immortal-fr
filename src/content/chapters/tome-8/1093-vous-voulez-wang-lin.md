@@ -14,7 +14,7 @@ La belle femme sourit et prit une gorgée. Elle reposa ensuite sa tasse en souri
 
 « Vous êtes une disciple centrale de la Secte Shi Yin, et vous avez déjà atteint le stade de la Purification du Nirvana à un si jeune âge. La rumeur prétend que vous possédez quatre marionnettes cadavériques, dont trois ne sont pas moins puissantes que des cultivateurs au stade Briseur du Nirvana. Si la Secte Shi Yin vous envoie, c'est qu'elle accorde également une grande importance au nouvel Empereur Divin de Suzaku. » La voix de Lie Yunzi était calme, mais lorsqu'elle parvint aux oreilles de la femme, ses pupilles se rétractèrent imperceptiblement.
 
-« Ce cultivateur doit être issu de l'Alliance. J'ignore simplement votre nom. » La femme changea de sujet et tourna son regard vers l'homme chauve.
+« Ce Daoïste doit être issu de l'Alliance. J'ignore simplement votre nom. » La femme changea de sujet et tourna son regard vers l'homme chauve.
 
 L'homme chauve répondit d'un ton serein: « Pays de Chu Yun, Mo Zhi! »
 
@@ -24,7 +24,7 @@ Cependant, les yeux de Lie Yunzi se plissèrent soudainement et il se tourna ver
 
 L'homme chauve sourit et joignit les mains en signe de respect envers Lie Yunzi. « Mo Zhi salue le Senior. »
 
-La belle femme réfléchit un instant, puis demanda: « Cultivateur Mo, Senior Lie Yunzi, savez-vous qui est le nouvel Empereur Divin de Suzaku? »
+La belle femme réfléchit un instant, puis demanda: « Daoïste Mo, Senior Lie Yunzi, savez-vous qui est le nouvel Empereur Divin de Suzaku? »
 
 « Je sais seulement que cette personne est extrêmement arrogante et qu'aucun des félicitateurs précédents n'a vu son vrai visage. Les Quatre Sectes Divines gardent également son nom secret. » Lie Yunzi prit sa tasse, y jeta un coup d'œil, puis la reposa.
 

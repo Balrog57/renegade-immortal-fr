@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1422 - Seal the Joss Flame Realm!"
 slug: scellez-le-royaume-de-la-flamme-joss
 ---
-L'expression du Maître Simo était sombre. Bien que ses paroles soient empreintes d'une intention meurtrière, il n'oserait pas réellement tuer Wang Lin devant le vieil Oiseau Vermillon. S'il commettait un tel acte, il ferait face à la mort.
+L'expression du Maître Simo était sombre. Bien que ses paroles soient empreintes d'une intention meurtrière, il n'oserait pas réellement tuer Wang Lin devant le vieux Suzaku. S'il commettait un tel acte, il ferait face à la mort.
 
-S'il ne tuait pas Wang Lin, l'ancien Oiseau Vermillon ne pourrait pas non plus être trop sévère envers lui. Après tout, il avait le Conseil Souverain et le Souverain derrière lui! Il avait utilisé le Culte de la Flamme Joss dans l'intention de blesser gravement Wang Lin pour le forcer à battre en retraite.
+S'il ne tuait pas Wang Lin, l'ancien Suzaku ne pourrait pas non plus être trop sévère envers lui. Après tout, il avait le Conseil Souverain et le Souverain derrière lui! Il avait utilisé le Culte de la Flamme Joss dans l'intention de blesser gravement Wang Lin pour le forcer à battre en retraite.
 
 Par conséquent, personne ne pourrait rien dire et il pourrait repartir en toute sécurité.
 
@@ -98,7 +98,7 @@ Ce changement soudain choqua le Maître Simo, et la peur apparut dans ses yeux. 
 
 « Ceci... Quel genre de trésor est-ce là?! »
 
-Non seulement le Maître Simo était stupéfait, mais les pupilles du vieil Oiseau Vermillon se rétractèrent également. Ses yeux étaient remplis d'incrédulité.
+Non seulement le Maître Simo était stupéfait, mais les pupilles du vieux Suzaku se rétractèrent également. Ses yeux étaient remplis d'incrédulité.
 
 « Ce petit gars possède un tel trésor?! »
 

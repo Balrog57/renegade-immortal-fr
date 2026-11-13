@@ -38,7 +38,7 @@ Maître Lu Fu n'était pas le seul au sein de ce vortex planétaire. Quatre Anci
 
 Si Wang Lin avait été là, il les aurait tous reconnus!
 
-Maître Yan Leizi du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao, le Dieu de Sang, qui avait traqué Wang Lin avant d'être arrêté par Qing Shui, puis s'était remis de ses graves blessures dans l'Alliance!
+Maître Yan Leizi du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao, Xue Shenzi, qui avait traqué Wang Lin avant d'être arrêté par Qing Shui, puis s'était remis de ses graves blessures dans l'Alliance!
 
 Outre ces trois-là, le dernier était Xiang Yundong!
 
@@ -92,7 +92,7 @@ Lie Yunzi cracha également du sang en reculant, terrifié. Il était celui qui 
 
 Il réalisa immédiatement que l'homme en blanc était Wang Lin. Il resta abasourdi, incapable de prononcer un seul mot!
 
-« Wang Lin!! C'est lui!! » Le visage du Dieu de Sang devint livide, son cœur battait la chamade et il battit en retraite. Il ne pouvait croire ce qu'il venait de voir. Il n'aurait jamais imaginé que cette petite fourmi qu'il avait autrefois traquée — et qui serait mort de sa main si Qing Shui ne l'avait pas arrêté — puisse dégager une pression capable de le faire trembler!
+« Wang Lin!! C'est lui!! » Le visage de Xue Shenzi devint livide, son cœur battait la chamade et il battit en retraite. Il ne pouvait croire ce qu'il venait de voir. Il n'aurait jamais imaginé que cette petite fourmi qu'il avait autrefois traquée — et qui serait mort de sa main si Qing Shui ne l'avait pas arrêté — puisse dégager une pression capable de le faire trembler!
 
 Il y avait aussi Xiang Yundong, de la famille Xiang. Son visage était livide. Il possédait la culture la plus faible ici. À cet instant, la puissance du tonnerre émanant mystérieusement de Wang Lin avait envahi son âme originelle et, contre toute attente, laissé une profonde fissure dans son cœur dao.
 
@@ -114,8 +114,8 @@ Les yeux de Maître Yan Leizi s'illuminèrent et il se calma progressivement. Il
 
 L'expression de Lie Yunzi changea à maintes reprises avant qu'il ne laisse échapper un long soupir.
 
-Les plus nerveux restaient le Dieu de Sang et Xiang Yundong.
+Les plus nerveux restaient Xue Shenzi et Xiang Yundong.
 
 Un instant plus tard, Xiang Yundong joignit respectueusement les mains en direction de l'endroit où Maître Lu Fu avait disparu, lança un regard complexe aux trois autres, puis se détourna et s'éloigna en hâte. Il brûlait d'envie de transmettre cette nouvelle à sa famille au plus vite afin qu'ils puissent se préparer. Wang Lin était un être contre lequel même l'ancêtre de Luotian, Maître Lu Fu, n'était pas sûr de pouvoir vaincre; comment leur famille Xiang pourrait-elle faire face? La seule pensée le plongeait dans l'effroi.
 
-Quant au Dieu de Sang, après avoir longuement réfléchi, il se rassit. Il... n'osait pas partir!
+Quant à Xue Shenzi, après avoir longuement réfléchi, il se rassit. Il... n'osait pas partir!

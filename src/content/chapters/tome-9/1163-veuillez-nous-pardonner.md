@@ -86,7 +86,7 @@ Feng Peishan partit respectueusement, mais après réflexion, il continua à exp
 
 Ce n'est qu'une fois la barrière franchie que Feng Peishan et Zhao Yu poussèrent un soupir de soulagement. Quant à Zou Hai, il avait avalé quelques pilules et s'était rétabli suffisamment pour voler. Son visage était toujours pâle et une peur résiduelle hantait ses yeux.
 
-Feng Peishan demanda: « Camarade cultivateur Zou, veuillez essayer de décrire en détail comment ce Senior a attaqué après votre entrée dans la cour sud. »
+Feng Peishan demanda: « Daoïste Zou, veuillez essayer de décrire en détail comment ce Senior a attaqué après votre entrée dans la cour sud. »
 
 Zou Hai ressentait encore un effroi profond. Après un moment de silence, il répondit: « La culture de ce Senior est au moins au stade intermédiaire du Briseur du Nirvana ou supérieur. Je ne l'ai pas vu attaquer. Dès que je suis entré dans la cour sud, j'ai senti une énergie d'origine inimaginable se concentrer en une paume qui s'est abattue sur ma poitrine. » En disant cela, il regarda son torse; l'empreinte de la paume était toujours noire.
 

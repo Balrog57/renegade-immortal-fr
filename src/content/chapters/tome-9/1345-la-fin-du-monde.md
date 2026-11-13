@@ -14,7 +14,7 @@ Qu'il s'agisse de Hongdie, de Li Qianmei ou de Situ Nan, aucun n'était aussi ta
 
 « Cependant, même ce cultivateur au stade de la Formation de l'Âme pouvait incarner le Dao céleste, se proclamer Céleste et descendre avec la tribulation pour massacrer les miens! J'étais en colère et j'ai commencé une boucherie. Et c'est dans le sang de mes victimes que j'ai appris la vérité! » Le jeune homme chauve rit bruyamment, tandis que des larmes coulaient de ses yeux.
 
-« La vérité est que l'endroit où je vis s'appelle les "7 Millions de Mondes", et c'est un lieu créé par le Clan Shan Lei. Nous ne sommes que du bétail en captivité, que le Clan Shan Lei fouette avec le fouet du Dao Céleste, et dès que nous atteignons le stade de la Formation de l'Âme, ils arrivent avec une divine rétribution pour nous arracher notre Tonnerre Spirituel! »
+« La vérité est que l'endroit où je vis s'appelle les "7 Millions de Mondes", et c'est un lieu créé par le Clan Shan Lei. Nous ne sommes que du bétail en captivité, que le Clan Shan Lei fouette avec le fouet du Dao Céleste, et dès que nous atteignons le stade de la Formation de l'Âme, ils arrivent avec la Tribulation Céleste pour nous arracher notre Tonnerre Spirituel! »
 
 « J'ai également découvert qu'au fil d'innombrables années, les légendes transmises par mes ancêtres dans les 7 Millions de Mondes étaient toutes fausses! Toutes mensongères!! Au moment même où ils devenaient des êtres célestes, ils étaient déjà morts!! »
 
@@ -22,7 +22,7 @@ Qu'il s'agisse de Hongdie, de Li Qianmei ou de Situ Nan, aucun n'était aussi ta
 
 La voix du jeune homme contenait une pointe de folie et était empreinte d'une rancœur monstrueuse. Wang Lin réfléchit en silence, son expression se faisant de plus en plus complexe.
 
-« Le Dao céleste et la divine rétribution ne sont, à mes yeux, qu'une simple tâche pour les membres du Clan Shan Lei. Une corvée que n'importe qui dans le clan peut accomplir! Ce qui est ironique, c'est que même ainsi, je n'osais pas croire tout cela; je n'osais même pas tuer trop de membres du Clan... »
+« Le Dao céleste et la Tribulation Céleste ne sont, à mes yeux, qu'une simple tâche pour les membres du Clan Shan Lei. Une corvée que n'importe qui dans le clan peut accomplir! Ce qui est ironique, c'est que même ainsi, je n'osais pas croire tout cela; je n'osais même pas tuer trop de membres du Clan... »
 
 « J'avais peur, j'étais terrifié. Je savais aussi que la personne qui m'avait épargné était devenue le Grand Ancien du Clan Shan Lei... Je craignais que le clan ne découvre que je savais tout. Je redoutais ce Royaume Céleste qui pesait sur moi et sur les 7 Millions de Mondes depuis des éternités... »
 

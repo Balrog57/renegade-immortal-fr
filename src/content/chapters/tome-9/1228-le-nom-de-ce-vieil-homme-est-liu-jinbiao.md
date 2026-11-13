@@ -20,9 +20,9 @@ Cette méthode brutale servait à garantir que les sectes de rang 8 continuent d
 
 La rumeur disait que la Secte Po Tian et la Secte Fantôme s'étaient élevées de cette manière même.
 
-Il y avait au total cinq sectes dans la région de rang 8: la Secte Éternelle, la Secte Ying Feng, la Secte Hong Tu, la Secte Ying Tian et la Secte Ji Hun. La Secte Gui Yuan et la Secte Zi Dao appartenaient à la grande secte de rang 8, la Secte Éternelle.
+Il y avait au total cinq sectes dans la région de rang 8: la Secte Wu Ji, la Secte Ying Feng, la Secte Hong Tu, la Secte Ying Tian et la Secte Ji Hun. La Secte Gui Yuan et la Secte Zi Dao appartenaient à la grande secte de rang 8, la Secte Wu Ji.
 
-Ce festival sacré n'était pas une bataille chaotique et totale. Les sectes étaient divisées par régions, et les plus puissantes des régions de rang quatre à sept étaient sélectionnées. Bien sûr, elles pouvaient également défier des sectes de rang supérieur; ce fut le cas il y a 1 000 ans, lorsque la Secte Zi Dao défia une secte de rang 6. Bien qu'elles aient échoué, leur défaite fut glorieuse, car elle avait attiré l'attention de la Secte Éternelle de rang 8.
+Ce festival sacré n'était pas une bataille chaotique et totale. Les sectes étaient divisées par régions, et les plus puissantes des régions de rang quatre à sept étaient sélectionnées. Bien sûr, elles pouvaient également défier des sectes de rang supérieur; ce fut le cas il y a 1 000 ans, lorsque la Secte Zi Dao défia une secte de rang 6. Bien qu'elles aient échoué, leur défaite fut glorieuse, car elle avait attiré l'attention de la Secte Wu Ji de rang 8.
 
 Chaque grande compétition des sectes de rang 8 se déroulait en présence d'un membre d'une secte de rang 9. Si des disciples leur plaisaient, ils les recrutaient directement sur-le-champ. Bien que les sectes de rang 8 s'en sentent impuissantes, elles ne pouvaient rien refuser.
 

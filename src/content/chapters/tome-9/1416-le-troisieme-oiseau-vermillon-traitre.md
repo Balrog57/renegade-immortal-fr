@@ -24,7 +24,7 @@ Tandis que la voix résonnait, le feu commença à rugir sur la paume où se ten
 
 « Ce feu n'est pas du Feu Éthéré, mais mon feu mental. Autrefois, on l'appelait la Flamme Infinie de Suzaku. »
 
-Pendant que Wang Lin traversait l'épreuve, une aura ancienne émana de la Tombe de l'Ordre Antique, s'échappant par la fissure spatiale de mille pieds. Cette aura antique fusionna avec le Système Stellaire Antique et commença à attirer vers elle des particules de poussière minuscules, presque invisibles.
+Pendant que Wang Lin traversait l'épreuve, une aura ancienne émana de la Tombe Antique, s'échappant par la fissure spatiale de mille pieds. Cette aura antique fusionna avec le Système Stellaire Antique et commença à attirer vers elle des particules de poussière minuscules, presque invisibles.
 
 De plus en plus de poussière s'accumula jusqu'à former une tempête autour de la fissure spatiale. De loin, cela ressemblait à une nébuleuse tourbillonnante. Cette tempête grandit sans cesse jusqu'à faire trembler l'intégralité du domaine stellaire.
 
@@ -34,7 +34,7 @@ Dans la partie nord du Système Stellaire Antique, dix-neuf planètes de culture
 
 Un cultivateur était assis au fond de l'abîme, sous les eaux infinies. Il paraissait très vieux et ses cheveux étaient blancs. À chaque inspiration, l'océan rugissait et des vagues se propageaient dans toutes les directions.
 
-À l'instant même où la Tombe de l'Ordre Antique s'ouvrit et que la tempête se forma, le vieil homme ouvrit les yeux. Son regard était profond, comme si ses yeux étaient l'océan lui-même.
+À l'instant même où la Tombe Antique s'ouvrit et que la tempête se forma, le vieil homme ouvrit les yeux. Son regard était profond, comme si ses yeux étaient l'océan lui-même.
 
 « Quelque chose ne va pas! » Les yeux du vieil homme s'illuminèrent. Après un instant de réflexion, une pointe d'hésitation y apparut. « Il m'est impossible de mettre la main sur la Perle Défiant le Ciel sur la Planète du Grand Empereur, je m'en occuperai plus tard... Avatar, reviens vite vérifier cette tempête; vois ce qu'elle est! »
 
@@ -44,7 +44,7 @@ Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et o
 
 « C'est... » Avant qu'il ne puisse finir sa réflexion, Wang Yue sous lui trembla soudainement et fixa le lointain. Des éclats de peur et d'excitation brillèrent dans ses yeux alors qu'il ouvrait la gueule pour pousser un rugissement fracassant.
 
-Le vieil homme au visage Yin et Yang hésita un instant avant de changer de direction, guidant Wang Yue vers la localisation de la Tombe de l'Ordre Antique.
+Le vieil homme au visage Yin et Yang hésita un instant avant de changer de direction, guidant Wang Yue vers la localisation de la Tombe Antique.
 
 Sur la Planète du Grand Empereur, les dizaines de milliers de cultivateurs avaient tous les yeux rivés sur l'encens céleste quand l'expression du jeune homme changea brusquement. Sans hésiter, il joignit les mains devant le Vieux Oiseau Vermillon et sourit: « Amis, j'ai une autre affaire à régler, je ne resterai donc pas pour la cérémonie. Adieu! »
 

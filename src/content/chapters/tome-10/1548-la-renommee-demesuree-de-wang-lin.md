@@ -34,7 +34,7 @@ Ce vortex de scellement remontait à la haute Antiquité. Il avait été acquis 
 
 Une fois activé, il ne s'arrêtait jamais; il puisait constamment dans l'énergie du monde pour accroître sa force!
 
-Lors de la bataille d'il y a dix ans, bien que les cultivateurs du Royaume Intérieur se fussent répartis entre les divers Royaumes aux Sept Couleurs, nombre d'entre eux étaient tout de même venus ici. Même avec Maître Lu Fu et un grand cultivateur de Zhao He He agissant en même temps, ils n'avaient pu que ralentir le vortex, sans jamais parvenir à l'arrêter.
+Lors de la bataille d'il y a dix ans, bien que les cultivateurs du Royaume Intérieur se fussent répartis entre les divers Royaumes aux Sept Couleurs, nombre d'entre eux étaient tout de même venus ici. Même avec Maître Lu Fu et un grand cultivateur de Zhao He agissant en même temps, ils n'avaient pu que ralentir le vortex, sans jamais parvenir à l'arrêter.
 
 Lorsque Maître Yan Leizi vit que le geste désinvolte de Wang Lin avait provoqué un grondement tel que le vortex semblait sur le point de céder, il fut terrifié.
 

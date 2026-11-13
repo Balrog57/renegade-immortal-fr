@@ -94,7 +94,7 @@ L'expression de Wang Lin resta calme, mais ses pensées s'emballèrent. Il avait
 
 Le bel homme rit et hocha la tête vers Wang Lin.
 
-« Il y a aussi ce vieux briscard avec une aiguille dans la bouche, c'est quelqu'un que tu devrais connaître. Bien qu'il ne soit pas l'un des cinq maîtres, sa culture n'est pas dérisoire. C'est le soi-disant Très Honorable Grande Désolation. Sa culture du poison lui a valu une redoutable renommée! » L'Oiseau Vermillon désigna le vieil homme maigre assis sur un lézard.
+« Il y a aussi ce vieux briscard avec une aiguille dans la bouche, c'est quelqu'un que tu devrais connaître. Bien qu'il ne soit pas l'un des cinq maîtres, sa culture n'est pas dérisoire. C'est le soi-disant Très Honorable Da Huang. Sa culture du poison lui a valu une redoutable renommée! » L'Oiseau Vermillon désigna le vieil homme maigre assis sur un lézard.
 
 Les yeux du vieillard s'illuminèrent et il laissa échapper un grognement froid. Ses lèvres ne bougèrent pas, mais une voix émana de son corps:
 

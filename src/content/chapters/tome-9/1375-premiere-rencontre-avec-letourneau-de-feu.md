@@ -14,25 +14,25 @@ L'esprit de Wang Lin était encore hanté par ce qu'il avait aperçu à l'intér
 
 « Bien que le Clan Long Jia soit également un petit clan, il compte plusieurs milliers de membres. Le chef du clan, le neuvième ancien, est au quatrième niveau du Fléau Céleste, et lorsqu'il utilise son sort d'Armure de Dragon, aucun cultivateur ordinaire ne peut briser sa protection. Le neuvième ancien est également célèbre au sein du Conseil des Déchus; un petit clan comme le mien n'oserait jamais leur manquer de respect ni les provoquer. »
 
-L'ancien du Scorpion Noir rapporta à Wang Lin tout ce qu'il savait sur le Clan Long Jia.
+L'ancien du Clan An Xie rapporta à Wang Lin tout ce qu'il savait sur le Clan Long Jia.
 
 Après un long moment, Wang Lin demanda lentement: « La planète principale du Clan Long Jia vend-elle des Cristaux de Mutation de Feu Déchaîné? »
 
-L'ancien du Scorpion Noir répondit promptement: « Il y en a, mais le Clan Huo Que les collecte frénétiquement. Chaque fois qu'un cristal apparaît, ils sont prêts à l'acheter à n'importe quel prix, ce qui rend toute concurrence difficile. Pour acheter les cristaux et les marionnettes, nous devrons nous rendre au pavillon commercial sur la planète principale du Clan Long Jia. »
+L'ancien du Clan An Xie répondit promptement: « Il y en a, mais le Clan Huo Que les collecte frénétiquement. Chaque fois qu'un cristal apparaît, ils sont prêts à l'acheter à n'importe quel prix, ce qui rend toute concurrence difficile. Pour acheter les cristaux et les marionnettes, nous devrons nous rendre au pavillon commercial sur la planète principale du Clan Long Jia. »
 
 Tous deux étaient de puissants cultivateurs volant à pleine vitesse. Il ne leur fallut que quelques heures pour traverser le domaine stellaire et s'éloigner du Clan An Xie. Devant Wang Lin se dressait une planète de culture verdoyante.
 
 Cette planète était recouverte de verdure et dégageait une puissante force vitale. Elle était également imprégnée d'énergie spirituelle, bien supérieure à celle du Clan An Xie.
 
-Au moment où ils approchèrent, trois rayons de lumière foncèrent vers eux. L'un d'eux transportait un vieil homme vêtu d'une chemise verte. Il sourit et joignit les mains: « L'Ancien avait prédit la venue du patriarche du Clan An Xie et nous a demandé d'attendre. Patriarche du Scorpion Noir, veuillez nous suivre. »
+Au moment où ils approchèrent, trois rayons de lumière foncèrent vers eux. L'un d'eux transportait un vieil homme vêtu d'une chemise verte. Il sourit et joignit les mains: « L'Ancien avait prédit la venue du patriarche du Clan An Xie et nous a demandé d'attendre. Patriarche du Clan An Xie, veuillez nous suivre. »
 
 Les deux personnes derrière le vieil homme saluèrent avec une politesse extrême.
 
-Le Clan An Xie faisait toujours partie des 372 clans. Bien qu'il ne soit pas un Ancien Déchu, son patriarche n'était pas quelqu'un que les membres ordinaires pouvaient traiter avec désinvolture. Le Patriarche du Scorpion Noir sourit et hocha la tête. Il laissa Wang Lin passer en premier avant de le suivre. Les trois représentants du Clan Long Jia les guidèrent vers la planète.
+Le Clan An Xie faisait toujours partie des 372 clans. Bien qu'il ne soit pas un Ancien Déchu, son patriarche n'était pas quelqu'un que les membres ordinaires pouvaient traiter avec désinvolture. Le Patriarche du Clan An Xie sourit et hocha la tête. Il laissa Wang Lin passer en premier avant de le suivre. Les trois représentants du Clan Long Jia les guidèrent vers la planète.
 
-En observant le comportement du Patriarche du Scorpion Noir, les trois membres du Clan Long Jia furent stupéfaits. Les yeux du vieil homme s'illuminèrent et il scruta attentivement Wang Lin. Bien qu'il n'ait rien remarqué de particulier, il commença à redoubler de vigilance.
+En observant le comportement du Patriarche du Clan An Xie, les trois membres du Clan Long Jia furent stupéfaits. Les yeux du vieil homme s'illuminèrent et il scruta attentivement Wang Lin. Bien qu'il n'ait rien remarqué de particulier, il commença à redoubler de vigilance.
 
-« Pour que le Patriarche du Scorpion Noir se montre si poli, cet individu ne doit pas être sous-estimé... »
+« Pour que le Patriarche du Clan An Xie se montre si poli, cet individu ne doit pas être sous-estimé... »
 
 Tous se transformèrent en rayons de lumière pour atteindre la planète. Juste au moment où ils allaient pénétrer dans l'atmosphère, Wang Lin remarqua quelque chose et fit mine de regarder distraitement vers l'arrière.
 
@@ -68,7 +68,7 @@ Maître Simo rit à son tour et joignit les mains: « Daoïste Sun, cela fait qu
 
 Les deux discutèrent tout en s'approchant de la planète, leurs silhouettes s'estompant peu à peu.
 
-Une fois que Wang Lin et le Patriarche du Scorpion Noir eurent pénétré sur la planète, les trois membres du Clan Long Jia se retirèrent respectueusement. Le Patriarche du Scorpion Noir conduisit ensuite Wang Lin vers une ville située dans la partie est de la planète.
+Une fois que Wang Lin et le Patriarche du Clan An Xie eurent pénétré sur la planète, les trois membres du Clan Long Jia se retirèrent respectueusement. Le Patriarche du Clan An Xie conduisit ensuite Wang Lin vers une ville située dans la partie est de la planète.
 
 Le patriarche murmura d'une voix basse: « Maître, si vous souhaitez acheter des marionnettes ou des Cristaux de Mutation de Feu Déchaîné, vous devrez vous rendre dans la ville de l'est. Un pavillon contrôlé par le Clan Long Jia s'y trouve. À moins d'une grande vente aux enchères, c'est là que je me rends habituellement. »
 
@@ -90,17 +90,17 @@ L'ancien, percevant l'intention meurtrière qui émanait de Wang Lin, frissonna 
 
 Le pavillon paraissait très ancien. Alors qu'ils entraient, une femme d'une trentaine d'années en sortit. À son passage, un parfum délicat embauma l'air.
 
-« Oh, ne serait-ce pas le Patriarche du Scorpion Noir? N'êtes-vous pas venu il y a seulement quelques mois? Serait-ce parce que vous avez appris que j'ai acquis de nouveaux trésors et que vous venez vérifier? » La voix de la femme était mélodieuse et elle arborait un sourire charmant.
+« Oh, ne serait-ce pas le Patriarche du Clan An Xie? N'êtes-vous pas venu il y a seulement quelques mois? Serait-ce parce que vous avez appris que j'ai acquis de nouveaux trésors et que vous venez vérifier? » La voix de la femme était mélodieuse et elle arborait un sourire charmant.
 
 Son regard balaya Wang Lin, et une pointe de choc traversa ses yeux.
 
-Le Patriarche du Scorpion Noir sourit en joignant les mains: « Aujourd'hui, je ne suis ici qu'en compagnie de ce Daoïste. »
+Le Patriarche du Clan An Xie sourit en joignant les mains: « Aujourd'hui, je ne suis ici qu'en compagnie de ce Daoïste. »
 
 La femme sourit et observa attentivement Wang Lin. Elle se pencha légèrement: « Daoïste, veuillez me suivre à l'étage. Si vous avez besoin de quoi que ce soit, n'hésitez pas à demander. »
 
 Wang Lin resta impassible et salua légèrement la tête avant de la suivre à l'étage. Le second niveau était restreint, doté de quelques sièges raffinés. Wang Lin s'assit et fixa la femme du regard.
 
-Le Patriarche du Scorpion Noir resta debout derrière lui.
+Le Patriarche du Clan An Xie resta debout derrière lui.
 
 Voyant cela, une lueur étrange, très bien dissimulée, passa dans les yeux de la femme. Elle baissa la tête et demanda doucement: « Que désire le Daoïste? »
 

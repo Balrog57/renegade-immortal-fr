@@ -78,7 +78,7 @@ En pointant le ciel, Wang Lin s'était transformé en un membre du Clan Shan Lei
 
 Alors que sa main droite redescendait, l'innombrable tonnerre qui emplissait le royaume chargea le vieil homme. Les lacs de tonnerre au sol s'élancèrent dans les airs pour fondre également sur lui.
 
-C'était comme une tribulation céleste! Et Wang Lin en était le maître!
+C'était comme une Tribulation Céleste! Et Wang Lin en était le maître!
 
 « Même la puissance de son tonnerre suffit à combattre un cultivateur du Briseur du Nirvana. Je dois tuer cet homme. Pas étonnant que le Souverain veuille sa mort. S'il survit, il sera une calamité pour mon Haut Clan Ancestral! » Le vieil homme poussa un rugissement et s'élança dans les airs. Il leva la main droite et une lueur étrange envahit son regard. L'énergie originelle du monde se précipita inopinément dans sa paume!
 

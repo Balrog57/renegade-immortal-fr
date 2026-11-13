@@ -40,7 +40,7 @@ Il représentait les jeunes talents de sa secte. Même Lu Yingjie, bien que méf
 
 À cet instant, il se tint sur la plateforme et scruta la tribune. Son regard tomba sur Mu Bingmei et les autres, et il ne cacha absolument pas le désir qui brûlait dans ses yeux.
 
-« Je me demande comment je me compare au cultivateur dont parlait la Compagnonne Cultivatrice Li! » Sa voix résonna comme un coup de tonnerre.
+« Je me demande comment je me compare au cultivateur dont parlait le Daoïste Li! » Sa voix résonna comme un coup de tonnerre.
 
 L'expression de Li Qianmei resta calme alors qu'elle observait Yuan Fei sur l'arène, et elle ne prononça qu'un seul mot:
 

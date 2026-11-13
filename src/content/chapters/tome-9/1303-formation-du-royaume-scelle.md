@@ -20,7 +20,7 @@ L'épée de sang, intacte, laissa échapper un puissant chant d'épée. Elle dé
 
 Les grondements se déchaînèrent alors que les trois épées entraient en collision, faisant trembler l'espace même!
 
-L'origine de l'épée de sang était mystérieuse et renfermait un pouvoir infini. Même face aux deux épées de la divine rétribution, elle ne se montrait pas moins puissante et devenait de plus en plus féroce!
+L'origine de l'épée de sang était mystérieuse et renfermait un pouvoir infini. Même face aux deux épées de la Tribulation Céleste, elle ne se montrait pas moins puissante et devenait de plus en plus féroce!
 
 Un rugissement tonitruant jaillit des nuages lors du choc des trois lames. Une vague de pression s'en échappa; cette pression était presque solide en se propageant, et le pavillon de jade blanc sortit encore un peu plus de la faille!
 
@@ -58,7 +58,7 @@ Cette voix envahit rapidement toute la région de rang 9 et pénétra la formati
 
 Une voix chargée d'une pression écrasante émanait du monde à l'intérieur du vortex. Cette voix était puissante et, pour une raison obscure, elle inspirait un sentiment de chaleur et de confiance.
 
-Les milliers de cultivateurs qui s'étaient réfugiés dans la Secte Démon pour échapper à la divine rétribution furent instantanément frappés de confusion. La pupille de l'un des jeunes devint trouble, remplacée par le reflet du vortex. Il affichait un sourire empreint de bonheur.
+Les milliers de cultivateurs qui s'étaient réfugiés dans la Secte Démon pour échapper à la Tribulation Céleste furent instantanément frappés de confusion. La pupille de l'un des jeunes devint trouble, remplacée par le reflet du vortex. Il affichait un sourire empreint de bonheur.
 
 Ce sourire était extrêmement étrange. En un instant, une lumière l'enveloppa et il disparut.
 
@@ -68,9 +68,9 @@ Ce sourire était extrêmement étrange. En un instant, une lumière l'enveloppa
 
 Sa voix, telle un coup de tonnerre, retentit à travers toute la Secte Démon. Cela tirailla les cultivateurs de la secte qui étaient tombés dans la léthargie. Cependant, sitôt réveillés, ils sombrèrent de nouveau dans l'engourdissement.
 
-Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. À la Secte Fantôme, à la Secte Divine, à la Secte Po Tian et parmi les bêtes féroces dans la brume, des gens disparaissaient également.
+Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. À la Secte Gui, à la Secte Divine, à la Secte Po Tian et parmi les bêtes féroces dans la brume, des gens disparaissaient également.
 
-L'épée de sang encerclait Wang Lin. Il leva les yeux vers le vortex formé par les quatre épées. La voix étrange pénétra aussi son esprit et, puisqu'il était celui qui subissait la divine rétribution, elle résonnait en lui avec une clarté accrue. Pourtant, la voix à ses oreilles n'était pas unique, mais changeait constamment!
+L'épée de sang encerclait Wang Lin. Il leva les yeux vers le vortex formé par les quatre épées. La voix étrange pénétra aussi son esprit et, puisqu'il était celui qui subissait la Tribulation Céleste, elle résonnait en lui avec une clarté accrue. Pourtant, la voix à ses oreilles n'était pas unique, mais changeait constamment!
 
 Parfois, c'était celle de sa mère ou de son père; parfois Li Muwan ou Wang Ping; parfois même l'ancien Empereur Divin de Suzaku. Toutes ces voix se succédaient et formaient un ton discordant qui résonnait dans l'esprit de Wang Lin.
 
@@ -96,7 +96,7 @@ Des bruits sourds résonnèrent dans le corps de Wang Lin alors que la pression 
 
 Son visage devint légèrement rouge et son énergie originelle circula dans tout son corps. Il fixa la montagne de nuages et ses yeux s'illuminèrent!
 
-Il attendait l'instant où la divine rétribution libérerait toute sa puissance. Le moment était venu! Tandis que la montagne de nuages s'abattait sur lui, les yeux de Wang Lin brillèrent d'une lueur intense. Toute son énergie originelle éclata et il abattit l'épée de sang sous ses pieds. Un grondement de tonnerre retentit et une fissure spatiale gigantesque apparut!
+Il attendait l'instant où la Tribulation Céleste libérerait toute sa puissance. Le moment était venu! Tandis que la montagne de nuages s'abattait sur lui, les yeux de Wang Lin brillèrent d'une lueur intense. Toute son énergie originelle éclata et il abattit l'épée de sang sous ses pieds. Un grondement de tonnerre retentit et une fissure spatiale gigantesque apparut!
 
 Cette faille fut déchirée couche après couche et, sous la pression foudroyante de la montagne de nuages, elle s'effondra avec une intensité accrue. Après quelques instants, la fissure spatiale fut totalement éventrée!
 
@@ -116,4 +116,4 @@ Le vide entier s'illumina soudainement, révélant l'étendue du filet. Ce filet
 
 Seuls quelques individus prodigieux avaient pu utiliser leur puissante culture pour s'en extraire par leurs propres moyens!
 
-Cependant, à travers les âges, personne n'avait jamais emprunté la puissance de la divine rétribution pour briser la Formation du Royaume Scellé. Wang Lin était le premier!
+Cependant, à travers les âges, personne n'avait jamais emprunté la puissance de la Tribulation Céleste pour briser la Formation du Royaume Scellé. Wang Lin était le premier!

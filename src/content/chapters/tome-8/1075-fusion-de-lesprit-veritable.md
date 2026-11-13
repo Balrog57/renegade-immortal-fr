@@ -28,7 +28,7 @@ Le silence régnait tout autour, mais à ce moment précis, les cris de Suzaku a
 
 Alors que les cris de Suzaku se rapprochaient, le tatouage de Suzaku sur le corps de Wang Lin trembla violemment. Il s'échappa directement du corps de Wang Lin, échappant à tout contrôle.
 
-L'Oiseau Vermillon blanc leva fièrement la tête et poussa un cri vers les cieux. Les deux cris se croisèrent, et une pointe de joie perçait dans le cri de Suzaku blanc de Wang Lin.
+Le Suzaku blanc leva fièrement la tête et poussa un cri vers les cieux. Les deux cris se croisèrent, et une pointe de joie perçait dans le cri de Suzaku blanc de Wang Lin.
 
 L'oiseau blanc tourna autour de Wang Lin en continuant de crier. Puis, une mer de flammes encore plus intense apparut au-dessus de la Terre Yao Ling et recouvrit le monde!
 
@@ -48,11 +48,11 @@ Ce n'est qu'une fois sa forme entière révélée que tous réalisèrent que cet
 
 Un bruit d'aspirations saccadées résonna parmi la foule.
 
-Le géant Oiseau Vermillon chargea directement vers Wang Lin. Ce dernier fronça les sourcils, mais une illumination traversa son esprit. Cette compréhension venait du sentiment familier et chaleureux que lui transmettait son Oiseau Vermillon natal.
+Le Suzaku géant chargea directement vers Wang Lin. Ce dernier fronça les sourcils, mais une illumination traversa son esprit. Cette compréhension venait du sentiment familier et chaleureux que lui transmettait son Suzaku natal.
 
 En un instant, l'immense créature fut sur lui. Elle s'apprêtait à s'engouffrer entre ses sourcils, mais elle changea soudainement de trajectoire. L'esprit véritable de Suzaku se transforma en une mer de flammes et s'engouffra dans la blessure sur la poitrine de Wang Lin.
 
-À cet instant, un océan de feu enveloppa Wang Lin, et son corps s'éleva dans les airs sous l'effet d'une puissance mystérieuse. Des flammes monstrueuses s'échappaient de lui tandis que son Oiseau Vermillon blanc réintégrait son corps. Puis, une armure cramoisie apparut autour de lui.
+À cet instant, un océan de feu enveloppa Wang Lin, et son corps s'éleva dans les airs sous l'effet d'une puissance mystérieuse. Des flammes monstrueuses s'échappaient de lui tandis que son Suzaku blanc réintégrait son corps. Puis, une armure cramoisie apparut autour de lui.
 
 Cette armure rouge était magnifique, gravée de motifs de Suzaku blanc. À cet instant, Wang Lin apparut absolument éblouissant aux yeux de tous!
 
@@ -78,4 +78,4 @@ Cependant, ce qui les choqua, c'est que bien qu'ils fussent à l'extérieur, au 
 
 Une trace de crainte se mêlait à ce choc! Si ces six-là étaient ainsi affectés, qu'en serait-il de la centaine d'autres membres de la Secte Divine de Suzaku? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin!
 
-L'un des six anciens, dont les vêtements étaient ornés de sept oiseaux vermillons, cria immédiatement: « Protégez celui qui s'est éveillé! » Aussitôt, les six anciens se précipitèrent aux côtés de Wang Lin. Le reste des disciples de la Secte Divine de Suzaku se déploya, lançant des regards empreints d'une intention meurtrière à tous ceux qui les entouraient.
+L'un des six anciens, dont les vêtements étaient ornés de sept Suzaku, cria immédiatement: « Protégez celui qui s'est éveillé! » Aussitôt, les six anciens se précipitèrent aux côtés de Wang Lin. Le reste des disciples de la Secte Divine de Suzaku se déploya, lançant des regards empreints d'une intention meurtrière à tous ceux qui les entouraient.

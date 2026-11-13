@@ -40,7 +40,7 @@ Bei Luo se détendit légèrement et atterrit au sol, tout en maintenant une cer
 
 « Je n'ai aucun remède pour te soigner, mais tes blessures ont dû être causées par quelqu'un. Dis-moi son nom et je le tuerai pour te remercier de ta grâce. »
 
-L'expression de Wang Lin resta glaciale. Avec son intelligence, comment ne pas percevoir la provocation et la tentation dans les paroles de Bei Luo? Ce dernier était manifestement surpris que Wang Lin ait pu parvenir jusqu'ici et ignorait quelle était sa relation avec le Couple du Nuage Céleste. Un léger sourire apparut sur les lèvres de Wang Lin alors qu'il joignit les mains: « Merci infiniment, Seigneur Ancien Démon. Si la personne qui m'a blessé se présente, je vous la désignerai. Veillez à ne pas revenir sur votre promesse! »
+L'expression de Wang Lin resta glaciale. Avec son intelligence, comment ne pas percevoir la provocation et la tentation dans les paroles de Bei Luo? Ce dernier était manifestement surpris que Wang Lin ait pu parvenir jusqu'ici et ignorait quelle était sa relation avec le Couple Yun Xian. Un léger sourire apparut sur les lèvres de Wang Lin alors qu'il joignit les mains: « Merci infiniment, Seigneur Ancien Démon. Si la personne qui m'a blessé se présente, je vous la désignerai. Veillez à ne pas revenir sur votre promesse! »
 
 Les yeux de Bei Luo brillèrent et il éclata de rire, sans plus aborder le sujet.
 
@@ -66,7 +66,7 @@ Après avoir pénétré dans le palais, Wang Lin vit immédiatement une stèle d
 
 Wang Wei regarda Bei Luo et dit: « Les trois derniers étages sont les quartiers privés de Maître. J'ignore si ces lieux ont changé. Pour maximiser nos chances, nous devrions attendre que d'autres personnes arrivent! Wang Lin, prends le temps de te soigner pour avoir la force de te protéger. »
 
-Les yeux de Wang Lin se plissèrent. Il ne parvenait toujours pas à percer le mystère du Couple du Nuage Céleste. Ils ne semblaient pas pressés d'entrer et souhaitaient en réalité attendre l'arrivée d'autrui.
+Les yeux de Wang Lin se plissèrent. Il ne parvenait toujours pas à percer le mystère du Couple Yun Xian. Ils ne semblaient pas pressés d'entrer et souhaitaient en réalité attendre l'arrivée d'autrui.
 
 L'Ancien Démon Bei Luo ne posa aucune question, comme s'il partageait la même idée.
 
@@ -108,7 +108,7 @@ Une intention meurtrière traversa les yeux de Zhou Yi alors qu'il flottait vers
 
 Cette scène soudaine fit pousser un cri étouffé de stupeur chez Xu Kongzi; une sueur froide couvrit son front et son cœur s'emballa. Il ignorait ce que Wang Lin avait accompli durant ces quelques mois pour que ces gens viennent à sa rescousse!
 
-Le Couple du Nuage Céleste et cet étrange homme chauve lui donnaient l'impression qu'il devait rester prudent, même à l'apogée de sa puissance. Or, en cet instant, il était gravement blessé et la moitié de son âme originelle lui manquait. Son niveau de culture était tombé du sommet du stade de Briseur du Nirvana au milieu de ce même stade.
+Le Couple Yun Xian et cet étrange homme chauve lui donnaient l'impression qu'il devait rester prudent, même à l'apogée de sa puissance. Or, en cet instant, il était gravement blessé et la moitié de son âme originelle lui manquait. Son niveau de culture était tombé du sommet du stade de Briseur du Nirvana au milieu de ce même stade.
 
 Il n'osait ni bouger, ni reculer. Il était la cible des regards de tous les occupants de la salle. Le moindre mouvement de sa part risquait de déclencher l'assaut général.
 

@@ -34,7 +34,7 @@ Ce grondement assourdissant donnait l'impression que le monde allait s'effondrer
 
 D'innombrables planètes de culture, d'innombrables cultivateurs et d'innombrables créatures furent réduits en cendres!
 
-Presque la moitié du Système Stellaire Antique trembla sous la force destructrice de cette explosion folle. Les retombées se transformèrent en une onde de choc qui continua de se propager.
+Une petite partie du Système Stellaire Antique trembla sous la force destructrice de cette explosion folle. Les retombées se transformèrent en une onde de choc qui continua de se propager.
 
 Face à cette puissance colossale, les trois cultivateurs du troisième niveau libérèrent toute leur énergie. Ils utilisèrent leurs trésors et leurs sorts, mais furent tout de même repoussés et dispersés par la déflagration!
 

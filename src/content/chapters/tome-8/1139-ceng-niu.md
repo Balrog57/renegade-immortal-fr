@@ -36,21 +36,21 @@ Lorsque les villageois revenaient, leurs familles sortaient toutes les accueilli
 
 Cependant, lorsque les villageois de Bei Shui revinrent de la jungle cette fois-ci, en plus des sacs de crapauds, ils ramenèrent également un homme. C'était un jeune homme très ordinaire, à l'allure très mince. Semblant incapable de supporter le froid, il portait l'imperméable qu'un villageois lui avait offert. Il se tenait là, silencieux, l'expression étrange. Une pointe de mélancolie et de nostalgie émanait de lui tandis qu'il contemplait silencieusement le village devant lui.
 
-« Petit frère Ceng, voici notre Village Bei Shui. Tu peux vivre ici quelque temps jusqu'à la fin de la saison des pluies. Ensuite, tu n'auras qu'à suivre le sentier de montagne pour rejoindre la Cité Chun. » Un homme corpulent en imperméable passa le sac de crapauds à un autre et sourit à Wang Lin.
+« Petit frère Zeng, voici notre Village Bei Shui. Tu peux vivre ici quelque temps jusqu'à la fin de la saison des pluies. Ensuite, tu n'auras qu'à suivre le sentier de montagne pour rejoindre la Cité Chun. » Un homme corpulent en imperméable passa le sac de crapauds à un autre et sourit à Wang Lin.
 
 Wang Lin esquissa un sourire, joignit les mains et exprima sa gratitude.
 
-L'homme corpulent fit un geste de la main en souriant. « Je n'ai jamais été à l'école et je n'ai appris aucune bienséance. Puisque nous nous sommes croisés sur la route, nous sommes désormais amis; nul besoin d'être si poli, frère. La pluie est forte, entre vite dans la maison. Femme, range rapidement la chambre du fond pour que le frère Ceng puisse s'y installer! »
+L'homme corpulent fit un geste de la main en souriant. « Je n'ai jamais été à l'école et je n'ai appris aucune bienséance. Puisque nous nous sommes croisés sur la route, nous sommes désormais amis; nul besoin d'être si poli, frère. La pluie est forte, entre vite dans la maison. Femme, range rapidement la chambre du fond pour que le frère Zeng puisse s'y installer! »
 
 La femme qui se tenait aux côtés de l'homme regarda Wang Lin avec un sourire. Sans même demander à son mari l'identité de cet étranger, elle rentra prestement. Après avoir préparé la chambre du fond, elle apporta également un ensemble de literie propre.
 
 Cet homme jouissant d'une grande influence dans le village, de nombreux voisins vinrent durant la nuit. Naturellement, on y but beaucoup de vin. Wang Lin restait assis sur le côté, tenant une coupe. Il observait les mortels avec un sourire tout en buvant; son cœur était apaisé.
 
-Après quelques verres, les hommes corpulents éclatèrent de rire. L'un d'eux, âgé de plus de quarante ans, tendit une coupe à Wang Lin et déclara: « Frère Ceng, le troisième frère de notre famille dit que sans vous, il n'aurait pas survécu à cette morsure de serpent venimeux. Ce vieil homme n'oubliera jamais votre geste salvateur! » Sur ces mots, il vida sa coupe d'un trait.
+Après quelques verres, les hommes corpulents éclatèrent de rire. L'un d'eux, âgé de plus de quarante ans, tendit une coupe à Wang Lin et déclara: « Frère Zeng, le troisième frère de notre famille dit que sans vous, il n'aurait pas survécu à cette morsure de serpent venimeux. Ce vieil homme n'oubliera jamais votre geste salvateur! » Sur ces mots, il vida sa coupe d'un trait.
 
 Wang Lin sourit, saisit le pichet sur la table et prit une longue gorgée avant d'essuyer sa bouche en disant: « Ce vin n'est pas assez fort. »
 
-Les hommes autour applaudirent à cette remarque. L'hôte qui permettait à Wang Lin de loger chez lui rit de bon cœur. « Femme, va chercher les trois pichets de vin du Village Bei Shui que le vieux a laissés autrefois! Je veux que le frère Ceng sache que nous avons du vin de caractère! »
+Les hommes autour applaudirent à cette remarque. L'hôte qui permettait à Wang Lin de loger chez lui rit de bon cœur. « Femme, va chercher les trois pichets de vin du Village Bei Shui que le vieux a laissés autrefois! Je veux que le frère Zeng sache que nous avons du vin de caractère! »
 
 La femme de l'homme corpulent secoua la tête et rentra dans la maison. Deux jeunes suivirent, et bientôt, trois pichets furent apportés.
 

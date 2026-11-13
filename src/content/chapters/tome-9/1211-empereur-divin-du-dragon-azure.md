@@ -92,7 +92,7 @@ La boussole pivota et poussa un rugissement, mais avant qu'elle ne puisse déplo
 
 « Effondre-toi! » rugit Wang Lin. La boussole commença à brûler et s'effondra brusquement!
 
-Flottant dans les airs, la main gauche de Wang Lin forma un sceau et pointa vers le bas. L'Oiseau Vermillon Bleu poussa un cri en emportant avec lui une mer de flammes large de dix mille pieds pour charger le vieil homme aux cheveux blancs.
+Flottant dans les airs, la main gauche de Wang Lin forma un sceau et pointa vers le bas. L'Oiseau Vermillon Bleu poussa un cri en emportant avec lui une mer de flammes large de cent mille pieds pour charger le vieil homme aux cheveux blancs.
 
 Tout cela se joua en un instant. À l'instant même où le vieillard lançait ses sorts, la contre-attaque de Wang Lin les pulvérisait tous. Simultanément, son intention meurtrière se verrouilla sur l'adversaire.
 

@@ -12,7 +12,7 @@ L'Empereur Divin Dragon Azure réfléchit silencieusement un instant. La froideu
 
 « Je pense qu'il aurait préféré être enterré au sein des Quatre Sectes Divines. »
 
-« L'ancien Empereur Divin Oiseau Vermillon a consacré sa vie aux Quatre Sectes Divines. Maintenant qu'il est mort, il mérite la délivrance. Je vais l'emmener avec moi. » Le regard de Wang Lin affichait une détermination inébranlable alors qu'il agita sa main droite, faisant voler la pierre blanche vers l'Empereur Divin Dragon Azure.
+« L'ancien Empereur Divin de Suzaku a consacré sa vie aux Quatre Sectes Divines. Maintenant qu'il est mort, il mérite la délivrance. Je vais l'emmener avec moi. » Le regard de Wang Lin affichait une détermination inébranlable alors qu'il agita sa main droite, faisant voler la pierre blanche vers l'Empereur Divin Dragon Azure.
 
 L'Empereur Divin Dragon Azure examina attentivement la pierre. Il poussa un soupir et ne dit plus un mot. Il se détourna ensuite pour partir, suivi par les sept anciens. L'un des anciens de la Secte Divine de Suzaku se tourna vers Wang Lin; il ouvrit la bouche comme s'il voulait dire quelque chose, mais le regard de l'Empereur Divin Dragon Azure le figea, contraignant le vieil homme à soupirer et à se taire.
 
@@ -20,9 +20,9 @@ Wang Lin partit avec l'ancien Empereur Divin, dont le corps s'était transformé
 
 Les Quatre Sectes Divines n'auraient plus aucun lien avec lui, mais l'expression de l'ancien de la Secte Divine de Suzaku avait intrigué Wang Lin. Il sentait vaguement qu'il y avait quelque chose qu'il ignorait.
 
-C'était parce que l'ancien Empereur Divin Oiseau Vermillon lui avait également légué le manteau des Empereurs Divins de toutes les générations et le jeton formé par l'Esprit Oiseau Vermillon.
+C'était parce que l'ancien Empereur Divin de Suzaku lui avait également légué le manteau des Empereurs Divins de toutes les générations et le jeton formé par l'Esprit de Suzaku.
 
-L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Oiseau Vermillon pouvait connaître — le secret qui avait causé la grande guerre entre l'Alliance Xiu Zhen, le Royaume Kun Xu et les Quatre Sectes Divines — l'Empereur Divin Dragon Azure n'avait rien demandé.
+L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin de Suzaku pouvait connaître — le secret qui avait causé la grande guerre entre l'Alliance Xiu Zhen, le Royaume Kun Xu et les Quatre Sectes Divines — l'Empereur Divin Dragon Azure n'avait rien demandé.
 
 Après que Wang Lin et les siens se furent éloignés au loin, l'Empereur Divin Dragon Azure s'assit dans la salle principale de la Secte Divine Dragon Azure. Il paraissait épuisé, et les Quatre Trésors Sacrés flottaient devant lui.
 

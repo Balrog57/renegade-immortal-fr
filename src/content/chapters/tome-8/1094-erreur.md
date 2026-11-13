@@ -36,11 +36,11 @@ Avant qu'il ne puisse réagir, l'homme en armure se leva et posa sa main sur son
 
 « Vous...!! Wang Lin!!! » Même avec la force mentale de Lie Yunzi, il ne put s'empêcher de haleter. Le choc et l'incrédulité dans ses yeux atteignirent un paroxysme. Inconsciemment, il recula de plusieurs pas.
 
-« Impossible. Comment pouvez-vous être l'Empereur Divin Oiseau Vermillon?! Impossible! » Lie Yunzi était à bout de souffle, ses pupilles se contractèrent. Il ne pouvait tout simplement pas accepter cette réalité. Dans son esprit, Wang Lin n'était qu'une fourmi, un insecte qu'il pouvait écraser à tout moment.
+« Impossible. Comment pouvez-vous être l'Empereur Divin de Suzaku?! Impossible! » Lie Yunzi était à bout de souffle, ses pupilles se contractèrent. Il ne pouvait tout simplement pas accepter cette réalité. Dans son esprit, Wang Lin n'était qu'une fourmi, un insecte qu'il pouvait écraser à tout moment.
 
 Le contraste était si violent qu'il dépassait l'entendement de Lie Yunzi. Il fixait Wang Lin, le regard empreint d'incrédulité, mais sa terreur ne faisait que croître.
 
-L'un des quatre anciens aux côtés de Wang Lin fit un pas en avant et déclara d'un ton sombre: « Vous osez! Même si vous représentez le Temple Céleste du Tonnerre de Luotian, vous n'avez aucun droit de juger l'Empereur Divin Oiseau Vermillon! »
+L'un des quatre anciens aux côtés de Wang Lin fit un pas en avant et déclara d'un ton sombre: « Vous osez! Même si vous représentez le Temple Céleste du Tonnerre de Luotian, vous n'avez aucun droit de juger l'Empereur Divin de Suzaku! »
 
 D'un seul pas, la pression d'un cultivateur du Briseur du Nirvana se propagea et s'abattit sur Lie Yunzi!
 
@@ -56,7 +56,7 @@ Déjà sous le choc, Lie Yunzi cracha une bouchée de sang lorsque cette pressio
 
 L'esprit de Lie Yunzi était encore en plein chaos, et ces paroles le firent cracher à nouveau du sang. Alors qu'il allait tenter de répliquer, Mo Zhi prit la parole.
 
-« Je peux témoigner que Lie Yunzi a été le premier à se montrer déraisonnable en réclamant l'Empereur Divin Oiseau Vermillon! Mes paroles représentent le pays de Chu Yun! »
+« Je peux témoigner que Lie Yunzi a été le premier à se montrer déraisonnable en réclamant l'Empereur Divin de Suzaku! Mes paroles représentent le pays de Chu Yun! »
 
 Les yeux de la belle femme de la Secte Shi Yin s'illuminèrent et elle sourit. « Puisque j'ai moi aussi pris part à cette affaire, je peux également attester que la requête de Senior Lie Yunzi était véritablement absurde. »
 
@@ -72,7 +72,7 @@ Il se remémora leur première rencontre sur la planète Suzaku, dans un temple,
 
 La belle femme de la Secte Shi Yin garda également le silence. Elle observait Lie Yunzi avec un sourire qui n'en était pas un, comme si elle assistait à un spectacle divertissant.
 
-La sueur perla lentement sur le front de Lie Yunzi. Il était évident qu'avec son niveau de culture, il ne pourrait s'échapper des Quatre Sectes Divines. En impliquant le Temple Céleste du Tonnerre, Wang Lin avait été d'une cruauté sans nom. Ce n'était plus une affaire personnelle; c'était tout le Temple Céleste du Tonnerre qui insultait l'Empereur Divin Oiseau Vermillon!
+La sueur perla lentement sur le front de Lie Yunzi. Il était évident qu'avec son niveau de culture, il ne pourrait s'échapper des Quatre Sectes Divines. En impliquant le Temple Céleste du Tonnerre, Wang Lin avait été d'une cruauté sans nom. Ce n'était plus une affaire personnelle; c'était tout le Temple Céleste du Tonnerre qui insultait l'Empereur Divin de Suzaku!
 
 C'était exactement le contraire de l'intention initiale de Luotian.
 

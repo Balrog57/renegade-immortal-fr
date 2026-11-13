@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1459 - Granting Dao
 slug: loctroi-du-dao
 ---
-« Si je suppose que ce Ye Mo est bien de l’Dao Gu, alors il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à l’Dao Gu! L’Empereur Céleste Antique a tendu un piège et a attiré l’Dao Gu ici depuis le monde où il se trouvait… Il a manigancé autour de l’Dao Gu et même des trois clans. Il voulait les utiliser, à la place des esprits du Dao, pour nourrir le Dao Céleste!
+« Si je suppose que ce Ye Mo est bien de Dao Gu, alors il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à Dao Gu! L’Empereur Céleste Antique a tendu un piège et a attiré Dao Gu ici depuis le monde où il se trouvait… Il a manigancé autour de Dao Gu et même des trois clans. Il voulait les utiliser, à la place des esprits du Dao, pour nourrir le Dao Céleste!
 
 « Un être comme l’Empereur Céleste Antique n'agirait que s'il était sûr à 100 % de son coup, il a donc dû réussir… Cependant, comment le Dao Céleste a-t-il pu être détruit en fin de compte?
 
@@ -26,7 +26,7 @@ Wang Lin se frotta les tempes et ses yeux s'illuminèrent.
 
 « Quoi qu'il en soit, l'existence de l’Ancien Tombeau est forcément liée à Qicai Daoren. Cet endroit a-t-il été créé pour élever le Dao Céleste… ou est-ce un lieu que Ye Mo a créé pour transmettre son héritage après sa mort?
 
-« On appelle cela l’"Ancien Tombeau"... Serait-ce la tombe de Ye Mo de l’Dao Gu? » Plus il réfléchissait, plus il sombrait dans la confusion.
+« On appelle cela l’"Ancien Tombeau"... Serait-ce la tombe de Ye Mo de Dao Gu? » Plus il réfléchissait, plus il sombrait dans la confusion.
 
 Après un long moment, il poussa un soupir et cessa de songer à ces pensées irritantes. Son regard s'anima et il observa les arbres desséchés autour de lui.
 

@@ -18,9 +18,9 @@ Wang Lin eut un sourire amer et expliqua simplement à Zhou Yi ce qui s'était p
 
 « Si ce n'était pas pour avoir ramené Qing Shuang, il n'aurait pas été dans un tel danger... Xu Kongzi, je me souviendrai de cette personne! » Zhou Yi hocha la tête et n'insista pas, mais il grava le nom de Xu Kongzi dans son cœur. Blesser Wang Lin, qui était venu lui apporter Qing Shuang, revenait à franchir sa limite. Si l'occasion se présentait, compte tenu de la personnalité de Zhou Yi, il ferait payer un terrible prix à Xu Kongzi.
 
-« Tu es probablement venu pour les pilules ici, bien que la plupart aient déjà été prises par le couple de cultivateurs du Nuage Céleste. Les seules qui restent sont celles qui sont utiles aux corps spirituels. Ils ne les ont pas prises car leur méthode de stockage est très complexe. » Alors que Zhou Yi parlait, il changea soudainement de sujet: « Mais ne t'inquiète pas, je trouverai un moyen de t'obtenir ces pilules! »
+« Tu es probablement venu pour les pilules ici, bien que la plupart aient déjà été prises par le Couple Yun Xian. Les seules qui restent sont celles qui sont utiles aux corps spirituels. Ils ne les ont pas prises car leur méthode de stockage est très complexe. » Alors que Zhou Yi parlait, il changea soudainement de sujet: « Mais ne t'inquiète pas, je trouverai un moyen de t'obtenir ces pilules! »
 
-Une fois son discours terminé, Zhou Yi se transforma en un rayon d'énergie d'épée et s'élança hors des restrictions de la salle d'alchimie. Il apparut dans les airs et joignit ses mains: « Seniors du Nuage Céleste, cet homme est un vieil ami. Veuillez vous montrer et m'offrir quelques pilules! »
+Une fois son discours terminé, Zhou Yi se transforma en un rayon d'énergie d'épée et s'élança hors des restrictions de la salle d'alchimie. Il apparut dans les airs et joignit ses mains: « Seniors Yun Xian, cet homme est un vieil ami. Veuillez vous montrer et m'offrir quelques pilules! »
 
 Un rire parvint de loin. Une lueur jaillit de la forêt pourpre voisine, et Wang Wei et Hu Juan en sortirent. Les deux marchèrent lentement, mais étrangement, il ne leur fallut que trois pas pour atteindre la salle d'alchimie.
 
@@ -102,7 +102,7 @@ L'esprit de Wang Lin fut frappé de stupeur et il commença à réfléchir inten
 
 Hu Juan regarda Wang Lin et agita la main vers la restriction sur la droite. La restriction changea immédiatement, devenant encore plus puissante qu'auparavant.
 
-« Vous avez dû remarquer la différence entre les restrictions autour de la salle d'alchimie. Avec votre culture des restrictions, vous auriez dû vous en douter... Une fois que le Maître a ouvert l'antre céleste, tous les bâtiments et les restrictions ici ont été mis en place par moi sur ses ordres. Moi seule peux parfaire les restrictions de ce lieu. » La voix de Hu Juan n'était pas forte, mais lorsqu'elle atteignit les oreilles de Wang Lin, elle résonna comme un tonnerre rugissant.
+« Vous avez dû remarquer la différence entre les restrictions autour de la salle d'alchimie. Avec votre culture des restrictions, vous auriez dû vous en douter... Une fois que le Maître a ouvert la Grotte Xian Di, tous les bâtiments et les restrictions ici ont été mis en place par moi sur ses ordres. Moi seule peux parfaire les restrictions de ce lieu. » La voix de Hu Juan n'était pas forte, mais lorsqu'elle atteignit les oreilles de Wang Lin, elle résonna comme un tonnerre rugissant.
 
 Wang Lin eut un sursaut et sourit amèrement. « C'est donc bien vous. Je pensais que c'était le Senior Wang Wei. »
 

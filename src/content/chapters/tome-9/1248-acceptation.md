@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1248 - Accept
 slug: acceptation
 ---
-Cependant, une force incompréhensible régnait autour de la fissure spatiale. Même ce roi moustique de cent mille pieds de long dut lutter longtemps avant de pouvoir en s'extraire.
+Cependant, une force incompréhensible régnait autour de la fissure spatiale. Même ce roi moustique de plusieurs centaines de milliers de pieds de long dut lutter longtemps avant de pouvoir en s'extraire.
 
 À cet instant, la moitié de son corps se trouvait dans la fissure et l'autre à l'extérieur, mais il était coincé. Il commença à se débattre violemment et, dans ses efforts, la fissure spatiale elle-même se mit à trembler, montrant des signes d'un déchirement encore plus large.
 
@@ -66,7 +66,7 @@ Dans le nuage rouge qui couvrait le ciel, les bêtes moustiques bleues, blanches
 
 Ces créatures volaient à pleine vitesse, portées par le vent. Les autres bêtes moustiques environnantes se contentaient de regarder sans oser les intercepter.
 
-Après un long moment, un rugissement assourdissant, empreint de colère, résonna dans tout le royaume. Le roi moustique de cent mille pieds d'envergure surgit de la fissure!
+Après un long moment, un rugissement assourdissant, empreint de colère, résonna dans tout le royaume. Le roi moustique de plusieurs centaines de milliers de pieds d'envergure surgit de la fissure!
 
 Au moment où il apparut, toutes les bêtes moustiques environnantes poussèrent un cri unifié qui fit trembler les cieux!
 
@@ -104,6 +104,6 @@ Peu après, un grondement sourd provint de derrière Wang Lin. Le monde lui-mêm
 
 Il finit par atteindre la périphérie du Royaume Céleste du Vent; la sortie n'était plus très loin! Il ne lui restait que quelques heures pour sortir, et il avait utilisé sort après sort pour bloquer les poursuivants. Mais en fin de compte, cela ne suffisait pas: l'immense essaim était à moins de 50 kilomètres derrière lui. Vu d'en haut, on aurait dit que la masse colossale des moustiques occupait tout le Royaume Céleste, telle une inondation se refermant lentement sur Wang Lin.
 
-Le roi moustique de cent mille pieds fixait droit devant lui au sein de l'essaim, et ses rugissements faisaient trembler les cieux.
+Le roi moustique de plusieurs centaines de milliers de pieds fixait droit devant lui au sein de l'essaim, et ses rugissements faisaient trembler les cieux.
 
 Wang Lin fronça les sourcils, un éclair froid brillant dans son regard. Debout sur le dos de la bête, il saisit le vide de sa main droite.

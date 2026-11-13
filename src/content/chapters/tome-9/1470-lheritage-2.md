@@ -22,7 +22,7 @@ En ce jour, une silhouette vêtue d'une robe de Dao aux sept couleurs apparut so
 
 « Je tiendrai ma promesse envers vous... Une fois que le Dao Céleste aura grandi, je renverrai cet arc à votre secte... » Le cultivateur aux sept couleurs prit l'arc prodigieux des mains de Li Guang. Cependant, à cet instant précis, son expression changea et il fit un pas en avant sans réfléchir. Il se déplaçait avec une rapidité fulgurante, atteignant ses limites!
 
-« Ancien Dao, aucun Céleste! » Alors que Wang Lin observait cette scène, ces mots résonnèrent soudainement dans son esprit. À cet instant, un changement indescriptible s'opéra en lui!
+« Ancien Dao, pas d'Immortel! » Alors que Wang Lin observait cette scène, ces mots résonnèrent soudainement dans son esprit. À cet instant, un changement indescriptible s'opéra en lui!
 
 Cette simple phrase, ces quatre mots épurés, firent une fois de plus changer l'expression du cultivateur aux sept couleurs.
 
@@ -74,7 +74,7 @@ Le Sens Divin de Wang Lin s'effondra instantanément sous ce rugissement!
 
 Malgré l'effondrement de son Sens Divin, il vit qu'au centre des trois cartes, dans la troisième couche, se trouvait un cœur gigantesque!
 
-Ce cœur battait, exhalant l'aura de l'héritage. Wang Lin sentit que s'il parvenait à toucher ce cœur, il pourrait obtenir l'intégralité de l'héritage de l'Ordre Ancien!
+Ce cœur battait, exhalant l'aura de l'héritage. Wang Lin sentit que s'il parvenait à toucher ce cœur, il pourrait obtenir l'intégralité de l'héritage de Dao Gu!
 
 L'aura qui s'était précipitée en lui provenait de ce cœur. Par un procédé mystérieux, l'essence du cœur avait traversé le siège pour pénétrer son corps.
 

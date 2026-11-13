@@ -46,15 +46,15 @@ Il vit l'être céleste dans les nuages lever une nouvelle fois la main droite, 
 
 Cependant, à cet instant précis, un changement stupéfiant se produisit.
 
-Le ciel était initialement couvert d'une infinité de nuages de rétribution, mais soudain, une force surgit. Elle prit la forme de deux mains gigantesques qui pénétrèrent les nuages et les déchirèrent!
+Le ciel était initialement couvert d'une infinité de nuages de Tribulation Céleste, mais soudain, une force surgit. Elle prit la forme de deux mains gigantesques qui pénétrèrent les nuages et les déchirèrent!
 
-Le fracas qui en résulta fut encore plus assourdissant; les nuages de rétribution furent lacérés, révélant une brèche! Un jeune homme vêtu de blanc sortit de cette ouverture!
+Le fracas qui en résulta fut encore plus assourdissant; les nuages de Tribulation Céleste furent lacérés, révélant une brèche! Un jeune homme vêtu de blanc sortit de cette ouverture!
 
 Dès l'apparition du jeune homme, l'expression de l'être céleste changea radicalement et il rugit:
 
 « Qui es-tu?! Ce vieil homme était là le premier! »
 
-« Je suis votre Tribulation Céleste. Je suis venu détruire le Dao Céleste et collecter le Tonnerre Spirituel! » Wang Lin leva la main droite et pointa les nuages de rétribution dans le ciel!
+« Je suis votre Tribulation Céleste. Je suis venu détruire le Dao Céleste et collecter le Tonnerre Spirituel! » Wang Lin leva la main droite et pointa les nuages de Tribulation Céleste dans le ciel!
 
 Le tonnerre gronda et le vieillard dans les nuages trembla. Le tonnerre à l'intérieur de son corps rugissait hors de son contrôle, faisant changer son expression. Cependant, loin de s'enfuir, il chargea avec une férocité inattendue hors des nuages. Ses mains formèrent un sceau et il cracha une perle de tonnerre qui fonça vers Wang Lin.
 
@@ -74,13 +74,13 @@ L'œil droit de Wang Lin ayant absorbé les cinq éclairs, il flotta dans les ai
 
 L'homme d'âge moyen prit une profonde inspiration pour réprimer l'inquiétude qui lui nouait le cœur et observa Wang Lin avec intensité. Il libéra toute sa puissance, et sa culture de pointe de la Formation de l'Âme emplit le monde.
 
-Après dix respirations, un nouveau tonnerre jaillit des nuages de rétribution. Une autre brèche s'ouvrit dans le ciel, et une personne en sortit!
+Après dix respirations, un nouveau tonnerre jaillit des nuages de Tribulation Céleste. Une autre brèche s'ouvrit dans le ciel, et une personne en sortit!
 
 « Haha, j'ai enfin trouvé quelqu'un qui subit la Tribulation Céleste! » L'homme qui surgit de la brèche éclata d'un rire sauvage. Cependant, avant même que son rire ne s'éteigne, Wang Lin agita la main droite.
 
 L'individu qui venait d'arriver n'eut même pas le temps de comprendre ce qui lui arrivait que son corps explosa...
 
-L'homme d'âge moyen, toujours en pleine rétribution, sentit son cuir chevelu picoter. Malgré sa stupéfaction, il réalisa qu'il n'était autre que l'appât pour ce jeune homme en blanc...
+L'homme d'âge moyen, toujours en pleine Tribulation Céleste, sentit son cuir chevelu picoter. Malgré sa stupéfaction, il réalisa qu'il n'était autre que l'appât pour ce jeune homme en blanc...
 
 « Il a vraiment tué un être céleste!! »
 
@@ -88,11 +88,11 @@ Le temps passa. Bientôt, une autre personne sortit de la brèche. Ce nouveau ve
 
 En seulement le temps d'un bâton d'encens, plus d'une douzaine de membres du Clan Shan Lei s'étaient présentés, utilisant l'homme d'âge moyen comme appât. Pourtant, sans exception, tous furent tués dès leur apparition.
 
-L'homme d'âge moyen, plongé dans sa rétribution, était désormais anesthésié par la terreur qui ne cessait de croître en lui. Il esquissa un sourire amer et décida simplement de fermer les yeux pour ne plus rien voir.
+L'homme d'âge moyen, plongé dans sa Tribulation Céleste, était désormais anesthésié par la terreur qui ne cessait de croître en lui. Il esquissa un sourire amer et décida simplement de fermer les yeux pour ne plus rien voir.
 
 Cette méthode était bien plus efficace que de les traquer un par un. Après encore une heure, au moins cent personnes avaient été éliminées par Wang Lin!
 
-« Un cultivateur Briseur du Nirvana arrive enfin... » Les yeux de Wang Lin s'illuminèrent et il sourit en observant le vieil homme qui sortait de la brèche dans les nuages de rétribution, enveloppé d'éclairs!
+« Un cultivateur Briseur du Nirvana arrive enfin... » Les yeux de Wang Lin s'illuminèrent et il sourit en observant le vieil homme qui sortait de la brèche dans les nuages de Tribulation Céleste, enveloppé d'éclairs!
 
 Ce vieillard était vêtu de noir et dégageait une majesté imposante. Dès son apparition, son expression changea lorsqu'il baissa les yeux. Il vit immédiatement Wang Lin et sentit l'odeur du sang qui imprégnait le monde!
 

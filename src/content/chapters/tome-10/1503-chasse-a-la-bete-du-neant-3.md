@@ -36,7 +36,7 @@ Tout en reculant, il agita la main et plus de dix Feuilles Anciennes apparurent.
 
 Simultanément, la main droite de Wang Lin pointa vers l'espace entre ses sourcils, et l'Estimé Ling Dong ainsi que Zhou Jin apparurent instantanément. Ils n'attaquèrent pas la Bête des Limbes, mais se postèrent aux côtés de Wang Lin. Tandis que leurs mains formaient rapidement des sceaux, les Flammes Joss entourèrent Wang Lin.
 
-Tout cela se produisit en un éclair. Dès l'apparition de Ling Dong et Zhou Jin, les étoiles divines anciennes de Wang Lin commencèrent à tourner rapidement. Le fantôme de la Tête de l'Ordre Ancien apparut et enveloppa les trois hommes.
+Tout cela se produisit en un éclair. Dès l'apparition de Ling Dong et Zhou Jin, les étoiles divines anciennes de Wang Lin commencèrent à tourner rapidement. Le fantôme de la tête de Dao Gu apparut et enveloppa les trois hommes.
 
 Le rugissement de la Bête des Limbes ne dura que quelques respirations avant de s'estomper. Une fois le bruit dissipé, une puissante force d'aspiration envahit les étoiles.
 
@@ -58,7 +58,7 @@ Bien que la Bête des Limbes fût immense, elle ne pouvait rivaliser avec la tai
 
 Ce spectacle fit contracter les pupilles de Wang Lin!
 
-Alors que l'aspiration s'intensifiait, les plus de dix Feuilles Anciennes tournèrent rapidement autour de lui, formant un rempart. La Tête de l'Ordre Ancien et les Flammes Joss de Ling Dong et Zhou Jin continuaient de l'aider à résister.
+Alors que l'aspiration s'intensifiait, les plus de dix Feuilles Anciennes tournèrent rapidement autour de lui, formant un rempart. La tête de Dao Gu et les Flammes Joss de Ling Dong et Zhou Jin continuaient de l'aider à résister.
 
 « Ce n'est pas encore le moment... La gueule de la Bête des Limbes ne peut pas être aussi faible... » Tandis que Wang Lin fixait la créature, la froideur dans son regard s'accentua progressivement.
 
@@ -70,7 +70,7 @@ La Bête des Limbes devint anxieuse. Elle voulait dévorer Wang Lin, et non ces 
 
 « Je veux qu'elle ouvre la bouche, mais pas qu'elle le fasse de son propre chef! De plus, le sortilège de cette bête n'est pas encore pleinement activé. D'après les informations que j'ai recueillies, lorsque cette créature libérera toute la puissance de son sort, son âme apparaîtra. Ce n'est qu'à ce moment-là que je pourrai sceller l'âme! Si l'âme ne se manifeste pas, je ne pourrai pas sceller ses entrailles et le sceau échouera! » Wang Lin vit l'anxiété dans les yeux de la Bête des Limbes et recula lentement.
 
-Cette force d'aspiration aurait pu être redoutable contre Maître Lu Fu, mais Wang Lin disposait de Ling Dong, Zhou Jin, de la Tête de l'Ordre Ancien et des Feuilles Anciennes. Il pouvait ainsi résister à cette attraction.
+Cette force d'aspiration aurait pu être redoutable contre Maître Lu Fu, mais Wang Lin disposait de Ling Dong, Zhou Jin, de la tête de Dao Gu et des Feuilles Anciennes. Il pouvait ainsi résister à cette attraction.
 
 Son lent retrait fut remarqué par la Bête des Limbes. Son corps émit une lueur bleu foncé et l'ouverture de 80 000 pieds dans sa gueule s'élargit soudainement!
 
@@ -96,7 +96,7 @@ Il se rapprochait de plus en plus. Juste au moment où il allait être englouti 
 
 À l'instant même où cette froideur jaillit, Wang Lin leva sa main droite et frappa impitoyablement!
 
-Ce coup fusionna immédiatement avec la Tête de l'Ordre Ancien. Au même moment, Ling Dong poussa un rugissement et la statue du Dieu Démon derrière lui chargea avec le coup!
+Ce coup fusionna immédiatement avec la tête de Dao Gu. Au même moment, Ling Dong poussa un rugissement et la statue du Dieu Démon derrière lui chargea avec le coup!
 
 Zhou Jin déchaîna également toute sa puissance, et un loup de sang monstrueux accompagna le coup de poing de Wang Lin!
 
@@ -130,4 +130,4 @@ Le temps pressait. Les quelques respirations offertes par Ling Dong et Zhou Jin 
 
 Les sept étoiles pivotèrent avec célérité et, tandis que Wang Lin pointait, elles atterrirent sur la gueule de l'âme de la Bête des Limbes!
 
-« En tant que Dieu Ancien Royal, j'utilise la puissance de mon héritage de l'Ordre Ancien pour sceller son âme et faire d'elle ma bête d'essence vitale! »
+« En tant que Dieu Ancien Royal, j'utilise la puissance de mon héritage de Dao Gu pour sceller son âme et faire d'elle ma bête d'essence vitale! »

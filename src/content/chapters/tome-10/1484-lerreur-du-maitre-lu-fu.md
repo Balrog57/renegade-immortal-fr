@@ -44,7 +44,7 @@ Wang Lin leva la main droite et pointa le ciel. Les sept étoiles du Dieu Ancien
 
 Dès l'apparition de cette aura, l'espace lui-même se distordit et d'innombrables fissures spatiales apparurent. C'était comme si la réalité ne pouvait supporter l'aura de Dao Gu!
 
-L'Dao Gu était une existence bien supérieure aux Dieux Anciens! Car les Dieux Anciens étaient issus de Dao Gu! Tandis que cette aura se propageait, un gigantesque fantôme apparut derrière Wang Lin!
+Dao Gu était une existence bien supérieure aux Dieux Anciens! Car les Dieux Anciens étaient issus de Dao Gu! Tandis que cette aura se propageait, un gigantesque fantôme apparut derrière Wang Lin!
 
 Ce fantôme était flou et ne représentait qu'une tête. Une tête dépourvue d'œil gauche!
 

@@ -90,7 +90,7 @@ La Secte Po Tian de rang 9 avait également entendu ce tonnerre et vu les nuages
 
 Le Maître de la Secte Po Tian, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection de la secte et chargea à travers les nuages de Tribulation Céleste vers la fissure spatiale de la Secte Démon!
 
-Outre la Secte Démon, la Secte Divine et la Secte Po Tian, il y avait encore la Secte Fantôme! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre, haute d'environ 100 000 pieds, possédait une seule corne, telle un dieu démon!
+Outre la Secte Démon, la Secte Divine et la Secte Po Tian, il y avait encore la Secte Gui! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre, haute d'environ 100 000 pieds, possédait une seule corne, telle un dieu démon!
 
 Elle fixait avidement les nuages en dégageant une aura diabolique. Neuf étoiles démoniaques tournaient dans son œil gauche et, à chaque rotation, une force mystérieuse pénétrait son corps.
 

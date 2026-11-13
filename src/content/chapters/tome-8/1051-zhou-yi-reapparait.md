@@ -10,15 +10,15 @@ Deux personnes sortirent de la fausse montagne devant Wang Lin. Il s'agissait d'
 
 Derrière lui, la femme arborait un regard doux, mais une pointe de surprise y était perceptible. Elle ne s'attendait apparemment pas à ce que Wang Lin puisse parvenir jusqu'ici.
 
-En reconnaissant le Couple de Culture du Nuage Céleste, l'expression de Wang Lin resta calme, mais son cœur se mit en garde. Sa culture n'était pas encore restaurée et il se trouvait dans son état le plus vulnérable au sein de la Grotte Xian Di. La moindre imprudence pourrait lui coûter la vie.
+En reconnaissant le Couple Yun Xian, l'expression de Wang Lin resta calme, mais son cœur se mit en garde. Sa culture n'était pas encore restaurée et il se trouvait dans son état le plus vulnérable au sein de la Grotte Xian Di. La moindre imprudence pourrait lui coûter la vie.
 
-Après avoir calmement reculé près d'une restriction, Wang Lin joignit les mains et dit: « Salutations, Seniors du Nuage Céleste. » En parlant, il regarda derrière eux et ne vit pas Zhou Yi, ce qui lui fit l'effet d'un froid au cœur.
+Après avoir calmement reculé près d'une restriction, Wang Lin joignit les mains et dit: « Salutations, Seniors Yun Xian. » En parlant, il regarda derrière eux et ne vit pas Zhou Yi, ce qui lui fit l'effet d'un froid au cœur.
 
 « La maîtrise des restrictions de ce petit frère est véritablement mystérieuse. Il semble que je t'aie réellement sous-estimé », rit Wang Wei. Il ne connaissait guère Wang Lin, et Zhou Yi n'avait jamais rien dit à son sujet. Du point de vue de Wang Wei, si Wang Lin avait pu franchir les restrictions pour arriver ici, sa maîtrise devait déjà avoir atteint un sommet.
 
 Quant aux blessures de Wang Lin, Wang Wei les avait naturellement décelées.
 
-Le Couple de Culture du Nuage Céleste était une énigme pour Wang Lin. Lors de l'ouverture de la Grotte Xian Di, tout le monde aurait dû être aspiré dans le monde de la bouteille. Pourtant, même après l'effondrement de ce monde, ils n'étaient pas apparus, et les voilà qui surgissaient ici.
+Le Couple Yun Xian était une énigme pour Wang Lin. Lors de l'ouverture de la Grotte Xian Di, tout le monde aurait dû être aspiré dans le monde de la bouteille. Pourtant, même après l'effondrement de ce monde, ils n'étaient pas apparus, et les voilà qui surgissaient ici.
 
 Wang Lin n'était pas disposé à trop s'entretenir avec ces deux-là, et en l'absence de Zhou Yi, il nourrissait ses propres spéculations. De plus, étant blessé, il recula et dit: « Si vous, chers Seniors, n'avez rien d'autre à me dire, alors ce junior prend congé. »
 
@@ -76,7 +76,7 @@ C'était comme si une seule et même personne avait perfectionné sa propre cré
 
 Wang Lin fixa les sceaux, sentant que si ses soupçons étaient fondés, il venait de découvrir un immense filet. Il ignorait seulement qui l'avait tendu.
 
-Sa première pensée se tourna vers le Couple de Culture du Nuage Céleste!
+Sa première pensée se tourna vers le Couple Yun Xian!
 
 Après avoir mûri sa réflexion, Wang Lin refusa d'abandonner, car les pilules étaient trop cruciales pour lui. Il fixa la restriction et entama ses propres déductions.
 

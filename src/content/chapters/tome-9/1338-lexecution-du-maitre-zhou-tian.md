@@ -64,7 +64,7 @@ En tant que cultivateur Scruteur du Nirvana, il possédait sa propre fierté. Le
 
 Le tunnel n'étant pas très long, le Maître Zhou Tian atteignit rapidement la sortie. L'arrogance se lisait sur son visage tandis qu'il pensait: « Je devrai rester sur mes gardes lors de la transaction avec le Maître Hao Kun. Son niveau de culture est légèrement supérieur au mien; s'il cherche à me dépouiller, je ne ferai pas le poids! »
 
-« Cependant, j'ai demandé à quelques proches de m'accompagner afin que le Maître Hao Kun soit plus prudent... » Tout en méditant, il accélérait sa marche. Ses pensées étaient accaparées par l'échange à venir, et quant à Wang Lin, il n'était pour lui qu'une fourmi insignifiante. Il lui suffirait d'attendre un instant sur la place des 7 Millions de Mondes pour exécuter ce Yu Fei dès son apparition.
+« Cependant, j'ai demandé à quelques proches de m'accompagner afin que le Maître Hao Kunzi soit plus prudent... » Tout en méditant, il accélérait sa marche. Ses pensées étaient accaparées par l'échange à venir, et quant à Wang Lin, il n'était pour lui qu'une fourmi insignifiante. Il lui suffirait d'attendre un instant sur la place des 7 Millions de Mondes pour exécuter ce Yu Fei dès son apparition.
 
 Pourtant, alors qu'il approchait de la sortie, ses cheveux se hérissèrent soudainement. Le sentiment de crise le plus intense qu'il ait jamais ressenti jaillit de tout son être!
 

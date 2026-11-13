@@ -90,7 +90,7 @@ Lui et Wang Lin étaient tous deux de puissants cultivateurs. Ils traversaient l
 
 « Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste! Cependant, bien que j'eusse atteint le stade du Purificateur du Nirvana et que mes avatars eux-mêmes possédaient une culture non négligeable, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein, sans pouvoir entrer dans la voûte étoilée; il existait une barrière invisible que ma culture ne parvenait pas à briser!
 
-« J'ai donc conçu une méthode pour contrôler mes innombrables avatars afin qu'ils franchissent tous le stade de la Formation de l'Âme et déclenchent la Tribulation Céleste! À ce moment-là, j'ai provoqué moi-même une infime partie de cette rétribution!
+« J'ai donc conçu une méthode pour contrôler mes innombrables avatars afin qu'ils franchissent tous le stade de la Formation de l'Âme et déclenchent la Tribulation Céleste! À ce moment-là, j'ai provoqué moi-même une infime partie de cette Tribulation Céleste!
 
 « Chaque fois que la Tribulation Céleste apparaissait, je l'observais de loin, et avec le temps, j'ai progressivement compris quelque chose. Et ce que j'ai découvert m'a terrassé!
 

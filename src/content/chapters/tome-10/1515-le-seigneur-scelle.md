@@ -56,7 +56,11 @@ Les yeux du Shui Daozi étaient déjà vitreux et il fut projeté au loin. La do
 
 Dans son ultime moment de lucidité, le Shui Daozi hurla son dernier atout!!
 
-« Je suis lié à Mu Bingmei, me tuer revient à la tuer!! Elle est ta femme! Tue-moi!! Tue-moi!! Si tu me tues, Mu Bingmei mourra!! Ce vieil homme s'est préparé depuis longtemps. Cette misérable Mu Bingmei n'en savait rien. Ce vieil homme l'a aidée à restaurer sa culture et lui a donné des pilules pour que nos âmes soient liées! »
+« Je suis lié à Mu Bingmei, me tuer revient à la tuer!! Elle est ta femme! Tue-moi!! Tue-moi!! » Le rugissement du Shui Daozi résonna à travers le monde et pénétra l'esprit de Wang Lin!
+
+Le coup mortel de Wang Lin s'arrêta à trois pouces du Shui Daozi!
+
+L'esprit du Shui Daozi vacilla en voyant le poing de Wang Lin. Son visage était extrêmement féroce et il sourit avec démence. « Pourquoi ne me tues-tu pas? Viens me tuer!! Si tu me tues, Mu Bingmei mourra!! Ce vieil homme s'est préparé depuis longtemps. Cette misérable Mu Bingmei n'en savait rien. Ce vieil homme l'a aidée à restaurer sa culture et lui a donné des pilules pour que nos âmes soient liées! »
 
 « À quoi bon cette cloche dorée? Elle est mon véritable talisman!! » rit le Shui Daozi en agitant son bras droit restant. Le monde se distordit et une scène apparut.
 
@@ -92,9 +96,9 @@ Le Shui Daozi, serviteur du Seigneur du Royaume Scellé, Grand Ancien de la Sect
 
 Au moment de son trépas, un chant complexe s'échappa des lèvres de Wang Lin. Presque personne ne put en saisir le sens; seul le démon ancien à neuf étoiles de la Secte Gui, en train de disparaître, fut profondément bouleversé en l'entendant!
 
-« Le Sort de Transformation de Vie de l'Ordre Ancien!! C'est le Sort de Transformation de Vie de l'Ordre Ancien!! Ce fameux sort dont les rumeurs disent que les ancêtres ne pouvaient l'utiliser que trois fois dans leur vie!! »
+« Le Sort de Transformation de Vie Dao Gu!! C'est le Sort de Transformation de Vie Dao Gu!! Ce fameux sort dont les rumeurs disent que les ancêtres ne pouvaient l'utiliser que trois fois dans leur vie!! »
 
-Le Sort de Transformation de Vie de l'Ordre Ancien était une technique que Wang Lin avait apprise dans l'héritage qu'il avait obtenu dans une tombe antique. Il était inutile pour Li Muwan, mais il pouvait maintenant transférer toute la vitalité du Shui Daozi à Mu Bingmei, qui était liée à lui!
+Le Sort de Transformation de Vie Dao Gu était une technique que Wang Lin avait apprise dans l'héritage qu'il avait obtenu dans une tombe antique. Il était inutile pour Li Muwan, mais il pouvait maintenant transférer toute la vitalité du Shui Daozi à Mu Bingmei, qui était liée à lui!
 
 L'âme du Shui Daozi fut détruite, mais son essence vitale subsista. Au dernier moment, Wang Lin ne l'avait pas totalement anéanti, conservant l'essence vitale liée à Mu Bingmei!
 

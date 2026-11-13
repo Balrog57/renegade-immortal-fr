@@ -56,13 +56,13 @@ C’était comme si, d'une simple volonté, il pouvait l'extraire totalement. À
 
 Il était même fort probable que l'astre s'effondre!
 
-Cette vision fit vaciller leurs esprits et les laissa sans voix. Même les membres de la Secte Éternelle se levèrent, le regard empreint de terreur.
+Cette vision fit vaciller leurs esprits et les laissa sans voix. Même les membres de la Secte Wu Ji se levèrent, le regard empreint de terreur.
 
-Même Feng Hai eut un hoquet involontaire et, pour la première fois, regarda Wang Lin avec crainte. Cependant, il ricana bientôt. Wang Lin avait publiquement tué Zhao Long et fait perdre la face à la Secte Xun Luan; il devait en payer le prix. Feng Hai n'était pas le seul à avoir quitté la Secte Xun Luan; un autre l'avait précédé. Cet homme était extrêmement puissant mais possédait un caractère excentrique. Il ne se souciait plus des affaires mondaines et n'aidait plus secrètement la Secte Xun Luan. Pourtant, il était le premier maître de la secte et occupait désormais le rang de Grand Ancien au sein de la Secte Éternelle!
+Même Feng Hai eut un hoquet involontaire et, pour la première fois, regarda Wang Lin avec crainte. Cependant, il ricana bientôt. Wang Lin avait publiquement tué Zhao Long et fait perdre la face à la Secte Xun Luan; il devait en payer le prix. Feng Hai n'était pas le seul à avoir quitté la Secte Xun Luan; un autre l'avait précédé. Cet homme était extrêmement puissant mais possédait un caractère excentrique. Il ne se souciait plus des affaires mondaines et n'aidait plus secrètement la Secte Xun Luan. Pourtant, il était le premier maître de la secte et occupait désormais le rang de Grand Ancien au sein de la Secte Wu Ji!
 
-Si Wang Lin n'avait pas tué Zhao Long au sein même de la Secte Éternelle, cela aurait été une chose; mais en tuant Zhao Long ici et en forçant la Secte Xun Luan à battre en retraite, il allait sans doute provoquer la colère de ce Grand Ancien.
+Si Wang Lin n'avait pas tué Zhao Long au sein même de la Secte Wu Ji, cela aurait été une chose; mais en tuant Zhao Long ici et en forçant la Secte Xun Luan à battre en retraite, il allait sans doute provoquer la colère de ce Grand Ancien.
 
-L'expression du maître de la Secte Éternelle changea. En fixant Wang Lin, ses yeux brillèrent intensément.
+L'expression du maître de la Secte Wu Ji changea. En fixant Wang Lin, ses yeux brillèrent intensément.
 
 Face à un tel spectacle, il était inutile de parler de Du Lin et Yin Yue qui étaient venus combattre Wang Lin. L'homme et la femme s'arrêtèrent net, le choc se lisant dans leurs yeux, leurs expressions se transformant radicalement!
 

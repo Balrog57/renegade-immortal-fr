@@ -62,7 +62,7 @@ Les membres de la secte s'agenouillèrent un à un, les larmes coulant silencieu
 
 Même les statues de Suzaku sur les planètes principales poussèrent des cris de douleur...
 
-Un Oiseau Vermillon illusoire, très vieux et épuisé, s'échappa du corps de l'ancien Divin Empereur. Il s'envola au loin jusqu'à ne devenir plus rien.
+Un Suzaku illusoire, très vieux et épuisé, s'échappa du corps de l'ancien Divin Empereur. Il s'envola au loin jusqu'à ne devenir plus rien.
 
 L'Empereur Divin de Suzaku, autrefois si puissant, qui avait guidé les Quatre Sectes Divines à travers la crise causée par la mort de l'Empereur Divin du Tigre Blanc, la trahison de l'Empereur Divin de la Tortue Noire et la disparition de l'Empereur Divin du Dragon Azure... Après d'innombrables années, le vieil Empereur Divin s'était enfin éteint.
 

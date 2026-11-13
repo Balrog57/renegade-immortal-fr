@@ -24,7 +24,7 @@ Cependant, alors que la mer rugissante approchait, l'homme d'âge mûr revêtu d
 
 « Une simple astuce! » Empreint d'une soif de sang et d'une folie meurtrière, l'homme leva sa main droite et l'agita avec désinvolture. Une masse de gaz noirs jaillit soudainement de sa paume, inondant le ciel et recouvrant la mer. L'océan créé par Wang Wei explosa en d'innombrables gouttes de pluie qui se dispersèrent partout. C'était comme si le sort de Wang Wei n'était qu'un jeu d'enfant face à cet homme!
 
-« Maître, le disciple est arrivé trop tard... » Le visage de Wang Wei était livide alors qu'il reculait de plusieurs centaines de pieds pour rejoindre Zhou Yi. Il regarda l'homme d'âge mûr avec une douleur profonde dans les yeux, mais il la réprima rapidement pour afficher un regard déterminé. Zhou Yi ne s'était pas encore remis après avoir blessé le Xu Kongzi et était en grand danger. Wang Wei fit un geste de la main; Zhou Yi comprit instantanément son intention. Il lança un dernier regard à Wang Lin avant de se transformer en une lueur de lumière pour être rangé dans le sac de Wang Wei.
+« Maître, le disciple est arrivé trop tard... » Le visage de Wang Wei était livide alors qu'il reculait de plusieurs centaines de pieds pour rejoindre Zhou Yi. Il regarda l'homme d'âge mûr avec une douleur profonde dans les yeux, mais il la réprima rapidement pour afficher un regard déterminé. Zhou Yi ne s'était pas encore remis après avoir blessé Xu Kongzi et était en grand danger. Wang Wei fit un geste de la main; Zhou Yi comprit instantanément son intention. Il lança un dernier regard à Wang Lin avant de se transformer en une lueur de lumière pour être rangé dans le sac de Wang Wei.
 
 Dans le ciel, après que la mer de Wang Wei eut été brisée, le doigt de Tian Yunzi, qui semblait pouvoir soutenir les cieux, descendit. Imprégné d'une puissante énergie originelle, il descendait lentement depuis la voûte céleste. Bien que sa descente paraisse lente, sa vitesse réelle était extrême.
 
@@ -52,7 +52,7 @@ Les yeux de Tian Yunzi brillèrent d'une lueur étrange, puis il chargea inopin�
 
 Ces trois puissances avaient pénétré le brouillard noir, et les collisions assourdissantes de leurs sorts résonnaient. Des fluctuations folles d'énergie originelle et d'énergie spirituelle céleste se propageaient dans l'air.
 
-Le Xu Kongzi observait le brouillard noir avec un air grave, tout comme l'homme en noir à ses côtés. Le vieil homme sur la gourde hésita également et s'arrêta à la lisière de la brume. Quant à Ling Tianhou, il contemplait le chaos d'un visage sombre.
+Xu Kongzi observait le brouillard noir avec un air grave, tout comme l'homme en noir à ses côtés. Le vieil homme sur la gourde hésita également et s'arrêta à la lisière de la brume. Quant à Ling Tianhou, il contemplait le chaos d'un visage sombre.
 
 Wang Lin recula immédiatement sans la moindre hésitation. Bien qu'il ignorât tout des détails de l'affrontement, l'homme en armure et le palais correspondaient exactement à ce qu'il avait vu dans le monde de la bouteille grâce à son Guide Limbes; l'homme qui lui avait remis le cristal jaune était donc cet homme en armure.
 
@@ -80,13 +80,13 @@ Au moment même où Wang Wei était expulsé, le brouillard noir se contracta po
 
 Un torrent de sang jaillit de la poitrine de Wang Wei avant qu'il ne chute du ciel. Ce changement si soudain fit pâlir les visages de tous les témoins.
 
-L'homme en noir eut un mouvement de recul, réprimant instantanément sa cupidité pour se retirer aussitôt. Le Xu Kongzi fit de même, mais ses yeux brillèrent d'une lueur prédatrice; tout en reculant, il chargea vers le Wang Wei gravement blessé.
+L'homme en noir eut un mouvement de recul, réprimant instantanément sa cupidité pour se retirer aussitôt. Xu Kongzi fit de même, mais ses yeux brillèrent d'une lueur prédatrice; tout en reculant, il chargea vers le Wang Wei gravement blessé.
 
 « Je vais saisir cette opportunité pour achever ce petit et apaiser un peu la haine qui me ronge! »
 
-Bien que le Xu Kongzi fût lui-même blessé, il se situait toujours au stade du Briseur du Nirvana. À cet instant, il se déplaça comme l'éclair pour apparaître aux côtés de Wang Wei. Il leva sa main et s'apprêta à écraser impitoyablement la tête du jeune homme. Dans un sourire cruel, il hurla: « Puisque tu as osé aider ce petit bâtard, meurs! »
+Bien que Xu Kongzi fût lui-même blessé, il se situait toujours au stade du Briseur du Nirvana. À cet instant, il se déplaça comme l'éclair pour apparaître aux côtés de Wang Wei. Il leva sa main et s'apprêta à écraser impitoyablement la tête du jeune homme. Dans un sourire cruel, il hurla: « Puisque tu as osé aider ce petit bâtard, meurs! »
 
-Tandis que Wang Lin reculait, il vit Wang Wei être projeté après avoir été lourdement blessé. Il s'arrêta net et chargea pour le secourir. Cependant, il n'était pas aussi rapide que le Xu Kongzi qui avait déjà atteint sa cible et levé la main. Une lueur jaune terreuse émana de la paume droite du Xu Kongzi; elle concentrait la puissance maximale d'un cultivateur au début du stade Briseur du Nirvana.
+Tandis que Wang Lin reculait, il vit Wang Wei être projeté après avoir été lourdement blessé. Il s'arrêta net et chargea pour le secourir. Cependant, il n'était pas aussi rapide que Xu Kongzi qui avait déjà atteint sa cible et levé la main. Une lueur jaune terreuse émana de la paume droite du Xu Kongzi; elle concentrait la puissance maximale d'un cultivateur au début du stade Briseur du Nirvana.
 
 À cet instant précis, Wang Lin n'eut pas le temps de réfléchir. Le fourneau divin antique apparut autour de lui. Il pointa Wang Wei du doigt et cria: « Changez de place! »
 

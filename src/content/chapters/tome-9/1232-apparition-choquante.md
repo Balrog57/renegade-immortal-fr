@@ -96,7 +96,7 @@ Le fracas fut céleste lorsque les deux feux entrèrent en collision. L'Oiseau V
 
 La mer de feu devant le mille-pattes s'effondra instantanément et son corps explosa sous la pression du feu repoussé. La moitié de sa carcasse était un amas sanglant, mais il ne mourut pas. Il laissa échapper un sifflement misérable et se retira rapidement dans la brume qui se dissipait.
 
-Dans le brouillard, le vieil homme de la Secte Éternelle avait tout observé, et il était sous le choc!
+Dans le brouillard, le vieil homme de la Secte Wu Ji avait tout observé, et il était sous le choc!
 
 « Qui est cet individu?! Il contrôle un feu étonnamment plus puissant que celui du mille-pattes de feu et possède un niveau de culture extrêmement élevé. Sans ses blessures, même moi je ne serais pas confiant pour l'affronter!! Mais il n'est pas de la Secte Divine. J'ai déjà vu l'Empreinte de l'Esprit Guerrier par le passé, et bien que la sienne soit très similaire, ce n'est pas elle! »
 

@@ -50,9 +50,9 @@ Ce brouillard était très étrange, imprégné d'une énergie démoniaque. Cepe
 
 Les pupilles de l'homme en noir se contractèrent, mais il l'emboîta également sans hésiter.
 
-L'homme en noir suivit Wang Lin en maintenant une certaine distance et dit d'une voix lente: « L'énergie démoniaque ici est puissante; le Camarade Cultivateur Wang ferait mieux de rester sur ses gardes. »
+L'homme en noir suivit Wang Lin en maintenant une certaine distance et dit d'une voix lente: « L'énergie démoniaque ici est puissante; le Daoïste Wang ferait mieux de rester sur ses gardes. »
 
-« De plus, le Camarade Cultivateur Wang pourrait-il m'expliquer ce qui nous poursuit? »
+« De plus, le Daoïste Wang pourrait-il m'expliquer ce qui nous poursuit? »
 
 « C'est une bête du Bassin Funéraire Céleste! » répondit Wang Lin en un mot, se déplaçant comme l'éclair au sein du brouillard noir vers le palais.
 
@@ -88,7 +88,7 @@ Dès que Xu Kongzi aperçut Wang Lin, une intention meurtrière envahit son rega
 
 Le visage de la belle femme était pâle. En voyant Wang Lin, elle lança brusquement: « Wang Lin, qu'as-tu fait pour que cette chose humanoïde te poursuive ainsi jusqu'ici? »
 
-Après avoir frôlé la mort, la belle femme abandonna toute politesse envers lui. Elle ne l'appelait plus « camarade cultivateur », mais utilisait directement son nom.
+Après avoir frôlé la mort, la belle femme abandonna toute politesse envers lui. Elle ne l'appelait plus « Daoïste », mais utilisait directement son nom.
 
 Wang Lin avait déjà inspecté toute la salle. Bien qu'il n'eût pas trouvé l'accès au second étage, ses yeux s'étaient posés sur les deux statues et il avait quelques pressentiments. En entendant les paroles de la belle femme, ses yeux brillèrent et il dit calmement: « Comment savez-vous que c'est moi qui ai attiré cette chose humanoïde? » Tout en parlant, il recula de quelques pas vers les statues, comme s'il craignait une attaque soudaine de sa part.
 

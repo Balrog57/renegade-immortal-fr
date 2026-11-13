@@ -24,7 +24,7 @@ Un ancien dieu à 7 étoiles!
 
 Une ancienne déesse à 7 étoiles!
 
-Lorsque son identité d'ancien dieu fut révélée, tout prit sens. Pourquoi le Maître Yi Mu avait-il reçu l'ordre de poursuivre le Serpent aux yeux de lune!
+Lorsque son identité d'ancien dieu fut révélée, tout prit sens. Pourquoi Yi Muzi avait-il reçu l'ordre de poursuivre le Serpent aux yeux de lune!
 
 Pourquoi toute la force vitale de Wang Lin avait-elle été emportée par l'ancêtre de la famille Xiang! La force vitale qui lui avait été dérobée était celle d'un ancien dieu!
 
@@ -36,7 +36,7 @@ Même sans ce ressentiment, l'ancêtre de la famille Xiang aurait tout de même 
 
 Cependant, alors qu'il absorbait la vitalité de Wang Lin et s'apprêtait à le tuer, un ordre tomba de la famille antique Dong Lin. L'ancêtre n'osa désobéir et renonça à l'idée de tuer Wang Lin. Il se contenta d'absorber une grande quantité de la force vitale d'ancien dieu provenant du corps original de Wang Lin.
 
-Wang Lin avait appris tout cela en fouillant l'âme de l'ancêtre de la famille Xiang. En mettant cela en lien avec les actions du Maître Yi Mu, il put spéculer sur plusieurs points.
+Wang Lin avait appris tout cela en fouillant l'âme de l'ancêtre de la famille Xiang. En mettant cela en lien avec les actions de Yi Muzi, il put spéculer sur plusieurs points.
 
 « La famille antique Dong Lin... » Les yeux de Wang Lin s'illuminèrent et il scruta l'horizon.
 

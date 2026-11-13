@@ -66,7 +66,7 @@ Les yeux de Wang Lin se remplirent de tristesse en contemplant l'ombre de l'anci
 
 La langue des anciens dieux sortit de la bouche de Wang Lin, se propageant comme des ondulations: « Le clan que tu protèges a trahi mon clan des anciens dieux. En tant qu'ancien dieu royal, je vous ordonne à tous de vous disperser! »
 
-L'ombre de l'ancien dieu s'interrompit. Ses yeux se remplirent de confusion, puis de libération, alors qu'il disparaissait progressivement... Cela faisait bien longtemps qu'un ancien dieu royal n'était pas apparu parmi les anciens dieux. L'âme d'ancien dieu qui protégeait le Clan Yue Shi n'était qu'une infime parcelle de volonté... Autrefois, c'était un ancien dieu royal qui avait décidé de protéger le clan esclave Dévorant la Lune, et l'ensemble du clan des anciens dieux l'avait suivi sans hésiter pendant une éternité. Même avec le passage du temps et leur propre mort, cette volonté persistante continuait de les abriter.
+L'ombre de l'ancien dieu s'interrompit. Ses yeux se remplirent de confusion, puis de libération, alors qu'il disparaissait progressivement... Cela faisait bien longtemps qu'un ancien dieu royal n'était pas apparu parmi les anciens dieux. L'âme d'ancien dieu qui protégeait le Clan Yue Shi n'était qu'une infime parcelle de volonté... Autrefois, c'était un ancien dieu royal qui avait décidé de protéger le clan esclave Yue Shi, et l'ensemble du clan des anciens dieux l'avait suivi sans hésiter pendant une éternité. Même avec le passage du temps et leur propre mort, cette volonté persistante continuait de les abriter.
 
 Cela aurait duré jusqu'à ce qu'un autre ancien dieu royal apparaisse pour donner l'ordre d'arrêter. C'était la seule façon de résoudre cet ancien pacte!
 

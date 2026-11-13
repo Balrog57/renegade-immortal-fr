@@ -8,15 +8,15 @@ slug: lame-demoniaque-royale
 ---
 L'ombre démoniaque était floue au début, mais elle se condensa bientôt pour prendre la forme d'un démon ancien. Six étoiles brillaient dans l'œil gauche de ce démon.
 
-Son corps, haut de près de mille pieds, dégageait une lumière démoniaque, et il laissa échapper un rugissement aux côtés du Dieu de Sang!
+Son corps, haut de près de mille pieds, dégageait une lumière démoniaque, et il laissa échapper un rugissement aux côtés de Xue Shenzi!
 
-L'expression de Wang Lin était calme alors que son regard perçait celui du Dieu de Sang pour fixer froidement le démon ancien.
+L'expression de Wang Lin était calme alors que son regard perçait celui de Xue Shenzi pour fixer froidement le démon ancien.
 
 « Oses-tu résister devant moi? »
 
-Les étoiles de l'Ancien Dieu entre les sourcils de Wang Lin tournèrent, et l'aura de l'Ordre Ancien se propagea. La tête de l'Ordre Ancien apparut derrière lui et contempla le démon ancien comme s'il observait un subalterne de son propre clan.
+Les étoiles de l'Ancien Dieu entre les sourcils de Wang Lin tournèrent, et l'aura de Dao Gu se propagea. La tête de Dao Gu apparut derrière lui et contempla le démon ancien comme s'il observait un subalterne de son propre clan.
 
-L'esprit du Dieu de Sang vacilla. Le regard de Wang Lin et celui de la tête fusionnèrent. Ses yeux semblaient sur le point d'éclater; ce regard, tel une épée, perça ses yeux et pénétra jusqu'à son âme originelle.
+L'esprit de Xue Shenzi vacilla. Le regard de Wang Lin et celui de la tête fusionnèrent. Ses yeux semblaient sur le point d'éclater; ce regard, tel une épée, perça ses yeux et pénétra jusqu'à son âme originelle.
 
 Ses oreilles bourdonnèrent et il poussa un cri misérable en crachant du sang. Son corps trembla et son mouvement de retraite s'interrompit brusquement. Il n'osait plus bouger d'un pouce sous ce regard!
 
@@ -24,31 +24,31 @@ Il eut la sensation nette que sa peau était arrachée, mettant à nu sa chair e
 
 Même ses os commencèrent à craquer sous ce regard et à s'effondrer centimètre par centimètre, révélant l'âme originelle contenue dans ce corps!
 
-« Je vais te tuer pour accomplir deux de mes karmas! » Le premier était naturellement la traque du Dieu de Sang contre Wang Lin; le second était la promesse que Wang Lin avait faite à la jeune fille de la famille Yao dans le rêve!
+« Je vais te tuer pour accomplir deux de mes karmas! » Le premier était naturellement la traque de Xue Shenzi contre Wang Lin; le second était la promesse que Wang Lin avait faite à la jeune fille de la famille Yao dans le rêve!
 
 « Laisse-moi t'aider... » Une simple phrase sembla résonner depuis huit cents ans.
 
-Tandis que le Dieu de Sang poussait un cri déchirant, une ligne de sang apparut entre les sourcils de son âme originelle. Cette ligne s'étendit jusqu'à traverser son visage, sa nuque, sa poitrine et son abdomen!
+Tandis que Xue Shenzi poussait un cri déchirant, une ligne de sang apparut entre les sourcils de son âme originelle. Cette ligne s'étendit jusqu'à traverser son visage, sa nuque, sa poitrine et son abdomen!
 
-En un instant, la ligne de sang brilla et l'âme originelle du Dieu de Sang fut scindée en deux!
+En un instant, la ligne de sang brilla et l'âme originelle de Xue Shenzi fut scindée en deux!
 
 Au moment même où son âme était coupée, son corps vola en éclats à l'intérieur du vortex, à mille pieds de Wang Lin!
 
-Mais la mort du Dieu de Sang ne mit pas fin à cette affaire!
+Mais la mort de Xue Shenzi ne mit pas fin à cette affaire!
 
 Dès que son âme et sa chair furent déchirées, une vague d'énergie démoniaque jaillit. Cette énergie fusionna rapidement avec l'ombre démoniaque.
 
 Un démon ancien de mille pieds de haut apparut au sein du vortex. Six étoiles tournaient frénétiquement dans son œil gauche. Une odeur de sang et de décomposition émanait de son corps colossal.
 
-Un rugissement strident retentit alors que le corps de mille pieds du démon ancien reculait avec anxiété, le visage marqué par la panique. Il avait fusionné avec le Dieu de Sang il y a longtemps pour l'utiliser comme remède. Cette année-là, il avait clairement remarqué l'énergie de l'Ancien Dieu dans le corps de Wang Lin.
+Un rugissement strident retentit alors que le corps de mille pieds du démon ancien reculait avec anxiété, le visage marqué par la panique. Il avait fusionné avec Xue Shenzi il y a longtemps pour l'utiliser comme remède. Cette année-là, il avait clairement remarqué l'énergie de l'Ancien Dieu dans le corps de Wang Lin.
 
-Bien que Wang Lin ne fût ici qu'en tant qu'avatar et que son corps original se trouvât dans l'Alliance, cela avait attiré l'attention du démon ancien. Il avait utilisé le Dieu de Sang pour ordonner à la famille Yao de capturer Wang Lin afin d'absorber l'énergie de l'Ancien Dieu contenue dans son âme!
+Bien que Wang Lin ne fût ici qu'en tant qu'avatar et que son corps original se trouvât dans l'Alliance, cela avait attiré l'attention du démon ancien. Il avait utilisé Xue Shenzi pour ordonner à la famille Yao de capturer Wang Lin afin d'absorber l'énergie de l'Ancien Dieu contenue dans son âme!
 
-Bien que les auras des trois clans de l'Ordre Ancien fussent différentes et très difficiles à convertir, cela lui aurait tout de même été bénéfique pour accélérer sa guérison.
+Bien que les auras des trois clans anciens fussent différentes et très difficiles à convertir, cela lui aurait tout de même été bénéfique pour accélérer sa guérison.
 
 Cependant, il n'aurait jamais imaginé qu'une action passée puisse causer sa perte aujourd'hui!
 
-Tout en reculant, il agita les mains et commença à incanter dans la langue de l'Ordre Ancien. Un sort aux cinq couleurs, saturé d'énergie démoniaque, jaillit vers Wang Lin.
+Tout en reculant, il agita les mains et commença à incanter dans la langue ancienne. Un sort aux cinq couleurs, saturé d'énergie démoniaque, jaillit vers Wang Lin.
 
 Neuf fantômes de dragons démoniaques apparurent et chargèrent Wang Lin! Derrière eux, 99 drapeaux démoniaques surgirent, libérant une puissance maléfique colossale. Un démon résidait dans chaque drapeau, et ces grands démons se précipitèrent sur Wang Lin!
 
@@ -62,9 +62,9 @@ Ce démon ancien avait tout misé. Il savait qu'il allait mourir, mais il refusa
 
 C'était le premier coup de poing qu'il portait devant Maître Lu Fu et les dizaines de milliers de cultivateurs environnants!
 
-Un coup de poing de l'Ordre Ancien capable de percer les cieux!
+Un coup de poing ancien capable de percer les cieux!
 
-Alors que ce coup partait, la tête de l'Ordre Ancien derrière Wang Lin se déforma pour fusionner avec son poing.
+Alors que ce coup partait, la tête de Dao Gu derrière Wang Lin se déforma pour fusionner avec son poing.
 
 Des grondements tonitruants résonnèrent à travers les étoiles. Le domaine stellaire entier sembla s'immobiliser. Ce puissant coup de poing fonça en avant sous le regard des dizaines de milliers de cultivateurs, de Maître Lu Fu, ainsi que de Maître Yan Leizi et de Lie Yunzi, qui reculaient précipitamment!
 
@@ -106,7 +106,7 @@ Le démon ancien poussa un cri déchirant et cracha une bouffée d'énergie vita
 
 Les estimés Ling Dong et Zhou Jin se tenaient silencieusement derrière lui. Ling Dong avait été personnellement affiné par Wang Lin; il n'y avait donc aucune chance qu'il se rebelle.
 
-Zhou Jin avait été contraint de se soumettre grâce à l'aura de l'Ordre Ancien. À cet instant, il regardait Wang Lin avec une expression complexe. Plus Wang Lin devenait puissant, plus ce sentiment l'envahissait. Cependant, la marque ancienne supprimait son âme originelle, rendant toute résistance impossible. Il se sentait comme une fourmi face à une montagne.
+Zhou Jin avait été contraint de se soumettre grâce à l'aura de Dao Gu. À cet instant, il regardait Wang Lin avec une expression complexe. Plus Wang Lin devenait puissant, plus ce sentiment l'envahissait. Cependant, la marque ancienne supprimait son âme originelle, rendant toute résistance impossible. Il se sentait comme une fourmi face à une montagne.
 
 « C'est une bonne lame... Cependant, le démon qui l'utilise est un peu faible. » Wang Lin agita sa main droite et la paume fantôme lui ramena la lame.
 

@@ -74,7 +74,7 @@ Au moment où la plateforme de Wang Lin atteignit le rang 7, Jiutian Mozun, qui 
 
 « Qui est ce maudit individu? Comment a-t-il atteint le rang 7? Il y avait six personnes au total ayant atteint le rang 5, et l'une d'elles a été absorbée par lui pour lui permettre de passer au rang 6. Comment a-t-il pu atteindre le rang 7 en si peu de temps… » Jiutian Mozun était sombre et perplexe.
 
-« J'ai utilisé de nombreux avatars pour tuer des gens dans la région extérieure afin d'obtenir des runes pour ma plateforme. J'ai moi aussi une méthode semblable à la sienne… Rang 7… Je ne considère pas cela comme une prouesse. Ma plateforme atteindra bientôt le rang 8, voyons lequel de nous sera le plus rapide! » Jiutian Mozun se rassit.
+« J'ai utilisé de nombreux avatars pour tuer des gens dans la région extérieure afin d'obtenir des runes pour ma plateforme. Il doit avoir une méthode semblable à la mienne… Rang 7… Je ne considère pas cela comme une prouesse. Ma plateforme atteindra bientôt le rang 8, voyons lequel de nous sera le plus rapide! » Jiutian Mozun se rassit.
 
 Il y avait une autre plateforme dans la huitième carte, mais au lieu d'être immergée dans la brume, une plateforme sur le point d'atteindre le rang 7 volait au-dessus de celle-ci. Une femme en blanc y était assise, les sourcils froncés par la perplexité.
 

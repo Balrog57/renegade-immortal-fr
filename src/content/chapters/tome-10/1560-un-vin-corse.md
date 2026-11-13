@@ -94,7 +94,7 @@ Au moment où il buvait, Wang Lin tira d'un coup sec, extrayant sept pieds de l'
 
 « Wang Lin, as-tu du vin corsé... »
 
-La main gauche de Wang Lin plongea dans le vide et une gourde verte apparut. Ce n'était pas du vin, mais le sang de dragon de feu que l'ancien Oiseau Vermillon lui avait donné!
+La main gauche de Wang Lin plongea dans le vide et une gourde verte apparut. Ce n'était pas du vin, mais le sang de dragon de feu que le vieux Suzaku lui avait donné!
 
 Ce sang était féroce!
 
