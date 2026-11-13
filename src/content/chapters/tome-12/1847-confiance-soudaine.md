@@ -92,7 +92,7 @@ Wang Lin détourna les yeux de la Mer Dan. Remarquant leurs expressions, il dit 
 
 « Vous aussi, prenez soin de vous! » Wang Lin afficha un sourire sincère. Il leur rendit leur salut et jeta un coup d'œil à Suzaku.
 
-L'Oiseau Vermillon laissa échapper un soupir, comme s'il avait quelque chose sur le cœur, mais finalement, il resta silencieux. Les trois s'envolèrent rapidement vers la Secte Gui Yi.
+Le Suzaku laissa échapper un soupir, comme s'il avait quelque chose sur le cœur, mais finalement, il resta silencieux. Les trois s'envolèrent rapidement vers la Secte Gui Yi.
 
 Une fois qu'ils disparurent à l'horizon, Wang Lin se tourna de nouveau vers la Mer Dan, une intention meurtrière brillant dans ses yeux.
 

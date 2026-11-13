@@ -1,6 +1,6 @@
 ---
 n: 1416
-title: Le Troisième Oiseau Vermillon Traître
+title: Le Troisième Suzaku Traître
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1416 - Traitorous Third Vermillion Bird

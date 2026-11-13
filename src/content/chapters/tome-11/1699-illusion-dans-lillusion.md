@@ -28,13 +28,13 @@ La dernière à s'effacer fut la femme. Son visage, empreint d'incrédulité et 
 
 Wang Lin ouvrit les yeux. À l'instant même, il vit le premier pont du Navire Démon des Âmes. La voile battait au vent contre le mât, et le visage fantomatique qui y était dessiné arborait un sourire étrange.
 
-Wang Lin était toujours assis sur le premier pont, entouré par l'ombre de l'être antique. Non loin de lui, la femme qui siégeait là ouvrit également les yeux, le regard plongé dans une profonde confusion.
+Wang Lin était toujours assis sur le premier pont, entouré par l'ombre de Dao Gu. Non loin de lui, la femme qui siégeait là ouvrit également les yeux, le regard plongé dans une profonde confusion.
 
 « Il s'avère que tu ignorais même que tout n'était qu'une illusion... » Wang Lin se tourna pour regarder au-delà du bateau. Les couches de protection entouraient toujours le navire; il n'y avait aucune trace de la lumière aux sept couleurs, ni du Daoïste aux Sept Couleurs.
 
 « Même lui n'était qu'une illusion... »
 
-Wang Lin se leva silencieusement et agita la main droite. L'ombre antique se dissipa. Il scruta les alentours avant de fixer la voile fixée au mât.
+Wang Lin se leva silencieusement et agita la main droite. L'ombre de Dao Gu se dissipa. Il scruta les alentours avant de fixer la voile fixée au mât.
 
 « Que s'est-il passé... » À cet instant, l'expression confuse de la femme s'effaça lorsqu'elle fixa Wang Lin. Puis, elle regarda soudainement autour d'elle. Après avoir pris la mesure des lieux, son visage changea radicalement!
 

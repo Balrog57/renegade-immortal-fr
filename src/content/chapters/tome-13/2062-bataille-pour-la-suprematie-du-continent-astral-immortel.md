@@ -80,7 +80,7 @@ Wang Lin fronça les sourcils en observant la silhouette émergeant de la brume.
 
 « Sur le Mont Gu Dao, j'ai emprunté ta pression pour fusionner mes pouvoirs célestes et anciens... C'est le premier point! »
 
-« Dans la cité impériale de l'Ancien Dao, j'ai tué Ye Dao. Avec mon niveau de culture de l'époque, si tu avais agi, je n'aurais eu aucune certitude de l'emporter. Pourtant, tu es resté silencieux. C'est le deuxième point! »
+« Dans la cité impériale du Dao Gu, j'ai tué Ye Dao. Avec mon niveau de culture de l'époque, si tu avais agi, je n'aurais eu aucune certitude de l'emporter. Pourtant, tu es resté silencieux. C'est le deuxième point! »
 
 « Dans le Shi Antique, Ji Du est devenu empereur et tu ne l'as pas arrêté. C'est le troisième! »
 

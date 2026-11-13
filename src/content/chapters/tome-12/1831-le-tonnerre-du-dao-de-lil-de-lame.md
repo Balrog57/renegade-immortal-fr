@@ -1,6 +1,6 @@
 ---
 n: 1831
-title: "Le Tonnerre du Dao de l'Œil de l'Âme!"
+title: "Le Tonnerre du Dao de la Déduction de l'Âme!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1831 - Soul Eye Dao Thunder!"
@@ -18,9 +18,9 @@ Wang Lin cultiva un instant avant d'ouvrir les yeux, dont le regard brillait d'u
 
 « Secte Da Hun... » Wang Lin retourna sa main droite et une pierre de jade violette apparut. Ce jade dégageait une aura antique mêlée à une trace de décomposition.
 
-« Le Dao de l'Œil de l'Âme... La personne que je connaissais et qui excellait dans la divination était Tian Yunzi! Qing Lin possédait également un sort de Dao similaire... Ce sort était extrêmement efficace pour la divination. À l'époque, j'avais emprunté l'avatar de Tian Yunzi pour diviner, ce qui m'avait sauvé de nombreuses crises de vie ou de mort... »
+« Le Dao de la Déduction de l'Âme... La personne que je connaissais et qui excellait dans la divination était Tian Yunzi! Qing Lin possédait également un sort de Dao similaire... Ce sort était extrêmement efficace pour la divination. À l'époque, j'avais emprunté l'avatar de Tian Yunzi pour diviner, ce qui m'avait sauvé de nombreuses crises de vie ou de mort... »
 
-« Désormais, avec le Dao de l'Œil de l'Âme, je dois l'apprendre; sinon, il me sera difficile d'évoluer sur le continent Astral Immortel... Plus important encore, cela m'aidera à me dissimuler et rendra mon destin bien plus difficile à calculer pour autrui... » Songea Wang Lin tandis que son sens divin pénétrait dans le jade qu'il tenait.
+« Désormais, avec le Dao de la Déduction de l'Âme, je dois l'apprendre; sinon, il me sera difficile d'évoluer sur le continent Astral Immortel... Plus important encore, cela m'aidera à me dissimuler et rendra mon destin bien plus difficile à calculer pour autrui... » Songea Wang Lin tandis que son sens divin pénétrait dans le jade qu'il tenait.
 
 Cependant, à cet instant précis, Wang Lin leva soudainement les yeux. La Montagne Yan Mai avait fusionné avec son corps véritable; on pouvait dire que la montagne était devenue son propre corps. Il sentit clairement une femme s'avancer vers elle.
 
@@ -30,7 +30,7 @@ La femme s'arrêta au pied de la montagne. Après un moment d'hésitation, elle 
 
 « Fan Shanmeng... » Wang Lin sourit intérieurement mais l'ignora. Son sens divin s'enfonça dans le jade et il commença son étude.
 
-« L'âme est le Dao, le Dao est l'âme; utiliser le Dao pour sonder le destin... » Lorsque le sens divin de Wang Lin pénétra dans le jade, une voix ancienne résonna dans son esprit. Cette voix portait une force étrange qui permit à Wang Lin de s'immerger totalement dans le Dao de l'Œil de l'Âme contenu dans la pierre.
+« L'âme est le Dao, le Dao est l'âme; utiliser le Dao pour sonder le destin... » Lorsque le sens divin de Wang Lin pénétra dans le jade, une voix ancienne résonna dans son esprit. Cette voix portait une force étrange qui permit à Wang Lin de s'immerger totalement dans le Dao de la Déduction de l'Âme contenu dans la pierre.
 
 Le temps passa lentement. En un clin d'œil, une journée s'écoula.
 
@@ -42,11 +42,11 @@ Dans la grotte, Wang Lin ouvrit les yeux. Il contempla le jade dans sa main et r
 
 « 4,9 milliards d'inscriptions... Chaque inscription doit être gravée dans l'âme après un certain laps de temps... 100 000 pour une petite maîtrise, 2,7 milliards pour un niveau intermédiaire, et 4,9 milliards pour la maîtrise totale... »
 
-« Ce sort est très étrange. Il est facile à apprendre, mais progresser devient extrêmement ardu. Plus on s'avance dans ce sort, plus les inscriptions deviennent complexes et plus leur gravure dans l'âme est longue! Est-ce cela le Dao de l'Œil de l'Âme de la Secte Da Hun... » Wang Lin songea avec une expression troublée.
+« Ce sort est très étrange. Il est facile à apprendre, mais progresser devient extrêmement ardu. Plus on s'avance dans ce sort, plus les inscriptions deviennent complexes et plus leur gravure dans l'âme est longue! Est-ce cela le Dao de la Déduction de l'Âme de la Secte Da Hun... » Wang Lin songea avec une expression troublée.
 
 « Selon les indications du jade, ce sort ne demande que trois jours d'apprentissage au début. En trois jours, pour peu que la culture ait atteint la troisième étape, neuf personnes sur dix peuvent graver 100 000 inscriptions dans leur âme... »
 
-« Mais pour atteindre le niveau intermédiaire, il faudrait 999 ans... et il faudrait passer tout ce temps en culture fermée... Cela reste possible; il n'est pas rare qu'un cultivateur s'isole pendant mille ans. Cependant, pour atteindre la maîtrise totale avec 4,9 milliards d'inscriptions, il faudrait près de 178 000 ans. Cela... » Wang Lin fronça les sourcils. Il comprenait vaguement pourquoi l'Ancien Qing Niu lui avait donné si décontractément ce Dao de l'Œil de l'Âme qui semblait pourtant si précieux.
+« Mais pour atteindre le niveau intermédiaire, il faudrait 999 ans... et il faudrait passer tout ce temps en culture fermée... Cela reste possible; il n'est pas rare qu'un cultivateur s'isole pendant mille ans. Cependant, pour atteindre la maîtrise totale avec 4,9 milliards d'inscriptions, il faudrait près de 178 000 ans. Cela... » Wang Lin fronça les sourcils. Il comprenait vaguement pourquoi l'Ancien Qing Niu lui avait donné si décontractément ce Dao de la Déduction de l'Âme qui semblait pourtant si précieux.
 
 Il était tout simplement impossible de maîtriser ce sort! Au mieux, on ne pouvait atteindre que le stade intermédiaire!
 
@@ -84,7 +84,7 @@ Cette personne était lui-même!!
 
 « Qui osera m'opprimer sous une montagne de tonnerre dans le futur? » L'expression de Wang Lin était farouche. Alors que tout s'écroulait, il força son sens divin à rester en place. Il leva les yeux vers la silhouette sur le chariot de tonnerre, déterminé à saisir ses traits!
 
-« Dao de l'Œil de l'Âme, encore une fois! » Bien qu'il ne voie rien clairement, comment Wang Lin pouvait-il abandonner maintenant? Lorsqu'il envoya l'ordre, la petite personne dans sa main trembla et s'inclina pour la quatrième fois.
+« Dao de la Déduction de l'Âme, encore une fois! » Bien qu'il ne voie rien clairement, comment Wang Lin pouvait-il abandonner maintenant? Lorsqu'il envoya l'ordre, la petite personne dans sa main trembla et s'inclina pour la quatrième fois.
 
 Un éclair colossal sembla illuminer le monde entier. Cela permit à Wang Lin de voir distinctement la silhouette sur le chariot!
 
@@ -96,9 +96,9 @@ Après une longue réflexion, Wang Lin ne parvenait toujours pas à oublier le v
 
 « Impossible... Comment est-ce possible... » Les yeux de Wang Lin étaient empreints de confusion. Après un long moment, il referma sa main. La petite silhouette retourna dans son âme pour y être nourrie.
 
-« Cette affaire est trop étrange... Cependant, ce Dao de l'Œil de l'Âme peut effectivement percevoir les changements du futur. Une fois que ce petit être de l'âme se sera reposé quelque temps, je pourrai peut-être l'utiliser pour retrouver Situ, Qing Shui, Li Qianmei et les autres... » Wang Lin songea tout en réprimant le choc dans son cœur. Fort de sa culture et de ses expériences, il était capable de maîtriser même des événements cataclysmiques pour retrouver son calme.
+« Cette affaire est trop étrange... Cependant, ce Dao de la Déduction de l'Âme peut effectivement percevoir les changements du futur. Une fois que ce petit être de l'âme se sera reposé quelque temps, je pourrai peut-être l'utiliser pour retrouver Situ, Qing Shui, Li Qianmei et les autres... » Wang Lin songea tout en réprimant le choc dans son cœur. Fort de sa culture et de ses expériences, il était capable de maîtriser même des événements cataclysmiques pour retrouver son calme.
 
-« Trois jours se sont écoulés... Je me demande ce que l'Ancien Qing Niu a préparé pour moi... Il a aussi dit que je pouvais entrer dans le Pavillon Cang Hun pour choisir un sort... » Les yeux de Wang Lin s'illuminèrent. Il songea à l'illusion multicouche de la Secte Da Hun, ainsi qu'au sort qu'Yan Luan avait utilisé pour invoquer l'âme de l'ancêtre de la secte.
+« Trois jours se sont écoulés... Je me demande quels sont les trois présents que l'Ancien Qing Niu a préparés pour moi... Il a aussi dit que je pouvais entrer dans le Pavillon Cang Hun pour choisir un sort... » Les yeux de Wang Lin s'illuminèrent. Il songea à l'illusion multicouche de la Secte Da Hun, ainsi qu'au sort qu'Yan Luan avait utilisé pour invoquer l'âme de l'ancêtre de la secte.
 
 Après avoir mûri sa décision, Wang Lin sortit de la grotte. Il se tint sur la montagne et vit immédiatement Fan Shanmeng, qui paraissait extrêmement affaiblie.
 

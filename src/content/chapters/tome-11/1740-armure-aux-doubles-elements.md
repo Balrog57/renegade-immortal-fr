@@ -22,11 +22,11 @@ Une pression émanant d'un cultivateur au stade intermédiaire du Vide Arcanique
 
 Une fois sorti, il agita la main droite vers la tour, faisant apparaître un écran de lumière protecteur autour de celle-ci. Il était extrêmement solide; il serait difficile de le briser rapidement!
 
-« S'introduire sur la Planète des Cinq Éléments et inverser la Roue du Cœur... Tu as du cran, gamin. Puisque tu es venu aujourd'hui, ne repars pas si vite. Je vais te faire comprendre qu'il y a des lieux où ton clan du Dao Antique ne peut pas pénétrer! » Le vieil homme fixa Wang Lin d'un regard glacial.
+« S'introduire sur la Planète des Cinq Éléments et inverser la Roue du Cœur... Tu as du cran, gamin. Puisque tu es venu aujourd'hui, ne repars pas si vite. Je vais te faire comprendre qu'il y a des lieux où ton clan Dao Gu ne peut pas pénétrer! » Le vieil homme fixa Wang Lin d'un regard glacial.
 
-« Je te capturerai, puis je laisserai l'un de tes aînés venir assumer tes péchés! » Il ignorait que Wang Lin provenait du Monde des Grottes. Après avoir constaté la puissance du Dao Antique de Wang Lin, il supposa que celui-ci venait également du Continent Xian Gang, tout comme eux!
+« Je te capturerai, puis je laisserai l'un de tes aînés venir assumer tes péchés! » Il ignorait que Wang Lin provenait du Monde des Grottes. Après avoir constaté la puissance du Dao Gu de Wang Lin, il supposa que celui-ci venait également du Continent Xian Gang, tout comme eux!
 
-Il ne pensait pas que Wang Lin soit venu seul; d'autres membres du clan du Dao Antique étaient probablement présents. Il était fort probable qu'ils ne fussent pas là pour le trésor, mais pour trouver Ye Mo!
+Il ne pensait pas que Wang Lin soit venu seul; d'autres membres du clan Dao Gu étaient probablement présents. Il était fort probable qu'ils ne fussent pas là pour le trésor, mais pour trouver Ye Mo!
 
 Le vieil homme avait déduit tout cela de lui-même, et il était convaincu d'avoir raison huit ou neuf fois sur dix. Après avoir parlé, il chargea en avant et agita sa main droite. Des bruits de craquements jaillirent de l'ombre du géant arbre. L'arbre se tordit et se rétracta jusqu'à devenir une masse de lumière verte dans la main du vieil homme.
 
@@ -78,9 +78,9 @@ La lumière dorée et la lueur verte se mêlèrent dans un fracas assourdissant.
 
 Cependant, il n'était qu'un simple cultivateur!
 
-Wang Lin possédait le lignage du Dao Antique, et rien au monde ne présentait un corps plus puissant que celui des Anciens. Non seulement Wang Lin portait ce sang, mais son avatar possédait également sept essences.
+Wang Lin possédait le lignage du Dao Gu, et rien au monde ne présentait un corps plus puissant que celui des Anciens. Non seulement Wang Lin portait ce sang, mais son avatar possédait également sept essences.
 
-Ses essences jaillirent et s'engouffrèrent dans son bras droit, fusionnant avec son pouvoir du Dao Antique. Conjugué au fait que la main droite de Wang Lin appartenait à Ye Mo, la puissance de cette fusion atteignit un degré terrifiant. Bien que le vieil homme fût au stade intermédiaire du Vide Arcanique et que ses techniques surpassent celles de Wang Lin, comparer sa force à celle de Wang Lin était tout simplement dérisoire!
+Ses essences jaillirent et s'engouffrèrent dans son bras droit, fusionnant avec son pouvoir du Dao Gu. Conjugué au fait que la main droite de Wang Lin appartenait à Ye Mo, la puissance de cette fusion atteignit un degré terrifiant. Bien que le vieil homme fût au stade intermédiaire du Vide Arcanique et que ses techniques surpassent celles de Wang Lin, comparer sa force à celle de Wang Lin était tout simplement dérisoire!
 
 D'une seule traction, le monde trembla et les deux fouets émirent des sons stridents, comme s'ils allaient rompre. En un instant, le fouet fut arraché des mains du vieil homme, lui laissant une marque sanglante sur la paume!
 
@@ -128,7 +128,7 @@ Le corps de Wang Lin fut percuté par les forces des éléments bois et terre. L
 
 Dès que les deux essences atteignirent leur cible, Wang Lin s'en servit pour s'élancer tel une flèche. Il perça la tempête de sable et jaillit au loin!
 
-Sa vitesse était prodigieuse. En plus de son propre Dao Antique et de sa culture, il avait utilisé l'attaque de l'ancien à pleine puissance. Sans son Sort de l'Ancien Immortel, même avec son corps de Dao Antique actuel, il aurait péri!
+Sa vitesse était prodigieuse. En plus de son propre Dao Gu et de sa culture, il avait utilisé l'attaque de l'ancien à pleine puissance. Sans son Sort de l'Ancien Immortel, même avec son corps de Dao Gu actuel, il aurait péri!
 
 Cependant, grâce à la protection du Sort de l'Ancien Immortel, tant que la durée ne se prolongeait pas trop, son corps ne serait pas détruit!
 
@@ -194,7 +194,7 @@ C'était le vieil homme du deuxième étage. Il était sorti pour capturer l'ép
 
 « Salutations, Oncle Ma. » Le fier Yun Yifeng était lui aussi sous le choc. Ses yeux brillaient d'une révérence fiévreuse tandis qu'il saluait respectueusement.
 
-« Salutations, Senior frère Ma. » Les trois autres personnes, immobilisées par l'explosion de l'Ombre du Dao Antique, joignirent également les mains avec déférence.
+« Salutations, Senior frère Ma. » Les trois autres personnes, immobilisées par l'explosion de l'Ombre du Dao Gu, joignirent également les mains avec déférence.
 
 Wang Lin, reculant dans la distance, observa la scène. Il comprit qu'il avait forcé tous les cultivateurs étrangers à se dévoiler. Cet homme nommé Ma ressemblerait exactement à Na Duo s'il était plus jeune. Il était évident qu'il s'agissait de l'individu aperçu au sein du Clan Shan Lei; il était le chef de ce groupe de cultivateurs étrangers!
 

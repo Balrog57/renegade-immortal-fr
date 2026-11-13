@@ -82,7 +82,7 @@ Le dragon gris se rapprochait. Sans hésiter, Wang Lin fit un pas en avant et po
 
 Ils entrèrent en collision instantanément dans un fracas de tonnerre. Le dragon gris se tordait, s'entrelaçant avec les treize dragons noirs. Les rugissements ébranlaient le ciel et la terre.
 
-Sous l'impact, les longs cheveux de Wang Lin fouettèrent l'air et il recula de plusieurs pieds. Le visage pâle, il leva son poing droit. Au lieu d'attaquer de front, il pivota pour lancer un coup de poing dans son dos.
+Sous l'impact, les longs cheveux de Wang Lin fouettèrent l'air et il recula de plusieurs dizaines de pieds. Le visage pâle, il leva son poing droit. Au lieu d'attaquer de front, il pivota pour lancer un coup de poing dans son dos.
 
 Au moment même de ce mouvement, une ondulation résonna et une vieille femme à la silhouette floue apparut. L'expression de la vieille femme était sombre alors qu'elle levait sa main droite desséchée pour viser le dos de Wang Lin.
 

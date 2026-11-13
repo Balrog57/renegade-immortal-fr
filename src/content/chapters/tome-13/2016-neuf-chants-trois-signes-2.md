@@ -60,7 +60,7 @@ Face à cette aura, l'expression de Xuan Luo devint complexe.
 
 « Parmi les neuf chants et trois signes, les yeux argentés sont le point commun. Les neuf chants de l'Ancêtre peuvent rendre les yeux d'un homme argentés, et le deuxième des trois signes est précisément ces yeux... »
 
-Les quatre hommes en robes grises sur les piliers détournèrent le regard du ciel pour fixer à nouveau Wang Lin. Ils contemplèrent ses yeux argentés avec confusion. Cette perplexité laissait transparaître un vide, comme si leurs esprits mêmes étaient captés! C'était comme s'ils subissaient une étrange attraction vers ces yeux de métal précieux!
+Les quatre hommes en robes grises sur les piliers détournèrent le regard du ciel pour fixer à nouveau Wang Lin. Ils contemplèrent ses yeux argentés avec confusion. Cette perplexité laissait transparaître un vide, comme si leurs esprits mêmes étaient captés! C'était comme s'ils subissaient une étrange attraction vers ces yeux argentés!
 
 Quant à la silhouette dans la brume, après une longue réflexion, il prononça des paroles qui résonnèrent dans le monde entier:
 

@@ -96,4 +96,4 @@ Dans la capitale impériale du Continent Central des Célestes se dressait un pa
 
 Dans la grande salle trônait un immense siège de dragon sur lequel siégeait un homme d'âge moyen vêtu d'une robe impériale aux neuf dragons. Cet homme avait les yeux clos, comme plongé dans un rêve léthargique, mais il finit par les ouvrir. Ses pupilles brillaient comme des soleils et l'aura de son sang noble se propagea, dégageant une pression inimaginable.
 
-« L'enseignant impérial a prédit que la disparition de Dao Fei ne serait pas fatale et qu'elle apporterait la fortune... Désormais, son aura est apparue dans le Cimetière Gu Shen, ramenons-le donc... Tiens, il y a une femme à ses côtés... » Les yeux de l'homme en robe impériale brillèrent et sa main droite s'élança vers le vide devant lui.
+« L'enseignant impérial a prédit que la disparition de Dao Fei ne serait pas fatale et qu'elle apporterait la fortune... Désormais, son aura est apparue dans le Vide de l'Enterrement Divin, ramenons-le donc... Tiens, il y a une femme à ses côtés... » Les yeux de l'homme en robe impériale brillèrent et sa main droite s'élança vers le vide devant lui.

@@ -107,7 +107,7 @@ Tandis que Wang Lin fusionnait ses essences en contemplant les trois dernières,
 
 Si le Continent Xian Gang était le monde, alors il existait un vide semblable à l'espace au-delà de ce monde.
 
-Dans un lieu extrêmement éloigné du Continent Xian Gang se trouvait un autre continent. Ce dernier ne pouvait rivaliser avec le Continent Astral; il ne faisait même pas un dixième de sa taille et n'abritait aucune trace de vie.
+Dans un lieu extrêmement éloigné du Continent Xian Gang se trouvait un autre continent. Ce dernier ne pouvait rivaliser avec le Continent Xian Gang; il ne faisait même pas un dixième de sa taille et n'abritait aucune trace de vie.
 
 On n'y voyait que des ruines de mort. C'était comme si une multitude d'êtres y avaient vécu, avant de périr tous dans une catastrophe.
 

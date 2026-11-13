@@ -76,9 +76,9 @@ Jusqu'au jour où une voix lugubre résonna à l'extérieur de la grotte. Cette 
 
 Le vieil homme ne reconnut pas cette voix, mais elle dégageait une pression écrasante. Son esprit trembla et il ouvrit les yeux. Ce qu'il entendit ensuite lui glaça le sang!
 
-« Ancien Ye Mo. Je vous ai invité ici, mais vous parlez de piège. Que ce soit un piège ou non, vous le saurez quand vous le verrez! »
+« Dao Gu Ye Mo. Je vous ai invité ici, mais vous parlez de piège. Que ce soit un piège ou non, vous le saurez quand vous le verrez! »
 
-Le vieil homme connaissait très bien ce nom. En tant que souverain du Pays Antique, l'Ancien Ye Mo était extrêmement célèbre!
+Le vieil homme connaissait très bien ce nom. En tant que souverain du Pays Antique, Dao Gu Ye Mo était extrêmement célèbre!
 
 La suite fut une rupture dans la mémoire; Wang Lin ne put voir ce qui suivit. Ce qu'il vit fut le dernier fragment de souvenir.
 
@@ -96,7 +96,7 @@ Wang Lin ouvrit brusquement les yeux. Le cristal de mémoire qu'il pressait cont
 
 Tout en réfléchissant, l'expression de Wang Lin se fit sombre. Ces souvenirs avaient résolu bien des questions, mais en avaient soulevé de nouvelles.
 
-« Je connais l'Ancien Ye Mo et j'avais déjà quelques spéculations sur l'arrivée du fou... De plus, la femme en argent a affirmé que ce n'était pas elle qui avait ouvert la porte. Cette porte pourrait-elle être celle par laquelle le fou est entré... »
+« Je connais Dao Gu Ye Mo et j'avais déjà quelques spéculations sur l'arrivée du fou... De plus, la femme en argent a affirmé que ce n'était pas elle qui avait ouvert la porte. Cette porte pourrait-elle être celle par laquelle le fou est entré... »
 
 « Le résultat de cette guerre fut la perte de raison et la démence du fou... Le Royaume Céleste Antique devint une ruine, et les vestiges de la Secte Qi Dao se sont tous retirés en culture isolée. »
 

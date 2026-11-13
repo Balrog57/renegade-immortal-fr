@@ -34,7 +34,7 @@ Wang Lin reconnut très bien l'une de ces quatre auras; elle provenait de Suzaku
 
 Cette aura ressemblait à celle de l'ancêtre de Suzaku. Wang Lin avait éprouvé la même sensation lorsqu'il avait vu la première génération de Suzaku dans les Terres Déchues.
 
-« Oiseau Vermillon... » Les yeux de Wang Lin se rétrécirent. L'aura de l'une des statues était presque identique à celle de la première génération de Suzaku des Terres Déchues. Il était évident que l'une de ces deux auras appartenait à un avatar!
+« Suzaku... » Les yeux de Wang Lin se rétrécirent. L'aura de l'une des statues était presque identique à celle de la première génération de Suzaku des Terres Déchues. Il était évident que l'une de ces deux auras appartenait à un avatar!
 
 « Général de Suzaku du Souverain Céleste aux Sept Couleurs, viens me voir! » Wang Lin s'arrêta et flotta dans les airs en prononçant ces mots. Sa voix était calme et se propagea dans toutes les directions.
 
@@ -76,7 +76,7 @@ Cependant, il n'aurait jamais pu imaginer que Wang Lin parviendrait réellement 
 
 C'est ce qui provoqua la peur du Tigre Blanc. C'est aussi cela qui fit naître une terreur indicible dans son cœur.
 
-Wang Lin ne prêta plus attention au vieil homme. Son regard se tourna vers le vortex entre les sourcils de la seconde statue. Il dit lentement: « Oiseau Vermillon, sors me voir. »
+Wang Lin ne prêta plus attention au vieil homme. Son regard se tourna vers le vortex entre les sourcils de la seconde statue. Il dit lentement: « Suzaku, sors me voir. »
 
 « C'est la dernière fois que je le demande. Ne m'oblige pas à vous tuer et à fouiller votre âme! » Wang Lin resta là, imperturbable, les yeux fixés sur le ciel.
 

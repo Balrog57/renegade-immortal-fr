@@ -22,13 +22,13 @@ Des ondulations résonnèrent sous ses pieds et il disparut en un éclair.
 
 La jeune femme fonçait, protégée par le visage fantomatique qui lui permettait de se déplacer très rapidement. Alors qu'elle avançait, elle fut soudainement saisie d'un pressentiment inexplicable et s'écarta sans hésiter. En un instant, un rayon de lumière sanguine fila près d'elle et transperça le visage fantomatique. L'éclair l'effleura et vint percuter la veine de feu terrestre devant elle. C'était une épée de sang!
 
-Cette épée dégageait une intention meurtrière monstrueuse et contenait un soupçon de l'aura de l'Ancien Dao!
+Cette épée dégageait une intention meurtrière monstrueuse et contenait un soupçon de l'aura de Dao Gu!
 
 En voyant cette épée, l'expression de la jeune femme changea radicalement!
 
-« L'Épée du Massacre Sanguin, l'une des sept épées de l'Ancien Dao! Tu n'es pas un cultivateur!! » La jeune femme se retourna et vit l'épée de sang briller une fois de plus. Des ondulations résonnèrent là où l'arme s'était dirigée, et Wang Lin en sortit.
+« L'Épée du Massacre Sanguin, l'une des sept épées de Dao Gu! Tu n'es pas un cultivateur!! » La jeune femme se retourna et vit l'épée de sang briller une fois de plus. Des ondulations résonnèrent là où l'arme s'était dirigée, et Wang Lin en sortit.
 
-« L'Épée du Massacre Sanguin... » Les yeux de Wang Lin brillèrent. Il avait obtenu l'héritage de Ye Mo, mais comme il lui manquait l'œil gauche, ses souvenirs étaient incomplets. Il savait seulement que l'empereur de l'Ancien Dao avait confié cette épée à Ye Mo, mais il n'en connaissait pas le nom.
+« L'Épée du Massacre Sanguin... » Les yeux de Wang Lin brillèrent. Il avait obtenu l'héritage de Ye Mo, mais comme il lui manquait l'œil gauche, ses souvenirs étaient incomplets. Il savait seulement que l'empereur de Dao Gu avait confié cette épée à Ye Mo, mais il n'en connaissait pas le nom.
 
 Après être apparu, Wang Lin ne parla pas, mais pointa le ciel du doigt. Des éclats de lumière aux sept couleurs jaillirent au-dessus de lui et convergèrent pour former une lance septicolore.
 
@@ -58,7 +58,7 @@ La jeune femme resta immobile, plongée dans une réflexion silencieuse.
 
 Après un long moment, la froideur reprit place dans son regard.
 
-« Et alors, s'il possède un trésor offert par un Grand Empyréen? Cet homme détient l'épée de sang appartenant au clan de l'Ancien Dao. Il est évident qui est ce Grand Empyréen! »
+« Et alors, s'il possède un trésor offert par un Grand Empyréen? Cet homme détient l'épée de sang appartenant à la lignée de Dao Gu. Il est évident qui est ce Grand Empyréen! »
 
 « Même si les Grands Empyréens des anciens pays sont puissants, ils ne peuvent pas nous contrôler, nous les Célestes! Même si je me suis trompée et que le Grand Empyréen derrière lui est un Céleste, il a osé s'en prendre à la veine de feu principale de la Secte Da Hun; il est donc normal que je le poursuive et j'ai raison de le faire. De plus, je ne cherche pas à le tuer, je cherche simplement à l'arrêter... Même les Grands Empyréens ne peuvent être aussi déraisonnables! » murmura-t-elle en levant la tête pour charger à nouveau vers la veine de feu principale.
 

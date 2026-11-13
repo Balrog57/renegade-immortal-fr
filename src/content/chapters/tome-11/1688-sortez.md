@@ -54,7 +54,7 @@ Ces dizaines de Célestes connaissaient parfaitement cette aura. À son appariti
 
 Le firmament se distordit et une silhouette blanche apparut. Cette silhouette était celle de Wang Lin! Ce jade contenait un fragment de son Sens Divin. Bien qu'il ne s'agisse que d'une illusion, son regard glacial se propagea.
 
-« Oiseau Vermillon, Tortue Noire, Dragon Azure, Tigre Blanc... est-ce là votre prétendu accord? » Les yeux de Wang Lin fixaient froidement les dizaines de Célestes avant qu'il n'agite ses manches.
+« Suzaku, Tortue Noire, Dragon Azure, Tigre Blanc... est-ce là votre prétendu accord? » Les yeux de Wang Lin fixaient froidement les dizaines de Célestes avant qu'il n'agite ses manches.
 
 « Sortez d'ici immédiatement! » rugit-il.
 

@@ -1,6 +1,6 @@
 ---
 n: 1392
-title: "L'Oiseau Vermillon de la Sixième Génération"
+title: "Le Suzaku de la Sixième Génération"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1392 - Sixth Generation Vermillion Bird

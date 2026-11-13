@@ -52,7 +52,7 @@ Cependant, au moment même de leur arrivée, Wang Lin se leva. Si Song Tian et l
 
 En voyant cela, Song Tian et le Grand Empyréen Ancien Ji furent stupéfaits. Ils avaient vu trop de relations maître-disciple où le disciple finissait par trahir son mentor. Trop de fois, le disciple devenait plus puissant et cessait de respecter son maître; même quand il le faisait, ce n'était qu'en apparence.
 
-Pourtant, la sincérité de Wang Lin était palpable pour eux deux. En tant qu'être le plus puissant du Continent Xian Gang, il était normal que Xuan Luo s'incline devant Wang Lin. De toute façon, ils avaient rompu leur lien maître-disciple au palais Dao Ancien.
+Pourtant, la sincérité de Wang Lin était palpable pour eux deux. En tant qu'être le plus puissant du Continent Xian Gang, il était normal que Xuan Luo s'incline devant Wang Lin. De toute façon, ils avaient rompu leur lien maître-disciple au palais de Dao Gu.
 
 Wang Lin regarda Xuan Luo, son maître, qui paraissait vieilli. Comment pourrait-il demander à son maître de s'incliner devant lui? Même s'il était le plus fort du Continent Xian Gang et qu'il pourrait l'être encore davantage à l'avenir, il ne pouvait se montrer ingrat.
 

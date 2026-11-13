@@ -24,7 +24,7 @@ Sa ville natale et son maître lui manquaient. Elle voulait quitter ce monde cav
 
 Tout en hésitant, elle mordit sa lèvre inférieure et disparut.
 
-Outre l'allumage de l'encens, il y avait aussi le jade. Dès l'instant où le jade se brisa, le Général Dragon Azure, le Général Tortue Noire et le Général Oiseau Vermillon détectèrent le signal et suivirent le message.
+Outre l'allumage de l'encens, il y avait aussi le jade. Dès l'instant où le jade se brisa, le Général Dragon Azure, le Général Tortue Noire et le Général Suzaku détectèrent le signal et suivirent le message.
 
 Il y avait aussi le Vieux Fantôme Zhan qui suivait le groupe de cultivateurs, le doute grandissant dans son cœur. Au moment où le jade vola en éclats, son expression devint immédiatement sombre et il regarda en arrière. Ses yeux révélèrent une intention meurtrière et il fit brusquement demi-tour.
 
@@ -44,7 +44,7 @@ Après un long moment, de nombreux vortex apparurent dans ce monde. Une foule de
 
 À l'exception du Tigre Blanc, les trois autres généraux firent leur apparition. La sixième et la troisième concubine arrivèrent également. Tous les disciples de la Secte Qi Dao furent là, menés par un vieil homme vêtu d'une robe bleue grossière.
 
-Le Souverain et le Maître Dao Bleu Rêve apparurent dans ce monde, tous deux l'air épuisé. Ils se regardèrent avec froideur; il était évident qu'ils s'étaient affrontés au sein des 300 mondes détruits.
+Le Souverain et Lanmeng Daozun apparurent dans ce monde, tous deux l'air épuisé. Ils se regardèrent avec froideur; il était évident qu'ils s'étaient affrontés au sein des 300 mondes détruits.
 
 De nombreux cultivateurs arrivèrent dans ce monde, mais aucun ne s'approcha de la planète où se trouvait Wang Lin, bien qu'ils aient clairement ressenti son aura dès leur arrivée.
 
@@ -96,9 +96,9 @@ Les baleines de l'ombrelle, jusque-là invisibles, réapparurent, et le manche, 
 
 La toile de l'ombrelle couvrit le ciel et bloqua toute voie de retraite!
 
-Le Maître Dao Bleu Rêve fut expulsé par la force de l'Ombrelle Brûlante du Royaume. C'était comme si tous ceux qui n'avaient pas leur place dans ce carnage étaient rejetés à l'extérieur.
+Lanmeng Daozun fut expulsé par la force de l'Ombrelle Brûlante du Royaume. C'était comme si tous ceux qui n'avaient pas leur place dans ce carnage étaient rejetés à l'extérieur.
 
-Après tout, dans le massacre qui allait suivre, Wang Lin n'avait pas le temps de se soucier du Maître Dao Bleu Rêve; il choisit donc de l'écarter.
+Après tout, dans le massacre qui allait suivre, Wang Lin n'avait pas le temps de se soucier de Lanmeng Daozun; il choisit donc de l'écarter.
 
 Des grondements de tonnerre éclatèrent et les expressions de tous ceux que l'Ombrelle Brûlante du Royaume bloquait changèrent radicalement. Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan furent tout aussi stupéfaits, mais ils n'eurent guère le temps de réfléchir. Le feu monstrueux qui couvrait le ciel se précipita sur eux.
 

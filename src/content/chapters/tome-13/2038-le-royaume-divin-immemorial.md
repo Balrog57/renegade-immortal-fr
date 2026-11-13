@@ -44,7 +44,7 @@ Ces âmes se transformèrent en un gaz noir et jaillirent de la formation. Elles
 
 L'illusion ressemblait à une image reflétant les terres du clan céleste!
 
-Sur les terres du clan céleste, sur le Continent Mer et Montagne, quelques cultivateurs éparpillés contemplaient la mer avec stupeur. Le niveau de l'océan sembla chuter, puis un immense pilier noir, large de cent mille pieds et d'une longueur insondable, jaillit soudainement des profondeurs. Il s'élança vers le ciel avant de disparaître.
+Sur les terres du clan céleste, sur le Continent Shan Hai, quelques cultivateurs éparpillés contemplaient la mer avec stupeur. Le niveau de l'océan sembla chuter, puis un immense pilier noir, large de cent mille pieds et d'une longueur insondable, jaillit soudainement des profondeurs. Il s'élança vers le ciel avant de disparaître.
 
 Wang Lin vit la scène à l'intérieur du vortex. Il ne comprit pas sa signification, mais il sentit ses cheveux se hérisser, comme si une chose capable de bouleverser tout le Continent Xian Gang venait d'apparaître!
 

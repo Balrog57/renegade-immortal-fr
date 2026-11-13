@@ -80,7 +80,7 @@ Dans les terres du Ji Antique, la pluie tombait, mais soudain, même les gouttes
 
 Il en fut de même pour le clan Céleste. Le groupe de trois de Jiu Di, Shuangzi, l'Empereur Céleste et d'innombrables cultivateurs, mortels et bêtes célestes cessèrent tout mouvement. Les cinq éléments du monde, toutes les lois de l'univers, tout s'arrêta complètement.
 
-Le continent Astral Immortel tout entier plongea dans le silence.
+Le Continent Xian Gang tout entier plongea dans le silence.
 
 Seule la porte formée par les neuf piliers au centre du bassin continuait de s'ouvrir lentement. Une fois pleinement déployée, une lumière aux neuf couleurs en émana, révélant un passage vers un lieu inconnu.
 
@@ -90,11 +90,11 @@ Les yeux de Gu Dao s'illuminèrent et il n'hésita pas une seconde. Il s'élanç
 
 À cet instant, Wang Lin était le seul encore debout devant la porte. Il ferma les yeux et, lorsqu'il les rouvrit, il marcha vers l'ouverture. Il franchit le seuil pas à pas.
 
-Une fois que Wang Lin eut pénétré dans le Royaume Divin Immémorial, tout sur le continent Astral Immortel retrouva son cours normal. Le plus étrange était que presque personne n'avait perçu ce moment où tout s'était figé. Les cultivateurs ne l'avaient pas remarqué, les membres du clan Antique non plus, et même les Grands Empyréens n'avaient pas réalisé qu'ils avaient perdu environ dix respirations de temps.
+Une fois que Wang Lin eut pénétré dans le Royaume Divin Immémorial, tout sur le Continent Xian Gang retrouva son cours normal. Le plus étrange était que presque personne n'avait perçu ce moment où tout s'était figé. Les cultivateurs ne l'avaient pas remarqué, les membres du clan Antique non plus, et même les Grands Empyréens n'avaient pas réalisé qu'ils avaient perdu environ dix respirations de temps.
 
 Ces dix respirations avaient été arrachées au ciel et à la terre, aux cinq éléments, à chaque mortel, à chaque cultivateur, à chaque membre du clan Antique et aux huit Grands Empyréens. C'était comme si cette courte période avait été absorbée par une force mystérieuse pour disparaître dans la porte du Royaume Divin Immémorial.
 
-Lorsque le continent Astral Immortel reprit ses droits, les neuf piliers du bassin brillèrent intensément. La lumière obscurcit tout avant de s'évanouir sans laisser de trace. Avec eux disparut également la porte du Royaume Divin Immémorial.
+Lorsque le Continent Xian Gang reprit ses droits, les neuf piliers du bassin brillèrent intensément. La lumière obscurcit tout avant de s'évanouir sans laisser de trace. Avec eux disparut également la porte du Royaume Divin Immémorial.
 
 Une fois la porte disparue, le vortex résiduel gronda sans fin. L'océan infini qui avait été englouti se déversa à nouveau dans le bassin. L'eau retomba dans un fracas de tonnerre. Plusieurs heures plus tard, le vaste bassin redevint une mer infinie où les vagues s'entrechoquaient. Les grondements cessèrent, remplacés par le murmure régulier de l'océan.
 
@@ -110,7 +110,7 @@ C'était Song Zhi...
 
 Song Zhi n'était qu'un membre ordinaire du clan Antique; cinq cents ans étaient la limite de son existence.
 
-La vieille femme regarda la jeune fille qui avait grandi à ses côtés et murmura: « Je sais qu'il y a une histoire en toi... Je t'ai vue contempler le ciel d'un air absent et pleurer bien des fois... Je me souviens même que lorsque je te racontais ce qui s'était passé dans la cité impériale du Dao Antique, ou l'histoire de Wang Lin et Li Muwan, tu te forçais à sourire. »
+La vieille femme regarda la jeune fille qui avait grandi à ses côtés et murmura: « Je sais qu'il y a une histoire en toi... Je t'ai vue contempler le ciel d'un air absent et pleurer bien des fois... Je me souviens même que lorsque je te racontais ce qui s'était passé dans la cité impériale de Dao Gu, ou l'histoire de Wang Lin et Li Muwan, tu te forçais à sourire. »
 
 « Dong Mei... Promets-moi que si tu ne peux pas oublier, tu ne te forceras pas à souffrir. »
 

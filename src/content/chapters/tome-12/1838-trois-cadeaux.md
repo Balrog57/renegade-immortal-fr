@@ -42,7 +42,7 @@ Sans agir de manière imprudente, il mit la pierre de côté. Son regard se posa
 
 Fixant ce jade de brume, Wang Lin fronça les sourcils. Il tendit la main et le jade vola dans sa paume. À l'instant où il le toucha, cette voix antique réapparut dans son esprit.
 
-« Voici le deuxième cadeau que j'ai préparé pour toi... Ce jade a été formé par toute une vie de culture du Dao de l'Œil de l'Âme. Il peut te permettre de percevoir les changements du Continent Xian Gang une fois, ou bien diviner une chose pour toi... »
+« Voici le deuxième cadeau que j'ai préparé pour toi... Ce jade a été formé par toute une vie de culture du Dao de la Déduction de l'Âme. Il peut te permettre de percevoir les changements du Continent Xian Gang une fois, ou bien diviner une chose pour toi... »
 
 « Mais une seule fois... »
 

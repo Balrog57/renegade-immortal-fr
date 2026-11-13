@@ -16,7 +16,7 @@ Xuan Luo observa Wang Lin disparaître à travers l'interstice de la glace. Apr�
 
 « Cette bête semblable à un moustique... pourrait-elle être l'une des neuf créatures nées de la Loi du Continent Xian Gang en même temps que la race antique et la race céleste... Si c'est le cas, alors l'avenir de Wang Lin est devenu imprévisible... Il... il est probable qu'il devienne, par lui-même, le dixième soleil du Continent Xian Gang! »
 
-« S'il devient réellement le dixième Grand Empyréen, mon clan Dao Antique existera éternellement!! » Le visage de Xuan Luo devint légèrement rubicond. Il était stupéfait que ce moustique puisse absorber la Loi du Continent Xian Gang. À cet instant, d'innombrables pensées traversèrent son esprit.
+« S'il devient réellement le dixième Grand Empyréen, mon clan Dao Gu existera éternellement!! » Le visage de Xuan Luo devint légèrement rubicond. Il était stupéfait que ce moustique puisse absorber la Loi du Continent Xian Gang. À cet instant, d'innombrables pensées traversèrent son esprit.
 
 Après un long moment, Xuan Luo s'éloigna le long du chemin du dragon. Autour de son corps, un soleil de couleur sang apparut. Ce soleil rouge enveloppa les environs et résista à la Loi du Continent Xian Gang!
 
@@ -106,15 +106,15 @@ Il comprenait que tant qu'il resterait en vie, cette force ne pourrait pas bless
 
 Heureusement, il pouvait compter sur la bête-moustique. Elle maintenait une allure rapide. Si Wang Lin avait dû compter sur sa propre force pour combattre la pression tout en avançant, la tâche serait devenue insurmontable.
 
-Wang Lin luttait pour rejoindre le Continent Xian Gang. Sur ce continent, au cœur du clan Dao Antique, se trouvait la cité flottante. Au centre de la ville trônait le Palais Dao Antique, et un homme d'âge mûr vêtu d'une robe royale se tenait sur le plus haut pavillon, contemplant un ciel sombre qui semblait sur le point de pleuvoir.
+Wang Lin luttait pour rejoindre le Continent Xian Gang. Sur ce continent, au cœur du clan Dao Gu, se trouvait la cité flottante. Au centre de la ville trônait le Palais Dao Gu, et un homme d'âge mûr vêtu d'une robe royale se tenait sur le plus haut pavillon, contemplant un ciel sombre qui semblait sur le point de pleuvoir.
 
 Dans sa main se trouvait une perle émettant une lueur spectrale. Bien que l'intérieur de la perle soit trouble, il pouvait y voir l'ombre d'une âme féminine endormie.
 
 « Le Grand Empyréen est parti depuis bien longtemps... Hmph, dépenser tant d'efforts pour un simple cultivateur de monde de cavernes. La vieillesse l'a rendu sénile! »
 
-« Hormis Xuan Luo, le seul protecteur dont le clan Dao Antique a besoin est cet Empereur, et ce sera toujours moi à l'avenir! Je veux voir quel genre de personne ce vieux fou va ramener... Peu importe son statut, lorsqu'il verra cet Empereur, il devra s'agenouiller devant moi! »
+« Hormis Xuan Luo, le seul protecteur dont le clan Dao Gu a besoin est cet Empereur, et ce sera toujours moi à l'avenir! Je veux voir quel genre de personne ce vieux fou va ramener... Peu importe son statut, lorsqu'il verra cet Empereur, il devra s'agenouiller devant moi! »
 
-L'Empereur Dao Antique serra la perle dans sa main. Bien que la perle fût robuste, sa poigne était si forte que l'âme à l'intérieur trembla de peur.
+L'Empereur Dao Gu serra la perle dans sa main. Bien que la perle fût robuste, sa poigne était si forte que l'âme à l'intérieur trembla de peur.
 
 L'homme en robe royale leva la main et observa l'âme vacillante en murmurant: « Petite âme, pourquoi le Maître Impérial a-t-il dit que tu serais un élément essentiel pour que je règne sur le Continent Xian Gang... »
 

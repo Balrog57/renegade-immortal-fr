@@ -102,7 +102,7 @@ Trois ans, trois ans, quatre ans... La deuxième décennie s'écoula alors que l
 
 Cette guerre temporelle était silencieuse, sans l'ombre d'un conflit apparent, mais elle était saturée de danger. La lignée du vieil homme s'était préparée pendant des dizaines de milliers d'années pour ce moment. Ils ne pouvaient se permettre la défaite...
 
-Wang Lin non plus ne pouvait pas échouer. À présent, même ses os commençaient à faiblir. Si son corps n'avait pas été celui d'un Dao Ancien, il aurait été réduit à néant depuis plusieurs années.
+Wang Lin non plus ne pouvait pas échouer. À présent, même ses os commençaient à faiblir. Si son corps n'avait pas été celui d'un Dao Gu, il aurait été réduit à néant depuis plusieurs années.
 
 L'espace vert était désormais presque totalement recouvert de scorpions verts qui émettaient une lueur émeraude dans leurs mouvements.
 
@@ -114,7 +114,7 @@ Le temps peut parfois paraître d'une lenteur infinie, mais il s'écoule souvent
 
 En un éclair, 20 autres années passèrent. Wang Lin, qui ne restait presque jamais au même endroit, y resta 40 ans. Il avait également abandonné tout espoir pour son corps, et son âme originelle agissait comme si elle était morte.
 
-Même son corps de Dao Ancien montrait des signes de mort imminente après 40 ans.
+Même son corps de Dao Gu montrait des signes de mort imminente après 40 ans.
 
 Le vieil homme en vert attendait toujours. Durant ces 40 dernières années, hormis ses besoins vitaux, il avait passé tout son temps à scruter le miroir et à attendre silencieusement.
 

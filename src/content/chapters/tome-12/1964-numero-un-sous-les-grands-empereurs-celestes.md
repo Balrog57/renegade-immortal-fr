@@ -98,7 +98,7 @@ Continent Central, Montagne Di. Jiu Di contemplait intensément la feuille d'aut
 
 « Combien coûterait le recrutement d'un tel être? Je préférerais qu'il ne passe pas ce 17e palais. » Jiu Di médita et, pour la première fois, regarda la feuille avec une expression complexe.
 
-Dans l'Épreuve Empyrée, alors que tous les regards étaient rivés sur le 17e palais, certains attendaient avec impatience tandis que d'autres espéraient l'échec de Wang Lin après le passage d'une autre baguette d'encens.
+Dans l'Épreuve Empyrée, alors que tous les regards étaient rivés sur le 17e palais, certains attendaient avec impatience tandis que d'autres espéraient l'échec de Wang Lin après le passage d'un autre bâton d'encens.
 
 Après ce long silence sans aucun changement, le visage de Ming Dao n'était plus pâle; il était empreint d'espoir et de confiance. Cependant, juste au moment où son espoir atteignait son apogée et qu'il s'apprêtait à reprendre force, tout son corps trembla violemment, comme s'il avait été frappé par la foudre.
 

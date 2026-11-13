@@ -78,7 +78,7 @@ Ce n'est qu'en dévorant cette volonté et en devenant le seigneur du feu sur le
 
 « Cette fois, je dois réussir! »
 
-Le Sens Divin de Wang Lin se transforma en son corps d'essence au sein de la veine de feu. Bien que sa tête conservât celle d'un Oiseau Vermillon — ce qui paraissait singulier — l'essence et la volonté de feu qui s'en dégageaient étaient phénoménales.
+Le Sens Divin de Wang Lin se transforma en son corps d'essence au sein de la veine de feu. Bien que sa tête conservât celle de Suzaku — ce qui paraissait singulier — l'essence et la volonté de feu qui s'en dégageaient étaient phénoménales.
 
 Grâce à son Sens Divin, Wang Lin pouvait voir que la veine de feu principale était un dragon de feu sans fin reposant dans les profondeurs de la terre. Il dégageait une aura de décomposition antique, comme s'il existait depuis des éternités et qu'il constituait l'essence même de la veine.
 
@@ -94,7 +94,7 @@ Forger sa propre volonté de feu!
 
 Tandis qu'il dévorait, l'ensemble de la veine de feu principale trembla. Puis, une volonté de feu encore plus puissante surgit soudainement, comme pour broyer Wang Lin.
 
-Mais ce n'était pas le corps réel de Wang Lin, c'était son corps d'essence. Ainsi, loin de lui causer le moindre inconfort, cela lui permettait de dévorer davantage encore. Sa tête commença à montrer des signes de mutation. Son menton n'était plus celui d'un Oiseau Vermillon — on pouvait désormais distinguer sa peau!
+Mais ce n'était pas le corps réel de Wang Lin, c'était son corps d'essence. Ainsi, loin de lui causer le moindre inconfort, cela lui permettait de dévorer davantage encore. Sa tête commença à montrer des signes de mutation. Son menton n'était plus celui de Suzaku — on pouvait désormais distinguer sa peau!
 
 Ce changement galvanisa Wang Lin.
 

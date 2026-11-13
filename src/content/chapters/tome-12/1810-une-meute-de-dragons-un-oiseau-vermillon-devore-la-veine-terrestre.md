@@ -18,7 +18,7 @@ Du Qing la suivit dans les airs.
 
 « Avec ce trésor exotique de la Secte Da Hun, cet individu ne pourra pas s'échapper bien longtemps! »
 
-Un grondement de tonnerre résonna à travers la terre du Continent Tian Niu, puis un gigantesque Oiseau Vermillon couvert de flammes surgit. Le monde parut se distordre et la terre se dessécha, comme prête à s'effondrer.
+Un grondement de tonnerre résonna à travers la terre du Continent Tian Niu, puis un gigantesque Suzaku couvert de flammes surgit. Le monde parut se distordre et la terre se dessécha, comme prête à s'effondrer.
 
 Les cheveux blancs de Wang Lin flottaient alors qu'il se tenait sur la tête de Suzaku, les yeux brillant d'un éclat intense.
 
@@ -38,7 +38,7 @@ L'analyse était simple. Oser le poursuivre ainsi et sur une telle durée signif
 
 Les yeux de Wang Lin s'illuminèrent et Suzaku sous lui poussa un rugissement assourdissant. Plus il dévorait de veines de feu terrestre, plus Suzaku devenait rapide. Bien qu'il ne pût égaler le Roi des Moustiques, sa vitesse approchait celle de Wang Lin.
 
-L'Oiseau Vermillon laissa échapper un cri et disparut sans laisser de trace. Une demi-journée plus tard, un rayon de lumière se rapprocha et Du Qing apparut. Il poursuivait depuis quinze jours, se rapprochant sans cesse de Wang Lin, mais son humeur devenait de plus en plus sombre.
+Le Suzaku laissa échapper un cri et disparut sans laisser de trace. Une demi-journée plus tard, un rayon de lumière se rapprocha et Du Qing apparut. Il poursuivait depuis quinze jours, se rapprochant sans cesse de Wang Lin, mais son humeur devenait de plus en plus sombre.
 
 Durant cette quinzaine, il avait vu neuf veines de feu terrestre totalement desséchées. Ce sentiment d'incrédulité ne cessait de croître, le troublant profondément. Même ses convictions les plus ancrées commençaient à vaciller.
 
@@ -58,7 +58,7 @@ Deux heures plus tard, Du Qing atteignit la veine de feu terrestre que Wang Lin 
 
 Ce supplice n'affectait pas son corps, mais son esprit! Voir ces veines de feu terrestres se dessécher les unes après les autres suffisait à le rendre fou. Il aurait préféré ne jamais poursuivre Wang Lin, ou même endommager sa propre culture en l'affrontant, plutôt que de continuer à subir cette torture mentale.
 
-Quatre jours plus tard, dans une autre région du Continent Tian Niu, le rugissement d'un dragon s'estompa lentement. Un gigantesque Oiseau Vermillon jaillit des profondeurs de la terre.
+Quatre jours plus tard, dans une autre région du Continent Tian Niu, le rugissement d'un dragon s'estompa lentement. Un gigantesque Suzaku jaillit des profondeurs de la terre.
 
 Une heure plus tard, la silhouette de Du Qing réapparut. Il resta de longues minutes à fixer le sol, l'air abasourdi...
 
@@ -74,7 +74,7 @@ Ce cri était celui d'une âme de dragon de feu, et il différait de tous ceux q
 
 Ce n'était plus un simple cri d'âme, mais une âme si puissante qu'elle poussait un véritable rugissement!
 
-Après avoir dévoré tant de veines terrestres, c'était la première qu'il ne pouvait absorber, car elle abritait une âme aussi terrifiante! Un immense Oiseau Vermillon s'élança hors de la montagne et, sur sa tête, Wang Lin tourna soudainement le regard.
+Après avoir dévoré tant de veines terrestres, c'était la première qu'il ne pouvait absorber, car elle abritait une âme aussi terrifiante! Un immense Suzaku s'élança hors de la montagne et, sur sa tête, Wang Lin tourna soudainement le regard.
 
 Derrière lui, la montagne trembla et des centaines de milliers de pieds de chaînes montagneuses s'effondrèrent. Un dragon de feu dont la tête mesurait plusieurs centaines de milliers de pieds et dont le corps était d'une taille indéterminée chargea vers eux.
 
@@ -86,9 +86,9 @@ Une veine de feu principale pouvait posséder d'innombrables sous-branches. Cepe
 
 Une veine enfantée était, par essence, le rejeton de la veine principale. Hormis sa force, elle ne différait en rien de la veine mère!
 
-« Je me demande combien de veines enfantées parsèment le Continent Tian Niu... Cependant, il n'y en a probablement pas beaucoup. Dévorer une branche enfantée équivaut à dévorer une multitude de sous-branches. Puisque j'en ai trouvé une, je n'ai aucune raison de la laisser filer! » L'Oiseau Vermillon sous Wang Lin poussa un cri et pivota dans les airs pour charger l'âme du dragon de feu qui approchait.
+« Je me demande combien de veines enfantées parsèment le Continent Tian Niu... Cependant, il n'y en a probablement pas beaucoup. Dévorer une branche enfantée équivaut à dévorer une multitude de sous-branches. Puisque j'en ai trouvé une, je n'ai aucune raison de la laisser filer! » Le Suzaku sous Wang Lin poussa un cri et pivota dans les airs pour charger l'âme du dragon de feu qui approchait.
 
-L'âme du dragon était féroce; des quantités massives de flammes se répandirent, couvrant des dizaines de milliers de kilomètres à la ronde, englobant Wang Lin et son Oiseau Vermillon.
+L'âme du dragon était féroce; des quantités massives de flammes se répandirent, couvrant des dizaines de milliers de kilomètres à la ronde, englobant Wang Lin et son Suzaku.
 
 Les environs furent scellés par les flammes, et la fumée noire consuma tout l'air respirable. Simultanément, l'espace lui-même commença à se distordre, rendant tout flou.
 
@@ -110,7 +110,7 @@ Si cette essence s'était manifestée spontanément, c'était parce que ce rugis
 
 S'il s'était agi d'une veine ordinaire, elle n'aurait pas eu le pouvoir d'affecter l'essence de feu de Du Qing. Cependant, cette branche enfantée ne différant pas de la veine principale, elle put produire un tel effet.
 
-L'expression de Du Qing changea radicalement. Son regard se posa sur le nuage de flammes au loin. Il put contempler cette scène étrange: seize dragons de feu et un Oiseau Vermillon dévorant un dragon de feu dissimulé au cœur des flammes!
+L'expression de Du Qing changea radicalement. Son regard se posa sur le nuage de flammes au loin. Il put contempler cette scène étrange: seize dragons de feu et un Suzaku dévorant un dragon de feu dissimulé au cœur des flammes!
 
 Il y avait aussi une silhouette aux cheveux blancs debout sur la tête de Suzaku. Ses vêtements blancs étaient extrêmement frappants au milieu du brasier. Bien que Du Qing n'en vît que le dos, il eut l'illusion de contempler une montagne!
 

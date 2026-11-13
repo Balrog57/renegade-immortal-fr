@@ -58,9 +58,9 @@ Wang Lin réceptionna le sang et l'examina attentivement. Le regard de Yun Yifen
 
 Des grondements tonitruants éclatèrent. Cette lame semblait fendre les cieux, formant un rayon d'énergie tranchante. La puissance du monde entier semblait converger vers elle alors qu'elle fondait sur Wang Lin.
 
-Au moment où la lame descendit, Wang Lin fit un pas en avant avec un reniflement froid. Sa main droite se crispa en un poing, son pouvoir de Dao Antique se rassembla et il lança un coup de poing vers Yun Yifeng!
+Au moment où la lame descendit, Wang Lin fit un pas en avant avec un reniflement froid. Sa main droite se crispa en un poing, son pouvoir de Dao Gu se rassembla et il lança un coup de poing vers Yun Yifeng!
 
-Le monde changea de teinte sous l'impact, et la réalité entière se déforma comme si elle allait s'effondrer. L'ombre du Dao Antique apparut et percuta la lame!
+Le monde changea de teinte sous l'impact, et la réalité entière se déforma comme si elle allait s'effondrer. L'ombre de Dao Gu apparut et percuta la lame!
 
 En un instant, le choc eut lieu. La lame se brisa en d'innombrables fragments tandis que le coup de poing de Wang Lin se dissipait.
 
@@ -104,7 +104,7 @@ S'il avait tenté quoi que ce soit, Wang Lin l'aurait tué sans hésiter, même 
 
 Alors que ce combat touchait à sa fin, le brouillard autour de la montagne commença à bouger pour former une immense tête chauve. Un rugissement tonitruant retentit, et un vent violent se mit à hurler.
 
-Le corps de Wang Lin fut enveloppé par son aura de Dao Antique et il recula de mille pieds pour y résister. Tang Shan, témoin de la bataille, se retira rapidement aux côtés de Wang Lin.
+Le corps de Wang Lin fut enveloppé par son aura de Dao Gu et il recula de mille pieds pour y résister. Tang Shan, témoin de la bataille, se retira rapidement aux côtés de Wang Lin.
 
 Tandis que les grondements éclataient, le ciel au loin se déforma et une silhouette floue apparut.
 

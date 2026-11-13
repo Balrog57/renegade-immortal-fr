@@ -80,11 +80,11 @@ Le temps s'écoulait lentement. Peu après, alors qu'il ne restait plus que la m
 
 « Comment saviez-vous que je réapparaîtrais ici après mon départ? »
 
-« Ma Secte Da Hun possède un sort taoïste nommé "Le Dao de l'Œil de l'Âme". Ce sort permet de diviner bien des choses... Il existe une multitude de personnes sur le Continent Xian Gang, et parmi elles, de nombreuses méthodes de divination. Dans mon clan céleste, l'Enseignant Impérial Dao Xuan de la Capitale Impériale est le premier. »
+« Ma Secte Da Hun possède un sort taoïste nommé "Le Dao de la Déduction de l'Âme". Ce sort permet de diviner bien des choses... Il existe une multitude de personnes sur le Continent Xian Gang, et parmi elles, de nombreuses méthodes de divination. Dans mon clan céleste, l'Enseignant Impérial Dao Xuan de la Capitale Impériale est le premier. »
 
 « Avec son seul pouvoir, en matière de divination, il pourrait rivaliser avec les trois Enseignants Impériaux des trois Anciens Pays! »
 
-« Le Dao de l'Œil de l'Âme de ma Secte Da Hun n'est qu'un aperçu du chemin de la divination. Il ne se concentre pas sur le fait de diviner autrui, mais sur la capacité à se transformer soi-même pour devenir indéchiffrable aux yeux des autres. »
+« Le Dao de la Déduction de l'Âme de ma Secte Da Hun n'est qu'un aperçu du chemin de la divination. Il ne se concentre pas sur le fait de diviner autrui, mais sur la capacité à se transformer soi-même pour devenir indéchiffrable aux yeux des autres. »
 
 « Si tu souhaites l'apprendre, je peux te l'enseigner... Le temps touche à sa fin, j'attends ta décision. » Le Très Respecté Qing Niu sourit en parlant.
 
@@ -100,7 +100,7 @@ Loin de la Montagne Céleste, dans une région du Continent Tian Niu qu'il aurai
 
 Les montagnes saturent l'espace, toutes de formes irrégulières. La chaîne montagneuse était dense et infinie — un terrain typique du Continent Tian Niu.
 
-« Le Dao de l'Œil de l'Âme... Que ce sort existe réellement ou non, je n'ai qu'à le tester pour le savoir! » Les yeux de Wang Lin brillèrent et il scruta les environs. Il ne remarqua aucune anomalie. Bien que de nombreuses créatures vivantes fussent à proximité, aucune ne représentait une menace pour lui.
+« Le Dao de la Déduction de l'Âme... Que ce sort existe réellement ou non, je n'ai qu'à le tester pour le savoir! » Les yeux de Wang Lin brillèrent et il scruta les environs. Il ne remarqua aucune anomalie. Bien que de nombreuses créatures vivantes fussent à proximité, aucune ne représentait une menace pour lui.
 
 Le vent soufflait fort ici, et lorsqu'il s'engouffrait dans la forêt montagneuse, il faisait bruisser les feuilles en un son merveilleux.
 

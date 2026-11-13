@@ -12,7 +12,7 @@ Pendant que Jiu Di et les autres utilisaient le sort secret pour observer la bat
 
 À mesure que son Sens Divin s'étendait, un sourire apparut progressivement sur son visage. Avec son niveau de culture précédent, il n'aurait pu utiliser cette méthode pour retrouver ses anciens amis.
 
-Cependant, aujourd'hui, en tant qu'être le plus puissant du continent astral immortel, il en était capable.
+Cependant, aujourd'hui, en tant qu'être le plus puissant du Continent Xian Gang, il en était capable.
 
 « Les niveaux de culture de Zhou Yi et Qing Shuang ont augmenté... Je me demande s'ils ont conservé cette pilule ou non... » Le Sens Divin de Wang Lin balayait la zone sans s'interrompre.
 
@@ -54,9 +54,9 @@ Le visage de Wang Lin devint livide. Il ne pouvait pas la trouver.
 
 « Se pourrait-il que lors de sa réincarnation... un accident soit survenu... » Wang Lin ressentit une piqûre au cœur. Il ne pouvait oublier cette femme nommée Li Qianmei, son visage pâle et la douceur de ses yeux.
 
-Elle était venue sur le continent astral immortel pour lui. Elle avait quitté son père pour se réincarner ici, seule, attendant silencieusement que l'homme qu'elle aimait la retrouve et libère sa mémoire.
+Elle était venue sur le Continent Xian Gang pour lui. Elle avait quitté son père pour se réincarner ici, seule, attendant silencieusement que l'homme qu'elle aimait la retrouve et libère sa mémoire.
 
-« Impossible! » Le Sens Divin de Wang Lin se déploya une fois de plus durant une journée entière. Il avait balayé presque chaque pouce du continent astral immortel, mais en fin de compte... il ne trouva rien.
+« Impossible! » Le Sens Divin de Wang Lin se déploya une fois de plus durant une journée entière. Il avait balayé presque chaque pouce du Continent Xian Gang, mais en fin de compte... il ne trouva rien.
 
 Wang Lin pressa sa main contre sa poitrine, accablé par la douleur. Il leva les yeux vers le ciel et éclata soudain d'un rire. Cependant, ce rire était empreint de rage, une rage dirigée contre les cieux!
 

@@ -36,7 +36,7 @@ Le rugissement du dragon fit trembler les cieux. C'est à ce moment précis que 
 
 Alors que Du Qing approchait, Wang Lin leva soudainement les yeux. Le dragon de feu sous lui dut redresser la tête alors que la main gauche de Wang Lin tirait sur les chaînes. L'animal poussa un rugissement violent, capable de déchirer le monde, tandis que des ondulations de feu se propageaient dans toutes les directions.
 
-Au même instant, une source inépuisable de flammes jaillit des seize chaînes dans la main gauche de Wang Lin pour pénétrer son corps. Le cri d'un Oiseau Vermillon retentit depuis le dragon de feu sous ses pieds.
+Au même instant, une source inépuisable de flammes jaillit des seize chaînes dans la main gauche de Wang Lin pour pénétrer son corps. Le cri de Suzaku retentit depuis le dragon de feu sous ses pieds.
 
 Lorsque Suzaku poussa ce cri, une puissante vague de feu terrestre jaillit du dragon et se précipita vers Wang Lin. À cet instant, la puissance du feu qu'il maîtrisait était capable de briser le ciel!
 

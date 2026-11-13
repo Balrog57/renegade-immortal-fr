@@ -36,7 +36,7 @@ Dès qu'il posa le pied sur le sommet de la montagne, l'encens de neige disparut
 
 « Tu es revenu. » Le véritable corps d'essence du Très Respecté Qing Niu ouvrit les yeux et sourit.
 
-« Voici le Dao de l'Œil de l'Âme. » Le Très Respecté Qing Niu leva la main droite et saisit le vide. Un jade pourpre apparut dans sa paume, dégageant une aura antique, comme s'il avait existé depuis des éons.
+« Voici la méthode du Dao de la Déduction de l'Âme. » Le Très Respecté Qing Niu leva la main droite et saisit le vide. Un jade pourpre apparut dans sa paume, dégageant une aura antique, comme s'il avait existé depuis des éons.
 
 D'un geste, il lança le jade vers Wang Lin sans même attendre de réponse.
 

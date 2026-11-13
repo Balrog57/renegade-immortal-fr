@@ -24,7 +24,7 @@ Les yeux de l'Exalté Empyréen Hai Zi s'illuminèrent et elle déclara lentemen
 
 Wang Lin, situé à 1 000 pieds de là, fixait sa main droite nouvellement formée. Après une courte réflexion, il prit la parole:
 
-« Le sceau de l'Arbre de la Mer et de la Montagne! »
+« Le sceau de l'Arbre de la Mer Shan Hai! »
 
 Le visage de l'Exalté Empyréen Hai Zi pâlit et elle esquissa un sourire amer, mais resta silencieuse. Elle s'assit et scruta l'obscurité environnante, son esprit étant impénétrable.
 
@@ -32,17 +32,17 @@ Le temps passa lentement. Bientôt, l'armure d'âme de Wang Lin se dissipa. Une 
 
 Wang Lin laissa échapper un soupir, leva les yeux et dit: « Je crains que votre Maître ne puisse trouver cet endroit dans un avenir proche. La paume brisée a dévoré le rideau protecteur et devrait désormais bloquer tout contact extérieur, tel un sceau. »
 
-« Vous auriez pu simplement prendre les Esprits de l'Arbre de la Mer et de la Montagne, pourquoi avoir provoqué son Sceau? Ce sceau a été posé par l'Ancêtre Céleste, vous... » Après un long moment, l'Exalté Empyréen Hai Zi regarda Wang Lin d'un regard complexe.
+« Vous auriez pu simplement prendre les Esprits de l'Arbre de la Mer Shan Hai, pourquoi avoir provoqué son Sceau? Ce sceau a été posé par l'Ancêtre Céleste, vous... » Après un long moment, l'Exalté Empyréen Hai Zi regarda Wang Lin d'un regard complexe.
 
-Wang Lin fixa l'Exalté Empyréen Hai Zi et dit lentement: « Si je n'avais pas eu à vous sauver, j'aurais déjà quitté la Mer et la Montagne. »
+Wang Lin fixa l'Exalté Empyréen Hai Zi et dit lentement: « Si je n'avais pas eu à vous sauver, j'aurais déjà quitté la Mer Shan Hai. »
 
 L'Exalté Empyréen Hai Zi resta plongée dans ses pensées.
 
 Le silence s'installa, et le temps s'écoula rapidement. En un clin d'œil, trois jours passèrent.
 
-Durant ces trois jours, les deux ne se parlèrent pas. L'Exalté Empyréen Hai Zi levait les yeux vers le rideau de lumière, le regard empreint d'incertitude. Quant à Wang Lin, il avait fermé les yeux pour cultiver. Il sortit les Esprits de l'Arbre de la Mer et de la Montagne et commença à les absorber.
+Durant ces trois jours, les deux ne se parlèrent pas. L'Exalté Empyréen Hai Zi levait les yeux vers le rideau de lumière, le regard empreint d'incertitude. Quant à Wang Lin, il avait fermé les yeux pour cultiver. Il sortit les Esprits de l'Arbre de la Mer Shan Hai et commença à les absorber.
 
-Après trois jours de silence, voyant Wang Lin absorber les esprits, l'Exalté Empyréen Hai Zi ne put s'empêcher de demander: « Votre culture est très étrange. Vous êtes clairement au début du stade de Tribulation du Vide, et pourtant vous possédez la puissance d'un Exalté Empyréen. Bien que l'Esprit de l'Arbre de la Mer et de la Montagne puisse aider un cultivateur à former une essence de bois, au stade de Tribulation du Vide, même quelques essences ne suffiront pas à augmenter votre niveau de culture. À quoi bon? »
+Après trois jours de silence, voyant Wang Lin absorber les esprits, l'Exalté Empyréen Hai Zi ne put s'empêcher de demander: « Votre culture est très étrange. Vous êtes clairement au début du stade de Tribulation du Vide, et pourtant vous possédez la puissance d'un Exalté Empyréen. Bien que l'Esprit de l'Arbre de la Mer Shan Hai puisse aider un cultivateur à former une essence de bois, au stade de Tribulation du Vide, même quelques essences ne suffiront pas à augmenter votre niveau de culture. À quoi bon? »
 
 Wang Lin n'entra pas dans de longues explications. Il ouvrit les yeux, jeta un regard à l'Exalté Empyréen Hai Zi et dit calmement: « Je ne suis pas comme vous. »
 
@@ -50,7 +50,7 @@ Wang Lin n'entra pas dans de longues explications. Il ouvrit les yeux, jeta un r
 
 Wang Lin resta muet, referma les yeux et poursuivit l'absorption de l'Esprit de l'Arbre qui résidait en lui.
 
-Voyant que Wang Lin l'ignorait, l'Exalté Empyréen Hai Zi fit la moue mais continua de parler: « Mon rideau protecteur a été dévoré. Si ce que vous avez dit est vrai, je crains qu'il ne soit très difficile pour Maître de nous trouver rapidement, même s'il se rend dans la Mer et la Montagne. Si la paume brisée est partie ailleurs, cela prendra encore plus de temps. Nous avons perdu tout contact avec le monde extérieur, n'êtes-vous donc pas inquiet? »
+Voyant que Wang Lin l'ignorait, l'Exalté Empyréen Hai Zi fit la moue mais continua de parler: « Mon rideau protecteur a été dévoré. Si ce que vous avez dit est vrai, je crains qu'il ne soit très difficile pour Maître de nous trouver rapidement, même s'il se rend dans la Mer Shan Hai. Si la paume brisée est partie ailleurs, cela prendra encore plus de temps. Nous avons perdu tout contact avec le monde extérieur, n'êtes-vous donc pas inquiet? »
 
 Devant l'inertie de Wang Lin, les beaux yeux de l'Exalté Empyréen Hai Zi se fixèrent sur lui. Après un long moment, elle afficha une expression mêlant colère et désespoir.
 
@@ -70,7 +70,7 @@ Le temps passa ainsi, silencieusement. Dix jours, vingt jours, un mois, deux moi
 
 En un clin d'œil, quatre mois s'écoulèrent.
 
-Pendant ces quatre mois, Wang Lin n'avait pas prononcé un mot, concentré sur l'absorption de l'Esprit de l'Arbre de la Mer et de la Montagne. Sa peau se teintait peu à peu d'une nuance de vert.
+Pendant ces quatre mois, Wang Lin n'avait pas prononcé un mot, concentré sur l'absorption de l'Esprit de l'Arbre de la Mer Shan Hai. Sa peau se teintait peu à peu d'une nuance de vert.
 
 Le dragon de mer, lui, était engagé dans ce duel de regards depuis quatre mois. Il ne semblait nullement fatigué et restait plein d'énergie face au poulpe. À l'inverse, le poulpe paraissait quelque peu épuisé, mais refusait de céder.
 
@@ -78,7 +78,7 @@ Le dragon de mer, lui, était engagé dans ce duel de regards depuis quatre mois
 
 Wang Lin ouvrit les yeux. Il n'avait pas vu l'Exalté Empyréen Hai Zi depuis quatre mois; son beau visage paraissait marqué par la fatigue, bien que sa beauté fût toujours aussi renversante.
 
-« Il est impossible que Maître ne nous ait pas trouvés en quatre mois... Puisqu'il sait que je suis en danger, même si la paume brisée a quitté la Mer et la Montagne, il serait capable de diviner sa destination. Il est impossible qu'il ne nous trouve pas après un tel délai. » L'Exalté Empyréen Hai Zi ne cachait plus son angoisse. Piégée ici depuis quatre mois, elle n'arrivait plus à garder son calme et était habitée par un mauvais pressentiment.
+« Il est impossible que Maître ne nous ait pas trouvés en quatre mois... Puisqu'il sait que je suis en danger, même si la paume brisée a quitté la Mer Shan Hai, il serait capable de diviner sa destination. Il est impossible qu'il ne nous trouve pas après un tel délai. » L'Exalté Empyréen Hai Zi ne cachait plus son angoisse. Piégée ici depuis quatre mois, elle n'arrivait plus à garder son calme et était habitée par un mauvais pressentiment.
 
 Wang Lin répondit calmement: « Il y a trois possibilités. Premièrement: la paume brisée est allée dans un lieu indétectable, où même la divination ne peut l'atteindre. Deuxièmement: votre Maître n'est pas venu vous sauver immédiatement comme vous le pensiez. »
 
@@ -114,7 +114,7 @@ Le temps passa lentement. Le quatrième mois, le sixième mois... Bientôt, une 
 
 Une année n'est pas longue à l'extérieur, mais pour l'homme et la femme piégés dans cet espace de 1 000 pieds, elle sembla s'étirer avec lenteur.
 
-Wang Lin s'en sortait mieux, étant habitué à la solitude. Il profita de ce temps pour fusionner deux des Esprits de l'Arbre de la Mer et de la Montagne. Un bourgeon d'essence de bois était apparu dans son véritable corps aux cinq éléments et grandissait rapidement.
+Wang Lin s'en sortait mieux, étant habitué à la solitude. Il profita de ce temps pour fusionner deux des Esprits de l'Arbre de la Mer Shan Hai. Un bourgeon d'essence de bois était apparu dans son véritable corps aux cinq éléments et grandissait rapidement.
 
 Cependant, après huit mois de silence, l'Exalté Empyréen Hai Zi ouvrit ses beaux yeux pour regarder Wang Lin. L'homme devant elle lui inspirait de la haine, mais éveillait aussi en elle un sentiment complexe.
 

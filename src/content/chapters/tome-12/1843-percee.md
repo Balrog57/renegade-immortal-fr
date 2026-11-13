@@ -12,7 +12,7 @@ Ils avaient déjà connu la célébrité et leur heure de gloire. Cependant, ils
 
 Avec leurs niveaux de culture, ils auraient pu accomplir de grandes choses dans la Mer Dan, mais tous trois avaient choisi de mener une vie paisible.
 
-Pourtant, « l'arbre veut le calme, mais le vent ne cesse de souffler » : le trio avait beau aspirer à la quiétude, le destin en décida autrement. Alors qu'ils aspiraient à la paix, ils devaient désormais fuir pour sauver leur vie. L'Oiseau Vermillon et la Tortue Noire étaient gravement blessés. Le Tigre Blanc, le moins atteint, portait ses deux compagnons de toujours tandis qu'ils tentaient désespérément d'échapper à la Mer Dan.
+Pourtant, « l'arbre veut le calme, mais le vent ne cesse de souffler » : le trio avait beau aspirer à la quiétude, le destin en décida autrement. Alors qu'ils aspiraient à la paix, ils devaient désormais fuir pour sauver leur vie. Le Suzaku et la Tortue Noire étaient gravement blessés. Le Tigre Blanc, le moins atteint, portait ses deux compagnons de toujours tandis qu'ils tentaient désespérément d'échapper à la Mer Dan.
 
 Lorsque ces paroles parvinrent à ses oreilles, le visage pâle du Tigre Blanc esquissa un sourire amer.
 

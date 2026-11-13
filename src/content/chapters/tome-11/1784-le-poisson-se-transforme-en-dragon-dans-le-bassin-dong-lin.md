@@ -106,7 +106,7 @@ En un seul pas, Wang Lin se retrouva devant la véritable porte!
 
 Cet endroit était autrefois une montagne depuis longtemps disparue. Ce qui occupait désormais sa place était une porte! Cette porte dégageait une aura antique et était d'une dimension colossale. Wang Lin n'était qu'une fourmi face à elle!
 
-Dès qu'il fut à portée de la porte, il n'hésita pas une seconde pour lever la main droite. Toute sa puissance du Dao Antique et son niveau de culture se concentrèrent dans sa paume pour presser l'entrée.
+Dès qu'il fut à portée de la porte, il n'hésita pas une seconde pour lever la main droite. Toute sa puissance de Dao Gu et son niveau de culture se concentrèrent dans sa paume pour presser l'entrée.
 
 « Porte de la grotte, ouvre-toi! » rugit Wang Lin, tandis que les huit corps véritables d'essence apparaissaient. Ils levèrent tous la main et frappèrent la porte de leur paume.
 

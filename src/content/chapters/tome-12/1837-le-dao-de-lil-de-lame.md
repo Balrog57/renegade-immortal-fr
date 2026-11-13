@@ -1,6 +1,6 @@
 ---
 n: 1837
-title: "Le Dao de l'Œil de l'Âme!"
+title: "Le Dao de la Déduction de l'Âme!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1837 - Soul Eye Dao!"
@@ -16,7 +16,7 @@ Après avoir pesé le pour et le contre, Wang Lin renonça à l'idée de monter 
 
 Il ne pouvait choisir qu'un seul sort dans le Pavillon Cang Hun, et cela n'était pas une chose que Wang Lin pouvait changer. Son regard balaya les neuf corps spirituels de sept pouces.
 
-Parmi les neuf corps présents, Wang Lin perçut l'Origine de la Fantaisie de l'Âme, l'illusion multicouche, ainsi que le Dao de l'Œil de l'Âme qui lui avait fait sourire amèrement.
+Parmi les neuf corps présents, Wang Lin perçut l'Origine de la Fantaisie de l'Âme, l'illusion multicouche, ainsi que le Dao de la Déduction de l'Âme qui lui avait fait sourire amèrement.
 
 Quant aux autres sorts, bien qu'il n'ait jamais vu personne les utiliser personnellement, il les scruta tout de même.
 
@@ -60,7 +60,7 @@ Son regard semblait avoir changé; ses yeux contenaient désormais des volutes d
 
 Pas à pas, il descendit du huitième étage directement au cinquième, puis au troisième, jusqu'à atteindre le premier étage.
 
-« Les sorts de la Secte Da Hun, qu'il s'agisse du Dao de l'Œil de l'Âme ou de l'Origine de la Fantaisie de l'Âme, nécessitent de détacher une partie de son âme. Cette portion communique avec le monde pour exécuter la série de sorts... »
+« Les sorts de la Secte Da Hun, qu'il s'agisse du Dao de la Déduction de l'Âme ou de l'Origine de la Fantaisie de l'Âme, nécessitent de détacher une partie de son âme. Cette portion communique avec le monde pour exécuter la série de sorts... »
 
 « Pas étonnant que je n'aie pas pu étudier l'illusion multicouche dans le monde de la grotte et que je ne pus utiliser que la Voile Fantôme. Sans elle, j'ai perdu la capacité d'utiliser ce sort... » Les yeux de Wang Lin brillaient d'une lueur étrange alors qu'il sortait du Pavillon Cang Hun.
 
@@ -72,11 +72,11 @@ L'Ancien Qing Niu, resté à l'intérieur du Pic Céleste Vert, regarda Wang Lin
 
 « Leur but est d'obtenir l'Âme du Tian Niu supprimée sous le Continent Tian Niu... » L'estimable Qing Niu semblait inquiet. Bien qu'il fût au courant de tout à l'avance et qu'il eût fait ses préparatifs, l'incertitude apportée par Wang Lin le rendait mal à l'aise.
 
-« Le premier ancêtre créa la Secte Da Hun, et son passé était extrêmement mystérieux. Même les générations d'ancêtres suivantes ignoraient qui il était. Une rumeur disait que le Dao de l'Œil de l'Âme possédait originellement deux parties, et que l'autre s'appelait l'Œil du Dao de l'Âme! »
+« Le premier ancêtre créa la Secte Da Hun, et son passé était extrêmement mystérieux. Même les générations d'ancêtres suivantes ignoraient qui il était. Une rumeur disait que le Dao de la Déduction de l'Âme possédait originellement deux parties, et que l'autre s'appelait l'Œil du Dao de l'Âme! »
 
 « On raconte que le premier ancêtre était un disciple de la lignée d'une secte extrêmement puissante et cachée sur le Continent Xian Gang, mais qu'à son époque, ils étaient deux... »
 
-« Ils héritèrent du Dao de l'Œil de l'Âme et de l'Œil du Dao de l'Âme... Puis, pour une raison inconnue, l'ancêtre renonça au droit de succéder à la lignée. Il partit seul vers le Continent Tian Niu qui venait d'être créé par l'Ancêtre Céleste, puis il fonda la Secte Da Hun ici... »
+« Ils héritèrent du Dao de la Déduction de l'Âme et de l'Œil du Dao de l'Âme... Puis, pour une raison inconnue, l'ancêtre renonça au droit de succéder à la lignée. Il partit seul vers le Continent Tian Niu qui venait d'être créé par l'Ancêtre Céleste, puis il fonda la Secte Da Hun ici... »
 
 « Il y avait aussi des rumeurs... » L'estimable Qing Niu pensa à la dernière rumeur et ne put s'empêcher de trembler. Il regarda vers le lointain, en direction du Continent Central.
 
@@ -104,6 +104,6 @@ Wang Lin retourna dans la grotte au sommet et s'assit. D'un revers de main, il f
 
 « Je ne comprends toujours pas la situation exacte de l'endroit où se trouve mon Maître. Cependant, pour que j'apparaisse soudainement, il doit y avoir des gens mécontents ou cherchant à provoquer un conflit... Par conséquent, je dois augmenter mon niveau de culture avant de le retrouver! » Quelqu'un ayant le niveau de Wang Lin possédait un sens aigu du danger futur. Bien qu'il ne fût pas aussi clair que ceux capables de diviner les changements du monde, il percevait la situation.
 
-Il avait l'impression vague qu'une grande calamité se préparait pour lui au sein de la lignée du Dao Antique.
+Il avait l'impression vague qu'une grande calamité se préparait pour lui au sein de la lignée Dao Gu.
 
 « Tant que j'aurai un niveau de culture suffisamment élevé, aucune de ces calamités ne sera un problème! Maintenant, je veux voir quels genres de cadeaux la personne de la Secte Da Hun qui a prédit mon apparition m'a laissés! » Les yeux de Wang Lin s'illuminèrent et se posèrent sur la première boîte.

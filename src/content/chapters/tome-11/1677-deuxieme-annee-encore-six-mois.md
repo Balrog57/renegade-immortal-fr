@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1677 - Second Year, Another Six Months
 slug: deuxieme-annee-encore-six-mois
 ---
-Wang Lin regarda le Maître Dao Bleu Rêve. Il prit ensuite la cruche de vin que Hongdie lui avait tendue et en but une gorgée avant de fermer les yeux.
+Wang Lin regarda Lanmeng Daozun. Il prit ensuite la cruche de vin que Hongdie lui avait tendue et en but une gorgée avant de fermer les yeux.
 
-Le Maître Dao Bleu Rêve n'était pas pressé. Il restait assis là, observant le Royaume Extérieur, attendant la réponse de Wang Lin. Li Qianmei resta silencieuse pendant un long moment avant de s'asseoir lentement. Sa position était très claire: elle se tenait plus près de Wang Lin, comme si elle se méfiait de son propre père.
+Lanmeng Daozun n'était pas pressé. Il restait assis là, observant le Royaume Extérieur, attendant la réponse de Wang Lin. Li Qianmei resta silencieuse pendant un long moment avant de s'asseoir lentement. Sa position était très claire: elle se tenait plus près de Wang Lin, comme si elle se méfiait de son propre père.
 
-Comment le Maître Dao Bleu Rêve aurait-il pu ne pas remarquer l'attitude de sa fille? Ses yeux s'assombrirent imperceptiblement, mais Li Qianmei ne s'en aperçut pas.
+Comment Lanmeng Daozun aurait-il pu ne pas remarquer l'attitude de sa fille? Ses yeux s'assombrirent imperceptiblement, mais Li Qianmei ne s'en aperçut pas.
 
 Le temps passa. En un clin d'œil, les trois derniers mois de la deuxième année s'écoulèrent. Cette deuxième année fut très calme; aucun combat n'eut lieu.
 
@@ -74,27 +74,27 @@ Le dernier jour de la deuxième année, Mu Bingmei arriva aux côtés de Wang Li
 
 Li Qianmei connaissait Mu Bingmei. Les deux s'étaient rencontrées dans la Mer Yun et connaissaient l'identité de l'autre.
 
-Wang Lin ne donna pas de réponse immédiate au Maître Dao Bleu Rêve. Il réfléchissait également aux paroles de ce dernier.
+Wang Lin ne donna pas de réponse immédiate à Lanmeng Daozun. Il réfléchissait également aux paroles de ce dernier.
 
-Ce n'est que six mois après le début de la troisième année que Wang Lin ouvrit les yeux et regarda le Maître Dao Bleu Rêve.
+Ce n'est que six mois après le début de la troisième année que Wang Lin ouvrit les yeux et regarda Lanmeng Daozun.
 
-« J'ai une épouse. » Ce fut la première chose que Wang Lin adressa au Maître Dao Bleu Rêve.
+« J'ai une épouse. » Ce fut la première chose que Wang Lin adressa à Lanmeng Daozun.
 
 Li Qianmei baissa la tête pour que Wang Lin ne voie pas son expression déçue.
 
-Le Maître Dao Bleu Rêve sourit en regardant sa fille et dit doucement: « Tu peux toujours avoir une seconde épouse. »
+Lanmeng Daozun sourit en regardant sa fille et dit doucement: « Tu peux toujours avoir une seconde épouse. »
 
-« Prends le temps de réfléchir, je ne suis pas pressé. Ce vieil homme a amené sa fille ici et n'a aucune intention de partir. Tu n'as pas la force de faire face au Daoïste aux Sept Couleurs ou au Vieux Fantôme Zhan, n'est-ce pas... » Le regard du Maître Dao Bleu Rêve se posa sur Wang Lin.
+« Prends le temps de réfléchir, je ne suis pas pressé. Ce vieil homme a amené sa fille ici et n'a aucune intention de partir. Tu n'as pas la force de faire face au Daoïste aux Sept Couleurs ou au Vieux Fantôme Zhan, n'est-ce pas... » Le regard de Lanmeng Daozun se posa sur Wang Lin.
 
-« Si je l'avais voulu, j'aurais pu entrer dans la Tribulation Arcane il y a des années. Si je pouvais survivre neuf fois, je pourrais atteindre le stade de la Tribulation du Vide... C'est juste que je n'en suis pas certain... Mais même si le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan sont de puissants cultivateurs, et même s'il existe cette troisième existence, avec mon aide, nous pourrions encore gagner! » Le Maître Dao Bleu Rêve parlait lentement. Li Qianmei et Mu Bingmei ne comprenaient pas, mais les yeux de Wang Lin se plissèrent.
+« Si je l'avais voulu, j'aurais pu entrer dans la Tribulation Arcane il y a des années. Si je pouvais survivre neuf fois, je pourrais atteindre le stade de la Tribulation du Vide... C'est juste que je n'en suis pas certain... Mais même si le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan sont de puissants cultivateurs, et même s'il existe cette troisième existence, avec mon aide, nous pourrions encore gagner! » Lanmeng Daozun parlait lentement. Li Qianmei et Mu Bingmei ne comprenaient pas, mais les yeux de Wang Lin se plissèrent.
 
-« Ainsi, il s'avère que tu es aussi au courant. » Le regard de Wang Lin croisa celui du Maître Dao Bleu Rêve.
+« Ainsi, il s'avère que tu es aussi au courant. » Le regard de Wang Lin croisa celui de Lanmeng Daozun.
 
-« Je devrais être la deuxième personne née dans le Royaume Intérieur à l'avoir découvert, après le Vieux Fantôme Zhan... » soupira le Maître Dao Bleu Rêve.
+« Je devrais être la deuxième personne née dans le Royaume Intérieur à l'avoir découvert, après le Vieux Fantôme Zhan... » soupira Lanmeng Daozun.
 
 « Quand je l'ai appris à l'époque, j'ai trouvé cela extrêmement absurde et je ne l'aurais pas cru, mais la personne qui me l'a dit était ma femme, qui est aussi la cinquième concubine scellée dans le fourneau derrière toi... »
 
-« J'ai dû croire ses paroles! » Le Maître Dao Bleu Rêve secoua amèrement la tête.
+« J'ai dû croire ses paroles! » Lanmeng Daozun secoua amèrement la tête.
 
 « Lorsque les huit concubines du Souverain Céleste sont descendues dans le Royaume Extérieur, la cinquième concubine a perdu son corps pour prendre une forme spirituelle. Ma femme pouvait parfaitement fusionner avec son âme, elle fut donc possédée par la cinquième concubine. Cependant, celle-ci n'a pas détruit l'âme de ma femme, mais s'en est servie pour me forcer à accomplir diverses tâches. »
 
@@ -106,9 +106,9 @@ Le Maître Dao Bleu Rêve sourit en regardant sa fille et dit doucement: « Tu p
 
 « J'aime ma femme, personne ne le comprend mieux que moi. L'âme de ma femme est fusionnée depuis longtemps avec celle de la cinquième concubine, rendant leur séparation impossible. Si l'une meurt, l'autre mourra aussi. »
 
-« Je ne pouvais supporter d'agir, alors j'ai toujours espéré un miracle. Je ne pouvais endurer cela que seul... Vous l'avez scellée, et cela m'a libéré de ce fardeau. » Le Maître Dao Bleu Rêve avait un regard complexe en parlant.
+« Je ne pouvais supporter d'agir, alors j'ai toujours espéré un miracle. Je ne pouvais endurer cela que seul... Vous l'avez scellée, et cela m'a libéré de ce fardeau. » Lanmeng Daozun avait un regard complexe en parlant.
 
-« Elle est partie depuis longtemps et il ne reste que la tristesse. Chaque fois que j'agissais, je ne faisais qu'accroître le ressentiment de ma fille à mon égard, elle se méfiait encore plus de moi; alors je n'agirai plus contre vous... Et cette bataille a déjà atteint un point où elle est inutile. Peu importe nos combats, nous sommes tous des cultivateurs issus de la même grotte! » Le Maître Dao Bleu Rêve se leva et agita ses manches. Ses yeux brillaient d'une lumière bleue éclatante alors qu'il scrutait l'extérieur de la formation.
+« Elle est partie depuis longtemps et il ne reste que la tristesse. Chaque fois que j'agissais, je ne faisais qu'accroître le ressentiment de ma fille à mon égard, elle se méfiait encore plus de moi; alors je n'agirai plus contre vous... Et cette bataille a déjà atteint un point où elle est inutile. Peu importe nos combats, nous sommes tous des cultivateurs issus de la même grotte! » Lanmeng Daozun se leva et agita ses manches. Ses yeux brillaient d'une lumière bleue éclatante alors qu'il scrutait l'extérieur de la formation.
 
 Simultanément, les yeux de Wang Lin se plissèrent et il lança un regard froid vers l'espace au-delà de la formation.
 
@@ -120,17 +120,17 @@ Ces trois individus étaient censés être restés piégés dans l'Ancienne Tomb
 
 Deux ans et six mois s'étaient écoulés! Il restait encore un semestre avant que l'accord de Wang Lin avec les quatre grands généraux n'arrive à échéance.
 
-« Wang Lin, ce vieil homme sait que tu te méfies de moi, et même ma fille ne m'a pas fait confiance en tant que père pendant ta culture... Aujourd'hui, je ferai ce qu'un père se doit de faire! » Bien que le Maître Dao Bleu Rêve s'adressât à Wang Lin, ses yeux étaient empreints d'une affection paternelle envers Li Qianmei.
+« Wang Lin, ce vieil homme sait que tu te méfies de moi, et même ma fille ne m'a pas fait confiance en tant que père pendant ta culture... Aujourd'hui, je ferai ce qu'un père se doit de faire! » Bien que Lanmeng Daozun s'adressât à Wang Lin, ses yeux étaient empreints d'une affection paternelle envers Li Qianmei.
 
 D'un revers de manche, il fit un pas vers le Royaume Extérieur. Son corps se changea en un rayon de lumière et il s'élança instantanément hors de la formation, pour apparaître dans le ciel lointain.
 
-« Miaoyin Daozun, Jiutian Mozun, Da Huang, les trois vous, dégagez de là!! » Le Maître Dao Bleu Rêve poussa soudain un rugissement. Ce cri propagea une onde puissante à travers le système stellaire, créant une véritable tempête. Cela força Miaoyin Daozun et ses compagnons à s'arrêter!
+« Miaoyin Daozun, Jiutian Mozun, Da Huang, les trois vous, dégagez de là!! » Lanmeng Daozun poussa soudain un rugissement. Ce cri propagea une onde puissante à travers le système stellaire, créant une véritable tempête. Cela força Miaoyin Daozun et ses compagnons à s'arrêter!
 
-« Bleu Rêve!! Que fais-tu?! »
+« Lanmeng!! Que fais-tu?! »
 
-« Maître Dao Bleu Rêve, pourquoi nous bloquez-vous tous les trois? »
+« Lanmeng Daozun, pourquoi nous bloquez-vous tous les trois? »
 
-« Aucune raison. Si vous ne disparaissez pas d'ici trois respirations, je vous tue! » Les cheveux de Bleu Rêve dansaient alors qu'il se tenait là. Derrière lui se dressait la formation circulaire, et les trois adversaires se trouvaient devant lui.
+« Aucune raison. Si vous ne disparaissez pas d'ici trois respirations, je vous tue! » Les cheveux de Lanmeng dansaient alors qu'il se tenait là. Derrière lui se dressait la formation circulaire, et les trois adversaires se trouvaient devant lui.
 
 Pourtant, sa silhouette était aussi immuable qu'une montagne. En sa présence, nul ne pouvait faire un seul pas en avant!
 
@@ -140,6 +140,6 @@ C'était comme si l'univers complet devait se soumettre à sa force!
 
 L'expression de Miaoyin Daozun changea. Lui, Jiutian Mozun et Da Huang échangèrent des regards où ne transparaissait que la terreur.
 
-Les Cinq Maîtres du Système Stellaire Antique possédaient des niveaux de culture variés. Bien que le Souverain détiât un pouvoir terrifiant, Bleu Rêve à pleine puissance était encore plus redoutable. Si ce n'était pour l'imperfection de son cœur de Dao causée par sa femme, et pour son refus d'affronter la Tribulation Arcane, même le Souverain ne pourrait donner d'ordres à Bleu Rêve!
+Les Cinq Maîtres du Système Stellaire Antique possédaient des niveaux de culture variés. Bien que le Souverain détiât un pouvoir terrifiant, Lanmeng à pleine puissance était encore plus redoutable. Si ce n'était pour l'imperfection de son cœur de Dao causée par sa femme, et pour son refus d'affronter la Tribulation Arcane, même le Souverain ne pourrait donner d'ordres à Lanmeng!
 
 Ces trois êtres le savaient parfaitement!

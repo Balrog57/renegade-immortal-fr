@@ -82,11 +82,11 @@ Prenant une profonde inspiration, Wang Lin s'assit près du bassin. Il ne fixa p
 
 Liu Jinbiao, qui se tenait aux côtés de Wang Lin, se retourna soudainement. Wang Lin avait disparu de ses sens, mais lorsqu'il regarda à nouveau, il pouvait le voir. Pourtant, il ressentait comme si Wang Lin n'était pas à sa place, comme si ce monde rejetait sa présence.
 
-« Que mon corps fusionne avec ce monde... Que mon Sens Divin s'assimile au vide... Que mon âme se répande sur la voûte céleste; avec mon rêve, je rêverai du changement dans le temps... » La fusion du Tao des Rêves de Wang Lin et du Temps Fluide créa une puissance mystérieuse lui permettant de retourner dans le passé, tout comme dans le monde de la grotte!
+« Que mon corps fusionne avec ce monde... Que mon Sens Divin s'assimile au vide... Que mon âme se répande sur la voûte céleste; avec mon rêve, je rêverai du changement dans le temps... » La fusion du Dao des Rêves de Wang Lin et du Temps Fluide créa une puissance mystérieuse lui permettant de retourner dans le passé, tout comme dans le monde de la grotte!
 
 Wang Lin ignorait si d'autres pouvaient accomplir un tel prodige, mais parmi tous ceux qu'il avait rencontrés, lui seul en était capable, et il devait emprunter la puissance de la Voile Fantôme de la Secte Da Hun!
 
-Alors qu'il s'immergeait dans le Tao des Rêves, il leva silencieusement sa main droite et fit un geste. La Voile Fantôme apparut et tourna autour de lui.
+Alors qu'il s'immergeait dans le Dao des Rêves, il leva silencieusement sa main droite et fit un geste. La Voile Fantôme apparut et tourna autour de lui.
 
 Un rêve de milliers d'années...
 
@@ -100,7 +100,7 @@ Au loin, de longues traînées de lumière fusaient entre les montagnes et des n
 
 Plus loin encore, dans le jardin d'herbes de la Secte Dong Lin, les disciples s'occupaient des plantes selon les ordres de leur maître.
 
-Des disciples montaient et descendaient les marches de pierre de la montagne. Lorsqu'ils se croisaient, ils s'inclinaient respectueusement devant leurs aînés. Au pied de la montagne, quelques disciples de la secte extérieure riaient en portant des seaux d'eau, essuyant la sueur de leur front.
+Des disciples montaient et descendaient les marches de pierre de la montagne. Lorsqu'ils se croisaient, ils s'inclinaient respectueusement devant leurs Seniors frères. Au pied de la montagne, quelques disciples de la secte extérieure riaient en portant des seaux d'eau, essuyant la sueur de leur front.
 
 Cette Secte Dong Lin si paisible procurait à Wang Lin une sensation familière. C'était comme une bulle émettant une lumière éclatante...
 

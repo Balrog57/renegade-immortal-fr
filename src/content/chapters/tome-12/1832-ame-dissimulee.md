@@ -22,15 +22,15 @@ Inconsciemment, Wang Lin déploya son Sens Divin pour scanner la montagne. Bien 
 
 Au Pic Qing Tian, l'Estimé Qing Niu était assis, sa robe verte flottant au vent avec ses longs cheveux blancs. Wang Lin resta calme lorsqu'il arriva face à lui et prit place.
 
-Une fois installé, Wang Lin prit la parole lentement: « Le Dao de l’Œil de l'Âme est en effet extraordinaire. Après 178 000 ans de culture, il pourrait peut-être rivaliser avec l'Instructeur Impérial Céleste. J'admire la profondeur de la Secte Da Hun. »
+Une fois installé, Wang Lin prit la parole lentement: « Le Dao de la Déduction de l'Âme est en effet extraordinaire. Après 178 000 ans de culture, il pourrait peut-être rivaliser avec l'Instructeur Impérial Céleste. J'admire la profondeur de la Secte Da Hun. »
 
 En entendant cela, l'Estimé Qing Niu rit. Il ne semblait nullement embarrassé, mais plutôt serein.
 
-« Oui, les paroles de l'Ancien Wang sont justes. Entrer dans ma Secte Da Hun et s'en enorgueillir immédiatement est une excellente chose. En fait, ce vieil homme pense la même chose. Si quelqu'un pouvait réellement s'isoler en culture pendant 178 000 ans pour porter le Dao de l’Œil de l'Âme à sa perfection, il aurait véritablement le pouvoir de rivaliser avec l'Instructeur Impérial! »
+« Oui, les paroles de l'Ancien Wang sont justes. Entrer dans ma Secte Da Hun et s'en enorgueillir immédiatement est une excellente chose. En fait, ce vieil homme pense la même chose. Si quelqu'un pouvait réellement s'isoler en culture pendant 178 000 ans pour porter le Dao de la Déduction de l'Âme à sa perfection, il aurait véritablement le pouvoir de rivaliser avec l'Instructeur Impérial! »
 
 « 178 000 ans à cultiver un seul sort alors que le niveau de culture n'augmente pas du tout... Le corps ne disposerait pas d'assez de force vitale; comment une telle personne pourrait-elle exister? » Les paroles de Wang Lin étaient brusques. Cette exigence de 178 000 ans lui inspirait un sentiment d'impuissance.
 
-« Haha! Quoi qu'il en soit, ce vieil homme n'a jamais entendu parler de quiconque au sein de la Secte Da Hun ayant maîtrisé le Dao de l’Œil de l'Âme. Même l'ancêtre de la première génération n'avait réussi qu'à atteindre 4,1 milliards d'inscriptions. »
+« Haha! Quoi qu'il en soit, ce vieil homme n'a jamais entendu parler de quiconque au sein de la Secte Da Hun ayant maîtrisé le Dao de la Déduction de l'Âme. Même l'ancêtre de la première génération n'avait réussi qu'à atteindre 4,1 milliards d'inscriptions. »
 
 « Cependant, le talent de l'Ancien Wang est prodigieux et vous avez sans doute connu bien des rencontres fortuites. Peut-être trouverez-vous un moyen de maîtriser le plus grand sort de ma Secte Da Hun. » L'Estimé Qing Niu sourit en parlant.
 

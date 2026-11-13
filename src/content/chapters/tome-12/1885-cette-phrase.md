@@ -16,7 +16,7 @@ Quant à Bian Yun, il semblait avoir vieilli de mille ans et du sang coulait de 
 
 Tang Jia resta silencieuse, son attaque cessant net. Elle n'avait agi que pour le compte de sa sœur. À cet instant, elle lança à Wang Lin un regard complexe avant de disparaître au loin.
 
-Habité par une intention meurtrière, Wang Lin se rapprocha de Bian Yun. Il leva la main droite et l'abattit sur lui. Ce coup, imprégné de son pouvoir du Dao Antique, fit changer les couleurs du monde. Bian Yun fut repoussé et cracha du sang.
+Habité par une intention meurtrière, Wang Lin se rapprocha de Bian Yun. Il leva la main droite et l'abattit sur lui. Ce coup, imprégné de son pouvoir de Dao Gu, fit changer les couleurs du monde. Bian Yun fut repoussé et cracha du sang.
 
 Le corps de Wang Lin trembla également, mais il serra les dents et chargea une fois de plus.
 
@@ -78,7 +78,7 @@ Le cœur de Wang Lin trembla et il referma sa main. Sa divination était trouble
 
 Cette phrase provenait des cheveux que l'Ancêtre Qing Niu avait laissés au maître de la Secte Gui Yi à l'intention de Wang Lin.
 
-Wang Lin médita attentivement ces mots. L'Œil de l'Âme n'avait révélé qu'un flou, et seule cette phrase était apparue. Il devait y avoir un sens caché!
+Wang Lin médita attentivement ces mots. La Déduction de l'Âme n'avait révélé qu'un flou, et seule cette phrase était apparue. Il devait y avoir un sens caché!
 
 Wang Lin répéta la phrase plusieurs fois, puis son corps fut soudain secoué par un violent tremblement. Il leva brusquement les yeux, le regard brillant d'une lueur vive.
 

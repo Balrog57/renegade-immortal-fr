@@ -64,7 +64,7 @@ Il pouvait fusionner avec le monde des grottes, mais pas avec celui du Continent
 
 Il venait d'arriver, tout lui était étranger. Heureusement, il avait fouillé les souvenirs de Kang Ren. Bien qu'il ne sache pas encore tout, il en savait beaucoup sur le Continent Tian Niu.
 
-« Voici le Continent Tian Niu, dans le Continent de l'Est, sous la domination des Célestes... Les sectes Gui Yi et Grande Âme sont les deux puissances dominantes du Continent Tian Niu. Elles font partie des neuf sectes et treize factions... » Wang Lin éprouva un sentiment complexe. Il ne connaissait pas ces deux sectes par hasard.
+« Voici le Continent Tian Niu, dans le Continent de l'Est, sous la domination des Célestes... Les sectes Gui Yi et Da Hun sont les deux puissances dominantes du Continent Tian Niu. Elles font partie des neuf sectes et treize factions... » Wang Lin éprouva un sentiment complexe. Il ne connaissait pas ces deux sectes par hasard.
 
 « La Secte Da Hun, la secte de Fan Shanmeng et Fan Shanlu! Celle qui manie les illusions terrifiantes... Il y a aussi Yun Yifeng dans les souvenirs de Kang Ren. Il est devenu le génie de la Secte Gui Yi...
 

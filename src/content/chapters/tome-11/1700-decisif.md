@@ -22,11 +22,11 @@ Sur le côté, Fan Shanlu réfléchit silencieusement un instant avant de décla
 
 Fan Shanlu ouvrit la bouche comme pour dire quelque chose, mais finit par rester silencieuse. Elle se tint là, immobile, l'expression complexe.
 
-« Vous n'avez pas besoin de quitter ce navire. Je peux vous le confier. Quand j'en aurai besoin, je lancerai un appel. L'autel ancien dont vous avez parlé lorsque nous étions dans l'illusion se trouve-t-il sur ce navire? » demanda Wang Lin, une pointe de froideur dans le regard.
+« Vous n'avez pas besoin de quitter ce navire. Je peux vous le confier. Quand j'en aurai besoin, je lancerai un appel. L'autel de Dao Gu dont vous avez parlé lorsque nous étions dans l'illusion se trouve-t-il sur ce navire? » demanda Wang Lin, une pointe de froideur dans le regard.
 
 Fan Shanlu réfléchit longuement avant de secouer la tête. Elle leva la main et un jade vola vers Wang Lin. Il le rattrapa et découvrit qu'une carte se trouvait à l'intérieur.
 
-« D'innombrables bêtes féroces peuplent cet espace. Ce lieu s'est formé lors de la bataille qui a eu lieu dans la grotte, arraché et déchiré par ses retombées. D'une manière ou d'une autre, il est connecté à un monde étrange. Si vous suivez la carte, vous trouverez un autel ancien. »
+« D'innombrables bêtes féroces peuplent cet espace. Ce lieu s'est formé lors de la bataille qui a eu lieu dans la grotte, arraché et déchiré par ses retombées. D'une manière ou d'une autre, il est connecté à un monde étrange. Si vous suivez la carte, vous trouverez l'autel de Dao Gu. »
 
 « Ce jade contient également un sortilège. C'est celui dont j'ai parlé dans l'illusion, celui qui peut dévorer la troisième âme. Vous devriez bien l'étudier », ajouta doucement Fan Shanlu en regardant au loin, son regard empreint d'une pointe de nostalgie.
 
@@ -62,7 +62,7 @@ Tout comme Fan Shanlu, qui était blessée dans l'illusion et présentait les m�
 
 Un instant plus tard, les yeux de Wang Lin s'illuminèrent et il cessa de penser à la voile. Il leva la main et toucha l'espace entre ses sourcils.
 
-« L'enfant de Ye Mo est mort par ma main et j'ai absorbé huit gouttes de sang ancien, issues de son âme originelle. Si je peux fusionner avec elles, cela rendra mon corps ancien encore plus puissant! »
+« L'enfant de Ye Mo est mort par ma main et j'ai absorbé huit gouttes de sang de Dao Gu, issues de son âme originelle. Si je peux fusionner avec elles, cela rendra mon corps de Dao Gu encore plus puissant! »
 
 « Maintenant, je dois trouver cet autel, peut-être y trouverai-je une part de chance... Bien que je sois au stade du Vide Spirituel, je reste en retrait par rapport aux cultivateurs du Vide Arcanique... »
 

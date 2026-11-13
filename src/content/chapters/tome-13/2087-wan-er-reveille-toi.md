@@ -94,7 +94,7 @@ Dans la Mer Xiu Mo, pendant ces années, à l'instant où il avait ouvert les ye
 
 Cette silhouette délicate qui avait utilisé son sang pour graver des écailles sur la grande formation du Dragon Azur et se changer en jade protecteur de vie, ce visage pâle qui lui brisait le cœur. Mais il portait alors une vendetta aussi profonde que la Mer de Sang. Il ne pouvait que fermer les yeux et se dire d'oublier.
 
-La scène à la Secte Yun, lorsqu'il entendit le son de la cithare et vit la mélancolie de cette silhouette dans le pavillon, Wang Lin sut qu'il ne pourrait jamais oublier.
+La scène à la Secte Yun Tian, lorsqu'il entendit le son de la cithare et vit la mélancolie de cette silhouette dans le pavillon, Wang Lin sut qu'il ne pourrait jamais oublier.
 
 *Ma main gauche est un court karma dans la Mer Xiu Mo, et ma main droite est une méditation solitaire longue d'un siècle...*
 

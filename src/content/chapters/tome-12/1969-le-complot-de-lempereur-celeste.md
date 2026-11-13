@@ -42,13 +42,13 @@ La Secte Zi Yang avait de nouveau attiré tous les regards grâce à Wang Lin!
 
 Les rumeurs concernant Wang Lin s'étaient lentement propagées dans les 36 pays du clan Ancien par divers moyens au fil de l'année. L'apparition du 49e Ascendant Empyréen était d'une importance capitale pour le clan Ancien, sans parler du fait que ce nouvel Ascendant Empyréen remplaçait Ming Dao en tant que plus puissant sous les Grands Empyréens!
 
-Dans les 36 pays du clan Ancien, chacun des trois clans contrôlait 12 pays. Lorsque la nouvelle parvint au clan de l'Ancien Dao, Xuan Luo, dans son lieu de culture en vase clos, ouvrit les yeux.
+Dans les 36 pays du clan Ancien, chacun des trois clans contrôlait 12 pays. Lorsque la nouvelle parvint au clan Dao Gu, Xuan Luo, dans son lieu de culture en vase clos, ouvrit les yeux.
 
 Une lueur d'admiration et de fierté brilla dans son regard.
 
 Il admirait le fait que Wang Lin ait pu atteindre de telles hauteurs au sein du clan céleste. Mais ce dont il était le plus fier, c'était d'avoir découvert cet homme dans le monde des grottes et de l'avoir accepté comme disciple.
 
-« Il devrait revenir bientôt... » Xuan Luo ne révéla rien de ce qui concernait Wang Lin, pas même à l'Empereur de l'Ancien Dao.
+« Il devrait revenir bientôt... » Xuan Luo ne révéla rien de ce qui concernait Wang Lin, pas même à l'Empereur Dao Gu.
 
 Lorsque la nouvelle atteignit le palais, l'empereur était encore en train de choisir sa reine. Des femmes, amenées de toutes parts, tentaient de fusionner avec cette parcelle d'âme.
 

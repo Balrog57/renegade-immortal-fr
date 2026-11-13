@@ -42,7 +42,7 @@ Il y avait aussi Tuo Sen, qui se trouvait encerclé par trois caractères noirs 
 
 Le ciel était sombre et les tempêtes faisaient rage. Plusieurs silhouettes évoluaient dans ce monde obscurci.
 
-Le Général Tortue Noire et le Général Oiseau Vermillon combattaient les deux hommes d'âge moyen de la Planète des Cinq Éléments. Leur affrontement faisait rage, et il était difficile de désigner un vainqueur.
+Le Général Tortue Noire et le Général Suzaku combattaient les deux hommes d'âge moyen de la Planète des Cinq Éléments. Leur affrontement faisait rage, et il était difficile de désigner un vainqueur.
 
 Cependant, comparés à eux, le véritable combat se déroulait au loin.
 

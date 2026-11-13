@@ -10,9 +10,9 @@ Continent Nan, Secte Dao Yi.
 
 Cette secte était la première du Continent Nan, célèbre, et l'une des rares grandes sectes de tout le clan céleste. Car un Grand Empyréen nommé Dao Yi était issu de cette secte!
 
-Dans les montagnes reculées, une cascade retentissait avec fracas. À côté se trouvait un étang où, assis tranquillement, un jeune homme vêtu d'une robe taoïste contemplait l'eau. Il tenait une branche de saule à la main, la laissant pendre au-dessus du bassin comme s'il pêchait.
+Dans les montagnes reculées, une cascade retentissait avec fracas. À côté se trouvait un étang où, assis tranquillement, un jeune homme vêtu d'une robe daoïste contemplait l'eau. Il tenait une branche de saule à la main, la laissant pendre au-dessus du bassin comme s'il pêchait.
 
-À l'instant même où Wang Lin franchit le huitième palais, le jeune homme en robe taoïste ouvrit les yeux. Il leva la tête vers le ciel bleu et les nuages blancs, l'esprit serein.
+À l'instant même où Wang Lin franchit le huitième palais, le jeune homme en robe daoïste ouvrit les yeux. Il leva la tête vers le ciel bleu et les nuages blancs, l'esprit serein.
 
 « Il a passé le huitième palais... » sourit le jeune homme. D'un mouvement de sa branche de saule, il créa une ondulation à la surface de l'étang, et la scène de l'Épreuve Empyrée apparut.
 

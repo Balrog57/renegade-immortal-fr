@@ -82,9 +82,9 @@ Cette lumière était semblable à une mer qui teintait la formation en roue, lu
 
 Wang Lin ouvrit les yeux, observa la lumière bleue au-delà de la formation et resta pensif. Il vit deux silhouettes émerger de cette clarté.
 
-C'était un homme et une femme, un père et sa fille: le Maître Dao Bleu Rêve et Li Qianmei.
+C'était un homme et une femme, un père et sa fille: Lanmeng Daozun et Li Qianmei.
 
-Après avoir longuement réfléchi pendant un an et neuf mois, le Maître Dao Bleu Rêve avait choisi de venir. Lui et sa fille s'arrêtèrent devant la formation. Le regard de Wang Lin balaya le Maître Dao pour se poser sur Li Qianmei.
+Après avoir longuement réfléchi pendant un an et neuf mois, Lanmeng Daozun avait choisi de venir. Lui et sa fille s'arrêtèrent devant la formation. Le regard de Wang Lin balaya Lanmeng Daozun pour se poser sur Li Qianmei.
 
 Li Qianmei était devenue bien plus mince.
 
@@ -98,7 +98,7 @@ Ils s'étaient connus à travers trois questions et une poursuite sans regret qu
 
 Wang Lin ne pouvait s'empêcher de penser à elle. Elle avait taché sa statue de sang pendant dix ans alors que sa beauté se flétrissait. Elle était même allée chercher des remèdes pour lui. Puis, dans la faille de la Mer Yun, alors qu'elle touchait à sa fin et s'apprêtait à fermer les yeux, il n'y avait aucun regret dans son regard.
 
-Pour elle, Wang Lin était allé dans le Royaume Extérieur chercher le Maître Dao Bleu Rêve afin qu'elle puisse survivre... Puis, lorsqu'elle s'était réveillée, Wang Lin avait gravi la Montagne Bleue malgré une pression infinie. Il voulait simplement voir si elle était revenue à elle.
+Pour elle, Wang Lin était allé dans le Royaume Extérieur chercher Lanmeng Daozun afin qu'elle puisse survivre... Puis, lorsqu'elle s'était réveillée, Wang Lin avait gravi la Montagne Bleue malgré une pression infinie. Il voulait simplement voir si elle était revenue à elle.
 
 Cependant, cette phrase — « Qui êtes-vous? » — fut comme une lame tranchant tout le reste!
 
@@ -110,24 +110,24 @@ Le corps de Li Qianmei trembla et des larmes coulèrent au coin de ses yeux. Ses
 
 Hongdie observa la scène, surprise. Elle les regarda tous deux, plongée dans une réflexion silencieuse.
 
-Le Maître Dao Bleu Rêve soupira et conduisit sa fille vers la formation. En un instant, ils se retrouvèrent à moins de cent pieds de la barrière. La formation en roue bourdonna, signe qu'elle s'activait.
+Lanmeng Daozun soupira et conduisit sa fille vers la formation. En un instant, ils se retrouvèrent à moins de cent pieds de la barrière. La formation en roue bourdonna, signe qu'elle s'activait.
 
-Le regard de Wang Lin quitta Li Qianmei pour se tourner vers le Maître Dao Bleu Rêve. Ses yeux brillèrent intensément, mais cet éclat se dissipa rapidement.
+Le regard de Wang Lin quitta Li Qianmei pour se tourner vers Lanmeng Daozun. Ses yeux brillèrent intensément, mais cet éclat se dissipa rapidement.
 
-Wang Lin fit un geste de la main et la formation s'immobilisa. Une ouverture ovale s'ouvrit devant le Maître Dao Bleu Rêve, menant directement à Wang Lin.
+Wang Lin fit un geste de la main et la formation s'immobilisa. Une ouverture ovale s'ouvrit devant Lanmeng Daozun, menant directement à Wang Lin.
 
-Sans hésiter, le Maître Dao entra avec Li Qianmei. Il apparut devant Wang Lin et s'assit. Son regard devint empreint de douceur lorsqu'il aperçut le Fourneau Impérial derrière le jeune homme.
+Sans hésiter, Lanmeng Daozun entra avec Li Qianmei. Il apparut devant Wang Lin et s'assit. Son regard devint empreint de douceur lorsqu'il aperçut le Fourneau Impérial derrière le jeune homme.
 
-« Je sais que tu apprécies le vin. Voici le vin de soie bleue que j'ai préparé. En veux-tu un verre? » Le Maître Dao Bleu Rêve fit un geste de la main droite, et une cruche d'un bleu aquatique vola vers Wang Lin.
+« Je sais que tu apprécies le vin. Voici le vin de soie bleue que j'ai préparé. En veux-tu un verre? » Lanmeng Daozun fit un geste de la main droite, et une cruche d'un bleu aquatique vola vers Wang Lin.
 
 Wang Lin regarda le vieil homme. Il sourit en acceptant la cruche, puis la posa sur le côté.
 
-Le Maître Dao prit lui-même une cruche et en but une gorgée. Il reprit lentement: « Dans toute ma vie, je me suis rarement trompé sur une personne. Pourtant, en ce qui te concerne, j'admets t'avoir sous-estimé à chaque fois... Dans la formation d'illusion, je n'ai pas eu d'autre choix que d'intervenir: d'une part pour moi-même, d'autre part pour ma fille... À l'époque, j'étais convaincu que malgré ton excellence, si tu ne rompais pas tes liens avec le Royaume Intérieur, tu ne serais pas digne d'être mon gendre... »
+Lanmeng Daozun prit lui-même une cruche et en but une gorgée. Il reprit lentement: « Dans toute ma vie, je me suis rarement trompé sur une personne. Pourtant, en ce qui te concerne, j'admets t'avoir sous-estimé à chaque fois... Dans la formation d'illusion, je n'ai pas eu d'autre choix que d'intervenir: d'une part pour moi-même, d'autre part pour ma fille... À l'époque, j'étais convaincu que malgré ton excellence, si tu ne rompais pas tes liens avec le Royaume Intérieur, tu ne serais pas digne d'être mon gendre... »
 
 « Je n'imaginais pas que tu atteindrais un tel niveau de culture... Donne-moi la cinquième concubine et deviens mon gendre! À partir de maintenant, je prendrai le Clan Lan Si pour rejoindre le Royaume Intérieur! »
 
-« J'utiliserai mes vieux os pour balayer le chemin devant toi! » Le Maître Dao Bleu Rêve prit une grande gorgée de vin et annonça la décision qu'il avait mûrie durant un an et neuf mois.
+« J'utiliserai mes vieux os pour balayer le chemin devant toi! » Lanmeng Daozun prit une grande gorgée de vin et annonça la décision qu'il avait mûrie durant un an et neuf mois.
 
 Le corps de Li Qianmei trembla et elle se tourna vers son père. Durant tout le trajet, celui-ci n'avait pas prononcé un mot. Elle savait que son père était l'un des Cinq Maîtres du Système Stellaire Antique. Avec une telle identité et une telle culture, il ne prononçait pas ces mots uniquement pour sa mère...
 
-Le Maître Dao Bleu Rêve dit calmement: « Laissons le passé derrière nous... Wang Lin, j'attendrai ici ta réponse. »
+Lanmeng Daozun dit calmement: « Laissons le passé derrière nous... Wang Lin, j'attendrai ici ta réponse. »

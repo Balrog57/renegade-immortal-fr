@@ -46,7 +46,7 @@ Après un long moment, le vieil homme nommé Ma demanda soudainement: « Qu'en p
 
 Cependant, à cet instant précis, une voix calme résonna sur toute la planète des Cinq Éléments.
 
-« Est-ce vous qui prétendiez que le clan du Dao Antique n'était constitué que de simples barbares? »
+« Est-ce vous qui prétendiez que le clan Dao Gu n'était constitué que de simples barbares? »
 
 Dès que cette voix retentit, l'expression du vieil homme nommé Ma changea radicalement; ses pupilles se contractèrent et une sueur froide inonda son front. Bien que cette voix fût calme, elle suffisait à faire trembler les cœurs.
 
@@ -64,7 +64,7 @@ La silhouette n'était pas imposante par sa taille, mais sa simple présence fit
 
 Dès son apparition, un silence de mort s'abattit sur la planète. Même le soleil dans le ciel disparut.
 
-« Est-ce vous qui disiez que le clan du Dao Antique n'était que composé de barbares face à votre Secte Gui Yi? » La voix indifférente émanait de la silhouette vaporeuse. L'entité avança, et personne n'osa lui opposer la moindre résistance. Elle arriva devant le vieil homme portant l'armure aux doubles éléments et lui saisit le cou d'un geste désinvolte!
+« Est-ce vous qui disiez que le clan Dao Gu n'était que composé de barbares face à votre Secte Gui Yi? » La voix indifférente émanait de la silhouette vaporeuse. L'entité avança, et personne n'osa lui opposer la moindre résistance. Elle arriva devant le vieil homme portant l'armure aux doubles éléments et lui saisit le cou d'un geste désinvolte!
 
 Tout se déroula avec une rapidité fulgurante, sous une pression écrasante qui ne faiblissait pas. L'homme en armure ne put ni fuir ni résister. Dès qu'il fut saisi par la silhouette, il commença à lutter douloureusement.
 
@@ -74,6 +74,6 @@ La silhouette vague agita doucement sa main droite et des grondements de tonnerr
 
 Cette scène fit trembler les jambes du vieil homme nommé Ma. Et il n'était pas le seul; Yun Yifeng était dans le même état!
 
-« Grand... Grand Empyréen... » Les lèvres du vieil homme nommé Ma tremblaient. Il n'existait qu'une seule personne capable de détruire si aisément l'armure de la Secte Gui Yi et d'exiger des comptes sur l'irrespect envers le clan du Dao Antique.
+« Grand... Grand Empyréen... » Les lèvres du vieil homme nommé Ma tremblaient. Il n'existait qu'une seule personne capable de détruire si aisément l'armure de la Secte Gui Yi et d'exiger des comptes sur l'irrespect envers le clan Dao Gu.
 
 « Grand Empyréen Xuan Luo! » Le vieil homme nommé Ma cracha du sang et recula de quelques pas, les yeux écarquillés par une terreur monstrueuse.

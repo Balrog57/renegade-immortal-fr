@@ -82,7 +82,7 @@ Un autre immense Tian Niu apparut dans le ciel et chargea en avant.
 
 « Quelle force et quelle vitesse prodigieuses... Je n'ai même pas pu contenir la première vague que la seconde est déjà là! Son corps doit être d'une robustesse extrême pour supporter un tel déploiement continu de sorts!! »
 
-Le vieil homme aux cheveux roux battit en retraite. Alors que l'ombre du second Tian Niu fondait sur lui, une aura de Grand Empyréen jaillit de la robe taoïste violette qu'il portait.
+Le vieil homme aux cheveux roux battit en retraite. Alors que l'ombre du second Tian Niu fondait sur lui, une aura de Grand Empyréen jaillit de la robe daoïste violette qu'il portait.
 
 Cette robe était un présent du Grand Empyréen Dao Yi. En des moments cruciaux, elle pouvait sauver une vie!
 
@@ -100,7 +100,7 @@ Lorsque l'ombre du Taureau disparut, Wang Lin fut projeté en arrière sur mille
 
 L'ombre, initialement floue, finit par révéler clairement la figure qu'elle abritait.
 
-C'était un jeune homme vêtu d'une robe taoïste. Il paraissait n'avoir qu'une vingtaine d'années. Ses cheveux étaient noirs et ses sourcils marqués. Il était d'une grande beauté, avec des yeux semblables à des étoiles dans lesquels on aurait pu se perdre.
+C'était un jeune homme vêtu d'une robe daoïste. Il paraissait n'avoir qu'une vingtaine d'années. Ses cheveux étaient noirs et ses sourcils marqués. Il était d'une grande beauté, avec des yeux semblables à des étoiles dans lesquels on aurait pu se perdre.
 
 Bien que sa robe soit simple et son allure ordinaire, les cieux ne bougeaient plus, le vent s'était tu, rien ne bougeait! Même le cours des lois de la terre et du ciel semblait s'être totalement arrêté.
 

@@ -100,7 +100,7 @@ Les yeux de Suzaku brillèrent sans la moindre hésitation. La simple âme d'une
 
 « Tout le feu de ce monde doit obéir à mon commandement et me vénérer comme son maître! Même le feu du Continent Xian Gang doit se soumettre! » Le Sens Divin de Wang Lin résonna sous terre, empreint de la nature dominante du feu.
 
-Le dragon de feu dévora Suzaku mais afficha une expression de douleur. Son corps se tordit et des flammes jaillirent de ses propres flancs. L'Oiseau Vermillon apparut lentement à l'intérieur du dragon, grandissant jusqu'à l'envelopper totalement avant de devenir parfaitement distinct.
+Le dragon de feu dévora Suzaku mais afficha une expression de douleur. Son corps se tordit et des flammes jaillirent de ses propres flancs. Le Suzaku apparut lentement à l'intérieur du dragon, grandissant jusqu'à l'envelopper totalement avant de devenir parfaitement distinct.
 
 Une fois manifeste, il continua d'absorber le feu provenant du dragon. À mesure qu'il se renforçait, les rugissements du dragon s'affaiblissaient. Cependant, alors qu'il était absorbé, le dragon se débattit avec une violence accrue.
 
@@ -108,7 +108,7 @@ Une fois manifeste, il continua d'absorber le feu provenant du dragon. À mesure
 
 Le processus ne dura pas longtemps. Après l'équivalent du temps d'un bâton d'encens, le feu qui jaillissait du sol se rétracta brusquement et disparut dans les fissures pour retourner dans les profondeurs. Le dragon avait cessé de lutter et Suzaku était enfin pleinement manifesté. Il ouvrit les yeux, révélant un regard glacial.
 
-« Après avoir absorbé l'âme d'une branche de la veine de feu, mon essence de feu s'est considérablement renforcée! » L'Oiseau Vermillon se changea en une mer de flammes et chargea vers la surface, retournant dans l'œil gauche de Wang Lin.
+« Après avoir absorbé l'âme d'une branche de la veine de feu, mon essence de feu s'est considérablement renforcée! » Le Suzaku se changea en une mer de flammes et chargea vers la surface, retournant dans l'œil gauche de Wang Lin.
 
 Le corps de Wang Lin trembla lorsque son âme originelle réintégra son être, et il ouvrit les yeux.
 

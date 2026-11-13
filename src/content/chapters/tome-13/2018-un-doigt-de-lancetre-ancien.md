@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2018 - One Finger of the Ancient Ancestor
 slug: un-doigt-de-lancetre-ancien
 ---
-Wang Lin posa la tablette de jade d'invitation et cessa de songer à cette affaire. Après tout, comparée à la cérémonie d'investiture de l'impératrice de l'Empereur Dao Ancien, sa culture était bien plus importante.
+Wang Lin posa la tablette de jade d'invitation et cessa de songer à cette affaire. Après tout, comparée à la cérémonie d'investiture de l'impératrice de l'Empereur Dao Gu, sa culture était bien plus importante.
 
 « Le vrai corps d'essence métallique pourra se former au cours des prochains jours. Une fois que le vrai corps des cinq éléments sera complet, je pourrai vérifier si mes spéculations sont exactes », admit Wang Lin avec une pointe d'inquiétude. S'il restait au stade avancé de la Tribulation du Vide après l'achèvement de son vrai corps des cinq éléments, alors sa déduction serait erronée.
 
@@ -90,7 +90,7 @@ La lueur argentée envahit ses yeux, lui donnant un regard glacial. Wang Lin fix
 
 Cependant, puisque l'esprit de Wang Lin contenait ces souvenirs, certains d'entre eux se lièrent et surgirent dans son esprit à la vue de la silhouette.
 
-Il s'agissait d'un homme vêtu d'une robe grise, aux longs cheveux. Il ressemblait trait pour trait à la statue de la cité impériale du Dao Ancien. C'était l'Ancêtre Ancien!
+Il s'agissait d'un homme vêtu d'une robe grise, aux longs cheveux. Il ressemblait trait pour trait à la statue de la cité impériale Dao Gu. C'était l'Ancêtre Ancien!
 
 Sa main gauche était derrière lui tandis qu'il flottait dans les cieux. Il contemplait l'horizon avec un mépris et un dédain manifestes, paraissant hautain. Tandis qu'il regardait le ciel, des amas de points noirs convergeaient vers lui. Ces points n'étaient autres que des hordes de bêtes féroces.
 

@@ -12,11 +12,11 @@ Cependant, leur agressivité et leur refus de le rencontrer avaient provoqué l'
 
 En voyant Suzaku apparaître, les yeux de Wang Lin s'illuminèrent et sa main droite se détendit. L'arc et la flèche se dissipèrent en de multiples éclats de lumière dorée. Bien que l'arc ait disparu, si Wang Lin en avait besoin, il pourrait l'invoquer instantanément. Il ne craignait pas une attaque sournoise des quatre généraux.
 
-Wang Lin joignit les mains devant Suzaku. Ce dernier était également un vieil homme et ressemblait étrangement au premier Oiseau Vermillon de la Terre Déchue.
+Wang Lin joignit les mains devant Suzaku. Ce dernier était également un vieil homme et ressemblait étrangement au premier Suzaku de la Terre Déchue.
 
-Wang Lin ouvrit lentement la bouche et dit calmement: « Inutile de m'appeler "compagnon céleste". Le junior Wang Lin salue le premier Oiseau Vermillon. »
+Wang Lin ouvrit lentement la bouche et dit calmement: « Inutile de m'appeler "compagnon céleste". Le junior Wang Lin salue le premier Suzaku. »
 
-L'Oiseau Vermillon, vêtu de rouge, afficha une expression complexe en regardant Wang Lin, et resta silencieux.
+Suzaku, vêtu de rouge, afficha une expression complexe en regardant Wang Lin, et resta silencieux.
 
 Wang Lin reprit calmement: « Une chose me laisse perplexe. Quel est votre lien avec celui de la Terre Déchue? »
 
@@ -54,7 +54,7 @@ La Tortue Noire, qui était restée muette jusqu'alors, médita un instant avant
 
 « Vous êtes les anciens Célestes de l'Ancien Royaume Céleste. Je veux que vous quittiez cet endroit, que vous vous frayiez un chemin vers le Royaume Extérieur par le massacre et que vous mettiez fin à la guerre! » Les yeux de Wang Lin s'illuminèrent en parlant.
 
-L'Oiseau Vermillon réfléchit et murmura: « Le Royaume Extérieur possède également son propre Ancien Royaume Céleste... On y trouve des membres de la Secte Qi Dao qui servent les concubines impériales célestes, et ils ne sont pas aussi blessés que vous. S'ils n'en sont pas sortis ces dernières années, c'est parce que bien que l'Ancien Royaume Céleste soit divisé en deux, un lien profond les unit toujours. Si nous ouvrions la porte pour quitter l'Ancien Royaume Céleste, ils pourraient également en sortir. À ce moment-là, la guerre entre les Royaumes Intérieur et Extérieur s'intensifierait. Cela pourrait même détruire cette grotte! »
+Suzaku réfléchit et murmura: « Le Royaume Extérieur possède également son propre Ancien Royaume Céleste... On y trouve des membres de la Secte Qi Dao qui servent les concubines impériales célestes, et ils ne sont pas aussi blessés que vous. S'ils n'en sont pas sortis ces dernières années, c'est parce que bien que l'Ancien Royaume Céleste soit divisé en deux, un lien profond les unit toujours. Si nous ouvrions la porte pour quitter l'Ancien Royaume Céleste, ils pourraient également en sortir. À ce moment-là, la guerre entre les Royaumes Intérieur et Extérieur s'intensifierait. Cela pourrait même détruire cette grotte! »
 
 Wang Lin agita ses manches et trancha froidement: « Ils ne pourront jamais sortir de l'Ancien Royaume Céleste du Royaume Extérieur! »
 
@@ -76,7 +76,7 @@ Pourtant, Wang Lin les avait trouvés et menaçait de dévaster l'Ancien Royaume
 
 Les quatre généraux méditèrent en silence. Wang Lin avait promis de détruire l'Ancien Royaume Céleste du royaume extérieur et de les protéger pendant trois ans. Cependant, plus il se montrait conciliant, plus ils soupçonnaient qu'il cachait un autre dessein. Leurs esprits étaient troublés par ses intentions.
 
-L'Oiseau Vermillon regarda Wang Lin et demanda: « Que voulez-vous obtenir en retour de cet accord? »
+Suzaku regarda Wang Lin et demanda: « Que voulez-vous obtenir en retour de cet accord? »
 
 « Je veux que les cultivateurs du Royaume Extérieur soient anéantis jusqu'au dernier!
 

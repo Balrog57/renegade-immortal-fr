@@ -6,9 +6,9 @@ bookTitle: Light of the coming end
 en: Chapter 2020 - Banquet
 slug: banquet
 ---
-Toutes les générations d'empereurs de l'Ancien Dao organisaient un banquet la veille de la grande cérémonie. Ce festin débutait au coucher du soleil pour ne s'achever qu'à l'aube. Les convives de ce banquet participaient également à la grande cérémonie.
+Toutes les générations d'empereurs Dao Gu organisaient un banquet la veille de la grande cérémonie. Ce festin débutait au coucher du soleil pour ne s'achever qu'à l'aube. Les convives de ce banquet participaient également à la grande cérémonie.
 
-Lors du banquet du soir, l'Empereur de l'Ancien Dao ferait son apparition aux côtés de l'Impératrice. Ce serait la toute première fois que l'Impératrice se montrerait publiquement.
+Lors du banquet du soir, l'Empereur Dao Gu ferait son apparition aux côtés de l'Impératrice. Ce serait la toute première fois que l'Impératrice se montrerait publiquement.
 
 Après avoir reçu les bénédictions de la foule, l'Impératrice s'éclipserait, mais l'Empereur resterait auprès de ses sujets tout au long de la nuit, jusqu'à la grande cérémonie.
 
@@ -24,7 +24,7 @@ Neuf silhouettes vêtues de noir flottaient au-dessus du tambour; chacune d'elle
 
 L'écho du tambour ne s'éteignait pas, mais se propageait par ondes successives. Il enveloppait tout le ciel, drapant les quelque mille plateformes volantes.
 
-Grâce à cela, tous les membres du clan de l'Ancien Dao présents pouvaient l'entendre.
+Grâce à cela, tous les membres de la lignée Dao Gu présents pouvaient l'entendre.
 
 Des grondements tonitruants retentissaient par intervalles, créant d'innombrables échos. Dès qu'un son commençait à s'estomper, un autre prenait le relais, plongeant le monde dans le fracas des percussions.
 
@@ -32,17 +32,17 @@ Au troisième coup de tambour, des membres du clan sortirent du palais. Ils éta
 
 Chacun choisit une table et s'assit pour converser. La place entière commença à bourdonner, devenant très animée.
 
-Au cinquième coup de tambour, des traînées de lumière traversèrent le ciel. Parmi elles se trouvaient des membres de l'Ancien Dao ainsi que des individus issus des deux autres clans. Certains choisirent de s'installer sur la place, tandis que d'autres prirent place sur les centaines de plateformes flottantes.
+Au cinquième coup de tambour, des traînées de lumière traversèrent le ciel. Parmi elles se trouvaient des membres de la lignée Dao Gu ainsi que des individus issus des deux autres clans. Certains choisirent de s'installer sur la place, tandis que d'autres prirent place sur les centaines de plateformes flottantes.
 
 Le flux de visiteurs s'intensifia et, au septième coup de tambour, des milliers de rayons de lumière fendirent le ciel. Ces éclats semblaient fragmenter l'éther avant que chacun ne trouve une place pour s'asseoir.
 
-Une fois ces milliers de lumières stabilisées, 108 lueurs éclatantes surgirent de l'horizon. Elles arrivèrent instantanément, révélant 108 membres de l'Ancien Dao revêtus d'armures blanches!
+Une fois ces milliers de lumières stabilisées, 108 lueurs éclatantes surgirent de l'horizon. Elles arrivèrent instantanément, révélant 108 membres de la lignée Dao Gu revêtus d'armures blanches!
 
 Ces 108 guerriers s'inclinèrent tous vers le palais avant de se poser sur la place. Ils choisirent des tables proches du palais, s'y installèrent, le visage calme, jambes croisées.
 
-« Les 108 Jin de l'Ancien Dao! »
+« Les 108 Jin du Dao Gu! »
 
-« L'Ancien Dao est divisé en grades: Jin, Saint, Fléau, Roi et Général Immortel! Les 108 Jin sont apparus, les autres ne tarderont pas! »
+« Le Dao Gu est divisé en grades: Jin, Saint, Fléau, Roi et Général Immortel! Les 108 Jin sont apparus, les autres ne tarderont pas! »
 
 « Ces 108 Jin dégagent des auras de massacre monstrueuses. C'est pour cela qu'on les appelle "Jin"! »
 
@@ -52,9 +52,9 @@ Aussitôt après l'apparition des 108 guerriers, 72 tornades surgirent au loin. 
 
 Une pression écrasante descendit soudainement, enveloppant la zone à l'arrivée des 72 tornades. À l'intérieur se trouvaient des hommes et des femmes, jeunes ou vieux, mais chacun possédait sans exception l'aura d'un Dieu, d'un Démon ou d'un Diable. De plus, en observant leurs yeux et leurs fronts, on pouvait distinguer un total de 27 étoiles!
 
-« Les 72 Saints! Les 72 Saints qui ont accompli de grands mérites pour l'Ancien Dao! »
+« Les 72 Saints! Les 72 Saints qui ont accompli de grands mérites pour le Dao Gu! »
 
-« J'ai entendu dire depuis longtemps qu'il n'existe que 72 Saints, ni plus, ni moins. Ils protègent l'Ancien Dao depuis des éternités. »
+« J'ai entendu dire depuis longtemps qu'il n'existe que 72 Saints, ni plus, ni moins. Ils protègent le Dao Gu depuis des éternités. »
 
 Les discussions s'intensifièrent alors qu'un autre grondement tonitruant retentissait. C'était le huitième coup de tambour!
 
@@ -62,9 +62,9 @@ Les discussions s'intensifièrent alors qu'un autre grondement tonitruant retent
 
 « Les 36 Zhang! »
 
-« Les célèbres 36 Zhang du clan de l'Ancien Dao. Ce sont les gardiens de la famille royale. Trente-six guerriers puissants créés grâce aux ressources de toute la lignée impériale pour chaque génération d'empereur! »
+« Les célèbres 36 Zhang du clan Dao Gu. Ce sont les gardiens de la famille royale. Trente-six guerriers puissants créés grâce aux ressources de toute la lignée impériale pour chaque génération d'empereur! »
 
-« On dit qu'ils sont comme des soldats de la mort. Dès que l'Empereur de l'Ancien Dao donne l'ordre, ils se sacrifient par autodestruction! »
+« On dit qu'ils sont comme des soldats de la mort. Dès que l'Empereur Dao Gu donne l'ordre, ils se sacrifient par autodestruction! »
 
 « Comment peut-on les appeler les 36 Zhang? Ce sont clairement 36 Fléaux! »
 
@@ -78,7 +78,7 @@ Ces 18 dragons dégageaient une aura démoniaque terrifiante. C'étaient de vér
 
 Leurs dix-huit paires d'yeux argentés projetaient une énergie démoniaque infinie, rendant ces créatures extrêmement féroces. Une fois apparus, ils commencèrent à décrire des cercles dans le ciel, formant un vortex colossal.
 
-« Les 18 Rois de l'Ancien Dao! »
+« Les 18 Rois du Dao Gu! »
 
 « C'est exact, ce sont les montures draconiques démoniaques des 18 Rois! Si ces dragons sont là, cela signifie que les 18 Rois sont arrivés! »
 
@@ -88,7 +88,7 @@ Un immense tumulte s'éleva devant cette vision. Dans le ciel lointain, encore l
 
 L'apparition des 18 dragons démoniaques avait altéré l'énergie spirituelle de la région. La tempête générée par leur vortex était capable de bloquer le Sens Divin.
 
-« Les 18 Rois de l'Ancien Dao... Je me demande si Ye Mo était l'un d'entre eux à l'époque... Je le saurai peut-être lors du banquet. » Wang Lin se frotta le menton. Il n'était pas resté longtemps dans l'Ancien Dao et, depuis son retour, avait passé trois mois en culture fermée; il n'avait donc pas encore eu le loisir de traquer les descendants de Ye Mo.
+« Les 18 Rois du Dao Gu... Je me demande si Ye Mo était l'un d'entre eux à l'époque... Je le saurai peut-être lors du banquet. » Wang Lin se frotta le menton. Il n'était pas resté longtemps dans le Dao Gu et, depuis son retour, avait passé trois mois en culture fermée; il n'avait donc pas encore eu le loisir de traquer les descendants de Ye Mo.
 
 Cependant, cette question demeurait ancrée dans son esprit.
 
@@ -116,7 +116,7 @@ Devant eux, il restait encore quatre tables!
 
 « Les Généraux Immortels! »
 
-« Ce doivent être les neuf Généraux Immortels de l'Ancien Dao! »
+« Ce doivent être les neuf Généraux Immortels du Dao Gu! »
 
 « Ces neuf êtres sont comparables à des Ascendants Empyréens ayant franchi le 13e palais! L'un d'eux a même atteint un niveau lui permettant de briser le 14e palais! » Wang Lin détourna le regard et continua sa marche alors que le neuvième coup de tambour résonnait.
 

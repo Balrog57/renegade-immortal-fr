@@ -106,11 +106,11 @@ Dès l'apparition du palais, le monde s'obscurcit; le sang antique de Wang Lin a
 
 Alors que sa voix résonnait et que le sang coulait, la fenêtre du palais noir trembla. Des craquements sinistres retentirent et elle s'effondra soudainement. Un rugissement puissant et exalté jaillit de l'ouverture brisée.
 
-« Maudit Ye Mo! Tu as scellé ce vieux maître, Âme Écarlate, pendant d'innombrables années. Aujourd'hui, ce vieux est enfin libre! » Dans un fracas, une ombre rouge chargea hors du palais. On ne pouvait distinguer son visage, elle n'était qu'une silhouette de sang. Une aura terrifiante l'accompagnait.
+« Maudit Ye Mo! Tu as scellé ce vieux maître, Chi Hunzi, pendant d'innombrables années. Aujourd'hui, ce vieux est enfin libre! » Dans un fracas, une ombre rouge chargea hors du palais. On ne pouvait distinguer son visage, elle n'était qu'une silhouette de sang. Une aura terrifiante l'accompagnait.
 
 Le Souverain étant trop proche, il fut percuté par cette ombre de sang dès son apparition. Il fut projeté en arrière de plusieurs centaines de pieds et sa capuche vola, révélant son visage.
 
-« Maître Âme Écarlate! »
+« Chi Hunzi! »
 
 L'ombre rouge éclata de rire sans même accorder un regard au Souverain ou à Wang Lin. En un éclair, elle fonça vers la concubine impériale céleste au loin. L'ombre enveloppa la femme qui poussa un cri strident; son corps délicat fondit et fut dévoré par l'entité sanglante.
 

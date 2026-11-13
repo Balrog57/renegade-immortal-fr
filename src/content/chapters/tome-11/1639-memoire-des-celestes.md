@@ -18,7 +18,7 @@ Derrière lui, l'ombre d'un Dieu Ancien se forma lentement. À sa gauche apparut
 
 C'était la première fois que les trois clans ancestraux apparaissaient derrière Wang Lin simultanément!
 
-Cela signifiait que les auras de ces trois clans circulaient à travers son âme originelle. Derrière les ombres de ces trois clans se dressait la tête gigantesque de l'Ancien!
+Cela signifiait que les auras de ces trois clans circulaient à travers son âme originelle. Derrière les ombres de ces trois clans se dressait la tête gigantesque de Dao Gu!
 
 Cette tête antique masquait le ciel et couvrait la terre. L'âme originelle de Wang Lin s'étendit rapidement.
 

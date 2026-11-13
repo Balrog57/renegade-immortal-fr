@@ -8,11 +8,11 @@ slug: empli-de-rage-11
 ---
 À l'extérieur du palais, le chemin de sang menant au palais était jonché des restes de près de mille personnes. La foule contemplait le palais avec effroi.
 
-Lorsque Wang Lin pénétra dans le palais, le visage de l'Empereur Dao Antique pâlit. Il recula inconsciemment de quelques pas et fixa Wang Lin du regard.
+Lorsque Wang Lin pénétra dans le palais, le visage de l'Empereur Dao Gu pâlit. Il recula inconsciemment de quelques pas et fixa Wang Lin du regard.
 
 « Wang Lin, si je meurs, cette femme mourra aussi! Oserez-vous me tuer?! Je bénéficie de la protection du Grand Empyréen Gu Dao, personne dans ce monde ne peut tuer un empereur antique! »
 
-Wang Lin ignora l'Empereur Dao Antique, tout comme le père de celui-ci, dont l'expression était tout aussi sinistre. Il ne regardait que Song Zhi. En contemplant cette femme qui lui procurait une sensation familière capable d'apaiser sa folie, il marcha vers l'aura qu'il poursuivait depuis des milliers d'années.
+Wang Lin ignora l'Empereur Dao Gu, tout comme le père de celui-ci, dont l'expression était tout aussi sinistre. Il ne regardait que Song Zhi. En contemplant cette femme qui lui procurait une sensation familière capable d'apaiser sa folie, il marcha vers l'aura qu'il poursuivait depuis des milliers d'années.
 
 Mais à cet instant précis, des ombres apparurent devant lui. Telles de la fumée, elles chargèrent Wang Lin.
 
@@ -32,21 +32,21 @@ En entendant le nom de « Li Muwan », la femme ressentit un murmure douloureux,
 
 « Li Muwan... Li Muwan... Song Zhi... Je... Qui suis-je exactement... » Sous l'effet d'une douleur intense, des larmes commencèrent à couler sur ses joues.
 
-L'Empereur Dao Antique afficha un regard venimeux et, au moment où il s'apprêtait à agir, il entendit le froid reniflement de Wang Lin.
+L'Empereur Dao Gu afficha un regard venimeux et, au moment où il s'apprêtait à agir, il entendit le froid reniflement de Wang Lin.
 
-Ce bruit fut comme un coup de tonnerre qui fit pousser un cri misérable à l'Empereur Dao Antique. Le sang jaillit de ses orifices et il recula de plusieurs pas. Rapidement, Wang Lin leva la main droite et pointa l'espace entre les sourcils de la femme. Une gouttelette du sang d'âme de l'Ancêtre Ancien, qu'il avait fusionné avec le sien, glissa par son doigt pour pénétrer en elle. Dès que cette trace de sang entra en elle, elle se mit à trembler.
+Ce bruit fut comme un coup de tonnerre qui fit pousser un cri misérable à l'Empereur Dao Gu. Le sang jaillit de ses orifices et il recula de plusieurs pas. Rapidement, Wang Lin leva la main droite et pointa l'espace entre les sourcils de la femme. Une gouttelette du sang d'âme de l'Ancêtre Ancien, qu'il avait fusionné avec le sien, glissa par son doigt pour pénétrer en elle. Dès que cette trace de sang entra en elle, elle se mit à trembler.
 
-Une fine ligne qui ne semblait pas appartenir à ce monde apparut sur son front. Elle était reliée à l'Empereur Dao Antique, qui se tenait derrière Wang Lin.
+Une fine ligne qui ne semblait pas appartenir à ce monde apparut sur son front. Elle était reliée à l'Empereur Dao Gu, qui se tenait derrière Wang Lin.
 
 Sans hésiter, Wang Lin leva la main gauche et trancha cette ligne ténue.
 
 D'un seul coup, la ligne fut coupée en deux.
 
-Au moment même où la ligne fut tranchée, l'Empereur Dao Antique cracha une bouchée de sang. Il avait l'air pitoyable, ses yeux emplis d'horreur et d'incrédulité.
+Au moment même où la ligne fut tranchée, l'Empereur Dao Gu cracha une bouchée de sang. Il avait l'air pitoyable, ses yeux emplis d'horreur et d'incrédulité.
 
-« Impossible!! Ce Verrou Ancestral d'Âme Violet ne peut pas être coupé ainsi! C'est le sort secret des familles impériales, seul le Grand Empyréen Gu Dao peut le lever... » L'Empereur Dao Antique hurla, mais n'osa s'approcher de Wang Lin et continua de reculer.
+« Impossible!! Ce Verrou Ancestral d'Âme Violet ne peut pas être coupé ainsi! C'est le sort secret des familles impériales, seul le Grand Empyréen Gu Dao peut le lever... » L'Empereur Dao Gu hurla, mais n'osa s'approcher de Wang Lin et continua de reculer.
 
-Wang Lin ne prêta aucune attention à l'Empereur Dao Antique; il ne regardait que la femme en souffrance. Il lui caressa doucement les cheveux.
+Wang Lin ne prêta aucune attention à l'Empereur Dao Gu; il ne regardait que la femme en souffrance. Il lui caressa doucement les cheveux.
 
 « N'ayez pas peur... Je vous emmènerai pour tuer... » murmura Wang Lin, répétant les paroles qu'il avait prononcées des millénaires auparavant.
 
@@ -72,29 +72,29 @@ Son corps trembla et des larmes coulèrent de ses yeux. La confusion qui embruma
 
 « Wang... Lin... » La voix de la femme était rauque, comme si elle n'avait pas parlé depuis une éternité. Pourtant, ce qu'elle prononça fit vibrer l'esprit de Wang Lin comme si des millions de coups de tonnerre avaient retenti.
 
-Wang Lin fut transporté par l'émotion et rit aux éclats vers le ciel tout en serrant la femme contre lui. Il se tourna vers l'Empereur Dao Antique et son père, qui étaient en proie à la panique. Cependant, contrairement à son père, l'Empereur Dao Antique conservait une pointe de calme.
+Wang Lin fut transporté par l'émotion et rit aux éclats vers le ciel tout en serrant la femme contre lui. Il se tourna vers l'Empereur Dao Gu et son père, qui étaient en proie à la panique. Cependant, contrairement à son père, l'Empereur Dao Gu conservait une pointe de calme.
 
-Lorsque Wang Lin tourna son regard vers lui, l'Empereur Dao Antique vit clairement son intention meurtrière et sentit son cœur s'effondrer.
+Lorsque Wang Lin tourna son regard vers lui, l'Empereur Dao Gu vit clairement son intention meurtrière et sentit son cœur s'effondrer.
 
-« Je suis l'Empereur Dao Antique, je bénéficie de la protection du Grand Empyréen Gu Dao, vous ne pouvez pas me tuer! » L'Empereur Dao Antique recula de nouveau. Une lueur passa dans les yeux de Wang Lin. Il voulait tuer cet homme; son intention meurtrière était d'une ampleur effrayante. Il prit Li Muwan dans ses bras et chargea l'Empereur Dao Antique.
+« Je suis l'Empereur Dao Gu, je bénéficie de la protection du Grand Empyréen Gu Dao, vous ne pouvez pas me tuer! » L'Empereur Dao Gu recula de nouveau. Une lueur passa dans les yeux de Wang Lin. Il voulait tuer cet homme; son intention meurtrière était d'une ampleur effrayante. Il prit Li Muwan dans ses bras et chargea l'Empereur Dao Gu.
 
-Wang Lin se rapprocha instantanément, le regard chargé d'une intention meurtrière monstrueuse. Il leva la main droite et s'abattit sur l'Empereur Dao Antique!
+Wang Lin se rapprocha instantanément, le regard chargé d'une intention meurtrière monstrueuse. Il leva la main droite et s'abattit sur l'Empereur Dao Gu!
 
-« Grand Empyréen Gu Dao, sauvez-moi! » hurla l'Empereur Dao Antique.
+« Grand Empyréen Gu Dao, sauvez-moi! » hurla l'Empereur Dao Gu.
 
-Mais au moment où la paume de Wang Lin allait frapper, un grondement tonnerre retentit. Un éclat de lumière violette apparut autour de l'Empereur Dao Antique et repoussa l'attaque de Wang Lin.
+Mais au moment où la paume de Wang Lin allait frapper, un grondement tonnerre retentit. Un éclat de lumière violette apparut autour de l'Empereur Dao Gu et repoussa l'attaque de Wang Lin.
 
-En voyant cette lumière violette, l'Empereur Dao Antique se mit immédiatement à rire. La panique dans ses yeux s'évanouit pour laisser place au calme. Il fixa Wang Lin avec férocité.
+En voyant cette lumière violette, l'Empereur Dao Gu se mit immédiatement à rire. La panique dans ses yeux s'évanouit pour laisser place au calme. Il fixa Wang Lin avec férocité.
 
-« Je suis l'Empereur Dao Antique, le descendant direct de l'Ancêtre Ancien! Comment pourriez-vous me tuer? Dans ce monde, nul ne peut m'abattre! » L'Empereur Dao Antique agita sa manche et rugit vers la foule à l'extérieur du palais.
+« Je suis l'Empereur Dao Gu, le descendant direct de l'Ancêtre Ancien! Comment pourriez-vous me tuer? Dans ce monde, nul ne peut m'abattre! » L'Empereur Dao Gu agita sa manche et rugit vers la foule à l'extérieur du palais.
 
-« Tous les membres du Dao Antique, tuez cet homme! Quiconque désobéira à cet ordre sera considéré comme un traître! » Alors que ses paroles résonnaient, les dizaines de milliers de membres du Dao Antique sur la place, ainsi que ceux qui arrivaient peu à peu, jusqu'à plus de cent mille, l'entendirent. Ils se tournèrent vers le palais et s'élancèrent tel un immense nuage noir.
+« Tous les membres du Dao Gu, tuez cet homme! Quiconque désobéira à cet ordre sera considéré comme un traître! » Alors que ses paroles résonnaient, les dizaines de milliers de membres du Dao Gu sur la place, ainsi que ceux qui arrivaient peu à peu, jusqu'à plus de cent mille, l'entendirent. Ils se tournèrent vers le palais et s'élancèrent tel un immense nuage noir.
 
-Une lueur meurtrière traversa les yeux de Wang Lin et il leva à nouveau la main pour frapper l'Empereur Dao Antique. La lumière violette brilla de nouveau, résistant à l'assaut.
+Une lueur meurtrière traversa les yeux de Wang Lin et il leva à nouveau la main pour frapper l'Empereur Dao Gu. La lumière violette brilla de nouveau, résistant à l'assaut.
 
-Face à cela, l'Empereur Dao Antique rit avec une arrogance croissante. Il ne prit même pas la peine d'esquiver et fixa Wang Lin avec mépris.
+Face à cela, l'Empereur Dao Gu rit avec une arrogance croissante. Il ne prit même pas la peine d'esquiver et fixa Wang Lin avec mépris.
 
-« De quel droit prétendez-vous me tuer? Wang Lin, vous n'êtes qu'une fourmi du monde des grottes. Maintenant que cent mille membres de mon clan arrivent, je veux voir comment vous comptez fuir! Vous allez mourir, et une fois mort, je prendrai cette femme dans mon lit pour qu'elle vous accompagne dans la mort! » l'Empereur Dao Antique éclata de rire.
+« De quel droit prétendez-vous me tuer? Wang Lin, vous n'êtes qu'une fourmi du monde des grottes. Maintenant que cent mille membres de mon clan arrivent, je veux voir comment vous comptez fuir! Vous allez mourir, et une fois mort, je prendrai cette femme dans mon lit pour qu'elle vous accompagne dans la mort! » l'Empereur Dao Gu éclata de rire.
 
 « Je ne peux pas te tuer?... » Les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât, et son Grand Soleil Empyréen apparut derrière lui. Il dégageait simultanément une lumière noire et blanche, tandis que son sang d'âme circulait frénétiquement. À cet instant, le Chant du Vent jaillit de son corps!
 
@@ -104,7 +104,7 @@ Les nuages se déchaînèrent sous l'effet du vent et de la foudre, créant le C
 
 La pluie tomba également, composant le Chant de la Pluie, qui fait croître toutes choses! Puis les Chants du Ciel et de la Terre apparurent, suivis par le septième chant émanant du corps de Wang Lin.
 
-Le huitième chant était celui des organes internes; il était indescriptible tant il résonnait à travers tout le palais du Dao Antique!
+Le huitième chant était celui des organes internes; il était indescriptible tant il résonnait à travers tout le palais du Dao Gu!
 
 « Dans ce monde, en dehors du Grand Empyréen Gu Dao, il existe une autre personne capable de te tuer... l'Ancêtre Ancien! » dit lentement Wang Lin. À mesure que ses paroles s'échappaient, son sang d'âme libéra le neuvième chant!
 

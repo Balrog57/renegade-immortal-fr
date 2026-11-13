@@ -104,6 +104,6 @@ Ce genre de pressentiment lui était extrêmement rare, il ne pouvait donc l'ign
 
 « Cet homme est... l'élu, il doit donc posséder des méthodes secrètes... Il est très rusé. Si nous avions suivi le plan initial, nous n'aurions pas eu à payer un prix aussi élevé... »
 
-Tout en méditant, le Maître de la Secte accéléra sa course vers le centre du Continent Lu Mo: l'emplacement du Temple Lü Mo Xie!
+Tout en méditant, le Maître de la Secte accéléra sa course vers le centre du Continent Lu Mo: l'emplacement du Temple Lu Mo Xie!
 
-« Emprisonnez cet homme dans le Temple Lü Mo Xie. Utilisez son corps pour nourrir le Démon Vert et son âme pour le ressusciter! »
+« Emprisonnez cet homme dans le Temple Lu Mo Xie. Utilisez son corps pour nourrir le Démon Vert et son âme pour le ressusciter! »

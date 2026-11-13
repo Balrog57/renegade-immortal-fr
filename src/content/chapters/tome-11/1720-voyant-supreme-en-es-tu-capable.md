@@ -38,7 +38,7 @@ Le feu, le tonnerre et le karma. Les collisions de ces essences rejouaient dans 
 
 « Aucun indice... » Wang Lin fronça les sourcils et s'arrêta brusquement. Ses yeux brillèrent intensément alors qu'il se plongeait dans ses pensées. Un instant plus tard, son regard devint résolu et il disparut en un éclair.
 
-Dans une autre partie de Zhao He He, parmi les décombres, Tian Yunzi était assis en tailleur sur un fragment de roche, le regard porté vers l'avant. Il arborait toujours ce sourire énigmatique.
+Dans une autre partie de Zhao He, parmi les décombres, Tian Yunzi était assis en tailleur sur un fragment de roche, le regard porté vers l'avant. Il arborait toujours ce sourire énigmatique.
 
 « Cette fois, il est arrivé un peu tard... Disciple, comparé à ton Maître, tu es encore bien jeune. »
 
@@ -66,7 +66,7 @@ Tian Yunzi fronça légèrement les sourcils. Il n'appréciait pas l'expression 
 
 « Wang Lin, nous pouvons poursuivre le jeu. Si tu gagnes, tu résoudras naturellement cette crise urgente et recevras les cadeaux de ton Maître... Que tu le veuilles ou non, ce jeu a commencé il y a bien des années. » Tian Yunzi sourit de nouveau et pointa ses doigts vers l'espace entre ses propres sourcils, s'apprêtant une fois de plus à se transpercer le crâne.
 
-Wang Lin balaya l'air de la main droite, provoquant une rafale de vent. Ce souffle, chargé du lignage du Dao Antique de Wang Lin, enveloppa Tian Yunzi. Les décombres alentour s'effondrèrent et le corps de ce dernier trembla. La force du vent repoussa sa main, et son doigt effleura son front, traçant une ligne de sang.
+Wang Lin balaya l'air de la main droite, provoquant une rafale de vent. Ce souffle, chargé du lignage du Dao Gu de Wang Lin, enveloppa Tian Yunzi. Les décombres alentour s'effondrèrent et le corps de ce dernier trembla. La force du vent repoussa sa main, et son doigt effleura son front, traçant une ligne de sang.
 
 « Ne sois pas si pressé de mourir, je n'ai pas fini de parler. »
 
@@ -74,13 +74,13 @@ Wang Lin balaya l'air de la main droite, provoquant une rafale de vent. Ce souff
 
 L'expression de Tian Yunzi devint immédiatement sombre. L'action de Wang Lin sortait de ses prévisions. Il observa le jeune homme dont les yeux commençaient à briller d'un éclat intense.
 
-Wang Lin sourit calmement et dit d'une voix posée: « Tian Yunzi, je te le demande: même si tu peux voler mes essences, mes sorts et mes souvenirs, peux-tu voler mon lignage du Dao Antique? »
+Wang Lin sourit calmement et dit d'une voix posée: « Tian Yunzi, je te le demande: même si tu peux voler mes essences, mes sorts et mes souvenirs, peux-tu voler mon lignage du Dao Gu? »
 
-« Si tu parviens à manifester ne serait-ce qu'un seul sort divin de mon lignage du Dao Antique, alors je me rendrai immédiatement et je serai à ta merci. Et qu'importe ce qui suivra? En es-tu capable? » Wang Lin afficha un regard de mépris souverain.
+« Si tu parviens à manifester ne serait-ce qu'un seul sort divin de mon lignage du Dao Gu, alors je me rendrai immédiatement et je serai à ta merci. Et qu'importe ce qui suivra? En es-tu capable? » Wang Lin afficha un regard de mépris souverain.
 
 « Oses-tu? »
 
-Tian Yunzi fixa Wang Lin longuement sans mot dire. Il ne montra aucun pouvoir du Dao Antique, car il ne le pouvait pas! Le lignage du Dao Antique était une chose qu'il ne pouvait copier, et il utilisait ces morts mystérieuses pour masquer cette lacune. Il cherchait à perturber les pensées de Wang Lin!
+Tian Yunzi fixa Wang Lin longuement sans mot dire. Il ne montra aucun pouvoir du Dao Gu, car il ne le pouvait pas! Le lignage du Dao Gu était une chose qu'il ne pouvait copier, et il utilisait ces morts mystérieuses pour masquer cette lacune. Il cherchait à perturber les pensées de Wang Lin!
 
 « Tu ne peux pas, tu n'en as pas la capacité. Toute ta mystique est un simulacre! Penses-tu que je suis encore le même homme qu'à l'époque de la planète Tian Yun? Crois-tu encore que je suis celui de la Terre Yao Ling... Tian Yunzi, ton niveau de culture ne peut surpasser le mien, et ton lignage n'est pas aussi noble que le mien. Ton statut face au mien n'est que celui d'une fourmi. J'ai mené le Royaume Intérieur à la lutte contre le Royaume Extérieur tandis que tu te cachais dans l'ombre. Ma statue a été érigée dans le Royaume Céleste et sera vénérée durant des éons; la tienne ne le sera jamais! »
 
@@ -90,7 +90,7 @@ Tian Yunzi fixa Wang Lin longuement sans mot dire. Il ne montra aucun pouvoir du
 
 « Je peux te donner cette qualification, mais ce n'est pas moi qui t'accompagnerai dans ce jeu, c'est toi qui m'accompagneras! Je n'aime pas les complots dissimulés, je préfère les stratagèmes au grand jour! »
 
-« Tu ne possèdes aucune aura du Dao Antique sur toi! Quel est ce sortilège d'Intégration de la Réincarnation? Tu es incapable de copier mon lignage! Le fait que tu puisses mourir encore et encore signifie que tout cela n'est qu'une succession d'avatars... Alors, Tian Yunzi, où se cache ton corps originel? » Le sourire de Wang Lin s'élargit. L'expression de Tian Yunzi ne changea pas, il parut seulement plus sombre, mais son cœur trembla.
+« Tu ne possèdes aucune aura du Dao Gu sur toi! Quel est ce sortilège d'Intégration de la Réincarnation? Tu es incapable de copier mon lignage! Le fait que tu puisses mourir encore et encore signifie que tout cela n'est qu'une succession d'avatars... Alors, Tian Yunzi, où se cache ton corps originel? » Le sourire de Wang Lin s'élargit. L'expression de Tian Yunzi ne changea pas, il parut seulement plus sombre, mais son cœur trembla.
 
 « Les règles de ce jeu ne sont pas dictées par toi, mais par moi! Dans ce jeu, nous verrons si je parviens à trouver et à tuer ton corps originel le premier, ou si tu réussis à prendre le contrôle de mon avatar pour me posséder ou atteindre un autre dessein impie! »
 
@@ -102,6 +102,6 @@ Alors que Tian Yunzi fixait Wang Lin, ses pupilles se rétractèrent.
 
 « Mon corps originel part à la recherche du tien. Sois plus rapide, sinon, tu perdras... » Wang Lin leva la main droite et fit un geste tranchant.
 
-La puissance du Dao Antique jaillit vers Tian Yunzi.
+La puissance du Dao Gu jaillit vers Tian Yunzi.
 
 « Maintenant, tu peux mourir. »

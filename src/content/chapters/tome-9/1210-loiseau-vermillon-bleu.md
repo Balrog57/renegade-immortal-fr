@@ -1,6 +1,6 @@
 ---
 n: 1210
-title: "L'Oiseau Vermillon Bleu"
+title: "Le Suzaku Bleu"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1210 - Blue Vermillion Bird

@@ -46,7 +46,7 @@ Wang Lin appréciait très peu le Continent Lu Mo.
 
 Peu de cultivateurs puissants subsistaient sur ce continent; la plupart n'étaient que des êtres faibles ne représentant aucune menace pour lui. Néanmoins, il maintint son rythme habituel en utilisant la Distorsion Spatiale pour traverser le territoire.
 
-Il sentait qu'au plus profond du Continent Lu Mo résidait une force mystérieuse. Cette force était monstrueuse et saturée d'énergie démoniaque. Selon la carapace de tortue, c'était là que se trouvait le Temple Lü Mo Xie.
+Il sentait qu'au plus profond du Continent Lu Mo résidait une force mystérieuse. Cette force était monstrueuse et saturée d'énergie démoniaque. Selon la carapace de tortue, c'était là que se trouvait le Temple Lu Mo Xie.
 
 Le Continent Tian Niu ne possédait pas de Temple Tian Niu. Ce genre d'édifice nécessitait l'autorisation de l'Empereur; sans elle, aucun temple ne pouvait être érigé.
 

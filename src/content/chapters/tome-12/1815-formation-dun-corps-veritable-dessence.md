@@ -14,7 +14,7 @@ Lors de son précédent voyage, bien qu'il fût parti, il avait subi des blessur
 
 Maintenant que ce regret s'était dissipé, ses blessures ne posaient plus de problème.
 
-« Disciple Wang Lin, le Continent Xian Gang est votre foyer et l'Ancien Dao est votre terre natale. Votre Maître attendra votre retour ici... » Xuan Luo afficha un sourire bienveillant et ferma lentement les yeux pour s'immerger dans sa culture.
+« Disciple Wang Lin, le Continent Xian Gang est votre foyer et la lignée Dao Gu est votre terre natale. Votre Maître attendra votre retour ici... » Xuan Luo afficha un sourire bienveillant et ferma lentement les yeux pour s'immerger dans sa culture.
 
 Dans le Continent Tian Niu, Wang Lin était assis à côté de la boule de feu, y projetant des sceaux. Cela rendait Suzaku à l'intérieur encore plus distinct et son rugissement plus puissant.
 
@@ -40,7 +40,7 @@ Tout cela avait permis à l'essence de feu de Wang Lin de posséder sa propre vo
 
 Ce changement et cette expansion avaient donné à Wang Lin l'idée de former un corps véritable d'essence. Cependant, la tâche était ardue; même en déployant toute sa force, il n'avait réussi qu'à former une paire de jambes!
 
-Au fil du temps, la boule de feu de dix pieds s'affaiblissait et montrait des signes d'extinction. L'Oiseau Vermillon, doté de ces deux jambes, restait immobile, mais commença lentement à dépérir.
+Au fil du temps, la boule de feu de dix pieds s'affaiblissait et montrait des signes d'extinction. Suzaku, doté de ces deux jambes, restait immobile, mais commença lentement à dépérir.
 
 L'essence de feu manquait. Les yeux de Wang Lin brillèrent; il chargea vers la terre et, s'étant posé sur la montagne, plaqua sa main droite au sol.
 
@@ -66,7 +66,7 @@ Il vit les rugissements féroces des dragons, comme s'ils étaient sur le point 
 
 Cette volonté du feu était un attribut que Wang Lin avait acquis après avoir absorbé la veine enfantine; elle lui appartenait désormais. À l'exception de la veine principale, toutes les autres seraient soumises à cette volonté!
 
-Des grondements tonitruants résonnèrent tandis que les 172 âmes de dragons de feu s'engouffraient dans la boule de feu. Celle-ci se mit à briller d'un éclat encore plus vif. L'Oiseau Vermillon, qui portait désormais les jambes du corps véritable, poussa un nouveau rugissement.
+Des grondements tonitruants résonnèrent tandis que les 172 âmes de dragons de feu s'engouffraient dans la boule de feu. Celle-ci se mit à briller d'un éclat encore plus vif. Suzaku, qui portait désormais les jambes du corps véritable, poussa un nouveau rugissement.
 
 Le fracas fut assourdissant lorsque les 172 âmes de dragons pénétrèrent dans la boule de feu. Tandis que Suzaku absorbait ces âmes, les mains du corps véritable d'essence apparurent, accompagnées d'un cri de joie.
 

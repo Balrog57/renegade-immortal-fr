@@ -42,7 +42,7 @@ Dao Yi contempla l'arbre géant et eut le souffle coupé. « Bon sang, cet arbre
 
 Simultanément, dans le Continent Bei, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
 
-Dans la Secte Yang Violet, les Grands Empyréens Shuangzi s'élancèrent, observèrent la terre et froncèrent les sourcils.
+Dans la Secte Zi Yang, les Grands Empyréens Shuangzi s'élancèrent, observèrent la terre et froncèrent les sourcils.
 
 Dans la Cité Ancestrale, le Grand Empyréen Jiu Di se tenait au sommet du Mont Di. Il regarda la terre et son expression resta impassible, mais la contraction de ses pupilles trahissait son choc.
 

@@ -38,13 +38,13 @@ C'était la première embuscade!
 
 La respiration de Wang Lin était légèrement haletante. Même avec sa culture au stade tardif du Vide Spirituel, l'utilisation de ce sort était éprouvante, surtout lorsqu'il cherchait à en libérer toute la puissance.
 
-« Je dois pouvoir en extraire davantage... » Wang Lin leva la main droite et pointa son œil gauche. L'essence de feu apparut dans son regard et les flammes rugirent. D'un geste du bras, une mer de feu jaillit de son œil gauche, se transformant en un Oiseau Vermillon de feu qui s'élança vers le ciel.
+« Je dois pouvoir en extraire davantage... » Wang Lin leva la main droite et pointa son œil gauche. L'essence de feu apparut dans son regard et les flammes rugirent. D'un geste du bras, une mer de feu jaillit de son œil gauche, se transformant en un Suzaku de feu qui s'élança vers le ciel.
 
-L'Oiseau Vermillon était colossal; ses plumes caudales se déployèrent telles celles d'un phénix. Après avoir décrit quelques cercles dans l'éther, il disparut.
+Le Suzaku était colossal; ses plumes caudales se déployèrent telles celles d'un phénix. Après avoir décrit quelques cercles dans l'éther, il disparut.
 
 Wang Lin ferma les yeux pour cultiver calmement un instant, puis les rouvrit brusquement. Ses mains formèrent des sceaux et il commença à murmurer. Un instant plus tard, une lumière aux sept couleurs jaillit de ses paumes. Cette lueur rappelait les sorts du Daoïste aux Sept Couleurs. Mais sous la maîtrise de Wang Lin, elle était encore plus éblouissante, recouvrant chaque parcelle de la planète.
 
-« Lance du Daoïste aux Sept Couleurs! » rugit Wang Lin en écartant les bras. Le ciel gronda alors que la lumière multicolore convergeait pour former une lance monumentale. Cette arme dégageait une aura terrifiante et émettait un bourdonnement lors de son apparition, avant de foncer vers le sol et de se planter avec fracas à la droite de Wang Lin.
+« Lance Dao aux Sept Couleurs! » rugit Wang Lin en écartant les bras. Le ciel gronda alors que la lumière multicolore convergeait pour former une lance monumentale. Cette arme dégageait une aura terrifiante et émettait un bourdonnement lors de son apparition, avant de foncer vers le sol et de se planter avec fracas à la droite de Wang Lin.
 
 C'était la deuxième embuscade!
 

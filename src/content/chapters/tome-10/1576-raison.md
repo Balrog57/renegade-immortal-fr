@@ -10,11 +10,11 @@ Il vit le ciel!
 
 Le ciel était calme, sans nuages ni vent. C'était comme un tableau azur suspendu dans les airs! Cependant, une déchirure gigantesque béait à gauche du firmament!
 
-Ce trou mesurait plusieurs milliers de pieds de large; c'était un spectacle terrifiant!
+Ce trou mesurait plusieurs dizaines de milliers de pieds de large; c'était un spectacle terrifiant!
 
 On aurait dit une feuille de papier percée d'un trou. Des débris jonchaient même les bords de la brèche.
 
-Dans ce vide, il aperçut quelque chose dont l'épaisseur atteignait plusieurs milliers de pieds, et la partie dépassant du trou s'étendait sur des dizaines de milliers de pieds. C'était une... flèche!
+Dans ce vide, il aperçut quelque chose dont l'épaisseur atteignait plusieurs dizaines de milliers de pieds, et la partie dépassant du trou s'étendait sur des centaines de milliers de pieds. C'était une... flèche!
 
 Cette flèche avait transpercé le ciel, mais elle restait à moitié coincée à l'intérieur.
 
@@ -68,7 +68,7 @@ Au moment où la flèche perçait le firmament, l'intention meurtrière résidue
 
 Cette force ne s'effondra pas, mais se concentra à la pointe avant d'être absorbée par le sceau situé à l'extrémité de la flèche. Elle se transforma alors en anneaux qui furent projetés vers la terre en contrebas.
 
-Au départ, ces anneaux étaient aussi larges que la pointe de la flèche, plusieurs milliers de pieds. Cependant, plus ils progressaient, plus ils diminuaient en taille, au point de ne plus mesurer qu'environ mille pieds en touchant le sol.
+Au départ, ces anneaux étaient aussi larges que la pointe de la flèche, plusieurs dizaines de milliers de pieds. Cependant, plus ils progressaient, plus ils diminuaient en taille, au point de ne plus mesurer qu'environ dix mille pieds en touchant le sol.
 
 Les anneaux transpercèrent la terre et rétrécirent à mesure qu'ils s'enfonçaient sous le sol. Finalement, l'anneau ne devint plus que de la taille d'un poing, ce qui correspondait à ce que Wang Lin avait vu sur la porte de pierre.
 

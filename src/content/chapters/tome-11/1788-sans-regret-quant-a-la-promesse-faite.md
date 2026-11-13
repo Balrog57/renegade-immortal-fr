@@ -70,7 +70,7 @@ La planète Dong Lin se situait à l'opposé de la porte dorée dans Luotian. Bi
 
 La faille menant au monde gelé ressemblait à une blessure béante dans le système stellaire. Elle scintillait, libérant parfois une énergie glaciale qui venait teinter d'or le domaine environnant.
 
-À cet instant, l'espace aux abords de la faille se déforma et Wang Lin apparut. Il observa la brèche avant de s'en approcher. Son aura du Dao Antique jaillit de ses mains alors qu'il saisissait la faille pour la déchirer sans ménagement.
+À cet instant, l'espace aux abords de la faille se déforma et Wang Lin apparut. Il observa la brèche avant de s'en approcher. Son aura du Dao Gu jaillit de ses mains alors qu'il saisissait la faille pour la déchirer sans ménagement.
 
 Le système stellaire gronda et, dans un rugissement de Wang Lin, la faille s'ouvrit davantage. L'énergie froide jaillit, révélant la terre gelée.
 
@@ -94,7 +94,7 @@ En observant l'âme de Yun Na prisonnière des glaces, Wang Lin comprit. Lorsqu'
 
 Il n'y avait rien d'anormal à cela; après tout, séparer l'âme du corps était une opération cruciale. Elle devait être prudente.
 
-Wang Lin respecterait sa promesse et ne s'attarda pas sur ce point. Devant la faille, il cracha une bouffée d'Énergie du Dao Antique fusionnée avec son essence sur la glace.
+Wang Lin respecterait sa promesse et ne s'attarda pas sur ce point. Devant la faille, il cracha une bouffée d'Énergie du Dao Gu fusionnée avec son essence sur la glace.
 
 Bien que son souffle fût invisible, dès qu'il toucha la glace, des craquements retentirent. Une multitude de fissures apparurent et la glace s'effondra strate après strate.
 

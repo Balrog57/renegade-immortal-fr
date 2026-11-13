@@ -62,7 +62,7 @@ Bien longtemps après, un soupir s'échappa de la tour.
 
 La silhouette dans la brume se leva et s'approcha de la fenêtre. Elle scruta le ciel, et son regard sembla se porter précisément dans la direction où s'étaient envolés Xuan Luo et Wang Lin.
 
-Quelques jours plus tard, Xuan Luo ramena Wang Lin à la cité impériale du clan Ancien. Ils s'installèrent dans la montagne située derrière le Temple Ancien.
+Quelques jours plus tard, Xuan Luo ramena Wang Lin à la cité impériale Dao Gu. Ils s'installèrent dans la montagne située derrière le Palais Dao Gu.
 
 Xuan Luo ne questionna pas ce qui s'était passé au Mont Gu Dao, et Wang Lin n'offrit aucune explication; c'était comme si de rien n'était. Un mois passa, et tout semblait s'être évaporé comme une fumée.
 
@@ -104,14 +104,14 @@ Le temps s'écoula. En un éclair, un autre mois passa...
 
 Cela faisait deux mois et demi que Wang Lin et Xuan Luo étaient revenus. Wang Lin était resté cloîtré dans la maison en bois sans en sortir. Xuan Luo était venu deux fois pour l'observer de l'extérieur. Sachant qu'il condensait ses essences et qu'il ne courait aucun danger, il s'en était allé.
 
-Ce matin-là, alors que les premiers rayons du soleil perçaient l'obscurité pour réchauffer cette vallée semblable à un verger de pêchers, un jade vola depuis la direction du Temple Ancien. Il effectua quelques cercles autour de la maison en bois avant de se poser sur l'herbe.
+Ce matin-là, alors que les premiers rayons du soleil perçaient l'obscurité pour réchauffer cette vallée semblable à un verger de pêchers, un jade vola depuis la direction du Palais Dao Gu. Il effectua quelques cercles autour de la maison en bois avant de se poser sur l'herbe.
 
 Un instant plus tard, le jade vibra et s'engouffra dans la demeure. Wang Lin, assis à l'intérieur, le rattrapa.
 
 Son sens divin parcourut l'objet. C'était un jade de message. Le contenu était bref: une simple invitation.
 
-« L'Empereur du Dao Ancien tiendra la cérémonie pour nommer son impératrice dans dix jours... » L'expression de Wang Lin resta impassible. Ce jade avait été envoyé par le palais impérial du Dao Ancien pour inviter Wang Lin à la cérémonie.
+« L'Empereur Dao Gu tiendra la cérémonie pour nommer son impératrice dans dix jours... » L'expression de Wang Lin resta impassible. Ce jade avait été envoyé par le palais impérial Dao Gu pour inviter Wang Lin à la cérémonie.
 
-« Si ce jade a pu parvenir jusqu'ici, c'est qu'il a obtenu la reconnaissance de Maître. Cette cérémonie doit donc être d'une importance capitale pour le clan Ancien », songea Wang Lin.
+« Si ce jade a pu parvenir jusqu'ici, c'est qu'il a obtenu la reconnaissance de Maître. Cette cérémonie doit donc être d'une importance capitale pour la lignée Dao Gu », songea Wang Lin.
 
-« Cet Empereur du Dao a choisi des concubines pendant des centaines d'années, et il vient enfin d'en désigner une pour devenir son impératrice... Dois-je y aller ou non... » Wang Lin atteignait le moment crucial de la fusion avec son essence métallique; il n'avait guère envie d'assister à cette prétendue cérémonie d'intronisation.
+« Cet Empereur Dao Gu a choisi des concubines pendant des centaines d'années, et il vient enfin d'en désigner une pour devenir son impératrice... Dois-je y aller ou non... » Wang Lin atteignait le moment crucial de la fusion avec son essence métallique; il n'avait guère envie d'assister à cette prétendue cérémonie d'intronisation.

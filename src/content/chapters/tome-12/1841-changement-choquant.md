@@ -64,9 +64,9 @@ Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres 
 
 « Le Senior Zuo est décisif. Cet homme n'est pas quelqu'un que nous pouvons provoquer. Sa poupée est très puissante et sa bête est très étrange. Lui-même est extrêmement fort! Un tel être ne peut pas être sans secte! »
 
-« Oui, cet homme est très tranchant, il a même tué les quatre membres du Dao Hei Shan. Il est véritablement féroce et, à en juger par son apparence, c'est clairement un cultivateur démoniaque! »
+« Oui, cet homme est très tranchant, il a même tué les quatre membres du Hei Shan Dao. Il est véritablement féroce et, à en juger par son apparence, c'est clairement un cultivateur démoniaque! »
 
-« Les quatre du Dao Hei Shan ne peuvent s'en prendre qu'à eux-mêmes. Ils l'ont suivi pendant trop de jours. Ils sont morts, alors que cette affaire se termine ici. Cultivateurs, dispersez-vous! » dit le vieil homme avant de faire demi-tour.
+« Les quatre du Hei Shan Dao ne peuvent s'en prendre qu'à eux-mêmes. Ils l'ont suivi pendant trop de jours. Ils sont morts, alors que cette affaire se termine ici. Cultivateurs, dispersez-vous! » dit le vieil homme avant de faire demi-tour.
 
 Quant à Wang Lin, après avoir utilisé une seconde fois la Distorsion Spatiale, il apparut dans une chaîne de montagnes. Selon la carte de Yan Luan, il lui restait trois mois de route vers l'est pour atteindre la mer intérieure.
 

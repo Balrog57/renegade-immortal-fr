@@ -86,7 +86,7 @@ Wang Lin se retourna. Il n'avait pas souhaité provoquer de troubles inutiles, m
 
 Une immense faille apparut, comme prête à tout engloutir. C'était comme si le monde entier avait été fendu par cette déchirure qui chargea vers le bras noir.
 
-La faille provoqua un grondement de tonnerre et les couleurs du monde vacillèrent. Un bras gigantesque de l'Ancien Dao apparut derrière Wang Lin et fendit les cieux!
+La faille provoqua un grondement de tonnerre et les couleurs du monde vacillèrent. Un bras gigantesque de Dao Gu apparut derrière Wang Lin et fendit les cieux!
 
 Des fracas de tonnerre secouèrent le monde. Le bras noir qui s'avançait vers Wang Lin percuta la faille et fut littéralement déchiqueté.
 

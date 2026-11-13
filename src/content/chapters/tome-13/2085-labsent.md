@@ -40,7 +40,7 @@ En contemplant ce pic, l'expression de Wang Lin devint complexe. Dans le temple 
 
 C'était là qu'il avait aperçu cette silhouette tenant un corps et interrogeant le monde. Cependant, en observant cette montagne enneigée de sept couleurs, il ne vit pas cette figure, mais une autre silhouette familière qui siégeait là, le regardant.
 
-Cet homme paraissait âgé sans l'être vraiment, enveloppé d'une lumière septicolore. Son visage rayonnait d'excitation. C'était l'être qui ressemblait à Tian Yunzi, au Souverain Céleste aux Sept Couleurs, à l'Ancien Maître Impérial du Dao!
+Cet homme paraissait âgé sans l'être vraiment, enveloppé d'une lumière septicolore. Son visage rayonnait d'excitation. C'était l'être qui ressemblait à Tian Yunzi, au Souverain Céleste aux Sept Couleurs, au Maître Impérial de Dao Gu!
 
 Derrière cette silhouette, derrière cette montagne, s'étendait un pont. Une extrémité était reliée à la boussole et l'autre au ciel, formant un large arc.
 

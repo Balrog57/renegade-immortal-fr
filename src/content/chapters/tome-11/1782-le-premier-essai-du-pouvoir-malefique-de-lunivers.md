@@ -56,7 +56,7 @@ Ce n'était que lors de la compétition que les membres des diverses lignées po
 
 La place n'était pas immense, mais elle était assez vaste pour accueillir plusieurs milliers de cultivateurs. Toutefois, si la compétition devait s'y tenir, elle risquait d'être étroite. Mais puisque la Secte Dong Lin avait réussi à devenir l'une des Neuf Sectes et Treize Factions, leur héritage était insondable.
 
-Les Maîtres de secte et les Anciens de chaque génération ajoutaient constamment des formations et des restrictions à la place. Lors de chaque compétition, une partie de ces restrictions était activée, ouvrant ainsi une faille vers le Rift de Dong Lin créé par la secte.
+Les Maîtres de secte et les Anciens de chaque génération ajoutaient constamment des formations et des restrictions à la place. Lors de chaque compétition, une partie de ces restrictions était activée, ouvrant ainsi une brèche vers la Faille de Dong Lin créé par la secte.
 
 C'était là le champ de bataille pour le premier essai de la compétition.
 
@@ -80,7 +80,7 @@ Le calme de Wang Lin surprit Qin Mei, mais pour une raison inconnue, elle commen
 
 « Aujourd'hui est la grande compétition de votre génération. J'espère y voir l'avenir de la Secte Dong Lin! J'espère y voir l'esprit indomptable et la détermination d'un cultivateur! »
 
-« Le premier essai consiste à pénétrer dans le Rift de Dong Lin, avec une limite de trois jours. Durant ces trois jours, l'objectif est de dérober les jetons des autres. Les trente qui en auront récolté le plus passeront! » Une voix puissante résonna sur toute la place. Un éclair de lumière dorée jaillit et plusieurs centaines de silhouettes apparurent. Il s'agissait de puissants cultivateurs de la Secte Dong Lin, assis dans les airs, contemplant les mille disciples en contrebas.
+« Le premier essai consiste à pénétrer dans la Faille de Dong Lin, avec une limite de trois jours. Durant ces trois jours, l'objectif est de dérober les jetons des autres. Les trente qui en auront récolté le plus passeront! » Une voix puissante résonna sur toute la place. Un éclair de lumière dorée jaillit et plusieurs centaines de silhouettes apparurent. Il s'agissait de puissants cultivateurs de la Secte Dong Lin, assis dans les airs, contemplant les mille disciples en contrebas.
 
 Des dizaines de regards se posèrent sur Wang Lin.
 

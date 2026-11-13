@@ -26,7 +26,7 @@ Parmi les 72 continents du clan Céleste, l'un des neuf plus éloignés de la Ri
 
 C'est ainsi qu'il fut nommé le Tian Niu.
 
-Ce continent était reculé, loin de la Capitale Impériale située sur le Continent Ming Céleste. Depuis fort longtemps, il était considéré comme un continent périphérique. Il se trouvait dans la partie orientale du Continent Xian Gang et, avec les huit autres continents, formait le Continent de l'Est!
+Ce continent était reculé, loin de la Capitale Impériale située sur le Continent Xian Ming. Depuis fort longtemps, il était considéré comme un continent périphérique. Il se trouvait dans la partie orientale du Continent Xian Gang et, avec les huit autres continents, formait le Continent de l'Est!
 
 Le Continent de l'Est comptait neuf sectes et treize factions, la Secte Zi Yang en étant la meneuse. La Secte Dong Lin était la plus mystérieuse. En outre, la Secte Gui Yi, la Secte Da Hun et d'autres encore composaient les vingt et une sectes les plus célèbres du Continent de l'Est.
 

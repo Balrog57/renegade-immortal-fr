@@ -60,7 +60,7 @@ Ce rire fut interrompu par la feuille. Il grommela quelque chose, frappa son vis
 
 Tout en piétinant la feuille, il poussa un rugissement:
 
-« Petite feuille, tu oses défier ce Roi?! Humph, humph, voyons comment ce Roi va te traiter! » Il piétina l'objet pendant plus de dix instants avant que le vent ne l'emporte enfin, le forçant à abandonner.
+« Petite feuille, tu oses défier ce Roi?! Humph, humph, voyons comment ce Roi va te traiter! » Il piétina l'objet pendant plus de dix respirations avant que le vent ne l'emporte enfin, le forçant à abandonner.
 
 C'était le fou. Les deux hommes derrière lui, habitués à ses excentricités, se contentèrent d'échanger un regard.
 

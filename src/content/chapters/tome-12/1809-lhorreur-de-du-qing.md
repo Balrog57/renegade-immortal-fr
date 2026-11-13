@@ -78,7 +78,7 @@ Des grondements tonitruants secouèrent le monde. Le corps de Wang Lin trembla l
 
 Lorsque le dragon s'effondra, il se mua en une mer de flammes et tenta de se reformer. Les yeux du dragon furent les premiers à réapparaître, lançant un regard furieux.
 
-Cependant, Wang Lin ne lui laissa aucune chance. Il fit un pas en avant et une lueur ardente brilla dans son œil gauche. Un Oiseau Vermillon apparut dans son regard et chargea le dragon de feu.
+Cependant, Wang Lin ne lui laissa aucune chance. Il fit un pas en avant et une lueur ardente brilla dans son œil gauche. Un Suzaku apparut dans son regard et chargea le dragon de feu.
 
 « Âme du feu terrestre, tu ne connais toujours pas ta place! » Alors que Suzaku dévorait sa proie, la voix puissante de Wang Lin résonna à travers le monde.
 
@@ -90,7 +90,7 @@ Le brasier rugissait, poussant Suzaku à pousser un cri qui fit trembler les cie
 
 Ce cri se propagea sous forme d'ondulations dont Suzaku était le centre. Wang Lin avança et se tint sur la tête de la créature, son corps enveloppé par une mer de flammes.
 
-L'Oiseau Vermillon poussa un nouveau cri et chargea immédiatement. De loin, on aurait dit un nuage de feu en pleine ascension!
+Le Suzaku poussa un nouveau cri et chargea immédiatement. De loin, on aurait dit un nuage de feu en pleine ascension!
 
 Wang Lin sentait distinctement son essence de feu gagner en puissance! Cette croissance l'exaltait car, dans le monde des grottes, son essence avait cessé d'évoluer. Il avait alors cru avoir atteint la perfection de son essence de feu.
 
@@ -104,7 +104,7 @@ Le changement le plus flagrant était que, désormais, chaque fois qu'il utilisa
 
 À présent, son essence de feu s'était renforcée et se rapprochait de la formation d'un Corps Véritable d'Essence!
 
-Dans cette terre étrange peuplée de puissants cultivateurs, rien n'était plus exaltant que d'augmenter son niveau de culture. Wang Lin n'hésita pas à progresser, chevauchant le géant Oiseau Vermillon, tandis que son Sens Divin se déployait pour traquer la prochaine veine de feu!
+Dans cette terre étrange peuplée de puissants cultivateurs, rien n'était plus exaltant que d'augmenter son niveau de culture. Wang Lin n'hésita pas à progresser, chevauchant le géant Suzaku, tandis que son Sens Divin se déployait pour traquer la prochaine veine de feu!
 
 Deux jours après le départ de Wang Lin, un rayon de lumière approcha du lointain. La personne à l'intérieur était l'ancêtre de la Secte Cang Long, Du Qing! Il arriva très rapidement cette fois et, lorsqu'il atterrit, il fut frappé de stupeur. En observant les montagnes en contrebas, ses paupières tressaillirent.
 

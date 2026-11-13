@@ -34,7 +34,7 @@ Wang Lin regarda la troisième concubine, Tang Shan, et dit doucement: « Je vou
 
 Tang Shan resta silencieuse un instant, réfléchit, puis hocha la tête.
 
-Au loin, la montagne d'où était issue la Poupée Yi Si s'effondra, révélant une brèche. Des éclats d'aura du Dao Antique s'en échappèrent. C'était l'entrée de la dernière couche.
+Au loin, la montagne d'où était issue la Poupée Yi Si s'effondra, révélant une brèche. Des éclats d'aura de Dao Gu s'en échappèrent. C'était l'entrée de la dernière couche.
 
 Une fois Wang Lin entré, il pourrait atteindre le lieu où se trouvait le cœur de Ye Mo.
 
@@ -94,7 +94,7 @@ Il aperçut le cœur géant et les innombrables vaisseaux qui s'étendaient dans
 
 Dans son corps, tous ses vaisseaux sanguins étaient gonflés, et son flux sanguin oscillait de manière erratique entre accélération et ralentissement. Ces signes annonçaient l'imminence d'une rupture cardiaque.
 
-Ce n'était ni un sort, ni une capacité, ni un pouvoir du Dao; c'était simplement la nature même de ce battement qui était mortelle. Même le corps du Dao Antique de Wang Lin ne pouvait y résister, à moins qu'il ne soit dépourvu de cœur!
+Ce n'était ni un sort, ni une capacité, ni un pouvoir du Dao; c'était simplement la nature même de ce battement qui était mortelle. Même le corps de Dao Gu de Wang Lin ne pouvait y résister, à moins qu'il ne soit dépourvu de cœur!
 
 Le visage de Wang Lin était d'une pâleur cadavérique et sa main droite pressait sa poitrine. Il sentait l'irrégularité de ses battements, et les vibrations faisaient trembler sa main!
 
@@ -124,6 +124,6 @@ Wang Lin ouvrit brusquement les yeux et s'écria: « Je t'aiderai à retrouver t
 
 À ces mots, le cœur ne chercha plus à lutter contre son rythme; il choisit peu à peu de battre au rythme de Wang Lin.
 
-Une puissante aura du Dao Antique surgit et se précipita dans le corps de Wang Lin alors que les deux cœurs s'alignaient. Sous l'assaut de cette aura, ses cheveux blancs se mirent à flotter violemment, comme sous l'effet d'un vent impétueux.
+Une puissante aura de Dao Gu surgit et se précipita dans le corps de Wang Lin alors que les deux cœurs s'alignaient. Sous l'assaut de cette aura, ses cheveux blancs se mirent à flotter violemment, comme sous l'effet d'un vent impétueux.
 
 Les huit étoiles divines antiques entre ses sourcils tournèrent frénétiquement, laissant présager la formation d'une neuvième étoile!

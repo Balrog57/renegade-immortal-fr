@@ -54,7 +54,7 @@ Dès que l'arc apparut, la flèche géante sous lui trembla. Comme si elle avait
 
 Wang Lin resta calme et ordonna lentement: « Plus petite! »
 
-À peine eut-il prononcé ces mots que la flèche géante trembla et se rétracta. Elle glissa immédiatement hors de son logement et tomba sur plusieurs milliers de pieds avant de se coincer à nouveau.
+À peine eut-il prononcé ces mots que la flèche géante trembla et se rétracta. Elle glissa immédiatement hors de son logement et tomba sur plusieurs dizaines de milliers de pieds avant de se coincer à nouveau.
 
 « Un peu plus petite! » La voix de Wang Lin était glaciale. La flèche frémit et rétrécit davantage, continuant sa chute depuis le trou jusqu'à ce qu'elle atteigne le sol.
 
@@ -62,7 +62,7 @@ Un grondement de tonnerre résonna lorsque la flèche percuta la terre, s'y enfo
 
 Ces neuf plumes étaient d'une grande souplesse. Wang Lin se tenait sur la flèche et son corps oscillait au rythme des vibrations de l'arme.
 
-Après deux rétrécissements, la flèche mesurait encore 10 000 pieds de long pour plusieurs centaines de pieds de large. Elle ressemblait à un pilier gigantesque planté en diagonale dans le sol.
+Après deux rétrécissements, la flèche mesurait encore 100 000 pieds de long pour plusieurs milliers de pieds de large. Elle ressemblait à un pilier gigantesque planté en diagonale dans le sol.
 
 Depuis son perchoir, Wang Lin observa le trou dans le ciel. L'intérieur était d'un noir absolu, menant vers un lieu inconnu. Les bords du gouffre bougeaient lentement; il était en train de cicatriser.
 

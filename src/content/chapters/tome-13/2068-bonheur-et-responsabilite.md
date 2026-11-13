@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2068 - Happiness and Responsibility
 slug: bonheur-et-responsabilite
 ---
-Dans la partie nord-est du continent des Hautes Montagnes se trouvait une chaîne de montagnes. Non loin de la route principale, niché dans ce paysage, se trouvait un village idyllique.
+Dans la partie nord-est du Continent Shan Yue se trouvait une chaîne de montagnes. Non loin de la route principale, niché dans ce paysage, se trouvait un village idyllique.
 
 Le village n'était pas très peuplé, comptant seulement quelques centaines d'habitants. La plupart étaient des chasseurs qui tiraient leur subsistance de la forêt dense et grouillante de bêtes sauvages. À l'origine, ce n'était pas un village, mais simplement une terre désolée où les chasseurs prenaient leurs repos.
 

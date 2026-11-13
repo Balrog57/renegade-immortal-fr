@@ -38,7 +38,7 @@ En vérité, il n'avait pas grand-chose donné au fou; c'était plutôt le fou q
 
 « Je dois aller à la cité impériale, mais ce sera dangereux. Je dois faire quelques préparatifs avant de partir... » Wang Lin médita silencieusement et prit sa décision.
 
-« Les cinq Grands Empyréens du clan céleste... » Wang Lin agita sa main droite et le fragment de carapace de tortue que l'Ancêtre de la Secte Da Hun, le Vieux Taureau Vert, lui avait donné apparut. Outre la carte, il y avait des informations sur les Grands Empyréens. Xuan Luo lui avait également transmis quelques renseignements lorsqu'ils étaient dans le monde des grottes.
+« Les cinq Grands Empyréens du clan céleste... » Wang Lin agita sa main droite et le fragment de carapace de tortue que Qing Niu, l'Ancêtre de la Secte Da Hun, lui avait donné apparut. Outre la carte, il y avait des informations sur les Grands Empyréens. Xuan Luo lui avait également transmis quelques renseignements lorsqu'ils étaient dans le monde des grottes.
 
 « L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empyréen Huit Extrêmes! »
 

@@ -100,13 +100,13 @@ Yun Yifeng, derrière le vieil homme nommé Ma, observa les environs avec nostal
 
 Des ondulations résonnèrent dans l'espace. Le Général Tigre Blanc et l'autre cultivateur de la Planète des Cinq Éléments apparurent. Leur venue ne surprit pas le vieil homme nommé Ma, qui semblait s'y attendre.
 
-Cependant, les Généraux Tortue Noire et Oiseau Vermillon furent stupéfaits.
+Cependant, les Généraux Tortue Noire et Suzaku furent stupéfaits.
 
 « Daoïstes de la Planète des Cinq Éléments, je vous salue! » Tandis que Wang Lin parlait, le Général Tigre Blanc libéra le cultivateur de la Planète des Cinq Éléments. Ce dernier, silencieux, rejoignit ses compagnons de secte.
 
 Un groupe de personnes se changea en un rayon de lumière et s'élança vers la porte dorée. Après un éclat de lumière, ils disparurent.
 
-Voyant les gens de la Planète des Cinq Éléments franchir la porte, les Généraux Tortue Noire et Oiseau Vermillon avancèrent de quelques pas et saluèrent Wang Lin en joignant les mains.
+Voyant les gens de la Planète des Cinq Éléments franchir la porte, les Généraux Tortue Noire et Suzaku avancèrent de quelques pas et saluèrent Wang Lin en joignant les mains.
 
 « Daoïste Wang Lin, concernant les événements passés... Hélas, merci de nous avoir pardonnés. Nous prenons congé. Si vous avez besoin de quoi que ce soit, nous viendrons certainement à votre aide. » C'est le Général Tortue Noire qui prit la parole. D'un geste de la main droite, il fit flotter un jade vers Wang Lin.
 
@@ -114,7 +114,7 @@ Wang Lin accepta le jade et hocha la tête, puis il regarda le Général Tigre B
 
 « Vous pouvez partir vous aussi. »
 
-Le Général Tigre Blanc fut surpris, les yeux brillants de gratitude. Il s'inclina profondément devant Wang Lin avant de rejoindre les deux autres généraux. Le Général Oiseau Vermillon fixa Wang Lin d'un regard profond et complexe.
+Le Général Tigre Blanc fut surpris, les yeux brillants de gratitude. Il s'inclina profondément devant Wang Lin avant de rejoindre les deux autres généraux. Le Général Suzaku fixa Wang Lin d'un regard profond et complexe.
 
 « Merci. »
 

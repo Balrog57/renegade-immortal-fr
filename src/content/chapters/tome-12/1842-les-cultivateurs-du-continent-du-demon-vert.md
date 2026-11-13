@@ -102,6 +102,6 @@ Même les nombreux cultivateurs participant au massacre ne pouvaient plus ignore
 
 À cet instant, au fond de l'océan, loin de Wang Lin, trois personnes fuyaient désespérément. Deux d'entre elles étaient visiblement gravement blessées, mais le troisième ne les abandonna pas pour sauver sa propre peau.
 
-« Tigre Blanc, pars seul... L'Oiseau Vermillon et moi sommes trop blessés. Nous emmener ne ferait que te ralentir. »
+« Tigre Blanc, pars seul... Le Suzaku et moi sommes trop blessés. Nous emmener ne ferait que te ralentir. »
 
 « Je n'aurais jamais imaginé rencontrer une telle calamité après être sortis du monde des grottes de la Secte Qi Dao pour venir cultiver en paix... Hélas, Tigre Blanc, sauve-toi! »

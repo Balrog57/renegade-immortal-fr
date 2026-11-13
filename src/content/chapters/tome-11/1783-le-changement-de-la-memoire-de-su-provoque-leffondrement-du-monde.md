@@ -28,7 +28,7 @@ Durant le premier essai, Wang Lin était tel un loup infiltré dans un troupeau 
 
 La renommée de Wang Lin grandit rapidement au sein de cette première épreuve. Dès qu'on l'apercevait, les participants tremblaient et lui remettaient leur jeton. Ses attaques étaient d'une décontraction absolue; il savait qu'il faisait face à la mémoire de Sept-Couleurs. Chaque acte déraisonnable devenait logique à mesure que les souvenirs se distordaient.
 
-Par exemple, à l'extérieur du Rift de Dong Lin, les expressions et les pensées de tous les spectateurs étaient dictées par la mémoire de Sept-Couleurs. Ils agissaient selon ce que celle-ci imaginait qu'ils feraient.
+Par exemple, à l'extérieur de la Faille de Dong Lin, les expressions et les pensées de tous les spectateurs étaient dictées par la mémoire de Sept-Couleurs. Ils agissaient selon ce que celle-ci imaginait qu'ils feraient.
 
 « Qui est cet homme?! En moins d'une journée, il a déjà obtenu plus de 300 jetons!! »
 

@@ -96,7 +96,7 @@ La ville impériale était le centre du clan céleste et couvrait une zone immen
 
 Cette ville était si vaste qu'elle semblait infinie, comparable à un véritable continent!
 
-Dans la partie est de la ville, dans une rue animée, marchait un jeune homme vêtu d'une chemise fleurie. Il avançait à grands pas, l'air fier, suivi par plus d'une douzaine de gardes. Chaque garde était un cultivateur du troisième niveau, et le garde en robe pourpre était en réalité un Exalté Doré!
+Dans la partie est de la ville, dans une rue animée, marchait un jeune homme vêtu d'une chemise fleurie. Il avançait à grands pas, l'air fier, suivi par plus d'une douzaine de gardes. Chaque garde était un cultivateur de la Troisième Étape, et le garde en robe pourpre était en réalité un Exalté Doré!
 
 Tous ces gardes étaient des hommes qui suivaient silencieusement derrière lui.
 

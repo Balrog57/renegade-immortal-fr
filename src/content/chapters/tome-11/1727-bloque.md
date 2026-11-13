@@ -72,7 +72,7 @@ Il fixait Wang Lin, et plus particulièrement la Bête des Limbes sous ses pieds
 
 « Quelle sorte de bête est-ce là? » Il ignorait qu'il s'agissait de la Bête des Limbes et ne savait pas qu'elle était le Dao Céleste. Après tout, à l'exception du Souverain aux Sept Couleurs, personne n'avait jamais vu le véritable corps du Dao Céleste; on ne savait que c'était une masse de brume.
 
-L'Oiseau Vermillon, la Tortue Noire et le Tigre Blanc étaient tous sous le choc. Leurs regards se verrouillèrent sur la Bête des Limbes.
+Suzaku, la Tortue Noire et le Tigre Blanc étaient tous sous le choc. Leurs regards se verrouillèrent sur la Bête des Limbes.
 
 S'ils étaient si stupéfaits, c'était parce que leurs Sens Divins étaient déployés depuis tout ce temps sans qu'ils ne remarquent absolument Wang Lin. S'ils ne l'avaient pas vu de leurs propres yeux, ils n'auraient jamais cru sa présence.
 

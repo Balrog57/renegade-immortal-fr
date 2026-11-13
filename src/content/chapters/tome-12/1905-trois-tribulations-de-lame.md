@@ -92,7 +92,7 @@ Le deuxième souffle arriva et l'âme originelle de Wang Lin dépérit encore pl
 
 « Quelle magnifique septième tribulation! » Wang Lin redressa soudainement la tête et chargea le sceau céleste. Il leva la main droite et lança un coup de poing en s'approchant!
 
-Avec ce coup, l'ombre du Dao Antique apparut derrière lui et frappa également. Cependant, le coup traversa le sceau sans l'endommager le moins que rien. Le sceau semblait n'être qu'une illusion; on pouvait le voir, mais pas le toucher!
+Avec ce coup, l'ombre de Dao Gu apparut derrière lui et frappa également. Cependant, le coup traversa le sceau sans l'endommager le moins que rien. Le sceau semblait n'être qu'une illusion; on pouvait le voir, mais pas le toucher!
 
 Au moment où ce coup de poing fut porté, le troisième souffle arriva et l'âme originelle de Wang Lin dépérit une fois de plus. Elle avait déjà perdu presque la moitié de sa taille initiale!
 

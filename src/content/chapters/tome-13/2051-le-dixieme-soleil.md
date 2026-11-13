@@ -84,7 +84,7 @@ Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Bei, dans la Se
 
 Peu après, dans le palais impérial de la cité ancestrale, un soleil doré apparut, formant le cinquième soleil du Clan Céleste!
 
-Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du lieu où il était en retraite de culture. Dans le Ji Antique, l'extrêmement mystérieux Grand Empyréen vit également son propre soleil apparaître dans le ciel!
+Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du lieu où il était en retraite de culture. Dans l'Ancien Ji, l'extrêmement mystérieux Grand Empyréen vit également son propre soleil apparaître dans le ciel!
 
 Et le soleil de Song Tian apparut lui aussi, échappant à tout contrôle, pour s'envoler vers les cieux.
 

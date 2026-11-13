@@ -12,7 +12,7 @@ slug: bataille-feroce
 
 Les yeux du vieil homme aux robes grises s'illuminèrent. Au moment où l'Empreinte de l'Esprit de Guerre se rapprochait, il agita la main et une bouteille ronde apparut dans sa paume.
 
-La bouteille était transparente et remplie à ras bord d'une terre jaune. Il la broya d'une main et la terre jaillit; d'un coup de manche, il la fit s'éleva en une masse de plus en plus dense jusqu'à atteindre près de dix mille pieds de large.
+La bouteille était transparente et remplie à ras bord d'une terre jaune. Il la broya d'une main et la terre jaillit; d'un coup de manche, il la fit s'éleva en une masse de plus en plus dense jusqu'à atteindre près de cent mille pieds de large.
 
 « Essence terrestre, Enterrement Spirituel! »
 
@@ -98,7 +98,7 @@ Les yeux de ce dernier s'illuminèrent et il frappa la surface de sa main. Une a
 
 Ce coup était le plus puissant de Ye Mo que Wang Lin puisse porter, au mépris de la force de rejet qui déchirait son corps!
 
-La tête de Ye Mo apparut derrière Wang Lin et des grondements tonitruants retentirent alors que l'homme en blanc fut projeté en arrière sur plusieurs centaines de pieds. Il cracha une gorgée de sang.
+La tête de Ye Mo apparut derrière Wang Lin et des grondements tonitruants retentirent alors que l'homme en blanc fut projeté en arrière sur plusieurs milliers de pieds. Il cracha une gorgée de sang.
 
 Du sang doré jaillit du corps de Wang Lin, mais il ne s'arrêta pas. Après avoir repoussé l'homme en blanc, il avança vers le vieil homme aux robes grises. Il leva la main droite et l'éclair de tonnerre doré dans son œil droit scintilla. Le ciel bleu fut envahi d'un tonnerre infini, et des quantités monstrueuses de foudre convergèrent dans la main de Wang Lin alors qu'il s'abattait sur le vieillard!
 

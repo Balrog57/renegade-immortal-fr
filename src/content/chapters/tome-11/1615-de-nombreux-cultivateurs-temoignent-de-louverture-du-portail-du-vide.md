@@ -76,7 +76,7 @@ Des grondements continuaient de résonner à travers les étoiles et l'espace au
 
 L'un d'eux était un jeune homme en vert à l'expression glaciale. À chaque attaque, la glace envahissait la zone. Si Wang Lin avait été là, il l'aurait reconnu comme l'un de ceux qui l'avaient attaqué.
 
-Il y avait aussi Zhou Jin, du clan du Loup Céleste. Après la disparition de Wang Lin, il l'avait trahi en secret. Il avait ensuite conduit son clan dans le Royaume Intérieur et avait déclenché un bain de sang, comme s'il tentait d'effacer l'infamie d'avoir été l'esclave de Wang Lin.
+Il y avait aussi Zhou Jin, du Clan Feng Tian Lang. Après la disparition de Wang Lin, il l'avait trahi en secret. Il avait ensuite conduit son clan dans le Royaume Intérieur et avait déclenché un bain de sang, comme s'il tentait d'effacer l'infamie d'avoir été l'esclave de Wang Lin.
 
 Parmi les deux, Zhou Jin possédait le niveau de culture le plus bas. Il affrontait le Maître Lu Fu sur le flanc gauche de la planète Suzaku. D'innombrables sorts s'entrechoquaient et, de loin, on pouvait voir un loup de sang géant tentant d'engloutir le Maître Lu Fu, sans y parvenir.
 

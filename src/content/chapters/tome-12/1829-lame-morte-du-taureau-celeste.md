@@ -48,7 +48,7 @@ Il était impossible de distinguer le visage de cette ombre, et même son corps 
 
 Ce pas fit vibrer le monde entier, et une pression d'intention meurtrière se propagea dans toutes les directions. La tempête de feu autour de Yan Luan fut repoussée, comme incapable de supporter cette pression. Même Wang Lin fut stupéfait, ses yeux brillant d'un éclat vif.
 
-« Les sorts du Dao de la Secte Da Hun sont effectivement prodigieux! Le statut d'Ancien est un immense avantage pour moi! Que ce soit le Dao de l'Œil de l'Âme ou ce Retour du Fantôme de l'Âme, ils sont tous puissants. Je dois les apprendre! » Les yeux de Wang Lin s'illuminèrent et il recula de trois pas sous la pression terrifiante. Une aura du Dao Antique jaillit de son corps et une ombre géante apparut derrière lui. Cette silhouette se solidifia rapidement pour paraître extrêmement réelle: elle portait une armure antique et ressemblait trait pour trait à Wang Lin!
+« Les sorts du Dao de la Secte Da Hun sont effectivement prodigieux! Le statut d'Ancien est un immense avantage pour moi! Que ce soit le Dao de la Déduction de l'Âme ou ce Retour du Fantôme de l'Âme, ils sont tous puissants. Je dois les apprendre! » Les yeux de Wang Lin s'illuminèrent et il recula de trois pas sous la pression terrifiante. Une aura du Dao Antique jaillit de son corps et une ombre géante apparut derrière lui. Cette silhouette se solidifia rapidement pour paraître extrêmement réelle: elle portait une armure antique et ressemblait trait pour trait à Wang Lin!
 
 Tout en reculant, Wang Lin retira sa main droite et tendit son index!
 

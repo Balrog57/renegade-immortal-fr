@@ -72,7 +72,7 @@ Quelle était donc cette ligne? C'était manifestement une entaille causée par 
 
 La mer rugit. Dès que les ombres d'épées apparurent, l'océan gronda et se scinda complètement en deux. Un fracas tonitruant résonna, révélant clairement le fond marin sombre.
 
-Cette ombre d'épée mesurait des centaines de milliers de pieds de long. Elle jaillit de la mer et fonça sur Wang Lin et son groupe. En ressentant cette énergie, les visages du Tigre Blanc et de ses compagnons devinrent pâles. L'Oiseau Vermillon et la Tortue Noire, gravement blessés, crachèrent du sang, leurs yeux emplis de terreur.
+Cette ombre d'épée mesurait des centaines de milliers de pieds de long. Elle jaillit de la mer et fonça sur Wang Lin et son groupe. En ressentant cette énergie, les visages du Tigre Blanc et de ses compagnons devinrent pâles. Le Suzaku et la Tortue Noire, gravement blessés, crachèrent du sang, leurs yeux emplis de terreur.
 
 « C'est le Dao de l'Épée! Ne pas cultiver le domaine du monde, mais uniquement l'épée. Fusionner sa volonté dans l'épée, fusionner son corps dans l'épée. Éliminer toutes les émotions jusqu'à ce que l'on se considère soi-même comme une épée! »
 

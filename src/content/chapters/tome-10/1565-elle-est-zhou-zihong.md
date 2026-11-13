@@ -30,7 +30,7 @@ Tandis qu'ils débattaient, l'homme en blanc qui venait d'entrer se frotta le ne
 
 Le jeune homme en blanc était Wang Lin.
 
-Après avoir réglé les affaires du Royaume aux Sept Couleurs dans Zhao He He, Wang Lin se rendait sur la planète Suzaku pour rendre hommage à ses parents. Il comptait y affiner son karma, ainsi que ses essences de vie et de mort, de vrai et de faux.
+Après avoir réglé les affaires du Royaume aux Sept Couleurs dans Zhao He, Wang Lin se rendait sur la planète Suzaku pour rendre hommage à ses parents. Il comptait y affiner son karma, ainsi que ses essences de vie et de mort, de vrai et de faux.
 
 En passant par là, il avait senti la présence de Treize et l'aura de la statue du démon antique, ce qui l'avait amené ici.
 

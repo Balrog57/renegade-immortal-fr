@@ -46,7 +46,7 @@ Cette scène fit rater un battement au cœur de Du Qing.
 
 « Pas étonnant que ce soit un trésor créé par le Grand Empyréen... À en juger, il n'en a même pas utilisé toute la puissance... » Les yeux de Du Qing s'illuminèrent tandis qu'il souriait à Wang Lin.
 
-« Félicitations, Camarade Cultivateur, pour avoir obtenu les deux veines de feu terrestre enfantines. Votre corps véritable d'essence sera bientôt complet. »
+« Félicitations, Daoïste, pour avoir obtenu les deux veines de feu terrestre enfantines. Votre corps véritable d'essence sera bientôt complet. »
 
 Wang Lin secoua doucement la tête. Sans dire un mot, sa main droite toucha l'empreinte dorée. L'une des âmes de dragon s'envola vers la boule de feu.
 
@@ -106,6 +106,6 @@ Ce cri était extrêmement perçant et possédait le pouvoir de choquer l'esprit
 
 Le Roi Moustique émergea du brouillard noir. Sa bouche immense, son corps montagneux après s'être rétracté et les pointes noires qui couvraient sa peau terrifièrent Du Qing!
 
-« Camarade Du, vous êtes trop lent, vous devez suivre le rythme », dit lentement Wang Lin avant de monter sur le Roi Moustique. Le Roi Moustique chargea en avant et disparut sans laisser de trace.
+« Daoïste Du, vous êtes trop lent, vous devez suivre le rythme », dit lentement Wang Lin avant de monter sur le Roi Moustique. Le Roi Moustique chargea en avant et disparut sans laisser de trace.
 
 Sa vitesse laissa Du Qing stupéfait.

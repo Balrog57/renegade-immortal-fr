@@ -54,7 +54,7 @@ Cette ombre était l'esprit du trésor de la Hache Brise-Ciel. Elle fonça sur W
 
 Le corps de dix mille pieds de Wang Lin semblait n'être qu'un adolescent face à un homme dans la force de l'âge; il paraissait ne pas avoir de chance de résister. Pourtant, Wang Lin fixa les yeux de l'ombre qui fonçait sur lui et poussa un rugissement.
 
-« Tu oses?! Je suis un Dieu Ancien Royal et je possède l'héritage du Dao Ancien. Tu veux me dévorer? Tu cherches la mort! » Derrière Wang Lin, la tête géante du Dao Ancien apparut et rugit en chœur avec lui!
+« Tu oses?! Je suis un Dieu Ancien Royal et je possède l'héritage de Dao Gu. Tu veux me dévorer? Tu cherches la mort! » Derrière Wang Lin, la tête géante de Dao Gu apparut et rugit en chœur avec lui!
 
 Ce fut comme si un ouragan surgissait du vide pour frapper l'ombre de la Hache Brise-Ciel. L'ombre poussa un cri de terreur et recula précipitamment. Son corps fut déchiré, mais se reforma rapidement.
 

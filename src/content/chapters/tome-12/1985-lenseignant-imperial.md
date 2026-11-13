@@ -42,7 +42,7 @@ Wang Lin leva les yeux vers l'Enseignant Impérial et dit lentement: « La perso
 
 « La personne que vous avez tuée était moi, mais elle ne l'était pas non plus! » Tandis qu'il souriait, l'Enseignant Impérial ferma sa main droite avant de l'ouvrir lentement. Une minuscule silhouette faite de lumière blanche apparut et s'inclina devant lui.
 
-« Vous êtes allé à la Secte Da Hun et vous avez appris son sortilège. Le Dao de l'Œil de l'Âme et l'Œil de l'Âme du Dao se ressemblent, mais ils sont en réalité bien différents... » L'Enseignant Impérial agita la main et la petite silhouette s'envola. Elle grandit instantanément pour atteindre une taille humaine et se précipita vers Wang Lin.
+« Vous êtes allé à la Secte Da Hun et vous avez appris son sortilège. L'Âme qui engendre le Dao et le Dao qui engendre l'Âme se ressemblent, mais ils sont en réalité bien différents... » L'Enseignant Impérial agita la main et la petite silhouette s'envola. Elle grandit instantanément pour atteindre une taille humaine et se précipita vers Wang Lin.
 
 Cette silhouette bougea avec une rapidité fulgurante, fusionnant presque avec le monde lui-même. Cependant, alors qu'elle approchait, Wang Lin leva soudainement sa main droite, reproduisant son geste de la rue. Des ondulations résonnèrent tandis qu'il étranglait la figure blanche et l'écrasait!
 

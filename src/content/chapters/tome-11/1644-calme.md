@@ -34,7 +34,7 @@ Le Général Dragon Azure et le Général Tortue Noire décidèrent de lancer le
 
 Les quatre grands généraux avaient collaboré durant de nombreuses années et se connaissaient parfaitement. Au moment où les deux premiers attaquèrent, le Général Tigre Blanc essuya le sang au coin de sa bouche. Bien qu'il n'ait plus l'ombre du Tigre Blanc, il tenait toujours sa lame. Il bondit dans les airs et s'abattit sur Wang Lin avec un rugissement!
 
-Seul le Général Oiseau Vermillon ne fit pas son apparition; c'était comme s'il estimait que l'assaut combiné de ces trois-là suffirait à terrasser Wang Lin!
+Seul le Général Suzaku ne fit pas son apparition; c'était comme s'il estimait que l'assaut combiné de ces trois-là suffirait à terrasser Wang Lin!
 
 Tout cela se produisit en un instant. Le Général Dragon Azure convergeait. Les yeux de Wang Lin s'illuminèrent alors qu'un sentiment de crise de vie ou de mort l'enveloppait. Là où d'autres auraient paniqué, Wang Lin, ayant passé sa vie à affronter ce genre de situation, y était depuis longtemps habitué. Plus le danger était grand, plus il devenait calme!
 

@@ -36,7 +36,7 @@ Ils avaient initialement pensé que leur Ancêtre avait capturé l'individu et r
 
 « Pourquoi restez-vous là sans rien faire? Venez saluer le bon ami de cet ancien! C'est un proche ami qui nous a grandement aidés. Cet ancien l'a invité ici pour lui exprimer sa gratitude. » Le regard sévère de Du Qing fit immédiatement reculer les disciples de la Secte Cang Long.
 
-« Camarade cultivateur Wang, je vous en prie, soyez le bienvenu... » Du Qing sourit et salua Wang Lin.
+« Daoïste Wang, je vous en prie, soyez le bienvenu... » Du Qing sourit et salua Wang Lin.
 
 Ce revirement soudain changea l'expression de tous les disciples, mais leur peur envers l'Ancien était si profondément ancrée qu'ils restèrent silencieux. Ils regardèrent l'Ancien inviter cet homme redoutable dans la montagne arrière.
 
@@ -48,13 +48,13 @@ Du Qing conduisit Wang Lin vers la montagne arrière. Bien que l'endroit ait ég
 
 L'intérieur de la grotte était très luxueux. D'innombrables perles nocturnes de la taille d'une tête illuminaient la cavité comme un ciel étoilé. On y trouvait de nombreuses pièces dédiées à la forge, à l'alchimie et à la culture en isolement. Tout ce dont un cultivateur avait besoin s'y trouvait.
 
-« Camarade cultivateur Wang, cet endroit est modeste, mais j'espère que vous pourrez vous en contenter quelques jours, en attendant que la secte soit reconstruite. Vous pourrez alors trouver un lieu de repos plus convenable. » Du Qing força un sourire. Pour lui, cet endroit était déjà excellent. Le sol était fait de Pierre de la Mer Orientale, ce qui augmentait la concentration d'aura ambiante. Les perles nocturnes n'étaient pas ordinaires; elles simulaient le firmament, permettant de ressentir l'immensité du monde.
+« Daoïste Wang, cet endroit est modeste, mais j'espère que vous pourrez vous en contenter quelques jours, en attendant que la secte soit reconstruite. Vous pourrez alors trouver un lieu de repos plus convenable. » Du Qing força un sourire. Pour lui, cet endroit était déjà excellent. Le sol était fait de Pierre de la Mer Orientale, ce qui augmentait la concentration d'aura ambiante. Les perles nocturnes n'étaient pas ordinaires; elles simulaient le firmament, permettant de ressentir l'immensité du monde.
 
 La salle d'alchimie était également somptueuse. Tout ce qu'elle contenait provenait de ses pillages.
 
 « Ça ira. » Wang Lin observa les lieux puis s'assit. Il tourna un regard vers Du Qing et prit soudain la parole.
 
-« Camarade cultivateur Du, je viens d'un autre continent. Je me demandais: où se trouve la principale veine de feu terrestre du Continent Tian Niu? » Le Continent Tian Niu était trop vaste; Wang Lin ne pourrait pas trouver la veine principale en peu de temps sans y consacrer énormément de temps.
+« Daoïste Du, je viens d'un autre continent. Je me demandais: où se trouve la principale veine de feu terrestre du Continent Tian Niu? » Le Continent Tian Niu était trop vaste; Wang Lin ne pourrait pas trouver la veine principale en peu de temps sans y consacrer énormément de temps.
 
 En entendant cela, Du Qing comprit l'intention de Wang Lin. Après une courte réflexion, il s'assit face à lui et répondit:
 
@@ -78,7 +78,7 @@ Les yeux de Wang Lin se rétrécirent; il retint ce nom.
 
 « Avec mon niveau actuel, je ne suis qualifié que pour être un Ancien extérieur à la Secte Da Hun. J'ai un Senior de mon clan qui est Ancien intérieur. C'est grâce à cette relation et à mon rang d'Ancien extérieur que la Secte Cang Long bénéficie de la protection de la Secte Da Hun. »
 
-« Le camarade cultivateur Wang possédant un trésor offert par un Grand Empyréen, vous devez être traité comme un hôte d'honneur. Mais si jamais vous veniez à affecter la principale veine de feu terrestre, alors... » Du Qing laissa sa menace en suspens.
+« Le Daoïste Wang possédant un trésor offert par un Grand Empyréen, vous devez être traité comme un hôte d'honneur. Mais si jamais vous veniez à affecter la principale veine de feu terrestre, alors... » Du Qing laissa sa menace en suspens.
 
 L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personnes à la Secte Da Hun.
 
@@ -86,7 +86,7 @@ L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personn
 
 « Fan Shanmeng!! » L'expression de Du Qing changea radicalement.
 
-« J'ai entendu ce nom. C'est une disciple centrale de la Secte Da Hun et l'un des deux génies de la secte! Le camarade la connaît-il? »
+« J'ai entendu ce nom. C'est une disciple centrale de la Secte Da Hun et l'un des deux génies de la secte! Le Daoïste la connaît-il? »
 
 « Son nom m'est familier. » Wang Lin réfléchit un instant, puis changea de sujet.
 

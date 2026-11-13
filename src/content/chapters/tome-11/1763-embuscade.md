@@ -68,7 +68,7 @@ Le Général Dragon Azure haleta, fixant Wang Lin avec une terreur inédite. Le 
 
 Le visage de la Tortue Noire pâlit tandis qu'il scrutait les environs. Se remémorant le Dao Céleste de Wang Lin, une peur viscérale l'envahit; il regrettait même d'être venu!
 
-Le sentiment du Général Oiseau Vermillon était plus complexe, incapable de réprimer le choc qui secouait son cœur.
+Le sentiment du Général Suzaku était plus complexe, incapable de réprimer le choc qui secouait son cœur.
 
 La sixième concubine, elle aussi, venait à peine d'échapper à la mer de feu, blessée. En découvrant cette scène terrifiante, sa peur de Wang Lin refit surface.
 

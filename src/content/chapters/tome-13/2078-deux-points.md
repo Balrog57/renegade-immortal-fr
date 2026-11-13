@@ -58,7 +58,7 @@ Wang Lin quitta la Terre Yao Ling et parcourut de nombreux lieux dans les quatre
 
 Finalement, il quitta le Royaume Intérieur pour rejoindre le Royaume Extérieur.
 
-Dans le Royaume Extérieur, son premier arrêt fut la Terre Déchue. Là, il vit l'ancien Oiseau Vermillon qui l'avait aidé autrefois. Il revit également de nombreux vieux amis.
+Dans le Royaume Extérieur, son premier arrêt fut la Terre Déchue. Là, il vit le vieux Suzaku qui l'avait aidé autrefois. Il revit également de nombreux vieux amis.
 
 Quelques jours plus tard, Wang Lin leva le sceau de la Terre Déchue pour permettre aux habitants de partir à leur guise. Il emporta avec lui l'objet le plus précieux de ce lieu: l'aiguille d'une boussole.
 

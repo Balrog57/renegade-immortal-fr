@@ -42,7 +42,7 @@ Fan Shanlu agrippa le bras de Wang Lin. Le visage pâle, elle tira anxieusement 
 
 « Je me souviens de toi, tu es ma première concubine. Pourquoi fuis-tu ce seigneur après m'avoir vu? » Le regard du Daoïste aux Sept Couleurs balaya Fan Shanlu. D'un mouvement de sa manche droite, neuf phantasmes d'oiseaux de feu rouges et ardents apparurent devant lui.
 
-Ces neuf oiseaux n'étaient pas des Oiseaux Vermillon, mais la chaleur qu'ils dégageaient surpassait celle de ces derniers! De plus, on pouvait déceler en eux de faibles traces d'âmes planétaires!
+Ces neuf oiseaux n'étaient pas des Suzaku, mais la chaleur qu'ils dégageaient surpassait celle des Suzaku! De plus, on pouvait déceler en eux de faibles traces d'âmes planétaires!
 
 Ce n'étaient pas du tout des oiseaux de feu; il s'agissait manifestement de neuf rares planètes ardentes de ce monde caverneux que le Daoïste aux Sept Couleurs avait raffinées! Ou plus exactement, de neuf soleils!
 

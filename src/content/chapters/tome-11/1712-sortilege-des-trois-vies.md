@@ -20,7 +20,7 @@ Wang Lin se leva et quitta l'autel. Simultanément, son avatar se leva égalemen
 
 Wang Lin bougea son corps et, après avoir constaté qu'il n'éprouvait aucun inconfort, il reporta son regard sur l'autel. Un éclat de froideur passa dans ses yeux; ses mains formèrent des sceaux, projetant vers l'avant une multitude de restrictions. Il y en avait près d'un million.
 
-De sa main droite, il pointa l'autel et le million de restrictions s'élancèrent vers lui, atterrissant l'une après l'autre.
+De sa main droite, il pointa l'autel et le million de restrictions s'élancèrent vers l'autel, atterrissant l'une après l'autre.
 
 Chaque restriction faisait tressaillir l'autel légèrement. À mesure que les restrictions se multipliaient, les secousses devenaient plus violentes. Vers la fin, des grondements tonitruants résonnèrent, comme si l'autel était sur le point de s'effondrer.
 

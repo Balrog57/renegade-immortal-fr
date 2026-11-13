@@ -28,7 +28,7 @@ L'Ancien Qing Niu se trouvait également dans sa grotte du Pic du Ciel Vert. Apr
 
 Le regard de Wang Lin disparut bientôt, mais l'Estimé Qing Niu sentait encore son cœur palpiter, les yeux emplis de choc. Ce regard était impitoyable, indifférent, comme si le monde entier n'était qu'une poussière sous ses pieds et devait lui rendre culte!
 
-L'Ancien Qing Niu n'avait jamais visité la cité impériale du clan Dao Antique. S'il avait vu, dans l'immense cité flottant dans les airs, la statue de l'Ancêtre Ancien qui soutenait presque le ciel, il aurait ressenti une étrange familiarité.
+L'Ancien Qing Niu n'avait jamais visité la cité impériale de la lignée Dao Gu. S'il avait vu, dans l'immense cité flottant dans les airs, la statue de l'Ancêtre Ancien qui soutenait presque le ciel, il aurait ressenti une étrange familiarité.
 
 L'aura de l'immense ombre de Wang Lin dans le ciel était d'une similitude frappante avec celle de l'Ancêtre Ancien, malgré quelques nuances dans les détails.
 

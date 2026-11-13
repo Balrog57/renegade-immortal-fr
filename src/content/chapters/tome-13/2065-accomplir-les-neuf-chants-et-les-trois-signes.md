@@ -68,7 +68,7 @@ Wang Lin murmura tandis qu'il observait le pied gigantesque qui tombait du ciel.
 
 « Après avoir complété mon essence du vrai et du faux dans la Secte Dong Lin il y a des centaines d'années, j'avais compris que la réincarnation était la quatrième essence éthérée. Pourtant, au cours des siècles passés, je ne comprenais toujours pas ce qu'était la réincarnation... »
 
-« Qu'est-ce que la réincarnation? Je pensais à l'origine qu'il s'agissait d'une loi régissant l'au-delà. Ce n'est que lors de l'apparition de l'Enseignant Impérial du Dao Antique que j'ai découvert, quelles qu'aient été ses raisons, qu'il laissait entendre que, pour véritablement ressusciter Wan Er, je devais utiliser le pouvoir de la réincarnation dans le Royaume Divin Immémorial... »
+« Qu'est-ce que la réincarnation? Je pensais à l'origine qu'il s'agissait d'une loi régissant l'au-delà. Ce n'est que lors de l'apparition de l'Enseignant Impérial du Dao Gu que j'ai découvert, quelles qu'aient été ses raisons, qu'il laissait entendre que, pour véritablement ressusciter Wan Er, je devais utiliser le pouvoir de la réincarnation dans le Royaume Divin Immémorial... »
 
 « À l'époque, j'étais perplexe. Quelle était cette puissance de la réincarnation? Je pensais qu'il s'agissait d'une loi du monde... »
 
@@ -100,7 +100,7 @@ Après le premier signe, les yeux de Wang Lin révélèrent une lueur argentée.
 
 Les neuf chants et les trois signes étaient apparus sur le corps de Wang Lin lorsqu'il était sur le Mont Gu Dao. Cependant, à l'époque, ils étaient incomplets — un signe et un chant manquaient!
 
-Dans le palais du Dao Antique, ils étaient apparus une seconde fois. Les neuf chants étaient là, mais l'un des trois signes manquait toujours.
+Dans le palais du Dao Gu, ils étaient apparus une seconde fois. Les neuf chants étaient là, mais l'un des trois signes manquait toujours.
 
 Désormais, au centre de la vaste cuvette, aux abords de la tempête marine et sous le Ciel de Dao du Grand Empyréen Gu Dao, les neuf chants et les trois signes apparaissaient pour la troisième fois!
 

@@ -24,25 +24,25 @@ Son corps abritait de nombreuses âmes originelles chaotiques, récupérées lor
 
 Il ne restait plus que trois jours avant la grande cérémonie, lors de laquelle l'Empereur proclamerait son impératrice.
 
-Toute la cité impériale de l'Ancien Dao était en fête et magnifiquement parée. À la nuit tombée, les lumières multicolores étaient visibles de très loin. Même le ciel de la cité semblait teinté de reflets chatoyants, plongeant les habitants dans une atmosphère merveilleuse et joyeuse.
+Toute la cité impériale Dao Gu était en fête et magnifiquement parée. À la nuit tombée, les lumières multicolores étaient visibles de très loin. Même le ciel de la cité semblait teinté de reflets chatoyants, plongeant les habitants dans une atmosphère merveilleuse et joyeuse.
 
-L'Empereur de l'Ancien Dao accordait une importance capitale à cette cérémonie, tout comme l'ensemble de la famille impériale. Après tout, il allait nommer son impératrice. Tous les membres puissants de l'Ancien Dao s'étaient rassemblés, et des délégations d'autres nations étaient également venues pour assister personnellement à cet événement grandiose.
+L'Empereur Dao Gu accordait une importance capitale à cette cérémonie, tout comme l'ensemble de la famille impériale. Après tout, il allait nommer son impératrice. Tous les membres puissants du Dao Gu s'étaient rassemblés, et des délégations d'autres nations étaient également venues pour assister personnellement à cet événement grandiose.
 
 Les émissaires de l'Ancien Ji et de l'Ancien Shi étaient déjà arrivés pour participer aux célébrations.
 
-L'Ancien Shi avait préparé de nombreux présents, mené par le Prince Ji Du. Ce dernier avait personnellement accompagné les ambassadeurs de l'Ancien Dao lors du choix de Song Zhi; il n'était donc pas surprenant qu'il soit présent. De plus, l'impératrice s'appelait Song et était une descendante éloignée du Grand Empyréen de l'Ancien Shi; un messager avait donc été envoyé pour apporter un présent.
+L'Ancien Shi avait préparé de nombreux présents, mené par le Prince Ji Du. Ce dernier avait personnellement accompagné les ambassadeurs du Dao Gu lors du choix de Song Zhi; il n'était donc pas surprenant qu'il soit présent. De plus, l'impératrice s'appelait Song et était une descendante éloignée du Grand Empyréen de l'Ancien Shi; un messager avait donc été envoyé pour apporter un présent.
 
-L'afflux massif de visiteurs rendait la cité impériale extrêmement animée. La sécurité y fut renforcée afin de garantir le bon déroulement de la cérémonie. Le palais, en particulier, était sous une garde stricte. Presque toutes les figures puissantes de l'Ancien Dao étaient là: les divers rois issus des lignées royales s'étaient réunis, faisant de la cité un lieu d'une effervescence sans pareille.
+L'afflux massif de visiteurs rendait la cité impériale extrêmement animée. La sécurité y fut renforcée afin de garantir le bon déroulement de la cérémonie. Le palais, en particulier, était sous une garde stricte. Presque toutes les figures puissantes du Dao Gu étaient là: les divers rois issus des lignées royales s'étaient réunis, faisant de la cité un lieu d'une effervescence sans pareille.
 
-C'était un événement majeur pour le clan Ancien. L'un des trois anciens empereurs allait proclamer une impératrice. Dans ce clan où le pouvoir impérial était suprême, l'affaire était connue de tous; même la Montagne Gu Dao avait envoyé un présent. L'Empereur de l'Ancien Dao captivait l'attention du monde entier durant cette période.
+C'était un événement majeur pour le clan Ancien. L'un des trois anciens empereurs allait proclamer une impératrice. Dans ce clan où le pouvoir impérial était suprême, l'affaire était connue de tous; même la Montagne Gu Dao avait envoyé un présent. L'Empereur Dao Gu captivait l'attention du monde entier durant cette période.
 
-Ces derniers jours, face à l'affluence, l'Ancien Dao avait déployé ses trésors les plus puissants pour créer 99 immenses plateformes, un peu moins grandes que la cité impériale, disposées autour de la cité volante. Les puissants venus de loin y avaient rapidement érigé diverses structures d'habitation, seul moyen d'accueillir une telle foule.
+Ces derniers jours, face à l'affluence, le Dao Gu avait déployé ses trésors les plus puissants pour créer 99 immenses plateformes, un peu moins grandes que la cité impériale, disposées autour de la cité volante. Les puissants venus de loin y avaient rapidement érigé diverses structures d'habitation, seul moyen d'accueillir une telle foule.
 
 Wang Lin, plongé dans sa culture, ignorait tout de ce tumulte. La nuit, à trois jours de la cérémonie, la cité impériale brillait de mille feux, vibrante de vie et de bruit, tout comme les 99 plateformes environnantes. En raison de la présence des membres des trois clans, de nombreuses enchères avaient vu le jour, permettant aux peuples de commercer entre eux en attendant l'événement.
 
-Une atmosphère de liesse emplissait le palais de l'Ancien Dao. Sur le pavillon le plus élevé, l'Empereur, les mains derrière le dos, contemplait la ville illuminée avec un sourire aux lèvres.
+Une atmosphère de liesse emplissait le palais Dao Gu. Sur le pavillon le plus élevé, l'Empereur, les mains derrière le dos, contemplait la ville illuminée avec un sourire aux lèvres.
 
-L'Empereur de l'Ancien Dao déclara lentement: « À l'avenir, je ferai en sorte que la cité impériale soit ainsi chaque jour, afin qu'elle devienne le centre du clan Ancien tout entier! »
+L'Empereur Dao Gu déclara lentement: « À l'avenir, je ferai en sorte que la cité impériale soit ainsi chaque jour, afin qu'elle devienne le centre du clan Ancien tout entier! »
 
 « Votre Majesté est un homme d'exception. Le jour viendra où vous atteindrez cet objectif! Nous sommes prêts à vous suivre pour voir ce jour éclore! » Dans le pavillon, sept personnes agenouillées exprimaient leur enthousiasme.
 
@@ -66,7 +66,7 @@ Les sept s'exprimèrent tour à tour avant de baisser la tête, attendant les or
 
 « Selon les rites, la cérémonie durera 99 jours. Hormis l'offrande à l'Ancêtre Ancien le premier jour, je n'y participerai pas. Si quoi que ce soit arrive, vous en porterez l'entière responsabilité! » L'homme en robe royale donna ses instructions et les sept s'inclinèrent immédiatement.
 
-« La cérémonie débutera dans trois jours. Chaque génération d'empereur de l'Ancien Dao a organisé un banquet la veille pour permettre au peuple et aux messagers des deux autres nations d'apercevoir l'impératrice... Comment avez-vous orchestré cela? »
+« La cérémonie débutera dans trois jours. Chaque génération d'empereur Dao Gu a organisé un banquet la veille pour permettre au peuple et aux messagers des deux autres nations d'apercevoir l'impératrice... Comment avez-vous orchestré cela? »
 
 L'un des sept répondit respectueusement: « Tout est prêt. »
 
@@ -101,7 +101,7 @@ Wang Lin hésita. Il n'avait aucune envie de se rendre à ce banquet, mais puisq
 
 « Offre ceci à Ye Dao. Considère cela comme mon cadeau de mariage pour lui. » Xuan Luo sourit et tendit une boîte à Wang Lin.
 
-Après l'avoir acceptée sans la regarder, Wang Lin joignit les mains en signe de respect envers Xuan Luo. Il s'élança dans les airs vers le palais impérial de l'Ancien Dao.
+Après l'avoir acceptée sans la regarder, Wang Lin joignit les mains en signe de respect envers Xuan Luo. Il s'élança dans les airs vers le palais impérial Dao Gu.
 
 « Une fois ce cadeau remis, je repartirai pour poursuivre ma culture. Mon essence métallique est sur le point d'atteindre sa forme véritable, et rien n'est plus important que cela. » Wang Lin prit cette décision, mais à cet instant précis, ce sentiment d'inquiétude le frappa de nouveau.
 

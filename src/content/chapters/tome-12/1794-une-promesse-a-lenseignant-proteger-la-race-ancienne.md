@@ -16,7 +16,7 @@ Pendant un instant, il sembla pouvoir voir Li Qianmei et sa compagnie progresser
 
 « Cependant, même avec mon aide, les chances de succès ne sont que de 50 %... Depuis l'Antiquité, je n'ai jamais entendu parler d'un Grand Empyréen aidant quelqu'un à résister à la loi du Continent Xian Gang. Tu seras sans doute le premier... C'est ton propre destin, alors nul besoin d'éprouver trop de gratitude envers ce vieil homme.
 
-« Si tu réussis à en sortir, ce vieil homme te prendra pour disciple et te ramènera au clan Dao Antique! Si tu finis par mourir... je t'aiderai à prendre soin de ceux qui se sont réincarnés... Prends... soin de toi! » Xuan Luo laissa échapper un soupir. Il avait véritablement pris Wang Lin en affection. Il avait l'intention de tout lui transmettre et de laisser Wang Lin protéger le clan Dao Antique durant sa période de réincarnation.
+« Si tu réussis à en sortir, ce vieil homme te prendra pour disciple et te ramènera au clan Dao Gu! Si tu finis par mourir... je t'aiderai à prendre soin de ceux qui se sont réincarnés... Prends... soin de toi! » Xuan Luo laissa échapper un soupir. Il avait véritablement pris Wang Lin en affection. Il avait l'intention de tout lui transmettre et de laisser Wang Lin protéger le clan Dao Gu durant sa période de réincarnation.
 
 Il envisageait même d'aider Wang Lin à voir s'il était possible de pénétrer dans le Royaume Divin Immémorial pour devenir le dixième soleil. Bien que cette entreprise fût imprévisible et périlleuse, il y avait songé.
 
@@ -42,9 +42,9 @@ Wang Lin resta silencieux, son regard ancré dans celui de Xuan Luo. Il n'oublie
 
 La détermination de Xuan Luo à accepter Wang Lin dès maintenant, plutôt que d'attendre qu'il ait atteint le Continent Xian Gang, fit trembler le cœur du jeune homme.
 
-« Maître... » Wang Lin n'avait plus aucune raison de refuser cette immense faveur et cette lourde responsabilité. Il comprit que cela signifiait qu'il était désormais lié au clan Dao Antique par un lien dont il ne pourrait se défaire.
+« Maître... » Wang Lin n'avait plus aucune raison de refuser cette immense faveur et cette lourde responsabilité. Il comprit que cela signifiait qu'il était désormais lié au clan Dao Gu par un lien dont il ne pourrait se défaire.
 
-Cela signifiait qu'il protégerait le clan Dao Antique, dût-il en payer le prix de sa vie! C'était ainsi qu'il rembourserait tout ce que Xuan Luo avait accompli pour lui.
+Cela signifiait qu'il protégerait le clan Dao Gu, dût-il en payer le prix de sa vie! C'était ainsi qu'il rembourserait tout ce que Xuan Luo avait accompli pour lui.
 
 Xuan Luo rit, transporté par la joie. Il regarda Wang Lin et l'aida à se relever. Tout en l'observant avec attention, son rire résonna de nouveau.
 
@@ -58,7 +58,7 @@ Ces rayons étaient constitués de toutes les créatures vivantes et des âmes p
 
 Xu Liguo, Liu Jinbiao, les bêtes moustiques, et tous les autres; chaque être présent dans l'espace de stockage de Wang Lin apparut. Même le Serpent aux yeux de lune, malgré sa taille démesurée, montrait des signes d'apparition.
 
-« Ces créatures suivent le Disciple depuis longtemps, je demande au Maître de les envoyer vers le Continent Xian Gang... » À peine Wang Lin eut-il prononcé ces mots que le groupe de bêtes moustiques, mené par la reine des moustiques, manifesta une folie dévorante dans ses yeux. Elles s'élancèrent désespérément vers la brèche de glace.
+« Ces créatures suivent le Disciple depuis longtemps, je demande au Maître de les envoyer vers le Continent Xian Gang... » À peine Wang Lin eut-il prononcé ces mots que le groupe de bêtes moustiques, mené par le roi des moustiques, manifesta une folie dévorante dans ses yeux. Elles s'élancèrent désespérément vers la brèche de glace.
 
 Il semblait qu'un désir irrésistible les poussait vers l'extérieur et elles se précipitèrent comme des possédées. Ce changement soudain stupéfia Wang Lin, et même Xuan Luo fut surpris.
 
@@ -70,9 +70,9 @@ Cependant, peu après, un changement terrifiant survint. Pour une raison inconnu
 
 Elles se transformèrent en un brouillard de sang et de chair avant de se dissiper. Wang Lin, surpris, s'apprêta à les secourir quand celles qui n'avaient pas péri commencèrent à croître de nouveau, jusqu'à atteindre la taille d'une montagne. Mais bientôt, de nouvelles bêtes s'effondrèrent, tandis que les autres continuaient leur croissance.
 
-En particulier, la reine des moustiques de Wang Lin était couverte de sang et poussait des rugissements misérables. Elle semblait lutter contre une force invisible pour fusionner avec quelque chose.
+En particulier, le roi des moustiques de Wang Lin était couvert de sang et poussait des rugissements misérables. Il semblait lutter contre une force invisible pour fusionner avec quelque chose.
 
-Wang Lin et la reine des moustiques partageaient un lien profond; il s'apprêtait à intervenir sans hésiter, mais Xuan Luo l'arrêta. La reine vit l'intention de son maître, mais elle lutta péniblement pour continuer sa progression. Elle regarda Wang Lin avec une détermination farouche dans les yeux.
+Wang Lin et le roi des moustiques partageaient un lien profond; il s'apprêtait à intervenir sans hésiter, mais Xuan Luo l'arrêta. Le roi vit l'intention de son maître, mais il lutta péniblement pour continuer sa progression. Il regarda Wang Lin avec une détermination farouche dans les yeux.
 
 « Ne les arrête pas, ton essaim est extraordinaire! » Les yeux de Xuan Luo brillèrent en fixant la bête moustique, sa voix devenant sérieuse.
 
@@ -84,19 +84,19 @@ Alors qu'il parlait, un nombre massif de bêtes périrent; il n'en restait plus 
 
 Malgré les pertes innombrables, aucune bête moustique ne choisit de battre en retraite. Leurs esprits étaient lucides; elles sentaient que cette opportunité était le pivot de leur évolution. Si elles réussissaient, elles deviendraient comme leurs ancêtres! Les souvenirs ancestraux jaillirent de leurs âmes à mesure qu'elles grandissaient.
 
-La reine des moustiques de Wang Lin était la plus imposante et son aspect était saisissant. Son corps mesurait des centaines de milliers de pieds de haut, une taille comparable à celle que Wang Lin avait vue jadis dans la faille du Royaume Céleste du Vent. Une aura terrifiante émanait d'elle.
+Le roi des moustiques de Wang Lin était le plus imposant et son aspect était saisissant. Son corps mesurait des centaines de milliers de pieds de haut, une taille comparable à celle que Wang Lin avait vue jadis dans la faille du Royaume Céleste du Vent. Une aura terrifiante émanait de lui.
 
-Un demi-bâton d'encens s'écoula. L'anxiété de Wang Lin grandissait alors que les moins de cent bêtes restantes s'effondraient à nouveau. Cette fois, il ne put plus se contenir. Il préférait voir la reine échouer dans son évolution plutôt que de la voir mourir!
+Un demi-bâton d'encens s'écoula. L'anxiété de Wang Lin grandissait alors que les moins de cent bêtes restantes s'effondraient à nouveau. Cette fois, il ne put plus se contenir. Il préférait voir le roi échouer dans son évolution plutôt que de le voir mourir!
 
-La reine des moustiques était comme une parente pour Wang Lin; elle l'avait accompagné durant plus de deux mille ans! Alors que les bêtes s'effondraient, Wang Lin bondit hors de la glace et chargea vers elles.
+Le roi des moustiques était comme un parent pour Wang Lin; il l'avait accompagné durant plus de deux mille ans! Alors que les bêtes s'effondraient, Wang Lin bondit hors de la glace et chargea vers elles.
 
 Alors qu'il approchait, un rugissement capable de secouer les cieux jaillit du chaos des corps qui tombaient. Neuf rugissements suivirent immédiatement.
 
 Ces sons fusionnèrent pour ne former qu'un seul cri, faisant trembler le vide même saturé par la loi du Continent Xian Gang!
 
-Alors que les bêtes s'effondraient, la reine des moustiques surgit enfin. Elle avait désormais la taille d'une planète, et sa gueule était si vaste qu'elle en glaçait le sang de quiconque la contemplerait.
+Alors que les bêtes s'effondraient, le roi des moustiques surgit enfin. Il avait désormais la taille d'une planète, et sa gueule était si vaste qu'elle en glaçait le sang de quiconque la contemplerait.
 
-Derrière elle, neuf bêtes moustiques dorées firent leur apparition. Chacune d'elles était aussi immense que la reine que Wang Lin avait connue dans le Royaume Céleste du Vent. Elles dégageaient toutes une aura féroce, et en voyant cela, les yeux de Xuan Luo s'illuminèrent!
+Derrière elle, neuf bêtes moustiques dorées firent leur apparition. Chacune d'elles était aussi immense que le roi que Wang Lin avait connue dans le Royaume Céleste du Vent. Elles dégageaient toutes une aura féroce, et en voyant cela, les yeux de Xuan Luo s'illuminèrent!
 
 « La rumeur prétend que le Continent Xian Gang n'était qu'une terre sauvage à l'origine. Puis le Royaume Divin apparut et créa la vie. Ensuite, les étoiles surgirent, mais elles se trouvaient sous le continent!
 

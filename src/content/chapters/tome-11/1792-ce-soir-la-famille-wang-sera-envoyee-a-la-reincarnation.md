@@ -46,9 +46,9 @@ Cette nouvelle formation était une création personnelle de Wang Lin. Familier 
 
 « Les cinq Maîtres du Système Stellaire Antique... Le Souverain a été scellé par moi et Lanmeng Daozun s'est établi au Royaume Céleste. Il ne reste que Miaoyin Daozun, Xushen Tianzun et Jiutian Mozun. Si je les laisse tranquilles, ces trois-là deviendront un problème. Puisqu'ils sont affaiblis, je vais les traquer un par un pour les envoyer à la réincarnation! » Le regard de Wang Lin était glacial alors qu'il pénétrait dans le Système Stellaire Antique. Son Sens Divin se déploya soudainement dans toutes les directions.
 
-Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Vide Spirituel et son héritage du Dao Antique était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Vide Arcanique tardif!
+Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Vide Spirituel et son héritage du Dao Gu était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Vide Arcanique tardif!
 
-Avec un tel niveau de culture, ses sept essences et ses sorts du Dao Antique, ces trois maîtres blessés du Système Stellaire Antique n'étaient plus à sa mesure!
+Avec un tel niveau de culture, ses sept essences et ses sorts du Dao Gu, ces trois maîtres blessés du Système Stellaire Antique n'étaient plus à sa mesure!
 
 Alors que le puissant Sens Divin de Wang Lin balayait les environs, ses yeux brillèrent. Il fit un pas en avant et disparut.
 

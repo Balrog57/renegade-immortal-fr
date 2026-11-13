@@ -8,7 +8,7 @@ slug: trop-vicieux
 ---
 L'effondrement du dragon de feu terrestre se transforma en une gigantesque boule de feu qui enveloppa Wang Lin. À l'extérieur de cette sphère incandescente, les seize dragons de feu rugissaient et fusionnaient avec elle.
 
-On pouvait vaguement distinguer l'ombre d'un Oiseau Vermillon à l'intérieur de la boule de feu!
+On pouvait vaguement distinguer l'ombre de Suzaku à l'intérieur de la boule de feu!
 
 De loin, cet amas de flammes ressemblait à un œuf, au sein duquel un changement stupéfiant se produisait!
 
@@ -62,7 +62,7 @@ La formation de l'essence du massacre signifiait que les mains de celui qui la p
 
 « Damnation, il possède vraiment l'essence du massacre. Il... combien de personnes a-t-il tuées? C’est un monstre sans pareil! »
 
-« Essence de la restriction, apparais! » Les paroles de Wang Lin frappèrent Du Qing comme un coup de poing massif, le faisant reculer de plus de cent pieds. Il vit des lignes de sang apparaître dans les yeux de Wang Lin; elles s'en échappèrent pour former une restriction.
+« Essence de la restriction, apparais! » Les paroles de Wang Lin frappèrent Du Qing comme un coup de poing massif, le faisant reculer de plusieurs centaines de pieds. Il vit des lignes de sang apparaître dans les yeux de Wang Lin; elles s'en échappèrent pour former une restriction.
 
 L'aura de l'essence de la restriction explosa.
 

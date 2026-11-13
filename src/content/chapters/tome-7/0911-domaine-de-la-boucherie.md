@@ -1,6 +1,6 @@
 ---
 n: 911
-title: Domaine Sha Yu
+title: Royaume Sha Yu
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 911 - Slaughter Domain

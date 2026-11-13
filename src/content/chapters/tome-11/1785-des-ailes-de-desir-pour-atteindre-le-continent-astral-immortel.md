@@ -10,7 +10,7 @@ Une brèche s'ouvrit dans la porte et l'aura du Continent Xian Gang s'y engouffr
 
 L'ombre portant une cape laissa paraître une lueur spectrale et monstrueuse dans ses yeux en fixant Wang Lin. Pour une raison inconnue, un sentiment de vie ou de mort avait envahi son cœur à l'instant même où la porte s'était ouverte.
 
-Wang Lin se tenait près de la porte et tourna la tête pour observer Vieux Fantôme Zhan au loin. L'aura du Continent Xian Gang affluait par l'entrebâillement, faisant vibrer le lignage de son Dao Antique et accélérant son flux sanguin.
+Wang Lin se tenait près de la porte et tourna la tête pour observer Vieux Fantôme Zhan au loin. L'aura du Continent Xian Gang affluait par l'entrebâillement, faisant vibrer le lignage de Dao Gu et accélérant son flux sanguin.
 
 Il semblait absorber cette aura.
 
@@ -48,7 +48,7 @@ L'expression de Wang Lin demeurait calme alors que les deux sceaux dans sa main 
 
 Des grondements tonitruants résonnèrent, et la cinquième fleur en plein effondrement se dissipa largement, révélant le ciel étoilé ainsi que Lanmeng Daozun, le vieil homme nommé Ma de la Planète des Cinq Éléments, Yun Yifeng, la troisième concubine Tang Shan et d'autres.
 
-Se trouvaient également le Général Tortue Noire et le Général Oiseau Vermillon, tous deux gravement blessés.
+Se trouvaient également le Général Tortue Noire et le Général Suzaku, tous deux gravement blessés.
 
 Dès que les corps véritables de l'Essence se manifestèrent, l'expression de Vieux Fantôme Zhan changea. Ne possédant pas les souvenirs de la troisième âme, il ne les reconnut pas. Cependant, les yeux du vieil homme nommé Ma se remplirent de peur et d'incrédulité en voyant ces corps véritables!
 

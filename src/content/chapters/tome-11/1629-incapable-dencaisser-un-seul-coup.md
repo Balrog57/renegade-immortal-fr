@@ -98,7 +98,7 @@ Maître Nan Yunzi ne répondit rien. Il contemplait les nuages, l'anxiété gran
 
 De l'autre côté, le Vieux Fantôme Zhan était de plus en plus exalté. Ses yeux brillaient tandis qu'il se léchait les lèvres en murmurant:
 
-« Le Chasse-mouches Trois-Neuf, la Pagode de Suppression Céleste... Il devrait y avoir un autre trésor nommé l'Anneau de Scellement du Destin... Lorsqu'il a mis en place la Tribulation Céleste dans la grotte, il avait placé ces trois trésors à l'intérieur... » Les paroles du Vieux Fantôme Zhan devinrent inintelligibles et son regard vers les nuages prit une tournure encore plus étrange.
+« Le Chasse-mouches Trois-Neuf, la Pagode de Suppression des Immortels... Il devrait y avoir un autre trésor nommé l'Anneau de Scellement du Destin... Lorsqu'il a mis en place la Tribulation Céleste dans la grotte, il avait placé ces trois trésors à l'intérieur... » Les paroles du Vieux Fantôme Zhan devinrent inintelligibles et son regard vers les nuages prit une tournure encore plus étrange.
 
 Le temps s'écoulait lentement. La durée d'un demi-bâton d'encens semblait durer des années pour Situ Nan. Les milliers de cultivateurs du Royaume Intérieur étaient nerveux, le cœur lourd de mauvais présages.
 

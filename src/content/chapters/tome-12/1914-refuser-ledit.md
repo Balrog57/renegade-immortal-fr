@@ -36,7 +36,7 @@ C'était la puissance d'un Exalté Doré, dont la présence faisait changer les 
 
 Sa culture explosa sans la moindre retenue. C'était la première fois qu'il libérait sa pleine puissance depuis qu'il avait obtenu cette immense fortune au Temple Lu Mo Xie!
 
-Il déchaîna pleinement son corps de Dao Antique et sa culture de Tribulation du Vide. Hormis l'absence de son armure d'âme, c'était le sommet absolu atteint par Wang Lin en près de 3 000 ans de culture!
+Il déchaîna pleinement son corps Dao Gu et sa culture de Tribulation du Vide. Hormis l'absence de son armure d'âme, c'était le sommet absolu atteint par Wang Lin en près de 3 000 ans de culture!
 
 Ses cheveux blancs s'allongèrent soudainement de plusieurs fois leur longueur, dépassant même son corps. Flottant dans les airs, ils se mariaient à sa robe blanche. Wang Lin semblait ainsi entouré d'une lumière éthérée et glaciale!
 

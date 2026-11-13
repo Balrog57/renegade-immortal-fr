@@ -76,7 +76,7 @@ Son âme originelle n'était pas le seul élément devenu puissant. Son corps av
 
 C'était la première fois qu'il quittait le sanctuaire depuis cent ans. En franchissant le seuil, il vit le soleil éclatant, le ciel limpide et les flots bleus de la mer s'étendant à perte de vue, mais son maître, Xuan Luo, était absent.
 
-Lorsque la deuxième goutte de sang d'âme était descendue, Xuan Luo avait décidé de partir. Il n'avait pas rencontré Wang Lin et s'était retiré silencieusement vers le Dao Antique.
+Lorsque la deuxième goutte de sang d'âme était descendue, Xuan Luo avait décidé de partir. Il n'avait pas rencontré Wang Lin et s'était retiré silencieusement vers le Dao Gu.
 
 Il était venu pour protéger Wang Lin, et sa mission était accomplie. Ignorant ce qu'il pourrait dire à son disciple s'ils se croisaient, il n'avait eu d'autre choix que de partir.
 
@@ -106,7 +106,7 @@ Avec un sourire, Wang Lin se retourna et fit un pas vers le vide. Il disparut de
 
 Wang Lin était parti.
 
-Il quitta Shi Antique et tourna son regard vers le clan céleste, en direction de la Secte Qi Dao. Après une courte réflexion, il se mit en route vers la cité impériale du Dao Antique qu'il avait quittée deux siècles plus tôt.
+Il quitta Shi Antique et tourna son regard vers le clan céleste, en direction de la Secte Qi Dao. Après une courte réflexion, il se mit en route vers la cité impériale du Dao Gu qu'il avait quittée deux siècles plus tôt.
 
 Dans cette cité, personne à part Xuan Luo n'avait remarqué son arrivée. Dans les montagnes arrières du Temple Dao Gu, Wang Lin vit Xuan Luo dans la demeure où il avait séjourné autrefois.
 

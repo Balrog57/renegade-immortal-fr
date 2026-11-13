@@ -106,9 +106,9 @@ Dès l'apparition de ce démon, il poussa un cri strident et son corps s'étendi
 
 Cette fois, l'ombre du Dieu Ancien dégageait une colère sans limites et rugit vers Wang Lin.
 
-« Père ancestral, Ancien, condense l'ombre antique! » rugit l'homme d'âge moyen. Derrière les ombres des trois membres du clan, une ombre encore plus imposante apparut!
+« Père ancestral Dao Gu, condense l'ombre antique! » rugit l'homme d'âge moyen. Derrière les ombres des trois membres du clan, une ombre encore plus imposante apparut!
 
-Wang Lin reconnut cette silhouette: c'était l'Ancien Ye Mo!
+Wang Lin reconnut cette silhouette: c'était Dao Gu Ye Mo!
 
 Comparée à lui, les ombres des trois membres du clan n'étaient que des enfants insignifiants!
 
@@ -122,7 +122,7 @@ Lorsque l'ombre de Ye Mo se manifesta, l'homme d'âge moyen forma un sceau et po
 
 Alors que les trois ombres du clan et celle de Ye Mo convergeaient vers lui, les sept étoiles de Dieu Ancien de son front et toutes ses étoiles de Démon Ancien et de Diable Ancien de ses yeux se mirent à tourner frénétiquement.
 
-À mesure qu'elles tournaient et que leurs puissances fusionnaient, l'aura antique qui lui appartenait émergea. Tandis que cette aura se propageait, la tête d'Ancien sans œil gauche, héritée par Wang Lin, apparut derrière lui!
+À mesure qu'elles tournaient et que leurs puissances fusionnaient, l'aura antique qui lui appartenait émergea. Tandis que cette aura se propageait, la tête de Dao Gu sans œil gauche, héritée par Wang Lin, apparut derrière lui!
 
 C'était une bataille de vie ou de mort entre l'héritage de Ye Mo et la progéniture issue de son essence sanguine. Si Wang Lin triomphait, il pourrait absorber ces huit gouttes de sang pur d'Ancien!
 

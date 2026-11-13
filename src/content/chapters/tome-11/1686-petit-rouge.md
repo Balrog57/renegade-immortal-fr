@@ -22,7 +22,7 @@ Dès que le sceau apparut, le dragon qui s'était déjà éloigné poussa un cri
 
 Cette marque fut profondément imprimée dans sa tête, gravée jusque dans les os de son âme!
 
-« Aucun d'entre vous, les Oiseaux Vermillon, n'est une bonne personne... C'est si douloureux... Vous aviez dit que vous me laisseriez partir, mais vous m'avez quand même laissé ce sceau... » Le feu entourant le dragon s'effondra, révélant son corps. En un instant, celui-ci s'étendit sur plus de 100 000 pieds.
+« Aucun d'entre vous, les Suzaku, n'est une bonne personne... C'est si douloureux... Vous aviez dit que vous me laisseriez partir, mais vous m'avez quand même laissé ce sceau... » Le feu entourant le dragon s'effondra, révélant son corps. En un instant, celui-ci s'étendit sur plus de 100 000 pieds.
 
 Sa masse colossale dégageait une pression écrasante.
 

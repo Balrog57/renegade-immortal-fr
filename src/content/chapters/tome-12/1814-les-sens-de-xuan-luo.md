@@ -62,7 +62,7 @@ Les seize dragons de feu qui tourbillonnaient autour de la boule avaient lenteme
 
 Au cinquième jour, alors que le soleil se levait pour chasser les ténèbres, la boule de feu où se trouvait Wang Lin émit un grondement assourdissant qui fit trembler la terre.
 
-Le bruit était d'une intensité extrême et, tandis que le fracas persistait, la boule de feu commença à rétrécir jusqu'à n'atteindre plus que cent pieds de large. Au cœur des flammes déchaînées, on pouvait distinguer vaguement la silhouette de Wang Lin, accompagnée d'un Oiseau Vermillon tournoyant autour de lui.
+Le bruit était d'une intensité extrême et, tandis que le fracas persistait, la boule de feu commença à rétrécir jusqu'à n'atteindre plus que cent pieds de large. Au cœur des flammes déchaînées, on pouvait distinguer vaguement la silhouette de Wang Lin, accompagnée de Suzaku tournoyant autour de lui.
 
 Les cris de Suzaku résonnaient depuis l'intérieur de la sphère et, à chaque cri, la boule de feu se contractait davantage. Le processus était lent; après plusieurs heures, elle ne mesurait plus que soixante-dix pieds.
 
@@ -80,11 +80,11 @@ Ses cheveux blancs flottaient au vent alors qu'il s'asseyait près de la boule d
 
 Aussitôt, le cri de Suzaku à l'intérieur fut assourdissant. La boule de feu de trente pieds se contracta de nouveau jusqu'à n'atteindre plus que dix pieds!
 
-Un Oiseau Vermillon, réduit par de multiples compressions, tournait désormais autour de cette minuscule sphère de dix pieds, d'où jaillissaient des éclats de cris stridents.
+Suzaku, réduit par de multiples compressions, tournait désormais autour de cette minuscule sphère de dix pieds, d'où jaillissaient des éclats de cris stridents.
 
 Les yeux de Du Qing brillèrent d'une lueur singulière. Il fixa la boule et une pensée fulgurante lui traversa l'esprit.
 
-« Cet Oiseau Vermillon est le corps même de son essence de feu... Il canalise toute l'essence de cette veine de feu terrestre vers l'Oiseau! Se pourrait-il que... » En y pensant, les yeux de Du Qing s'écarquillèrent, de nouveau remplis de terreur.
+« Ce Suzaku est le corps même de son essence de feu... Il canalise toute l'essence de cette veine de feu terrestre vers Suzaku! Se pourrait-il que... » En y pensant, les yeux de Du Qing s'écarquillèrent, de nouveau remplis de terreur.
 
 « Serait-il en train de vouloir former un Corps Véritable d'Essence?! » Du Qing suffoqua, la peur dans son regard devenant plus intense encore.
 
@@ -94,7 +94,7 @@ Les yeux de Du Qing brillèrent d'une lueur singulière. Il fixa la boule et une
 
 « Les essences se divisent également en strates: de la formation initiale de l'essence à la condensation d'un trésor d'essence, jusqu'à l'aboutissement final. Chaque étape doit être franchie l'une après l'autre. Cependant, la légende raconte que parmi les génies, certains peuvent aller plus loin après avoir parachevé leur essence: former un Corps Véritable d'Essence! »
 
-« Un Corps Véritable d'Essence est extrêmement rare, et lorsqu'il apparaît, sa puissance dépasse l'entendement! Dans toute ma vie, je n'ai vu que l'Ancien Suprême de la Secte Da Hun posséder un Corps Véritable d'Essence d'Âme, et personne d'autre... Ceci... Ce Daoïste Wang essaie vraiment de former un Corps Véritable d'Essence! » Du Qing regardait Wang Lin avec une incrédulité totale.
+« Un Corps Véritable d'Essence est extrêmement rare, et lorsqu'il apparaît, sa puissance dépasse l'entendement! Dans toute ma vie, je n'ai vu que l'Ancêtre de la Secte Da Hun posséder un Corps Véritable d'Essence d'Âme, et personne d'autre... Ceci... Ce Daoïste Wang essaie vraiment de former un Corps Véritable d'Essence! » Du Qing regardait Wang Lin avec une incrédulité totale.
 
 Sur le Continent Xian Gang, les pays antiques étaient divisés en 36 États. Le Pays Dao Gu occupait 12 États. L'État du Ciel abritait la capitale royale.
 

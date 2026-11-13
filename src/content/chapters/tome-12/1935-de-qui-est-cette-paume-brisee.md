@@ -50,7 +50,7 @@ L'Exalté Empyréen Hai Zi fronça les sourcils, mais alors qu'elle allait répl
 
 « Si tu as besoin de parler à quelqu'un après être restée piégée ici trop longtemps, alors je vais t'aider à trouver quelqu'un avec qui discuter! » Tandis que Wang Lin parlait, une ombre se manifesta autour de lui. Son véritable corps d'essence de tonnerre de meurtre sortit et s'assit entre lui et l'Exalté Empyréen Hai Zi.
 
-« Parle à mon avatar, ne perturbe pas ma culture! » Un éclair de froideur traversa les yeux de Wang Lin alors qu'il se levait pour rejoindre le coin le plus éloigné de l'Exalté Empyréen. Il se rassit et ferma les yeux pour affiner le troisième Esprit de l'Arbre de la Mer et de la Montagne.
+« Parle à mon avatar, ne perturbe pas ma culture! » Un éclair de froideur traversa les yeux de Wang Lin alors qu'il se levait pour rejoindre le coin le plus éloigné de l'Exalté Empyréen. Il se rassit et ferma les yeux pour affiner le troisième Esprit de l'Arbre de la Mer Shan Hai.
 
 L'Exalté Empyréen Hai Zi fut stupéfaite. Elle n'aurait jamais imaginé que Wang Lin utiliserait une telle méthode. Elle fronça les sourcils en observant le véritable corps d'essence de tonnerre de meurtre, dont l'aura glaciale la fixait intensément. Elle poussa un soupir de mécontentement et commença elle aussi à cultiver.
 
@@ -59,11 +59,11 @@ L'Exalté Empyréen Hai Zi fut stupéfaite. Elle n'aurait jamais imaginé que Wa
 « J'avais pensé que la paume brisée avait changé, car lorsqu'elle est réapparue, elle ne s'est pas précipitée vers moi mais l'a attaquée en premier...
 À y réfléchir, il semble qu'il y ait un secret… » Le changement chez l'Exalté Empyréen était très singulier, mais Wang Lin n'avait rien détecté suggérant la présence de deux âmes dans un seul corps. C'est pourquoi il avait utilisé l'épée de l'Ancêtre Céleste par son regard, sans pour autant trouver quoi que ce soit.
 
-« Au début, l'Exalté Empyréen Hai Zi me semblait normale, mais tout à l'heure, elle paraissait un peu débridée. » Wang Lin fronça les sourcils et médita un instant, avant d'ignorer la question pour se plonger dans l'absorption de l'Esprit de l'Arbre de la Mer et de la Montagne.
+« Au début, l'Exalté Empyréen Hai Zi me semblait normale, mais tout à l'heure, elle paraissait un peu débridée. » Wang Lin fronça les sourcils et médita un instant, avant d'ignorer la question pour se plonger dans l'absorption de l'Esprit de l'Arbre de la Mer Shan Hai.
 
 En un éclair, trois ans passèrent.
 
-Durant ces trois années, Wang Lin ignora l'Exalté Empyréen Hai Zi. Il continua d'absorber l'Esprit de l'Arbre de la Mer et de la Montagne et son essence de bois ne cessa de croître. Après trois ans, il avait absorbé quatre esprits et son essence de bois avait atteint le stade de la petite perfection.
+Durant ces trois années, Wang Lin ignora l'Exalté Empyréen Hai Zi. Il continua d'absorber l'Esprit de l'Arbre de la Mer Shan Hai et son essence de bois ne cessa de croître. Après trois ans, il avait absorbé quatre esprits et son essence de bois avait atteint le stade de la petite perfection.
 
 Des motifs verdâtres apparurent à la surface de la peau de Wang Lin, semblables aux nervures d'une plante, lui donnant une apparence singulière.
 

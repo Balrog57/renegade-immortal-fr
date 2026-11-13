@@ -10,7 +10,7 @@ La voix apparut soudainement, comme si elle s'était fondue dans la mer pour en 
 
 Wang Lin sortit lentement des flots. Il était d'un calme olympien et sa robe blanche n'était nullement souillée par l'eau. Ses cheveux blancs, retombant sur ses épaules, ne bougeaient pas malgré le tumulte de la mer. Il lança un regard glacial aux deux cultivateurs du Continent Lu Mo qui se tenaient devant le Tigre Blanc.
 
-« Wang Lin! » s'exclama le Tigre Blanc, stupéfait. L'Oiseau Vermillon et la Tortue Noire étaient également abasourdis; ils n'auraient jamais imaginé croiser la route de Wang Lin en un tel lieu!
+« Wang Lin! » s'exclama le Tigre Blanc, stupéfait. Le Suzaku et la Tortue Noire étaient également abasourdis; ils n'auraient jamais imaginé croiser la route de Wang Lin en un tel lieu!
 
 Wang Lin leur adressa un signe de tête avant que son regard ne balaie les deux cultivateurs du Continent Lu Mo.
 
@@ -80,7 +80,7 @@ Le Tigre Blanc et ses compagnons étaient émus et poussèrent des soupirs.
 
 « Wang Lin, puisque le Continent Lu Mo est passé à l'action, ils frapperont comme la foudre. En ce moment même, je crains que la plupart des cultivateurs du Continent Tian Niu présents dans la Mer Dan n'aient déjà été massacrés. Nous... comment allons-nous partir? » La Tortue Noire regarda Wang Lin en poussant un soupir.
 
-L'Oiseau Vermillon réfléchit un instant avant de déclarer: « Ce n'est pas la première fois que le Continent Lu Mo entre en force sur le Continent Tian Niu. Je me souviens qu'il y a bien longtemps, il y a eu quelques tentatives, mais elles ont toutes été arrêtées par les barrières dressées conjointement par les Ancêtres successifs de la Secte Da Hun et de la Secte Gui Yi. Cette fois cependant, ils ont commencé par exterminer tous les cultivateurs marginaux dans la Mer Dan; leur objectif doit donc être colossal! »
+Le Suzaku réfléchit un instant avant de déclarer: « Ce n'est pas la première fois que le Continent Lu Mo entre en force sur le Continent Tian Niu. Je me souviens qu'il y a bien longtemps, il y a eu quelques tentatives, mais elles ont toutes été arrêtées par les barrières dressées conjointement par les Ancêtres successifs de la Secte Da Hun et de la Secte Gui Yi. Cette fois cependant, ils ont commencé par exterminer tous les cultivateurs marginaux dans la Mer Dan; leur objectif doit donc être colossal! »
 
 « Les changements ici sont dissimulés par le Continent Lu Mo; je crains que la Secte Da Hun et la Secte Gui Yi ne sachent encore rien de ce qui se passe. En tant qu'habitants du Continent Tian Niu, nous devons partir et leur transmettre un message! » affirma le Tigre Blanc d'une voix grave.
 

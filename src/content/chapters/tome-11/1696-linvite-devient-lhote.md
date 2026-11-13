@@ -18,7 +18,7 @@ Wang Lin bondit et resta en lévitation à trois pouces du pont, dérivant au ry
 
 « Ce n'est rien, il ne pourra pas forcer l'entrée du Navire Démon des Âmes avant plusieurs jours! » Fan Shanmeng laissa échapper un ricanement glacial en détournant le regard. Elle se tourna de nouveau vers Wang Lin pour reprendre sa conversation.
 
-« L'autel dont vous parlez est un objet que ma petite sœur a obtenu par accident. Il contient le pouvoir de l'Ancien, mais sa culture est insuffisante pour le briser, et il n'a nul besoin de le faire. En revanche, c'est différent pour vous.
+« L'autel dont vous parlez est un objet que ma petite sœur a obtenu par accident. Il contient la puissance de Dao Gu, mais sa culture est insuffisante pour le briser, et il n'a nul besoin de le faire. En revanche, c'est différent pour vous.
 
 « Si vous parvenez à briser la protection de l'autel et à obtenir son héritage, votre niveau de culture augmentera considérablement. Cet autel se trouve dans la partie la plus profonde du Navire Démon des Âmes. Voulez-vous y aller maintenant? Sachez toutefois que vous n'aurez que trois jours. Durant ce laps de temps, je pourrai contrôler le Navire Démon des Âmes pour échapper au Daoïste aux Sept Couleurs, mais cela ne durera pas plus longtemps. »
 
@@ -72,17 +72,17 @@ Une froideur cachée perçait dans le regard de Fan Shanmeng. Elle devait obteni
 
 « Cette affaire est ridicule. Je veux voir comment il compte s'y prendre. S'il échoue et refuse toujours de me donner son Serment de Sang, j'aurai d'autres moyens de le traiter! » Une froideur glaciale se cachait dans les yeux de Fan Shanmeng, mais elle afficha un sourire empreint de douceur en regardant Wang Lin.
 
-Alors que le Sens Divin de Wang Lin se déployait, les étoiles de l'Ancien entre ses sourcils apparurent, formant un vortex. Les étoiles démoniaques et diaboliques dans ses yeux gauche et droit surgirent également. Le pouvoir des trois anciens clans fusionna pour former la puissance de l'Ancien. Une ombre de l'Ancien se matérialisa soudainement autour de Wang Lin.
+Alors que le Sens Divin de Wang Lin se déployait, les étoiles de l'Ancien entre ses sourcils apparurent, formant un vortex. Les étoiles démoniaques et diaboliques dans ses yeux gauche et droit surgirent également. Le pouvoir des trois anciens clans fusionna pour former la puissance de Dao Gu. Une ombre de Dao Gu se matérialisa soudainement autour de Wang Lin.
 
-Cette ombre antique enveloppa immédiatement Wang Lin et prit place à ses côtés. De loin, le spectacle était saisissant.
+Cette ombre de Dao Gu enveloppa immédiatement Wang Lin et prit place à ses côtés. De loin, le spectacle était saisissant.
 
-La taille de l'ombre de l'Ancien avait été modifiée; celle qui entourait Wang Lin ne mesurait plus que quelques centaines de pieds de haut. Cependant, elle ressemblait toujours à une petite colline et protégeait intégralement Wang Lin.
+La taille de l'ombre de Dao Gu avait été modifiée; celle qui entourait Wang Lin ne mesurait plus que quelques centaines de pieds de haut. Cependant, elle ressemblait toujours à une petite colline et protégeait intégralement Wang Lin.
 
 Cette scène fit froncer les sourcils de Fan Shanmeng.
 
 « Cet homme est bien trop prudent... »
 
-Ce n'est qu'une fois protégé par ce pouvoir ancien que Wang Lin se détendit, laissant son Sens Divin s'étendre calmement vers le pont. Dès que son Sens Divin pénétra la surface, une force de rejet émanant du pont tenta d'en empêcher la progression.
+Ce n'est qu'une fois protégé par la puissance de Dao Gu que Wang Lin se détendit, laissant son Sens Divin s'étendre calmement vers le pont. Dès que son Sens Divin pénétra la surface, une force de rejet émanant du pont tenta d'en empêcher la progression.
 
 Cette force invisible était générée par les restrictions du pont. Elle permettait à Wang Lin de l'observer de l'extérieur, mais lui interdisait de percevoir sa structure interne.
 

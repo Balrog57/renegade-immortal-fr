@@ -74,7 +74,7 @@ Wang Lin détourna son regard de la planète et s'élança vers le ciel, la sph�
 
 « Puisque vous êtes venus, ne partez pas! » La voix de Wang Lin était glaciale alors qu'il fixait l'horizon où l'aura de mort s'envolait. L'espace se distordit et un homme d'âge moyen en sortit.
 
-Cet homme portait une robe taoïste et son expression était extrêmement grave. Ses mains formèrent un sceau et un bouclier de tortue d'environ 1 000 pieds apparut devant lui. Le vortex d'aura de mort percuta le bouclier.
+Cet homme portait une robe daoïste et son expression était extrêmement grave. Ses mains formèrent un sceau et un bouclier de tortue d'environ 1 000 pieds apparut devant lui. Le vortex d'aura de mort percuta le bouclier.
 
 Des grondements tonnantes retentirent et des fissures apparurent sur le bouclier tremblant. Cependant, celui-ci ne se brisa pas, mais fut repoussé avec l'homme d'âge moyen.
 

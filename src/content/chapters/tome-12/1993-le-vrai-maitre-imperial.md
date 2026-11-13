@@ -16,7 +16,7 @@ Il ne permettrait jamais une telle chose. Ayant atteint la dernière étape, il 
 
 L'Empereur Céleste serra les dents et, sans hésiter, leva la main droite pour pointer un doigt devant lui. À l'instant où le doigt retomba, celui-ci s'effondra en un amas de chair et de sang.
 
-« En utilisant ma propre chair et mon sang, descendants de l'Ancêtre Céleste, activez la loi de l'Astral Immortel pour lever le sceau éternel sur le Clan Dao Wang! » rugit l'Empereur Céleste, tandis que ses doigts restants se désintégraient. Ce n'étaient pas seulement ses doigts, mais même sa paume qui s'effondrait.
+« En utilisant ma propre chair et mon sang, descendants de l'Ancêtre Céleste, activez les lois de Xian Gang pour lever le sceau éternel sur le Clan Dao Wang! » rugit l'Empereur Céleste, tandis que ses doigts restants se désintégraient. Ce n'étaient pas seulement ses doigts, mais même sa paume qui s'effondrait.
 
 Ce délabrement se poursuivit. À l'instant où l'Empereur Céleste eut fini de parler, la moitié de son bras droit avait disparu.
 

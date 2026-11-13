@@ -48,7 +48,7 @@ Wang Lin n'esquiva pas; il se contenta de fixer froidement l'homme à la robe ro
 
 « Tu es digne que j'utilise 70 % de ma puissance! » murmura Wang Lin alors que l'homme approchait. Il leva la main droite et la Lame Yin se rétracta dans la chair de sa paume. Ses yeux s'illuminèrent tandis que son corps véritable des cinq éléments et son corps véritable de l'essence du tonnerre fusionnaient en lui. Puis, il décocha un coup de poing à l'homme à la robe rouge!
 
-Ce coup représentait 70 % de la puissance de Wang Lin. C'était une fusion de son Dao Antique et de sa culture de Tribulation du Vide, avec le cheveu de l'Ancêtre Céleste logé dans son corps libérant 70 % de son énergie immortelle!
+Ce coup représentait 70 % de la puissance de Wang Lin. C'était une fusion de son corps Dao Gu et de sa culture de Tribulation du Vide, avec le cheveu de l'Ancêtre Céleste logé dans son corps libérant 70 % de son énergie immortelle!
 
 Le coup semblait sans force, mais il fit changer les couleurs du monde et le fit trembler. Le vide entre eux se distordit et des ondulations résonnèrent. Le poing de Wang Lin sembla transcender le temps et l'espace pour s'abattre sur la poitrine de l'homme à la robe rouge.
 

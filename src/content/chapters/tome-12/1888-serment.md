@@ -84,7 +84,7 @@ La rumeur disait qu'il y a fort longtemps, un cultivateur étranger s'était ren
 
 On racontait que cet homme portait le nom de famille « Meng »; ainsi, après d'innombrables années, ce lieu fut nommé le continent Meng Tu!
 
-L'endroit était saturé de l'aura de l'essence terrestre, semblable au continent du Démon Vert. Le continent du Démon Vert était une terre d'essence terrestre, où vivait le Scorpion du Démon Vert, une bête féroce venue d'au-delà des cieux qui vivait dans la terre.
+L'endroit était saturé de l'aura de l'essence terrestre, semblable au Continent Lu Mo. Le Continent Lu Mo était une terre d'essence terrestre, où vivait le Scorpion du Démon Vert, une bête féroce venue d'au-delà des cieux qui vivait dans la terre.
 
 Cependant, cette essence était masquée par son aura démoniaque, ce qui la rendait difficile à percevoir.
 
@@ -98,17 +98,17 @@ Les matrices s'activèrent promptement. Alors que Wang Lin observait la scène, 
 
 Des centaines d'individus apparurent, dégageant des auras puissantes.
 
-L'activation de ces six matrices coûta un prix exorbitant au continent du Démon Vert, d'autant plus qu'elles téléportaient un si grand nombre de personnes. Plus le niveau de culture était élevé, plus le coût était lourd. Pour un cultivateur de la troisième étape, le tribut était indescriptible.
+L'activation de ces six matrices coûta un prix exorbitant au Continent Lu Mo, d'autant plus qu'elles téléportaient un si grand nombre de personnes. Plus le niveau de culture était élevé, plus le coût était lourd. Pour un cultivateur de la troisième étape, le tribut était indescriptible.
 
-Et ces centaines de cultivateurs étaient tous extrêmement puissants. Leur transfert avait épuisé plus de 100 000 ans d'économies du continent du Démon Vert!
+Et ces centaines de cultivateurs étaient tous extrêmement puissants. Leur transfert avait épuisé plus de 100 000 ans d'économies du Continent Lu Mo!
 
 Ces individus étaient initialement en embuscade aux diverses frontières du Continent Tian Niu, attendant Wang Lin. Cependant, suite à une erreur de prédiction, ils furent contraints de téléporter massivement des troupes ici. Ce n'était là qu'une partie d'entre eux; d'autres arrivaient encore par transfert.
 
 Ces cultivateurs portaient tous des vêtements similaires. Bien que les couleurs diffèrent, le motif solaire et lunaire noir et blanc sur leurs étoffes était identique!
 
-Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenait à la plus grande secte du continent du Démon Vert: la Secte Dao Mo!
+Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenait à la plus grande secte du Continent Lu Mo: la Secte Dao Mo!
 
-Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le continent du Démon Vert, mais uniquement celle de la Secte Dao Mo!
+Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le Continent Lu Mo, mais uniquement celle de la Secte Dao Mo!
 
 Le continent Meng Tu était à mille kilomètres, mais la Secte Dao Mo venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
 

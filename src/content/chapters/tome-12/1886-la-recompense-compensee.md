@@ -24,7 +24,7 @@ La nuit était tombée et un vent glacial soufflait sur le désert. Ce vent éta
 
 Il tenait toujours la pierre noire en main. Il baissa la tête pour contempler l'objet dans sa paume. Il hésitait sur la manière de l'ouvrir.
 
-Bien qu'il ignorât sa nature exacte, l'aura du Dao Hun Yan indiqua secrètement à Wang Lin la méthode pour l'ouvrir.
+Bien qu'il ignorât sa nature exacte, l'aura du Dao de la Déduction de l'Âme indiqua secrètement à Wang Lin la méthode pour l'ouvrir.
 
 Un instant plus tard, le regard de Wang Lin devint résolu. Il ouvrit la main et une petite silhouette de trois pouces apparut aux côtés de la pierre noire. En un éclair, elle pénétra à l'intérieur.
 

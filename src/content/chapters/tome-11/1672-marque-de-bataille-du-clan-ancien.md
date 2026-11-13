@@ -56,7 +56,7 @@ Dans le Système Stellaire Antique, le Souverain observait toujours la scène av
 
 Toutefois, afin de forcer Wang Lin à révéler ses deux flèches, il l'avait sorti et confié aux cultivateurs de l'Ancien Système Stellaire pour qu'ils l'utilisent afin de l'éliminer.
 
-« Bien qu'il ne soit pas parfait, il lui en manque encore une... Mais ils sont tous des héritiers de l'Ancien; en s'entretuant, ils provoqueront des changements célestes. Cela pourrait créer des fissures dans la formation! » Les yeux du Souverain s'illuminèrent.
+« Bien qu'il ne soit pas parfait, il lui en manque encore une... Mais ils sont tous héritiers de Dao Gu; en s'entretuant, ils provoqueront des changements célestes. Cela pourrait créer des fissures dans la formation! » Les yeux du Souverain s'illuminèrent.
 
 Au même moment, les neuf parties du corps de l'homme d'âge moyen se rassemblèrent et se condensèrent lentement. Au plus profond de Luotian, il existait une zone d'espace infinie. Il n'y avait aucune planète là-bas, pas même un soupçon de vie.
 

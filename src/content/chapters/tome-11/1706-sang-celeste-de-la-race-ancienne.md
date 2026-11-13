@@ -86,7 +86,7 @@ Cette troisième épreuve comportait trois calamités: la première étant le Sa
 
 Wang Lin ne connaissait pas tous les détails. Bien qu'il ait reçu l'héritage de Ye Mo, ses souvenirs étaient limités. Il savait seulement que pour affronter les deux dernières calamités, surtout la dernière, il devrait se rendre au temple ancien du Pays Ancien sur le Continent Xian Gang.
 
-Chaque fois qu'un membre du Pays Ancien atteignait la dernière calamité, un événement grandiose était organisé dans tout le pays. Une cérémonie solennelle avait lieu! L'Ancien Dao Ye Mo avait traversé la dernière calamité dans le temple ancien. Il avait ensuite obtenu le titre d'Ancien Dao et était devenu l'un des piliers du Pays Ancien, admiré par cent millions de personnes. Même les célestes accordaient une importance capitale à cette ultime épreuve des clans anciens.
+Chaque fois qu'un membre du Pays Ancien atteignait la dernière calamité, un événement grandiose était organisé dans tout le pays. Une cérémonie solennelle avait lieu! Dao Gu Ye Mo avait traversé la dernière calamité dans le temple ancien. Il avait ensuite obtenu le titre de Dao Gu et était devenu l'un des piliers du Pays Ancien, admiré par cent millions de personnes. Même les célestes accordaient une importance capitale à cette ultime épreuve des clans anciens.
 
 Alors que Wang Lin restait assis sur l'autel, son corps fut enveloppé par une aura d'Être Ancien encore plus puissante pour affronter la première calamité de la troisième épreuve. Une fois cette étape franchie, il deviendrait un véritable ancien dieu de huit étoiles!
 
@@ -100,7 +100,7 @@ Cette goutte fusionnerait avec celle formée par l'essence de la personne subiss
 
 La difficulté de cette calamité ne résidait pas dans la douleur de condenser cette goutte, mais dans l'obtention de la reconnaissance de l'Ancêtre Ancien. Ce n'était pas une chose à la portée de tous! Même avec cette reconnaissance, la quantité de sang reçue variait selon le degré de faveur accordé. Si elle était ordinaire, on ne recevait qu'une goutte; si elle était élevée, on pouvait en obtenir deux.
 
-L'Ancien Dao Ye Mo avait obtenu trois gouttes de sang lors de son épreuve. À travers les âges, le plus grand nombre obtenu avant lui par une seule personne était de huit gouttes! Cette personne était l'un des neuf soleils du Continent Xian Gang, le Grand Empyréen Xuan Luo du Pays Ancien! C'était aussi lui qui avait combattu le Grand Empyréen Dao Yi pour obtenir ce fragment à l'extérieur de la Secte Qi Dao!
+Dao Gu Ye Mo avait obtenu trois gouttes de sang lors de son épreuve. À travers les âges, le plus grand nombre obtenu avant lui par une seule personne était de huit gouttes! Cette personne était l'un des neuf soleils du Continent Xian Gang, le Grand Empyréen Xuan Luo du Pays Ancien! C'était aussi lui qui avait combattu le Grand Empyréen Dao Yi pour obtenir ce fragment à l'extérieur de la Secte Qi Dao!
 
 Wang Lin restait assis sur l'autel. Après une longue réflexion, il ferma les yeux et son aura ancienne se condensa à l'intérieur de son corps. Il entama la première étape de cette calamité: l'affinage de cette goutte de sang.
 

@@ -12,11 +12,11 @@ Dès que l'ouverture se forma, le monde infini commença à trembler. D'innombra
 
 Alors que les déchirures lacéraient le ciel, d'innombrables failles apparaissaient également à la surface de l'eau. Le monde entier tremblait violemment, comme s'il était sur le point de s'effondrer.
 
-Un rire dément retentit depuis le ciel. Maître Âme Écarlate ne daigna même pas regarder en bas. Après avoir éventré le ciel, il éclata d'un rire avant de s'envoler.
+Un rire dément retentit depuis le ciel. Chi Hunzi ne daigna même pas regarder en bas. Après avoir éventré le ciel, il éclata d'un rire avant de s'envoler.
 
-« Petit gamin, tu portes sur toi l'aura ancienne. Ce vieil homme devrait te tuer, mais puisque tu m'as libéré, nous sommes quittes. Haha, ce vieux fou est enfin libre! » La voix de Maître Âme Écarlate résonna, et nul ne pouvait l'empêcher de partir. Même le Souverain affichait une expression grave en regardant Maître Âme Écarlate disparaître peu à peu.
+« Petit gamin, tu portes sur toi l'aura ancienne. Ce vieil homme devrait te tuer, mais puisque tu m'as libéré, nous sommes quittes. Haha, ce vieux fou est enfin libre! » La voix de Chi Hunzi résonna, et nul ne pouvait l'empêcher de partir. Même le Souverain affichait une expression grave en regardant Chi Hunzi disparaître peu à peu.
 
-Maître Âme Écarlate était incontrôlable, ce que Wang Lin avait anticipé, mais il ressentait tout de même un certain regret. Cependant, l'émergence de ce dernier avait neutralisé le danger que représentait le Souverain pour la lignée céleste au-dessus de Wang Lin.
+Chi Hunzi était incontrôlable, ce que Wang Lin avait anticipé, mais il ressentait tout de même un certain regret. Cependant, l'émergence de ce dernier avait neutralisé le danger que représentait le Souverain pour la lignée céleste au-dessus de Wang Lin.
 
 Il avait également brisé le sceau, permettant ainsi à Wang Lin de se mouvoir librement une fois de plus.
 
@@ -26,7 +26,7 @@ Wang Lin leva promptement la main droite et saisit la goutte de sang qui flottai
 
 La loi d'origine du Souverain et la technique « Pêcher la Lune dans le Puits » avaient été utilisées pour extraire la lignée céleste de Wang Lin. Son but était de s'emparer de cette goutte de sang condensée. Bien que Wang Lin ne l'ait pas offerte de son plein gré, le Souverain possédait ses méthodes pour obtenir ce qu'il désirait.
 
-Cependant, à cause de l'irruption de Maître Âme Écarlate, il fut contraint de reculer de plusieurs centaines de pieds. Bien qu'il semblât indemne, son corps original venait de recracher une deuxième bouffée de sang.
+Cependant, à cause de l'irruption de Chi Hunzi, il fut contraint de reculer de plusieurs centaines de pieds. Bien qu'il semblât indemne, son corps original venait de recracher une deuxième bouffée de sang.
 
 La première avait eu lieu lorsqu'il avait saisi la flèche!
 
@@ -84,7 +84,7 @@ Dans Zhao He, le jeune homme qui s'était échappé lors de la Tribulation Céle
 
 Dans le Royaume Céleste du Tonnerre, un grondement sourd retentit. Le mystérieux Vieux Fantôme Zhan sortit et chargea vers le Kun Xu.
 
-De nombreux cultivateurs puissants remarquèrent la rupture du sceau par Maître Âme Écarlate et convergèrent tous de toutes parts.
+De nombreux cultivateurs puissants remarquèrent la rupture du sceau par Chi Hunzi et convergèrent tous de toutes parts.
 
 Tout cela se produisit en un instant. Wang Lin était sur le point d'atteindre la brèche. Voyant Wang Lin s'apprêter à partir, les yeux du Souverain brillèrent d'une lueur mystérieuse. Il ne permettrait pas que son plan échoue, même si tout le Royaume Intérieur avait senti la rupture du sceau. Même si le Vieux Fantôme Zhan ou l'être mystérieux au rugissement d'autrefois pouvaient le sentir instantanément, il n'allait pas laisser Wang Lin s'échapper!
 

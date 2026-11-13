@@ -28,7 +28,7 @@ Des grondements retentirent au cœur de la lumière. Le Grand Empyréen Dao Yi f
 
 Le deuxième à être projeté fut le Grand Empyréen Wu Feng. Il affichait un sourire amer en se retirant de la lumière dorée. Il poussa un soupir et disparut sans laisser de trace.
 
-« Deux enfants indisciplinés, qui vont jusqu'à utiliser le pouvoir des neuf soleils sur le Continent Astral Immortel... Cela... cela va devenir une véritable bataille... Ah!! »
+« Deux enfants indisciplinés, qui vont jusqu'à utiliser le pouvoir des neuf soleils sur le Continent Xian Gang... Cela... cela va devenir une véritable bataille... Ah!! »
 
 Le troisième à s'envoler fut le Grand Empyréen Jiu Di. Il fronça les sourcils en quittant la lumière dorée. D'un revers de manche, il fit disparaître l'éclat doré.
 

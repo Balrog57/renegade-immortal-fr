@@ -28,7 +28,7 @@ Le parapluie de Mu Bingmei s'abaissa légèrement, dissimulant son visage, et el
 
 Wang Lin leva sa main droite et tendit la main vers le vide. Ses sept essences s'activèrent simultanément pour se rassembler dans sa paume. Tandis que la lumière se reflétait sur les gouttes de pluie, une épée de cristal apparut.
 
-Cette épée était la fusion des essences de Wang Lin et de son pouvoir du Dao Antique; sa puissance était donc phénoménale!
+Cette épée était la fusion des essences de Wang Lin et de son pouvoir du Dao Gu; sa puissance était donc phénoménale!
 
 « Je ne sais pas quand je pourrai retourner dans le Monde des Grottes. Peut-être dans mille ans, dix mille ans, ou plus encore. Peut-être ne reviendrai-je jamais... Je te confie cette épée. Prends soin de toi! » Wang Lin poussa un soupir et s'élança vers les cieux.
 
@@ -42,7 +42,7 @@ Dans le ciel, Wang Lin contempla les environs familiers et son cœur s'apaisa. I
 
 « Avec cette formation, à moins qu'un être comme le Souverain n'apparaisse, il n'y aura pas d'autre guerre entre les Royaumes Intérieur et Extérieur! Bien que plusieurs des Cinq Maîtres soient toujours en vie, ils sont tous gravement blessés. Avec Lanmeng Daozun et le Maître Nan Yunzi ici, il ne devrait y avoir aucun problème. J'ai encore d'autres réflexions à mener.
 
-« Le Général Oiseau Vermillon est parti, et si la première génération de Suzaku de la Terre Déchue du Royaume Extérieur et le Général ont réellement un lien de clone, alors elle a nécessairement dû se dissiper aussi... Je me demande seulement si la deuxième génération et les autres sont toujours là... » Wang Lin mena silencieusement le groupe et quitta le Royaume Céleste.
+« Le Général Suzaku est parti, et si la première génération de Suzaku de la Terre Déchue du Royaume Extérieur et le Général ont réellement un lien de clone, alors elle a nécessairement dû se dissiper aussi... Je me demande seulement si la deuxième génération et les autres sont toujours là... » Wang Lin mena silencieusement le groupe et quitta le Royaume Céleste.
 
 Il ne se dirigea pas vers la Terre Déchue.
 

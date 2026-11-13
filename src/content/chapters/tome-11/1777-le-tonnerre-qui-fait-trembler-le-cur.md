@@ -20,7 +20,7 @@ Lanmeng Daozun cracha du sang. La cithare vibra et il fut gravement blessé. Cep
 
 Même le vieil homme nommé Ma subit un violent contrecoup lorsque l'Âme aux Sept Couleurs brisa son sort. Du sang s'échappa du coin de sa bouche et il fut repoussé de plusieurs milliers de pieds. Pourtant, il serra les dents et se retourna pour charger une fois de plus.
 
-Au moment même où le pouvoir de l'Âme aux Sept Couleurs et celui du Vieux Fantôme Zhan entraient en collision, ce dernier fonça vers les deux hommes d'âge moyen de la Planète des Cinq Éléments, qui combattaient les Généraux Tortue Noire et Oiseau Vermillon.
+Au moment même où le pouvoir de l'Âme aux Sept Couleurs et celui du Vieux Fantôme Zhan entraient en collision, ce dernier fonça vers les deux hommes d'âge moyen de la Planète des Cinq Éléments, qui combattaient les Généraux Tortue Noire et Suzaku.
 
 La Tortue Noire et Suzaku avaient déjà conclu un accord avec le Vieux Fantôme Zhan, ou peut-être étaient-ils contraints de l'aider. Ils estimaient que suivre le Vieux Fantôme Zhan était leur seule option, allant jusqu'à croire qu'il deviendrait le nouveau Souverain Céleste aux Sept Couleurs!
 
@@ -52,15 +52,15 @@ Sous la violence de la douleur, le Général Tortue Noire poussa un cri déchira
 
 Dans un bruit sourd, le Général Tortue Noire cracha du sang et fut projeté en arrière vers Suzaku qui le suivait.
 
-Le Général Oiseau Vermillon fut surpris un instant lorsqu'il entendit lui aussi ce battement de cœur. Son propre rythme devint erratique et une douleur aiguë lui lacéra la poitrine. Son visage pâlit et il recula sans hésiter.
+Le Général Suzaku fut surpris un instant lorsqu'il entendit lui aussi ce battement de cœur. Son propre rythme devint erratique et une douleur aiguë lui lacéra la poitrine. Son visage pâlit et il recula sans hésiter.
 
-Pourtant, au moment même de son retrait, un rugissement strident, empreint de férocité, de violence et de soif de sang, jaillit de l'entrée. Une ombre s'élança et apparut devant le Général Oiseau Vermillon.
+Pourtant, au moment même de son retrait, un rugissement strident, empreint de férocité, de violence et de soif de sang, jaillit de l'entrée. Une ombre s'élança et apparut devant le Général Suzaku.
 
-Le Général Oiseau Vermillon n'eut même pas le temps de voir la silhouette noire qu'il cracha déjà du sang. L'ombre percuta sa poitrine et le projeta en arc de cercle.
+Le Général Suzaku n'eut même pas le temps de voir la silhouette noire qu'il cracha déjà du sang. L'ombre percuta sa poitrine et le projeta en arc de cercle.
 
-L'ombre suivit immédiatement le Général Oiseau Vermillon pour l'enlacer. La silhouette esquissa un sourire féroce et mordit le cou du général.
+L'ombre suivit immédiatement le Général Suzaku pour l'enlacer. La silhouette esquissa un sourire féroce et mordit le cou du général.
 
-Le cri misérable de Suzaku était terrifiant; son corps dépérissait à vue d'œil tandis que l'ombre aspirait son sang. Tout cela se produisit en un instant, avec une rapidité dépassant l'entendement. Alors qu'il était encore en l'air, l'ombre poussa sur le Général Oiseau Vermillon pour s'élancer, projetant ce dernier au sol tandis qu'elle s'envolait.
+Le cri misérable de Suzaku était terrifiant; son corps dépérissait à vue d'œil tandis que l'ombre aspirait son sang. Tout cela se produisit en un instant, avec une rapidité dépassant l'entendement. Alors qu'il était encore en l'air, l'ombre poussa sur le Général Suzaku pour s'élancer, projetant ce dernier au sol tandis qu'elle s'envolait.
 
 C'était la Poupée Yi Si!
 

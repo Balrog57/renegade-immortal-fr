@@ -44,7 +44,7 @@ La distance entre les deux ne diminuait pas malgré leur rapprochement vers le c
 
 Le temps pressait et le danger était partout. Wang Lin n'avait pas le loisir de songer à autre chose. Sa seule pensée était de dévorer cette volonté de feu.
 
-Tandis qu'il dévorait, l'âme principale du dragon laissa échapper un rugissement de douleur. Le menton du véritable corps d'essence de Wang Lin s'était totalement transformé pour prendre une apparence humaine, ne ressemblant plus à un Oiseau Vermillon. Cette transformation continua de progresser, atteignant sa bouche et formant ses lèvres!
+Tandis qu'il dévorait, l'âme principale du dragon laissa échapper un rugissement de douleur. Le menton du véritable corps d'essence de Wang Lin s'était totalement transformé pour prendre une apparence humaine, ne ressemblant plus à Suzaku. Cette transformation continua de progresser, atteignant sa bouche et formant ses lèvres!
 
 Le véritable corps d'essence de Wang Lin semblait pressé. « Plus vite, dévore encore davantage! » rugissait-il intérieurement. L'âme du dragon hurlait tandis que son corps continuait de se tordre. La douleur de la dévoration lui faisait ressentir l'imminence de la mort.
 
@@ -90,15 +90,15 @@ La veine principale du feu terrestre luttait désespérément, mais elle ne pouv
 
 La veine principale du feu terrestre n'était manifestement pas de taille face à Wang Lin.
 
-Bientôt, les yeux du véritable corps d'essence de Wang Lin passèrent de l'apparence d'un Oiseau Vermillon à celle de deux yeux humains! Ces yeux étaient calmes, mais sous cette sérénité, on pouvait percevoir deux flammes brûlant intensément.
+Bientôt, les yeux du véritable corps d'essence de Wang Lin passèrent de l'apparence de Suzaku à celle de deux yeux humains! Ces yeux étaient calmes, mais sous cette sérénité, on pouvait percevoir deux flammes brûlant intensément.
 
 L'âme de la veine de feu terrestre libérait des fluctuations violentes à chaque tentative de résistance. La terre tremblait et des grondements tonitruants résonnaient.
 
-Le véritable corps d'essence de Wang Lin forma un sceau et, dans un rugissement, son front passa de l'apparence d'un Oiseau Vermillon à celle d'une peau humaine!
+Le véritable corps d'essence de Wang Lin forma un sceau et, dans un rugissement, son front passa de l'apparence de Suzaku à celle d'une peau humaine!
 
 Au moment où son nez, ses yeux et son front furent formés, une volonté capable d'ébranler le ciel apparut au sein de son corps d'essence. Elle venait de naître, mais elle grandissait à une vitesse fulgurante en dévorant l'âme de la veine principale du feu terrestre.
 
-De loin, le véritable corps d'essence de Wang Lin avait complètement changé du front jusqu'au bas du visage. Seule la partie supérieure de son crâne et ses cheveux conservaient l'aspect d'un Oiseau Vermillon. Ses cheveux étaient manifestement les longues plumes de l'oiseau!
+De loin, le véritable corps d'essence de Wang Lin avait complètement changé du front jusqu'au bas du visage. Seule la partie supérieure de son crâne et ses cheveux conservaient l'aspect de Suzaku. Ses cheveux étaient manifestement les longues plumes de l'oiseau!
 
 « Il ne reste plus que les cheveux, alors mon corps d'essence sera totalement formé! » Les yeux de Wang Lin s'illuminèrent. Cependant, à ce moment précis, en raison des vibrations puissantes causées par la lutte de la veine de feu, la jeune femme qui poursuivait Wang Lin s'arrêta et sortit du visage fantomatique. Son expression changea à plusieurs reprises avant qu'elle ne serre les dents!
 

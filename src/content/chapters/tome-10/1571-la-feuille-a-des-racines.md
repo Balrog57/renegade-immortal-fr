@@ -16,7 +16,7 @@ Devant eux quatre, un éclat de lumière jaillit aux frontières du pays de Zhao
 
 Ses trois disciples regardèrent le pays de Zhao avec respect. Contemplant les sommets à peine visibles, ils joignirent leurs mains en signe d'hommage envers cette terre.
 
-« Quiconque ne respecte pas cet accord et s'introduit dans le pays de Zhao sera sévèrement puni! » Les yeux du vieil homme s'illuminèrent tandis qu'il parlait, fixant au loin, à plus d'un kilomètre, Wang Lin et le fou, qui venaient de descendre du ciel.
+« Quiconque ne respecte pas cet accord et s'introduit dans le pays de Zhao sera sévèrement puni! » Les yeux du vieil homme s'illuminèrent tandis qu'il parlait, fixant au loin, à plusieurs milliers de pieds, Wang Lin et le fou, qui venaient de descendre du ciel.
 
 Ses trois disciples furent surpris un instant et tournèrent les yeux vers Wang Lin. Ils lui lancèrent des regards furieux et ricanèrent.
 
@@ -104,7 +104,7 @@ Les souvenirs de son enfance ne surgirent pas en lui comme autrefois. En cet ins
 
 C'était comme si, seulement ici, son cœur pouvait lui appartenir et enfin trouver le repos.
 
-Tout n'avait pas changé; tout était identique au passé. Ici se trouvait sa véritable demeure...
+Rien n'avait changé; tout était identique au passé. Ici se trouvait sa véritable demeure...
 
 Il leva sa main droite tremblante pour toucher la pierre. En sentant les noms gravés dans le tombeau, de nouvelles larmes jaillirent de ses yeux.
 

@@ -20,7 +20,7 @@ Wang Lin réfléchit silencieusement un instant avant de hocher la tête. En vé
 
 Les souvenirs issus de l'âme de l'avatar étaient incomplets et ne couvraient que les événements récents, mais cela incluait le moment où Xuan Luo était apparu après le départ de Wang Lin.
 
-Cela confirma les doutes qui avaient assailli Wang Lin lorsqu'il avait vu les cultivateurs de la Planète des Cinq Éléments. Après tout, il n’avait pas vu le vieil homme qui avait parlé du Clan Dao Antique avec tant de mépris et qui était mort de la main de Xuan Luo!
+Cela confirma les doutes qui avaient assailli Wang Lin lorsqu'il avait vu les cultivateurs de la Planète des Cinq Éléments. Après tout, il n’avait pas vu le vieil homme qui avait parlé du Clan Dao Gu avec tant de mépris et qui était mort de la main de Xuan Luo!
 
 Pour être plus précis, lorsque Wang Lin avait tendu un piège au Souverain Céleste aux Sept Couleurs, la disparition du Poisson-Œil l'avait profondément choqué. Il avait soigneusement cherché la raison et l'avait trouvée dans l'âme de l'avatar.
 
@@ -36,7 +36,7 @@ L'expression de Wang Lin était singulière alors qu'il hochait de nouveau la t�
 
 « Par conséquent, non seulement tu connais le nom de ce vieil homme, mais tu connais même mon identité? » Le sourire de Xuan Luo s'élargit. Il s'était caché aux côtés de Wang Lin pendant longtemps et son humeur était excellente. Un sentiment indescriptible l'habitait, mêlé à un certain regret, car il aurait aimé que Wang Lin le découvre un peu plus tard.
 
-Wang Lin réfléchit un instant avant de prendre la parole: « L'un des neuf soleils du Continent Xian Gang, le Grand Empyréen Dao Antique! » Lorsqu'il avait découvert cela via l'âme de l'avatar, une immense vague de choc avait déferlé dans son cœur. Cependant, il l'avait parfaitement dissimulée, si bien que personne n'avait rien remarqué.
+Wang Lin réfléchit un instant avant de prendre la parole: « L'un des neuf soleils du Continent Xian Gang, le Grand Empyréen Dao Gu! » Lorsqu'il avait découvert cela via l'âme de l'avatar, une immense vague de choc avait déferlé dans son cœur. Cependant, il l'avait parfaitement dissimulée, si bien que personne n'avait rien remarqué.
 
 Wang Lin regarda Xuan Luo et poursuivit lentement: « La raison pour laquelle les cultivateurs de la Planète des Cinq Éléments ont renoncé à la lutte pour la troisième âme est due à vous, Senior. Ils sont même venus en aide à ce Junior grâce à vous. Ce Junior vous en est reconnaissant. »
 
@@ -46,7 +46,7 @@ Il appréciait d'autant plus que, bien que Wang Lin sache sa présence, celui-ci
 
 Xuan Luo n'hésita plus: il prendrait Wang Lin pour son unique disciple.
 
-« Suis-moi pour retourner dans les terres du Clan Dao Antique, sur le Continent Xian Gang. Deviens mon seul disciple et protège le Clan Dao Antique. Petit camarade, y consens-tu? » Xuan Luo regarda Wang Lin avec un regard bienveillant. Sa voix n'était pas exigeante, mais portait le ton d'un aîné discutant avec son cadet.
+« Suis-moi pour retourner dans les terres du Clan Dao Gu, sur le Continent Xian Gang. Deviens mon seul disciple et protège le Clan Dao Gu. Petit camarade, y consens-tu? » Xuan Luo regarda Wang Lin avec un regard bienveillant. Sa voix n'était pas exigeante, mais portait le ton d'un aîné discutant avec son cadet.
 
 Cette expression et ce ton insufflèrent une sensation de chaleur dans le cœur de Wang Lin. Pourtant, Wang Lin ne donna pas son accord immédiatement et se mit à réfléchir.
 

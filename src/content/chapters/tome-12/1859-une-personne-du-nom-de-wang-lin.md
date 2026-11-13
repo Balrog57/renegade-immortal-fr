@@ -118,15 +118,15 @@ Le vieil homme nommé Zhao soupira et déclara lentement: « Au-delà de son ide
 
 Elle faisait partie des quatre qui avaient combattu aux côtés de Liu Zhiyuan. Elle paraissait hésitante et, lorsque le vieil homme nommé Zhao tourna les yeux vers elle, elle serra les dents.
 
-« Ce qui nous a empêchés d'utiliser notre Sens Divin, outre le brouillard, était une autre restriction. Cette restriction devait être... la Restriction d'Isolement Démoniaque de la Secte Jin Mo! »
+« Ce qui nous a empêchés d'utiliser notre Sens Divin, outre le brouillard, était une autre restriction. Cette restriction devait être... la Restriction de Rupture du Vide de la Secte Jin Mo! »
 
 « J'ai déjà été confrontée à cette restriction par le passé, je ne devrais pas me tromper! » Après sa déclaration, un silence de plomb s'abattit. Tous les regards se fixèrent sur le vieil homme nommé Zhao.
 
 Le vieil homme nommé Zhao appartenait à la Secte Jin Mo, l'une des trois grandes sectes du Continent Lu Mo!
 
-Les yeux de Zhao s'illuminèrent et il dit lentement: « Je ne maîtrise pas la Restriction d'Isolement Démoniaque et je n'en suis pas familier, c'est pourquoi je ne l'ai pas remarquée... Mais puisque vous le mentionnez, un souvenir me revient à l'esprit... »
+Les yeux de Zhao s'illuminèrent et il dit lentement: « Je ne maîtrise pas la Restriction de Rupture du Vide et je n'en suis pas familier, c'est pourquoi je ne l'ai pas remarquée... Mais puisque vous le mentionnez, un souvenir me revient à l'esprit... »
 
-« Lors de la tragédie de la Mer Dan, après l'enquête de la Secte Jin Mo et les rapports d'espionnage, l'homme derrière tout cela était un Ancien de la Secte Da Hun nommé Wang Lin... Et dans la Mer Dan, une boussole d'Isolement a disparu! Selon la restriction centrale, cette boussole n'a pas été détruite! » En parlant, le vieil homme Zhao regarda vers les profondeurs de la Prairie Ji Tian.
+« Lors de la tragédie de la Mer Dan, après l'enquête de la Secte Jin Mo et les rapports d'espionnage, l'homme derrière tout cela était un Ancien de la Secte Da Hun nommé Wang Lin... Et dans la Mer Dan, une boussole de Rupture du Vide a disparu! Selon la restriction centrale, cette boussole n'a pas été détruite! » En parlant, le vieil homme Zhao regarda vers les profondeurs de la Prairie Ji Tian.
 
 « Si c'est le cas, il est fort probable qu'il soit celui qui a tué l'Ancien Liu! Même si ce n'est pas lui, il doit y avoir un lien! »
 

@@ -32,7 +32,7 @@ Ce gaz gris était ce rayon de lumière fantomatique qui s'était manifesté lor
 
 « Malheureusement, je souffre de... limitations et ne peux absorber que l'aura de mort issue du massacre de Wang Lin. Sinon, si ce vieil homme agissait personnellement, je pourrais rassembler la quantité d'aura de mort dont j'ai besoin en peu de temps afin de... » La silhouette marqua deux pauses en parlant. C'était comme s'il était entravé par quelque chose et qu'il craignait même l'objectif qu'il tentait d'atteindre avec cette aura, au point de ne vouloir le nommer clairement.
 
-« Le massacre de Wang Lin dans le monde des grottes m'a satisfait, mais depuis son arrivée sur le continent Astral Immortel, il a très peu tué sur les terres du clan céleste. Sans cela, ce vieil homme aurait pu terminer sa collecte et n'aurait pas eu besoin d'utiliser l'atout du Dao Antique... Heureusement, j'étais préparé et j'ai retiré son... fragment d'âme bien tôt. » La silhouette floue s'interrompit à nouveau sur le mot « son », et sa voix trembla avant de s'éteindre.
+« Le massacre de Wang Lin dans le monde des grottes m'a satisfait, mais depuis son arrivée sur le Continent Xian Gang, il a très peu tué sur les terres du clan céleste. Sans cela, ce vieil homme aurait pu terminer sa collecte et n'aurait pas eu besoin d'utiliser l'atout du Dao Antique... Heureusement, j'étais préparé et j'ai retiré son... fragment d'âme bien tôt. » La silhouette floue s'interrompit à nouveau sur le mot « son », et sa voix trembla avant de s'éteindre.
 
 Après un long moment, une lueur de froideur traversa les yeux de la silhouette.
 

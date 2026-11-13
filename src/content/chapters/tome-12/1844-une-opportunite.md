@@ -46,7 +46,7 @@ Wang Lin resta calme et progressa dans la Mer Dan. Son allure n'était pas rapid
 
 « Ces gens ont scellé la Mer Dan. Bien que j'ignore pourquoi... puisqu'ils ne permettent qu'aux autres d'entrer et non de sortir, il est évident qu'ils ne veulent pas que les nouvelles s'échappent... » Les yeux de Wang Lin s'illuminèrent alors qu'il levait sa main droite. Une petite silhouette sortit de sa paume.
 
-Cette petite personne était une âme que Wang Lin avait formée grâce au Dao de l'Œil de l'Âme. Tandis que Wang Lin avançait, son regard croisa celui de la petite entité. Celle-ci trembla et se prosterna devant lui.
+Cette petite personne était une âme que Wang Lin avait formée grâce au Dao de la Déduction de l'Âme. Tandis que Wang Lin avançait, son regard croisa celui de la petite entité. Celle-ci trembla et se prosterna devant lui.
 
 Au moment où la tête de la petite personne toucha la paume de Wang Lin, un grondement résonna dans son esprit. Juste au moment où il allait pratiquer une divination pour prédire l'avenir, une force puissante interrompit brutalement le processus.
 
@@ -96,7 +96,7 @@ Un fracas de tonnerre retentit et le céleste s'effondra, mais le tigre blanc la
 
 Puisqu'il allait mourir, il allait partir avec éclat!
 
-« Général Oiseau Vermillon, l'un des quatre grands généraux de la Secte Qi Dao! » Derrière le Tigre Blanc, Suzaku avait du sang coulant au coin de la bouche tout en fixant le jeune homme.
+« Général Suzaku, l'un des quatre grands généraux de la Secte Qi Dao! » Derrière le Tigre Blanc, Suzaku avait du sang coulant au coin de la bouche tout en fixant le jeune homme.
 
 « Général Tortue Noire! » La Tortue Noire comprit également que leur fin était proche. Il soupira et ne cacha plus son identité.
 
@@ -110,7 +110,7 @@ En entendant le nom de « Souverain Céleste aux Sept Couleurs », le Tigre Blan
 
 « Bien que le chef de secte soit mort, il reste encore une personne! S'il sort de sa retraite, il deviendra immédiatement célèbre dans tout le Continent Xian Gang! » lança soudainement le Tigre Blanc.
 
-L'Oiseau Vermillon et la Tortue Noire se regardèrent et acquiescèrent d'un signe de tête.
+Le Suzaku et la Tortue Noire se regardèrent et acquiescèrent d'un signe de tête.
 
 « Célèbre dans tout le Continent Xian Gang? Voilà qui est intéressant. Parles-tu de Yun Yifeng de la Secte Gui Yi, ou des quatre génies du Continent de l'Est? Drôle! » Le jeune homme au visage de jade éclata de rire en chargeant avec une intention meurtrière, suivi par le cultivateur nommé Qian!
 

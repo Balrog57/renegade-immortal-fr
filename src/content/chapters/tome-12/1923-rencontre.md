@@ -22,7 +22,7 @@ Mais soudain, le sens divin de Wang Lin se propagea. Ne voulant blesser personne
 
 En revanche, l'expression du Maître de la Secte Di Men changea radicalement. Il eut l'impression qu'un milliard d'éclairs explosaient dans son esprit et qu'une montagne céleste s'effondrait sur lui. Son corps trembla et il s'élança hors de la secte sans l'ombre d'une hésitation.
 
-Il n'osait pas rester, il n'osait pas désobéir!
+Il n'osait pas ne pas venir, il n'osait pas désobéir!
 
 L'Exalté Doré de la Secte Di Men était également présent. Il pratiquait une culture en isolation depuis des années et ne sortait que rarement. Alors qu'il était assis en méditation, son cœur tressaillit. Le sens divin de Wang Lin était impérieux, forçant le passage à travers tous les obstacles pour résonner jusque dans son âme.
 

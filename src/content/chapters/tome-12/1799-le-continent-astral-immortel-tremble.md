@@ -78,7 +78,7 @@ Lors de la naissance de l'Ancêtre Céleste, trois signes apparurent. Le ciel do
 
 Bien que les cultivateurs ordinaires l'ignorassent, quiconque avait atteint un certain niveau de culture ou appartenait à une secte puissante en connaissait les fondements.
 
-Ce jour-là, une distorsion apparut dans le ciel au-dessus de la Capitale Impériale, sur le Continent Ming Céleste, dont l'empereur régnait nominalement sur tous les êtres célestes. Un vortex gigantesque se forma et commença à s'étendre dans toutes les directions.
+Ce jour-là, une distorsion apparut dans le ciel au-dessus de la Capitale Impériale, sur le Continent Xian Ming, dont l'empereur régnait nominalement sur tous les êtres célestes. Un vortex gigantesque se forma et commença à s'étendre dans toutes les directions.
 
 Il progressait avec une rapidité dépassant celle de n'importe quel cultivateur. Il recouvrit immédiatement les 37 continents environnants, faisant virer le ciel au doré!
 

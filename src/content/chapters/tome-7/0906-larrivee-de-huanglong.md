@@ -1,6 +1,6 @@
 ---
 n: 906
-title: "L'arrivée de Huanglong"
+title: "L'arrivée de Huang Long"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 906 - Huanglong Arrivies

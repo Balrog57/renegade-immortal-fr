@@ -1,6 +1,6 @@
 ---
 n: 1562
-title: Zhao He He
+title: Zhao He
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1562 - Summoned River
@@ -74,7 +74,7 @@ Il n'y avait pas beaucoup de cultivateurs du Royaume Extérieur dans le système
 
 Ce massacre avait été déclenché par un maître et son disciple. Avec le niveau de culture du Maître Long Pan, peu de cultivateurs du Royaume Extérieur pouvaient espérer survivre.
 
-Cependant, l'objectif du Maître Long Pan étant Zhao He He, il n'était pas resté dans le système stellaire de Kun Xu. Cela permit à quelques poissons de s'échapper.
+Cependant, l'objectif du Maître Long Pan étant Zhao He, il n'était pas resté dans le système stellaire de Kun Xu. Cela permit à quelques poissons de s'échapper.
 
 Trois cultivateurs du Royaume Extérieur, portant des marques entre les sourcils, volaient prudemment à travers les étoiles. Ils n'osaient pas se déplacer trop vite, craignant que leurs fluctuations n'attirent l'attention d'autrui.
 
@@ -90,11 +90,11 @@ Des scènes similaires se produisaient ailleurs dans le système stellaire de Ku
 
 Les fleurs de sang s'épanouissaient, révélant la beauté de leur mort.
 
-Les deux ondulations balayèrent les trois grands systèmes stellaires avant de pénétrer dans Zhao He He! Zhao He He était entièrement occupée par les cultivateurs du Royaume Extérieur, elle regorgeait donc de leurs membres.
+Les deux ondulations balayèrent les trois grands systèmes stellaires avant de pénétrer dans Zhao He! Zhao He était entièrement occupée par les cultivateurs du Royaume Extérieur, elle regorgeait donc de leurs membres.
 
-Dès leur entrée dans Zhao He He, une puissante odeur de sang flottait dans l'air. Cependant, cette effluve ne put arrêter ces deux ondulations qui progressaient rapidement, planète après planète.
+Dès leur entrée dans Zhao He, une puissante odeur de sang flottait dans l'air. Cependant, cette effluve ne put arrêter ces deux ondulations qui progressaient rapidement, planète après planète.
 
-Finalement, elles chargèrent vers les profondeurs de Zhao He He, vers le dernier Royaume aux Sept Couleurs! C'était là que le corps originel du Maître Hong Shan était scellé!
+Finalement, elles chargèrent vers les profondeurs de Zhao He, vers le dernier Royaume aux Sept Couleurs! C'était là que le corps originel du Maître Hong Shan était scellé!
 
 Parmi les étoiles, une faille géante émettait une lumière aux sept couleurs. Autour de la faille flottaient des membres brisés et d'innombrables cadavres de cultivateurs du Royaume Extérieur jonchaient la zone.
 
@@ -106,7 +106,7 @@ Les deux ondulations se rapprochèrent. L'ondulation chargée d'une intention me
 
 Wang Lin apparut également. Il paraissait quelque peu fatigué en entrant dans le Royaume aux Sept Couleurs.
 
-Dès qu'il franchit les limites du royaume au sein de Zhao He He, Wang Lin entendit immédiatement des cris déchirants. Ce Royaume aux Sept Couleurs différait des deux autres qu'il avait vus auparavant: il était composé de plusieurs vastes continents flottants.
+Dès qu'il franchit les limites du royaume au sein de Zhao He, Wang Lin entendit immédiatement des cris déchirants. Ce Royaume aux Sept Couleurs différait des deux autres qu'il avait vus auparavant: il était composé de plusieurs vastes continents flottants.
 
 Toutefois, cette zone n'était plus que des fragments de continents; seuls trois restaient intacts. Le Maître Long Pan combattait un homme en robe noire. À chaque mouvement de leurs mains, des grondements assourdissants faisaient trembler le ciel.
 

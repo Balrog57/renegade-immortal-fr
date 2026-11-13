@@ -1,6 +1,6 @@
 ---
 n: 1404
-title: Le parti pris du vieil Oiseau Vermillon
+title: Le parti pris du vieux Suzaku
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1404 - The Biased Old Vermillion Bird

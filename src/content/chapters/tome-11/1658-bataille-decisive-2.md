@@ -62,7 +62,7 @@ Sous cette pression, le corps de Wang Lin trembla et une douleur fulgurante l'as
 
 La douleur restait aussi insupportable qu'auparavant, et ses organes internes commençaient à se briser, mais Wang Lin fut plus rapide. Animé par une détermination farouche et une intention meurtrière, il lança un coup de poing de la main droite.
 
-Des grondements tonitruants éclatèrent. L'Ancienne Tête apparut devant lui, accompagnée des ombres des trois clans anciens. Toutes fusionnèrent dans son poing lors de l'impact.
+Des grondements tonitruants éclatèrent. La tête de Dao Gu apparut devant lui, accompagnée des ombres des trois clans anciens. Toutes fusionnèrent dans son poing lors de l'impact.
 
 De loin, la scène était saisissante; le coup de Wang Lin fit trembler tout le ciel étoilé. Les innombrables cultivateurs du Royaume Extérieur reculèrent, terrifiés. Tandis qu'il frappait, une ombre haute de dix mille pieds s'élança vers la concubine impériale!
 

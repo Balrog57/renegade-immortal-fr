@@ -22,11 +22,11 @@ Les paroles de Wang Lin firent chanceler l'expression du vieil homme en robe dor
 
 L'expression des trois autres ne changea pas, mais leurs pupilles se rétractèrent. Leur regard envers Wang Lin devint plus glacial encore.
 
-Après avoir parlé, Wang Lin fit un pas en avant et serra le poing droit. Ses étoiles d'Ancien Dieu, d'Ancien Démon et d'Ancien Diable apparurent simultanément, tandis qu'une immense ombre de l'Ancien Dao se dressait derrière lui.
+Après avoir parlé, Wang Lin fit un pas en avant et serra le poing droit. Ses étoiles d'Ancien Dieu, d'Ancien Démon et d'Ancien Diable apparurent simultanément, tandis qu'une immense ombre de Dao Gu se dressait derrière lui.
 
 L'ombre perça les cieux et occupa tout l'horizon. Elle tenait son bras droit en un poing fermé, imitant parfaitement les mouvements de Wang Lin!
 
-« Le clan de l'Ancien Dao!! » L'un des hommes changea de visage, et tous trois chargèrent Wang Lin. L'un d'eux se métamorphosa en un dragon géant aux neuf couleurs qui balaya le ciel.
+« Le clan Dao Gu!! » L'un des hommes changea de visage, et tous trois chargèrent Wang Lin. L'un d'eux se métamorphosa en un dragon géant aux neuf couleurs qui balaya le ciel.
 
 Un autre fut enveloppé d'une brume noire se transformant en un spectre colossal. Ce fantôme féroce se précipita en avant.
 
@@ -36,11 +36,11 @@ Wang Lin serra son poing droit et marcha vers la tour. Il s'apprêtait à frappe
 
 L'expression de Wang Lin resta imperturbable; il n'était nullement alarmé. Puisqu'il avait osé venir ici, il s'était naturellement préparé. Bien que ces trois individus ne fussent pas faibles, Wang Lin n'en avait cure.
 
-À l'instant où ils convergèrent vers lui, Wang Lin agita la main gauche. L'ombre de l'Ancien Dao derrière lui fit de même. Son corps titanesque se tordit pour envelopper Wang Lin.
+À l'instant où ils convergèrent vers lui, Wang Lin agita la main gauche. L'ombre de Dao Gu derrière lui fit de même. Son corps titanesque se tordit pour envelopper Wang Lin.
 
 C'est à ce moment précis que les sorts des trois assaillants frappèrent et entrèrent en collision avec l'ombre protectrice. L'ombre trembla, incapable de résister à la puissance des coups. Après quelques respirations, elle s'effondra soudainement!
 
-L'éclatement de l'ombre de l'Ancien Dao généra une onde de choc dévastatrice qui explosa vers l'extérieur. La terre trembla et les trois hommes furent repoussés de plusieurs milliers de pieds avant de pouvoir s'arrêter.
+L'éclatement de l'ombre de Dao Gu généra une onde de choc dévastatrice qui explosa vers l'extérieur. La terre trembla et les trois hommes furent repoussés de plusieurs milliers de pieds avant de pouvoir s'arrêter.
 
 Bien que l'ombre se soit brisée, Wang Lin n'était pas blessé. Tout ceci faisait partie de son plan. Dès l'effondrement de l'ombre, Wang Lin bondit et apparut au sommet de la tour. Son poing se referma et il frappa violemment la structure!
 
@@ -52,11 +52,11 @@ Ce n'est qu'une fois cela pleinement compris qu'il pourrait mettre à exécution
 
 Il allait les forcer à sortir de l'ombre où ils se cachaient!
 
-Le monde sembla s'obscurcir sous l'impact de l'explosion de l'ombre de l'Ancien Dao. L'onde de choc puissante se propagea à partir de Wang Lin, empêchant quiconque de progresser.
+Le monde sembla s'obscurcir sous l'impact de l'explosion de l'ombre de Dao Gu. L'onde de choc puissante se propagea à partir de Wang Lin, empêchant quiconque de progresser.
 
 Cet impact fut tel un rugissement balayant tous les obstacles sur le passage de Wang Lin, lui permettant de porter son coup contre la tour!
 
-L'expression des trois hommes changea. Ils voulurent charger pour stopper Wang Lin, mais l'explosion de l'ombre de l'Ancien Dao les en empêcha!
+L'expression des trois hommes changea. Ils voulurent charger pour stopper Wang Lin, mais l'explosion de l'ombre de Dao Gu les en empêcha!
 
 Tout cela était prévu par Wang Lin!
 
@@ -86,7 +86,7 @@ Tandis que Wang Lin reculait, six fleurs noires apparurent sur son bras, comme i
 
 Une douleur intense envahit l'esprit de Wang Lin, et une lueur glaciale passa dans ses yeux.
 
-Une étoile illusoire apparut entre les sourcils du jeune homme, ainsi que dans chacun de ses yeux. C'était le résultat de la culture du Dao Antique de Wang Lin combinée à sa propre culture de cultivateur!
+Une étoile illusoire apparut entre les sourcils du jeune homme, ainsi que dans chacun de ses yeux. C'était le résultat de la culture du Dao Gu de Wang Lin combinée à sa propre culture de cultivateur!
 
 Après être apparues, les étoiles se transformèrent en Ancien Dieu, Ancien Démon et Ancien Diable. Elles s'incarnèrent dans l'esprit du jeune homme pour dévorer son âme originelle et son âme.
 
@@ -120,7 +120,7 @@ Au moment où la base de la tour s'effondrait, une voix ancienne mais puissante 
 
 Cette voix était semblable au tonnerre, mais surpassait tout fracas céleste. Le monde changea de teinte et la voix descendit telle une loi immuable.
 
-« Jeune barbare du Dao Antique, ton clan est le plus faible des trois clans antiques. Vous n'êtes que de simples sauvages. Même si l'un de vos aînés venait ici, face à notre Secte Gui Yi, il ne serait qu'un vulgaire cultivateur sauvage! » La voix, empreinte d'arrogance, s'abattit sur Wang Lin.
+« Jeune barbare du clan Dao Gu, ton clan est le plus faible des trois clans antiques. Vous n'êtes que de simples sauvages. Même si l'un de vos aînés venait ici, face à notre Secte Gui Yi, il ne serait qu'un vulgaire cultivateur sauvage! » La voix, empreinte d'arrogance, s'abattit sur Wang Lin.
 
 Avant même que Wang Lin ne puisse ressentir la moindre émotion, à l'extérieur de la planète, l'expression de Xuan Luo devint sombre. Personne n'avait jamais osé insulter son clan de la sorte; ce vieil homme du troisième étage était le premier!
 
