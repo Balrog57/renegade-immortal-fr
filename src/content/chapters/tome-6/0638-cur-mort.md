@@ -40,7 +40,7 @@ C'était la première fois que Wang Lin utilisait plus d'un seul trait avec le p
 
 À chaque trait, Wang Lin sentait qu'une partie de son âme originelle s'inscrivait dans le symbole. Le symbole à sept traits contenait ainsi sept portions de son âme originelle.
 
-Sept traits étaient la limite de Wang Lin. Lorsqu'il avait raffiné le pinceau au sein de la Tribu de l'Affinement de l'Âme, il l'avait testé: il ne pouvait pas tracer le huitième trait car son âme originelle ne pouvait pas se diviser en neuf parties!
+Sept traits étaient la limite de Wang Lin. Lorsqu'il avait raffiné le pinceau au sein de la Tribu Lian Hun, il l'avait testé: il ne pouvait pas tracer le huitième trait car son âme originelle ne pouvait pas se diviser en neuf parties!
 
 Une partie résidait dans son corps, et une autre dans chacun des sept symboles. À moins qu'il ne renonce à son corps pour fusionner toute son âme originelle avec les symboles, il serait incapable de tracer le huitième trait!
 

@@ -14,11 +14,11 @@ Il saisit vaguement le sens des paroles du Seigneur du Royaume Scellé. La Tribu
 
 « De neuf à deux, après avoir traversé diverses phases de changement, ils se transformeront en un seul! Et si l'Un de cette Tribulation Céleste était le Ji?! » Le cœur de Wang Lin battait la chamade, mais il n'en était pas certain. Cependant, il devait lutter et résister jusqu'au bout pour voir si c'était là ce royaume Ji qu'il désirait tant; il refusait d'abandonner!
 
-À cet instant, les Sept Étoiles convergèrent soudainement, et l'expression du Grand Ancien de la Secte Démon changea. Bien que le Maître de Secte n'ait rien dit sur la personne faisant face à la Tribulation Céleste, à en juger par ses derniers mots et le jade, la relation entre cet individu et le Maître de Secte ne pouvait être ordinaire.
+À cet instant, les Sept Étoiles convergèrent soudainement, et l'expression du Grand Ancien de la Secte Yao changea. Bien que le Maître de Secte n'ait rien dit sur la personne faisant face à la Tribulation Céleste, à en juger par ses derniers mots et le jade, la relation entre cet individu et le Maître de Secte ne pouvait être ordinaire.
 
 Ses yeux s'illuminèrent et il s'apprêta à s'avancer pour aider Wang Lin à résister à la calamité des Sept Étoiles!
 
-« Senior, vous n'avez pas besoin d'intervenir. Je résisterai seul à cette Tribulation Céleste! » La voix de Wang Lin résonna à travers le vide. Le Grand Ancien de la Secte Démon marqua un temps d'arrêt, tandis que les Sept Étoiles se rapprochaient!
+« Senior, vous n'avez pas besoin d'intervenir. Je résisterai seul à cette Tribulation Céleste! » La voix de Wang Lin résonna à travers le vide. Le Grand Ancien de la Secte Yao marqua un temps d'arrêt, tandis que les Sept Étoiles se rapprochaient!
 
 Les Sept Étoiles descendirent avec une intention meurtrière monstrueuse et sept rayons de lumière s'abattirent sur Wang Lin. Un grondement de tonnerre retentit et il fut couvert de sang. Son âme originelle trembla et il fut repoussé. Il devint mortellement pâle par la suite, mais il releva péniblement la tête et se mit à rire.
 

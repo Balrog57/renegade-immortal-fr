@@ -28,7 +28,7 @@ Le Rêve des Temps Anciens était un sort de Dieu Ancien; il ne pouvait donc pas
 
 Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Royaume du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao du Rêve!
 
-Autrefois, à l'extérieur de la faille de la Secte Démon dans la Mer Yun, Wang Lin n'avait fait qu'un bref essai sur l'Ancien Fléau Céleste, qui avait failli voir son cœur de Dao s'effondrer sans même s'en apercevoir. Si Wang Lin ne le lui avait pas fait remarquer après coup, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
+Autrefois, à l'extérieur de la faille de la Secte Yao dans la Mer Yun, Wang Lin n'avait fait qu'un bref essai sur l'Ancien Fléau Céleste, qui avait failli voir son cœur de Dao s'effondrer sans même s'en apercevoir. Si Wang Lin ne le lui avait pas fait remarquer après coup, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
 
 Le Dao du Rêve, bien que son nom paraisse complexe, était en réalité une forme de démon intérieur!
 

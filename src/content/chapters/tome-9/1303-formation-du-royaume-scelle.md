@@ -58,17 +58,17 @@ Cette voix envahit rapidement toute la région de rang 9 et pénétra la formati
 
 Une voix chargée d'une pression écrasante émanait du monde à l'intérieur du vortex. Cette voix était puissante et, pour une raison obscure, elle inspirait un sentiment de chaleur et de confiance.
 
-Les milliers de cultivateurs qui s'étaient réfugiés dans la Secte Démon pour échapper à la Tribulation Céleste furent instantanément frappés de confusion. La pupille de l'un des jeunes devint trouble, remplacée par le reflet du vortex. Il affichait un sourire empreint de bonheur.
+Les milliers de cultivateurs qui s'étaient réfugiés dans la Secte Yao pour échapper à la Tribulation Céleste furent instantanément frappés de confusion. La pupille de l'un des jeunes devint trouble, remplacée par le reflet du vortex. Il affichait un sourire empreint de bonheur.
 
 Ce sourire était extrêmement étrange. En un instant, une lumière l'enveloppa et il disparut.
 
 À l'instant même de sa disparition, des centaines de cultivateurs environnants arborèrent ce même sourire singulier. La lumière les enveloppa et ils disparurent tous, l'un après l'autre.
 
-« Ceci est l'Appel de Paramita de la rétribution infinie! Concentrez vos esprits, sans quoi vos cœurs Dao deviendront instables et vous serez aspirés dans le monde à l'intérieur du vortex! » Le Grand Ancien de la Secte Démon fixait le vortex au-delà de la formation, l'expression extrêmement grave.
+« Ceci est l'Appel de Paramita de la rétribution infinie! Concentrez vos esprits, sans quoi vos cœurs Dao deviendront instables et vous serez aspirés dans le monde à l'intérieur du vortex! » Le Grand Ancien de la Secte Yao fixait le vortex au-delà de la formation, l'expression extrêmement grave.
 
-Sa voix, telle un coup de tonnerre, retentit à travers toute la Secte Démon. Cela tirailla les cultivateurs de la secte qui étaient tombés dans la léthargie. Cependant, sitôt réveillés, ils sombrèrent de nouveau dans l'engourdissement.
+Sa voix, telle un coup de tonnerre, retentit à travers toute la Secte Yao. Cela tirailla les cultivateurs de la secte qui étaient tombés dans la léthargie. Cependant, sitôt réveillés, ils sombrèrent de nouveau dans l'engourdissement.
 
-Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. À la Secte Gui, à la Secte Divine, à la Secte Po Tian et parmi les bêtes féroces dans la brume, des gens disparaissaient également.
+Ce n'étaient pas seulement les membres de la Secte Yao qui disparaissaient. À la Secte Gui, à la Secte Divine, à la Secte Po Tian et parmi les bêtes féroces dans la brume, des gens disparaissaient également.
 
 L'épée de sang encerclait Wang Lin. Il leva les yeux vers le vortex formé par les quatre épées. La voix étrange pénétra aussi son esprit et, puisqu'il était celui qui subissait la Tribulation Céleste, elle résonnait en lui avec une clarté accrue. Pourtant, la voix à ses oreilles n'était pas unique, mais changeait constamment!
 
@@ -90,7 +90,7 @@ D'innombrables runes couvraient la montagne, s'entrecroisant pour former le mot 
 
 Les fracas tonitruants continuèrent de résonner alors que la montagne de nuages pesait sur Wang Lin, comme pour l'écraser totalement!
 
-La pression était si intense qu'elle fit vaciller la formation protectrice de la Secte Démon. Des craquements se firent entendre et des fissures se propagèrent.
+La pression était si intense qu'elle fit vaciller la formation protectrice de la Secte Yao. Des craquements se firent entendre et des fissures se propagèrent.
 
 Des bruits sourds résonnèrent dans le corps de Wang Lin alors que la pression infinie l'assaillait de toutes parts. Ses pieds s'écrasaient contre le ciel étoilé avec un bruit insupportable.
 

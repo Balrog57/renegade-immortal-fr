@@ -18,11 +18,11 @@ De plus, les deux paumes de Wang Lin dégageaient une puissance capable de secou
 
 Lorsque Wang Lin utilisa ses deux paumes pour soumettre le Dragon des Neuf Abîmes, tous ceux qui se trouvaient à l'extérieur de la faille spatiale furent frappés de stupeur. Leurs yeux étaient empreints d'une peur monstrueuse. Ce spectacle était plus choquant et incroyable encore que lorsque Wang Lin avait détruit toutes ces bêtes féroces et leurs crânes!
 
-Même les trois membres de la Secte Démon à l'intérieur du brouillard bleu furent pétrifiés par l'incrédulité. Leurs cœurs tremblèrent, faisant distordre le brouillard bleu qui les entourait.
+Même les trois membres de la Secte Yao à l'intérieur du brouillard bleu furent pétrifiés par l'incrédulité. Leurs cœurs tremblèrent, faisant distordre le brouillard bleu qui les entourait.
 
 « Le Dragon des Neuf Abîmes a été pris comme monture!!! Cette affaire... cette affaire... »
 
-« Si nous attaquions tous les trois ensemble avec le sort secret de la Secte Démon, nous pourrions vaincre le Dragon des Neuf Abîmes, mais il serait impossible de le faire plier, et encore moins d'en faire notre monture. Quelle est donc son identité pour pouvoir accomplir une telle chose?! »
+« Si nous attaquions tous les trois ensemble avec le sort secret de la Secte Yao, nous pourrions vaincre le Dragon des Neuf Abîmes, mais il serait impossible de le faire plier, et encore moins d'en faire notre monture. Quelle est donc son identité pour pouvoir accomplir une telle chose?! »
 
 « Bien que ce Dragon des Neuf Abîmes ne soit pas un adulte, il reste l'une des six bêtes compagnes de Ji Qiong. Comment a-t-il pu être apprivoisé ainsi? »
 
@@ -34,11 +34,11 @@ Ses vêtements blancs et ses cheveux d'albâtre lui donnaient l'apparence d'un I
 
 « Li Qianmei a dû faire cela pour lui... Il est sûrement venu pour elle... Li Qianmei, je suis secrètement en compétition avec toi depuis cent ans. Je pensais que tu mourrais après avoir été envoyée dans la faille spatiale, mais je ne m'attendais pas à ce qu'un être aussi puissant vienne te sauver... » La femme indifférente laissa échapper un soupir.
 
-Wang Lin, perché sur le Dragon des Neuf Abîmes, ignorait l'émoi des cultivateurs extérieurs. Il s'apprêtait à s'élancer dans les profondeurs de la faille spatiale pour sauver Li Qianmei! Cependant, à cet instant précis, une aura extrêmement puissante éclata depuis l'une des six planètes de la Secte Démon. Simultanément, une silhouette s'approcha.
+Wang Lin, perché sur le Dragon des Neuf Abîmes, ignorait l'émoi des cultivateurs extérieurs. Il s'apprêtait à s'élancer dans les profondeurs de la faille spatiale pour sauver Li Qianmei! Cependant, à cet instant précis, une aura extrêmement puissante éclata depuis l'une des six planètes de la Secte Yao. Simultanément, une silhouette s'approcha.
 
 Cette personne était d'une rapidité inouïe. D'un seul pas, elle se téléporta dans cet espace où toute téléportation était normalement impossible. Après ce premier pas, elle en fit un second!
 
-Une fois le deuxième pas posé, elle apparut aux côtés des trois membres de la Secte Démon et effectua un troisième pas. Sa vitesse était telle que nul ne pouvait la suivre alors qu'elle pénétrait dans la faille spatiale pour surgir devant Wang Lin.
+Une fois le deuxième pas posé, elle apparut aux côtés des trois membres de la Secte Yao et effectua un troisième pas. Sa vitesse était telle que nul ne pouvait la suivre alors qu'elle pénétrait dans la faille spatiale pour surgir devant Wang Lin.
 
 « Daoïste, ne soyez pas si pressé. Laisse ce vieil homme voir si tu es digne de pénétrer dans les profondeurs de cette faille! »
 
@@ -50,7 +50,7 @@ Une énergie originelle infinie s'accumula avec frénésie. Une aura destructric
 
 Un choc indescriptible survint et se propagea violemment. C'était comme si une tempête déchaînée avait balayé les cultivateurs environnants, les forçant à reculer. Même les six génies pâlirent et furent contraints de s'éloigner.
 
-Seuls les trois membres de la Secte Démon purent rester immobiles face à l'onde de choc, fixant la faille spatiale avec des expressions solennelles!
+Seuls les trois membres de la Secte Yao purent rester immobiles face à l'onde de choc, fixant la faille spatiale avec des expressions solennelles!
 
 Wang Lin laissa échapper un grognement étouffé tandis que des craquements résonnaient dans son corps. Il fut projeté en arrière sur plusieurs dizaines de pieds, entraînant le Dragon des Neuf Abîmes avec lui. La silhouette qui s'était approchée en trois pas laissa également échapper un gémissement sourd, mais au lieu de reculer, elle fit un autre pas!
 
@@ -90,17 +90,17 @@ Une lueur glaciale brilla dans les yeux de Wang Lin alors qu'il poursuivait l'ho
 
 En voyant ce geste, l'expression de l'homme changea encore et il cria avec précipitation: « Daoïste, arrête!! Daoïste, arrête!! Ce vieil homme a été imprudent! »
 
-Il s'arrêta devant les trois membres de la Secte Démon et retrouva sa forme de vieil homme aux cheveux blancs. Il joignit ensuite les mains en signe de respect envers Wang Lin.
+Il s'arrêta devant les trois membres de la Secte Yao et retrouva sa forme de vieil homme aux cheveux blancs. Il joignit ensuite les mains en signe de respect envers Wang Lin.
 
 Wang Lin sortit de la faille, fixa le vieil homme, puis baissa sa main gauche.
 
-Derrière lui, les trois membres de la Secte Démon s'inclinèrent: « Salutations, Ancien. »
+Derrière lui, les trois membres de la Secte Yao s'inclinèrent: « Salutations, Ancien. »
 
 Le vieil homme hocha légèrement la tête, puis regarda Wang Lin avec un choc immense dans les yeux. Il joignit ses mains et dit: « Daoïste, ta culture est extrêmement puissante; ce vieil homme n'est pas de taille, surtout face à ton épée de sang. Ce trésor... » L'Ancien secoua la tête avec un sourire amer. L'effroi que ce trésor lui avait inspiré était indescriptible.
 
 Wang Lin le fixa froidement. Sans dire un mot, il détourna son regard et s'élança à nouveau dans la faille. À l'intérieur, le Dragon des Neuf Abîmes, terrifié, n'osait pas s'enfuir.
 
-Le vieil homme observa le dos de Wang Lin et dit: « Daoïste, c'est ce vieil homme qui a été impoli. Je crois que tu es venu sauver Li Qianmei. C'est moi qui l'avais repérée pour qu'elle rejoigne la Secte Démon, et c'est aussi moi qui l'ai autorisée à partir. » Il agita alors sa main droite et un jade vola vers Wang Lin.
+Le vieil homme observa le dos de Wang Lin et dit: « Daoïste, c'est ce vieil homme qui a été impoli. Je crois que tu es venu sauver Li Qianmei. C'est moi qui l'avais repérée pour qu'elle rejoigne la Secte Yao, et c'est aussi moi qui l'ai autorisée à partir. » Il agita alors sa main droite et un jade vola vers Wang Lin.
 
 « Cette faille est immense. Si tu cherches au hasard, il sera très difficile de trouver Li Qianmei. Ce jade contient une carte où j'ai marqué sa position. Avec ta vitesse, tu pourras peut-être la rattraper. »
 

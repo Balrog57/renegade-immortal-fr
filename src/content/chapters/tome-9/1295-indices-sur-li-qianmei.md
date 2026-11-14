@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1295 - Lead About Li Qianmei
 slug: indices-sur-li-qianmei
 ---
-Wang Lin ne passa que peu de temps sur le champ de bataille de la faille spatiale de la Secte Démon. Pourtant, en cet instant éphémère, il avait provoqué un choc indescriptible parmi les milliers de cultivateurs présents.
+Wang Lin ne passa que peu de temps sur le champ de bataille de la faille spatiale de la Secte Yao. Pourtant, en cet instant éphémère, il avait provoqué un choc indescriptible parmi les milliers de cultivateurs présents.
 
-Les bêtes féroces s'étaient effondrées, les crânes noirs avaient été anéantis; il avait déchiré la faille, apprivoisé le Dragon des Neuf Abîmes et combattu l'Ancien de la Secte Démon. Non seulement il n'avait pas perdu, mais il avait fait preuve d'une force écrasante, allant jusqu'à infliger à l'Ancien une blessure cachée dont celui-ci n'avait même pas conscience!
+Les bêtes féroces s'étaient effondrées, les crânes noirs avaient été anéantis; il avait déchiré la faille, apprivoisé le Dragon des Neuf Abîmes et combattu l'Ancien de la Secte Yao. Non seulement il n'avait pas perdu, mais il avait fait preuve d'une force écrasante, allant jusqu'à infliger à l'Ancien une blessure cachée dont celui-ci n'avait même pas conscience!
 
 Tout cela terrifia les milliers de cultivateurs postés à l'extérieur de la faille spatiale!
 
@@ -18,17 +18,17 @@ Pour les habitants de la Mer Yun, la faille spatiale était à la fois familièr
 
 Ce n'était pas que d'importants cultivateurs n'entraient jamais dans la faille, mais les rapports disaient qu'elle était si vaste qu'on ne pouvait en connaître toute l'étendue. C'était comme un univers à part entière, impossible à explorer avec seulement quelques individus.
 
-Sur cent personnes qui s'y engageaient, moins de trois revenaient. Les autres mouraient ou disparaissaient à jamais. Pourtant, la Secte Démon n'avait jamais renoncé et continuait d'envoyer des troupes périodiquement.
+Sur cent personnes qui s'y engageaient, moins de trois revenaient. Les autres mouraient ou disparaissaient à jamais. Pourtant, la Secte Yao n'avait jamais renoncé et continuait d'envoyer des troupes périodiquement.
 
 Grâce à cette méthode au taux de mortalité effroyable, ils avaient lentement découvert un passage au fil des éons. Li Qianmei était devenue une éclaireuse pour explorer à nouveau la faille spatiale. Soit elle survivrait et reviendrait avec de nouvelles découvertes, soit elle mourrait et deviendrait l'une de ces cultivatrices disparues.
 
 Le Sens Divin de Wang Lin se retira de la pierre de jade qu'il tenait, et il contempla ce monde sombre, dépourvu de toute lumière. Même avec sa culture, il ne pouvait percevoir que mille pieds devant lui. Tout ce qui se trouvait au-delà n'était qu'un flou ténébreux.
 
-« Le chemin tracé dans le jade est un passage vers les profondeurs de la faille spatiale, obtenu par la Secte Démon au prix d'innombrables sacrifices. C'est aussi le chemin emprunté par Li Qianmei, mais cet endroit est tout simplement trop vaste. Même le passage contenu dans le jade ne pénètre pas réellement dans les profondeurs. »
+« Le chemin tracé dans le jade est un passage vers les profondeurs de la faille spatiale, obtenu par la Secte Yao au prix d'innombrables sacrifices. C'est aussi le chemin emprunté par Li Qianmei, mais cet endroit est tout simplement trop vaste. Même le passage contenu dans le jade ne pénètre pas réellement dans les profondeurs. »
 
 Wang Lin se tenait sur la tête du Dragon des Neuf Abîmes. Celui-ci se déplaçait à une vitesse fulgurante, son corps de dix mille pieds fendant l'obscurité tel un éclair étrange. Sa particularité résidait dans son silence absolu: malgré sa célérité, aucun grondement tonitruant ni aucune onde de choc ne troublaient son vol.
 
-Il n'osait pas la moindre rébellion face aux ordres de Wang Lin ni à la direction qu'il lui indiquait. Il avait vu de ses propres yeux, à l'entrée de la faille, la puissance de l'Ancien de la Secte Démon, face à laquelle le Dragon ne pouvait rien. Or c'était précisément l'homme perché sur sa tête qui avait fait plier cet Ancien; cela ne faisait qu'accroître sa crainte envers Wang Lin.
+Il n'osait pas la moindre rébellion face aux ordres de Wang Lin ni à la direction qu'il lui indiquait. Il avait vu de ses propres yeux, à l'entrée de la faille, la puissance de l'Ancien de la Secte Yao, face à laquelle le Dragon ne pouvait rien. Or c'était précisément l'homme perché sur sa tête qui avait fait plier cet Ancien; cela ne faisait qu'accroître sa crainte envers Wang Lin.
 
 Assis sur la tête du Dragon des Neuf Abîmes, Wang Lin observait les environs en silence. Il semblait s'acclimater parfaitement à ce monde d'ombre sans le moindre inconfort.
 

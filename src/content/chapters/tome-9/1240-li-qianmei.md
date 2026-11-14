@@ -82,9 +82,9 @@ Un tumulte soudain éclata alors que plus de cent mille cultivateurs présents r
 
 « Il s'agit de Li Qianmei de la Secte Po Tian! Je ne pensais pas que la compétition de la Secte Wu Ji attirerait sa présence! »
 
-« Les rumeurs disaient qu'elle combattait la marée de bêtes à la Secte Démon. Il est inattendu qu'elle l'ait quittée pour venir ici! »
+« Les rumeurs disaient qu'elle combattait la marée de bêtes à la Secte Yao. Il est inattendu qu'elle l'ait quittée pour venir ici! »
 
-« On raconte que lors de la bataille contre la marée de bêtes, aucun cultivateur impliqué n'est autorisé à partir. Comment Li Qianmei a-t-elle obtenu la permission de la Secte Démon? »
+« On raconte que lors de la bataille contre la marée de bêtes, aucun cultivateur impliqué n'est autorisé à partir. Comment Li Qianmei a-t-elle obtenu la permission de la Secte Yao? »
 
 Les murmures se propagèrent sur toute la plateforme avec l'apparition de Li Qianmei. Même les combats des sectes de rang 4 ne suscitaient plus l'intérêt de personne.
 

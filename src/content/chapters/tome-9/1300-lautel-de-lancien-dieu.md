@@ -46,13 +46,13 @@ Quant à l'origine de la fissure, même la femme en noir l'ignorait. Elle savait
 
 Wang Lin apprit également qu'il existait une zone interdite au plus profond de la fissure spatiale. C'est là que la femme respectée par le scorpion effectuait sa guérison, et cela durait depuis une éternité.
 
-Wang Lin retira son sens divin et se mit à réfléchir. Il comprit que l'endroit vers lequel menait cette faille n'était probablement pas le Royaume Extérieur, comme le pensait la Secte Démon, mais un lieu mystérieux.
+Wang Lin retira son sens divin et se mit à réfléchir. Il comprit que l'endroit vers lequel menait cette faille n'était probablement pas le Royaume Extérieur, comme le pensait la Secte Yao, mais un lieu mystérieux.
 
 Pour une raison inconnue, alors qu'il retirait son sens divin après avoir exploré les souvenirs du scorpion, il pensa involontairement à la fissure spatiale du Royaume Céleste du Vent. Il se remémora le roi des moustiques géants luttant pour sortir de la faille et ce monde chaotique peuplé de bêtes moustiques de l'autre côté.
 
 « Existe-t-il un lien entre ces deux endroits... » Wang Lin médita un instant avant de cesser sa réflexion. Au lieu de cela, il se tourna vers la sortie et s'y précipita.
 
-Puisque Wang Lin n'était pas certain que ce lieu menait au Royaume Extérieur, il ne comptait plus perdre de temps ici. Il devait retourner à la Secte Démon le plus vite possible pour rejoindre la Formation du Royaume Scellé. Il lui fallait trouver un moyen d'en sortir et de chercher Lanmeng Daozun!
+Puisque Wang Lin n'était pas certain que ce lieu menait au Royaume Extérieur, il ne comptait plus perdre de temps ici. Il devait retourner à la Secte Yao le plus vite possible pour rejoindre la Formation du Royaume Scellé. Il lui fallait trouver un moyen d'en sortir et de chercher Lanmeng Daozun!
 
 Au début, c'étaient les bêtes féroces qui assiégeaient Wang Lin; désormais, c'était lui qui les chassait une à une. Au fil de son massacre, il accélérait de plus en plus vers la sortie.
 

@@ -12,7 +12,7 @@ Sans attendre que le vieil homme finisse sa phrase, Wang Lin fronça les sourcil
 
 Le vieil homme poussa un cri, mais il était impuissant; comme son corps était entravé par le Filet de Capture Céleste, il ne pouvait tout simplement pas esquiver. Ses yeux, emplis de terreur, lancèrent une supplication précipitée: « Je vais parler! Je vais parler! »
 
-Wang Lin ne s'arrêta pas, mais alors qu'il allait presser sa main droite, son expression changea légèrement et il suspendit son geste. À l'extérieur de la tour, un passage se fendit soudainement dans le nuage noir surplombant la Tribu de l'Affinement de l'Âme, et le chant d'une lame perça le ciel.
+Wang Lin ne s'arrêta pas, mais alors qu'il allait presser sa main droite, son expression changea légèrement et il suspendit son geste. À l'extérieur de la tour, un passage se fendit soudainement dans le nuage noir surplombant la Tribu Lian Hun, et le chant d'une lame perça le ciel.
 
 La lame noire se déplaçait avec la rapidité de l'éclair et fondit sur la tour en un instant. Xu Liguo se trouvait à l'intérieur de la lame noire, tenant le pinceau en main. Il pénétra immédiatement dans la tour avec une expression mielleuse et s'exclama rapidement: « Maître, le Petit Xu a capturé le trésor pour vous, mais je suis épuisé! Maître, vous n'imaginez pas à quelle vitesse ce trésor fuyait! »
 
@@ -24,7 +24,7 @@ Wang Lin ignora Xu Liguo et la lame en croissant. Il tint le pinceau et ferma le
 
 À cet instant, une lueur dorée jaillit de la pointe du pinceau. Cette lumière devint de plus en plus éclatante à mesure que l'énergie spirituelle céleste de Wang Lin y pénétrait. Finalement, l'éclat illumina la tour entière. De loin, on aurait dit que la tour émettait un flux d'or pur.
 
-À ce moment précis, tous les membres de la Tribu de l'Affinement de l'Âme témoignèrent de leur piété en se prosternant face à la tour.
+À ce moment précis, tous les membres de la Tribu Lian Hun témoignèrent de leur piété en se prosternant face à la tour.
 
 Les yeux du vieil homme, capturé par le Filet de Capture Céleste, se rétractèrent de stupeur en voyant l'éclat aveuglant que dégageait le pinceau dans la main de Wang Lin. Un goût amer lui monta à la gorge. Lorsqu'il avait saisi le pinceau autrefois, une lumière dorée avait également surgi. Mais en comparant cet éclat à celui qui se trouvait devant lui, l'un était comme le soleil, tandis que l'autre n'était qu'une simple luciole.
 

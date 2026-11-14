@@ -52,9 +52,9 @@ En déplaçant son regard, il vit un sceau sur le côté droit du cœur de la vi
 
 Face à ce regard, le visage de la vieille femme changea radicalement. Elle recula inconsciemment de quelques pas, le front couvert d'une sueur froide. À cet instant, elle eut l'impression que cet homme avait percé ses secrets les plus profonds et figé son âme originelle. Elle fut même saisie par l'illusion terrifiante que, s'il le souhaitait, il pourrait effacer tous ses sorts de sa mémoire!
 
-Ce qui l'effraya davantage fut de constater que le sceau de guérison, posé sur elle par un Grand Ancien de la Secte Démon il y a mille ans, était sur le point de s'effondrer sous la simple puissance de son regard. Cela suffisait à inverser mille ans de soins et à faire resurgir la blessure grave qu'elle avait subie autrefois!
+Ce qui l'effraya davantage fut de constater que le sceau de guérison, posé sur elle par un Grand Ancien de la Secte Yao il y a mille ans, était sur le point de s'effondrer sous la simple puissance de son regard. Cela suffisait à inverser mille ans de soins et à faire resurgir la blessure grave qu'elle avait subie autrefois!
 
-Bien que terrifiée, sa nature restait farouche. Tout en reculant, elle s'écria: « Cette vieille femme vient du rang 9 de la Secte Démon pour t'apporter le sang d'âme de Li Qianmei afin de favoriser ton éveil. Que comptes-tu faire? Vas-tu tuer cette vieille femme! »
+Bien que terrifiée, sa nature restait farouche. Tout en reculant, elle s'écria: « Cette vieille femme vient du rang 9 de la Secte Yao pour t'apporter le sang d'âme de Li Qianmei afin de favoriser ton éveil. Que comptes-tu faire? Vas-tu tuer cette vieille femme! »
 
 « Li Qianmei? » Wang Lin fut stupéfait.
 
@@ -70,9 +70,9 @@ Wang Lin la regarda et répondit lentement: « Je suis resté dans le coma penda
 
 La vieille femme ricana. Après un long silence, elle reprit: « Tu veux savoir? Très bien, je vais tout te dire! Connais-tu une femme nommée Li Qianmei? Pas besoin de répondre, tu la connais forcément!
 
-« Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Démon et à l'estime que celle-ci lui portait? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternelle!
+« Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Yao et à l'estime que celle-ci lui portait? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternelle!
 
-« La Secte Démon ne voulait évidemment pas de cela, et même sa propre Secte Po Tian n'était pas satisfaite. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
+« La Secte Yao ne voulait évidemment pas de cela, et même sa propre Secte Po Tian n'était pas satisfaite. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
 
 Wang Lin était bouleversé. Il ignorait tout de cela. Lorsqu'il avait rencontré Li Qianmei à la Secte Éternelle, elle n'avait jamais mentionné ces faits.
 
@@ -90,7 +90,7 @@ L'esprit de Wang Lin vacilla. Il était au courant de la situation, mais c'étai
 
 « Savais-tu qu'en dix ans, elle n'a pas seulement utilisé son sang, mais aussi sa vitalité, son être tout entier? Elle a consommé sa propre vie pour te couvrir de sang, devenant ainsi extrêmement faible!
 
-« Savais-tu que lorsque son domaine ne fut plus suffisant, elle s'est rendue à la Secte Démon? Puis, à un prix que j'ignore, elle a récupéré son sang d'âme et a chargé cette vieille femme de te l'apporter!
+« Savais-tu que lorsque son domaine ne fut plus suffisant, elle s'est rendue à la Secte Yao? Puis, à un prix que j'ignore, elle a récupéré son sang d'âme et a chargé cette vieille femme de te l'apporter!
 
 « Savais-tu que même en partant, elle a laissé son jade d'âme pour nourrir ton corps? Tout cela, tu l'ignores? Tu l'ignores vraiment??? »
 
@@ -102,19 +102,19 @@ Il baissa la tête vers le jade autour de son cou. Sa lueur était très faible,
 
 « Sais-tu où elle se trouve en ce moment? » La voix de la vieille femme était empreinte de chagrin.
 
-« Tu ne le sais pas... tu ne peux imaginer les conditions qu'elle a acceptées à la Secte Démon pour récupérer son sang d'âme. Comment pourrais-tu le savoir? Si je n'avais pas vu grandir cette enfant, si je n'étais pas sa Senior sœur et si je ne l'avais pas forcée à tout me dire à la Secte Démon, moi non plus je ne le saurais pas... »
+« Tu ne le sais pas... tu ne peux imaginer les conditions qu'elle a acceptées à la Secte Yao pour récupérer son sang d'âme. Comment pourrais-tu le savoir? Si je n'avais pas vu grandir cette enfant, si je n'étais pas sa Senior sœur et si je ne l'avais pas forcée à tout me dire à la Secte Yao, moi non plus je ne le saurais pas... »
 
 Wang Lin réfléchit un instant et demanda d'une voix feutrée: « Où est-elle...? »
 
-« Où est-elle? Comment la récupération de son sang d'âme auprès de la Secte Démon aurait-elle pu être facile? Elle a quitté le champ de bataille il y a dix ans et n'est pas revenue pendant dix ans. Elle fut également bannie de la Secte Po Tian. Comment la Secte Démon aurait-elle pu ne pas la punir? Si elle voulait son sang d'âme, elle devait en payer le prix!
+« Où est-elle? Comment la récupération de son sang d'âme auprès de la Secte Yao aurait-elle pu être facile? Elle a quitté le champ de bataille il y a dix ans et n'est pas revenue pendant dix ans. Elle fut également bannie de la Secte Po Tian. Comment la Secte Yao aurait-elle pu ne pas la punir? Si elle voulait son sang d'âme, elle devait en payer le prix!
 
-« Pour l'obtenir, elle a promis à la Secte Démon de s'enfoncer dans les zones les plus reculées du champ de bataille des fissures spatiales. Elle doit explorer ces terres infestées de bêtes féroces pour voir s'il existe un passage vers le Royaume Extérieur!
+« Pour l'obtenir, elle a promis à la Secte Yao de s'enfoncer dans les zones les plus reculées du champ de bataille des fissures spatiales. Elle doit explorer ces terres infestées de bêtes féroces pour voir s'il existe un passage vers le Royaume Extérieur!
 
 « S'il existe vraiment un tel passage, comment pourrait-elle en revenir saine et sauve? Et même s'il n'y en a pas, les bêtes qui hantent ces profondeurs sont terrifiantes. Elle va mourir!
 
-« Sans parler du fait qu'en ce moment même, elle a perdu la majeure partie de sa force vitale et que son niveau de culture a chuté drastiquement à cause de cet épuisement de vie. Comment peut-elle survivre? La Secte Démon veut qu'elle meure sur le champ de bataille pour servir d'exemple!
+« Sans parler du fait qu'en ce moment même, elle a perdu la majeure partie de sa force vitale et que son niveau de culture a chuté drastiquement à cause de cet épuisement de vie. Comment peut-elle survivre? La Secte Yao veut qu'elle meure sur le champ de bataille pour servir d'exemple!
 
-« Pour récupérer son sang d'âme, elle s'est déjà enfoncée dans les profondeurs du champ de bataille au sein de la fissure spatiale. Les gens de la Secte Démon ne la laisseront pas revenir, alors elle n'a eu d'autre choix que de me demander d'apporter ce sang d'âme. Maintenant, tu sais! Elle refusait que je te le dise, mais puisque tu as demandé, quel droit ai-je de te cacher la vérité? Je veux que tu saches tout cela! » La voix de la vieille femme était glaciale, et chaque mot frappait le cœur de Wang Lin comme une lame acérée.
+« Pour récupérer son sang d'âme, elle s'est déjà enfoncée dans les profondeurs du champ de bataille au sein de la fissure spatiale. Les gens de la Secte Yao ne la laisseront pas revenir, alors elle n'a eu d'autre choix que de me demander d'apporter ce sang d'âme. Maintenant, tu sais! Elle refusait que je te le dise, mais puisque tu as demandé, quel droit ai-je de te cacher la vérité? Je veux que tu saches tout cela! » La voix de la vieille femme était glaciale, et chaque mot frappait le cœur de Wang Lin comme une lame acérée.
 
 Le corps de Wang Lin trembla. La pierre qui recouvrait son corps, laquelle nécessitait normalement du temps pour se briser, se mit à vibrer violemment. Les fissures se propagèrent avec une rapidité fulgurante et la structure s'effondra dans un fracas tonitruant!
 
@@ -128,7 +128,7 @@ Au moment où le continent sauvage s'effondrait, Wang Lin jaillit de sa prison! 
 
 Une fois libéré, il leva les yeux vers les étoiles et fit un pas en avant. Sa main se tendit et saisit la vieille femme.
 
-« Guidez-moi! Je veux aller sur le champ de bataille de la Secte Démon! »
+« Guidez-moi! Je veux aller sur le champ de bataille de la Secte Yao! »
 
 La voix de Wang Lin était calme, mais elle dégageait une majesté irrésistible. Même des cultivateurs au sommet du stade Briseur du Nirvana ne pourraient lui opposer aucune résistance! Ils n'oseraient même pas tenter de lui désobéir!
 

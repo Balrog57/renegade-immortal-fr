@@ -42,15 +42,15 @@ Tandis que Wang Lin se préparait à affronter la calamité de vie ou de mort, l
 
 Le maître de Li Qianmei, le chef de la Secte Po Tian, resta silencieux. Il semblait avoir perdu toute étincelle de vie, n'étant plus qu'une enveloppe vide.
 
-Li Qianmei baissa la tête et reprit: « Maître, Qianmei a grandi à vos côtés, et c'est vous qui m'avez enseigné la voie de la culture et m'avez donné mon niveau actuel. Alors que la bataille fait rage à la Secte Démon, Qianmei ne demande rien de plus que de retourner sur le champ de bataille. »
+Li Qianmei baissa la tête et reprit: « Maître, Qianmei a grandi à vos côtés, et c'est vous qui m'avez enseigné la voie de la culture et m'avez donné mon niveau actuel. Alors que la bataille fait rage à la Secte Yao, Qianmei ne demande rien de plus que de retourner sur le champ de bataille. »
 
-Le maître de Li Qianmei réfléchit un instant et dit d'une voix rauque: « Le Maître a déjà envoyé un message à la Secte Démon. Tu y retourneras dans trois mois, nul besoin de se précipiter! »
+Le maître de Li Qianmei réfléchit un instant et dit d'une voix rauque: « Le Maître a déjà envoyé un message à la Secte Yao. Tu y retourneras dans trois mois, nul besoin de se précipiter! »
 
 Les yeux de Li Qianmei se rétrécirent alors qu'elle fixait son maître. Son esprit vacillait. Elle tentait de comprendre pourquoi son maître agissait ainsi, au point d'appeler trois Anciens. Après tout, avec son niveau de culture, l'intervention de trois Anciens n'était pas nécessaire.
 
 Ces trois Anciens jouaient manifestement le rôle de surveillants et de témoins. Ils étaient là pour observer...
 
-Le visage de Li Qianmei pâlit instantanément. Elle en déduisit que les trois Anciens ne la surveillaient pas elle, mais son maître! Elle avait d'abord cru que son maître agissait ainsi parce qu'elle avait quitté le champ de bataille de la Secte Démon. Cependant, en entendant son maître lui dire de retourner à la Secte Démon dans trois mois, il semblait bien que cette affaire n'ait aucun lien avec la Secte Démon!
+Le visage de Li Qianmei pâlit instantanément. Elle en déduisit que les trois Anciens ne la surveillaient pas elle, mais son maître! Elle avait d'abord cru que son maître agissait ainsi parce qu'elle avait quitté le champ de bataille de la Secte Yao. Cependant, en entendant son maître lui dire de retourner à la Secte Yao dans trois mois, il semblait bien que cette affaire n'ait aucun lien avec la Secte Yao!
 
 « Quelle affaire a bien pu pousser le Maître à agir ainsi... » Li Qianmei fut frappée par le choc. Elle ne s'inquiétait pas pour elle-même, mais pour une raison obscure, la silhouette de Wang Lin apparut dans son esprit.
 
@@ -70,7 +70,7 @@ L'expression de Li Qianmei resta neutre, mais un séisme ravagea son esprit.
 
 Le maître de secte la regarda profondément et déclara lentement: « C'est précisément pour cette raison que je te retiens ici pendant trois mois! »
 
-Li Qianmei réfléchit en silence, sentant une force s'accumuler dans son corps encore fragile. Elle était prête à quitter la Secte Démon pour Wang Lin. Mais après avoir entendu les paroles de son maître, et forte de son intelligence, elle comprit immédiatement qu'une crise de vie ou de mort pesait sur Wang Lin. Le danger était si immense que même son maître ne pouvait faire autrement que de la retenir. Bien qu'elle se sentît prisonnière, c'était en réalité pour sa propre protection.
+Li Qianmei réfléchit en silence, sentant une force s'accumuler dans son corps encore fragile. Elle était prête à quitter la Secte Yao pour Wang Lin. Mais après avoir entendu les paroles de son maître, et forte de son intelligence, elle comprit immédiatement qu'une crise de vie ou de mort pesait sur Wang Lin. Le danger était si immense que même son maître ne pouvait faire autrement que de la retenir. Bien qu'elle se sentît prisonnière, c'était en réalité pour sa propre protection.
 
 En réfléchissant, l'expression de Li Qianmei s'apaisa progressivement, mais une détermination mêlée d'amertume envahit son être. Elle se redressa lentement.
 

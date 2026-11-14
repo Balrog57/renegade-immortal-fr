@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1292 - The White Figure Under the Red Light
 slug: la-figure-blanche-sous-la-lumiere-rouge
 ---
-À cet instant, sur le champ de bataille de la faille spatiale jouxtant la Secte Démon, alors que les nombreuses bêtes reculaient, les rugissements des bêtes féroces devinrent plus violents encore. Le champ d'étoiles tout entier trembla tandis qu'une aura plus puissante que les autres jaillissait de la faille spatiale. Cette aura était si intense qu'elle étouffa instantanément les hurlements des bêtes alentour.
+À cet instant, sur le champ de bataille de la faille spatiale jouxtant la Secte Yao, alors que les nombreuses bêtes reculaient, les rugissements des bêtes féroces devinrent plus violents encore. Le champ d'étoiles tout entier trembla tandis qu'une aura plus puissante que les autres jaillissait de la faille spatiale. Cette aura était si intense qu'elle étouffa instantanément les hurlements des bêtes alentour.
 
 Une bête féroce en forme de dragon émergea lentement de la faille, tandis que les autres créatures reculaient!
 
@@ -34,7 +34,7 @@ Les milliers de cultivateurs présents sur le champ de bataille luttaient depuis
 
 Les six génies chargèrent pour affronter le Dragon des Neuf Abîmes tapi dans la faille.
 
-« Si nous travaillons ensemble pour tuer ce dragon, nous pourrons devenir membres de la Secte Démon! » cria l'un des hommes d'âge mûr parmi les six. Ses mains formèrent un sceau, son corps fut enveloppé d'une lumière violette et son aura explosa!
+« Si nous travaillons ensemble pour tuer ce dragon, nous pourrons devenir membres de la Secte Yao! » cria l'un des hommes d'âge mûr parmi les six. Ses mains formèrent un sceau, son corps fut enveloppé d'une lumière violette et son aura explosa!
 
 Les cinq autres utilisèrent tous leurs sorts les plus puissants. Les cheveux de la belle femme d'âge mûr devinrent instantanément blancs; sa chevelure balaya l'air pour former une tempête de cheveux blancs devant elle, chargée d'une puissance à ébranler le ciel, qui chargea vers le Dragon des Neuf Abîmes.
 
@@ -66,7 +66,7 @@ Le vieil homme jouissait d'une grande autorité parmi les milliers de cultivateu
 
 À sa commande, les cultivateurs environnants reculèrent tous en formant des sceaux de leurs mains. Une lumière de formation commença à émaner de leurs corps.
 
-« Nous sacrifions notre vitalité, nous invoquons la Grande Formation de la Secte Démon! » Des milliers de personnes sacrifièrent leur vitalité au même instant. Le cri unifié de ces milliers de cultivateurs généra une pression colossale!
+« Nous sacrifions notre vitalité, nous invoquons la Grande Formation de la Secte Yao! » Des milliers de personnes sacrifièrent leur vitalité au même instant. Le cri unifié de ces milliers de cultivateurs généra une pression colossale!
 
 Tandis que leurs voix résonnaient, une lueur fantomatique jaillit de la faille spatiale. Après un grondement de tonnerre, la faille se comporta comme une immense gueule et se referma brusquement!
 
@@ -78,7 +78,7 @@ En voyant cela, le vieil homme soupira. Il avait initialement voulu faire sortir
 
 La femme indifférente fit de même. Ces cultivateurs avaient œuvré ensemble durant de nombreuses années et se comprenaient parfaitement. Les quatre autres n'attaquèrent pas le grand crâne, mais se dispersèrent pour s'en prendre aux petits crânes et aux bêtes isolées.
 
-Les cultivateurs de la Secte Démon, enveloppés dans la brume bleue, restaient immobiles, observant la bataille et la mort des bêtes féroces. Certains crânes et certaines bêtes chargèrent vers eux, mais dès qu'ils touchèrent la brume bleue, ils périrent misérablement.
+Les cultivateurs de la Secte Yao, enveloppés dans la brume bleue, restaient immobiles, observant la bataille et la mort des bêtes féroces. Certains crânes et certaines bêtes chargèrent vers eux, mais dès qu'ils touchèrent la brume bleue, ils périrent misérablement.
 
 « Cet endroit est un champ de bataille, et les faibles n'y survivront pas. Si vous voulez vivre, devenez plus forts, franchissez vos limites; vous devez marcher sur le fil de la vie et de la mort, encore et toujours. Autrefois, nous trois faisions la même chose! »
 
@@ -92,7 +92,7 @@ Le vieil homme et la femme indifférente combattaient le crâne géant; ils l'av
 
 Les trois personnes dans la brume bleue fixaient la faille spatiale qui s'ouvrait lentement et s'apprêtaient à avancer. Cependant, leurs expressions changèrent radicalement et ils regardèrent soudainement au loin!
 
-Un rugissement indescriptible provint du lointain. Ce cri faisait trembler les cieux et dégageait une aura surpuissante. Non seulement il attira les trois membres de la Secte Démon, mais aussi l'attention de tous les cultivateurs sur le champ de bataille.
+Un rugissement indescriptible provint du lointain. Ce cri faisait trembler les cieux et dégageait une aura surpuissante. Non seulement il attira les trois membres de la Secte Yao, mais aussi l'attention de tous les cultivateurs sur le champ de bataille.
 
 Même les bêtes à l'extérieur ne purent s'empêcher de trembler, leurs yeux emplis de terreur. Elles cessèrent toute attaque et commencèrent à reculer vers la faille spatiale.
 

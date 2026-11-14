@@ -44,7 +44,7 @@ Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que
 
 « Cette guerre qui se déroule sous mes yeux est ma meilleure chance de collecter l'énergie de la boucherie, je ne peux pas la laisser passer. Mais je n'ai que la force d'un seul homme. Cette chose... Oui, je devrais procéder ainsi! » Le regard de Wang Lin devint glacial avant qu'il ne disparaisse.
 
-Wang Lin ne prit pas part à la bataille du Pays Huo Yao. Il se téléporta pendant plusieurs jours jusqu'au Tribu de l'Affinement de l'Âme, dans le Pays Tian Yao. Après dix ans de développement, le Tribu de l'Affinement de l'Âme avait pris une forme solide; il était devenu l'un des quatre plus grands clans des terres sauvages.
+Wang Lin ne prit pas part à la bataille du Pays Huo Yao. Il se téléporta pendant plusieurs jours jusqu'au Tribu Lian Hun, dans le Pays Tian Yao. Après dix ans de développement, le Tribu Lian Hun avait pris une forme solide; il était devenu l'un des quatre plus grands clans des terres sauvages.
 
 Le retour de Wang Lin provoqua une immense excitation au sein du clan. Bien que beaucoup n'eussent jamais vu son visage, la rumeur avait fait de lui une figure légendaire, semblable à l'Ancien Démon. Tous le vénéraient en leur for intérieur. Cette vallée était devenue leur terre sacrée!
 
@@ -56,13 +56,13 @@ Dix mille personnes ne représentaient pas grand-chose dans une guerre impliquan
 
 Il passa ce temps dans la vallée, continuant à graver son empreinte sur le démon dispersé en lui. Il utilisa le temps qui lui restait pour réparer le drapeau de restriction.
 
-Trois mois passèrent rapidement. Grâce aux trésors confiés par Wang Lin, Treize et Ouyang Hua réussirent à dévorer les trois tribus une à une. Un grand nombre de membres de tribus étrangères furent contraints de boire la soupe d'effacement de mémoire pour devenir membres du Tribu de l'Affinement de l'Âme.
+Trois mois passèrent rapidement. Grâce aux trésors confiés par Wang Lin, Treize et Ouyang Hua réussirent à dévorer les trois tribus une à une. Un grand nombre de membres de tribus étrangères furent contraints de boire la soupe d'effacement de mémoire pour devenir membres du Tribu Lian Hun.
 
 Pour ces nouveaux membres n'ayant jamais pratiqué le sort d'affinement de l'âme, Wang Lin sortit l'étendard des âmes et l'agita. Une multitude de fragments d'âmes s'envolèrent et, sous le contrôle de Wang Lin, pénétrèrent dans le corps des membres du clan. Loin de leur nuire, ces fragments coexistaient avec eux.
 
 Ensuite, Wang Lin propagea son énergie de la boucherie pour la fusionner avec ces personnes. C'est ainsi qu'une seconde vague de trente mille hommes fut envoyée au Pays Huo Yao!
 
-Le Tribu de l'Affinement de l'Âme comptait désormais encore de nombreux membres. Wang Lin utilisa à plusieurs reprises la grande téléportation pour déplacer tout le monde hors des terres sauvages, choisissant comme nouveau lieu l'ancien champ de bataille où résidaient les démons dispersés.
+Le Tribu Lian Hun comptait désormais encore de nombreux membres. Wang Lin utilisa à plusieurs reprises la grande téléportation pour déplacer tout le monde hors des terres sauvages, choisissant comme nouveau lieu l'ancien champ de bataille où résidaient les démons dispersés.
 
 Wang Lin utilisa un sort pour ériger une haute tour là où se trouvait autrefois la tour des démons, puis s'installa en position du lotus à l'intérieur. Quant aux membres du clan, ils commencèrent leur nouvelle vie ici. De nombreuses maisons simples furent construites et, bientôt, un nouveau clan vit le jour!
 
@@ -70,7 +70,7 @@ En un clin d'œil, dix années supplémentaires s'écoulèrent! Wang Lin ne fit 
 
 Après que les trois grandes armées du Pays Tian Yao eurent ouvert la voie dans le Pays Huo Yao, ce dernier avait naturellement ses propres moyens de riposter. Ils lancèrent une contre-attaque, entamant un massacre sans fin sur de multiples champs de bataille. Ces dix ans de guerre n'étaient que le commencement.
 
-Durant cette période, des vagues de membres du Tribu de l'Affinement de l'Âme, imprégnés de l'énergie de la boucherie de Wang Lin, rejoignirent les combats. Parallèlement, le clan continuait de croître, et les tribus sauvages du Pays Huo Yao étaient devenues leurs cibles privilégiées.
+Durant cette période, des vagues de membres du Tribu Lian Hun, imprégnés de l'énergie de la boucherie de Wang Lin, rejoignirent les combats. Parallèlement, le clan continuait de croître, et les tribus sauvages du Pays Huo Yao étaient devenues leurs cibles privilégiées.
 
 Wang Lin semblait avoir oublié la guerre au Pays Huo Yao. Il passa ces dix ans à cultiver dans sa tour, gravant son empreinte sur le démon dispersé. Il se préparait! Il se préparait à devenir encore plus puissant avant l'expiration du délai de cent ans, car c'était la seule façon d'honorer l'accord passé avec l'Ancien Démon.
 
@@ -80,7 +80,7 @@ Cette culture incessante permit au stade initial Ascendant de Wang Lin de deveni
 
 « Utiliser le massacre pour nourrir l'énergie de la boucherie... J'aimerais voir combien de parcelles seront créées une fois cette guerre achevée! » À l'intérieur de la tour, Wang Lin ouvrit les yeux. Son regard brilla comme un éclair alors qu'une force puissante se propageait depuis la tour.
 
-Une zone vide d'un rayon de cinq kilomètres entourait la tour. Au-delà, s'étendait une multitude de bâtiments. De loin, ces constructions semblaient s'étirer sur des centaines de kilomètres! C'était le nouveau Tribu de l'Affinement de l'Âme. Chaque mois, les membres revenaient avec des prisonniers issus du Pays Huo Yao. Chaque mois, le clan grandissait!
+Une zone vide d'un rayon de cinq kilomètres entourait la tour. Au-delà, s'étendait une multitude de bâtiments. De loin, ces constructions semblaient s'étirer sur des centaines de kilomètres! C'était le nouveau Tribu Lian Hun. Chaque mois, les membres revenaient avec des prisonniers issus du Pays Huo Yao. Chaque mois, le clan grandissait!
 
 Wang Lin détourna son regard. Il frappa son sac de rangement et la sphère de restriction scellant Yao Xixue s'envola. Il serra le poing droit et la sphère vola en éclats. La silhouette de Yao Xixue apparut alors dans la tour. L'expression de Wang Lin était indifférente lorsqu'il demanda lentement: « As-tu pris ta décision? »
 

@@ -82,7 +82,7 @@ Sa voix résonna comme le tonnerre à travers toute la Secte Po Tian. Cependant,
 
 Tout comme le brouillard dans la Mer Yun, combien de personnes pouvaient réellement percer les brumes?
 
-Tout ce que Li Qianmei avait accompli, qu'il s'agisse de quitter le champ de bataille de la Secte Démon ou de rompre ses liens avec la Secte Po Tian, étaient des choses dont Wang Lin ignorait tout. À cet instant, Li Qianmei était comme une femme sans foyer, volant vers la région de rang 5 dans un état second.
+Tout ce que Li Qianmei avait accompli, qu'il s'agisse de quitter le champ de bataille de la Secte Yao ou de rompre ses liens avec la Secte Po Tian, étaient des choses dont Wang Lin ignorait tout. À cet instant, Li Qianmei était comme une femme sans foyer, volant vers la région de rang 5 dans un état second.
 
 Elle était déjà une femme solitaire, orpheline depuis l'enfance. À cause de ses cheveux bleus, elle n'avait pas connu d'enfance heureuse. C'était grâce à sa force et sa sérénité qu'elle en était arrivée là... Cependant, maintenant qu'elle avait perdu son foyer, c'était comme tomber dans l'abîme. La solitude de son enfance la submergea, la rendant plus morne et fragile. C'était comme si elle allait être emportée par le vent vers un lieu où personne ne pourrait la trouver... Là où elle attendrait silencieusement sa mort.
 

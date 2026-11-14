@@ -12,7 +12,7 @@ Personne d'autre au sein de l'Épreuve Humaine ne remarqua ce phénomène; pour 
 
 Wang Lin détourna son regard du ciel et s'assit au sommet de la montagne.
 
-Allumer le feu karmique, créer un brasier à partir d'un seul fil d'obsession. Non pas pour consumer ce monde, mais pour brûler sa propre âme. Utiliser cette méthode périlleuse au moment même où l'âme est sur le point d'être détruite afin de trouver un chemin vers la survie et engendrer le feu karmique. Cela donnerait à Suzaku une chance de s'éveiller pour la quatrième fois, permettant de passer du royaume du Feu Réel à celui du Feu Éthéré, un exploit extrêmement rare parmi les membres du Clan Zhu Que!
+Allumer le feu karmique, créer un brasier à partir d'un seul fil d'obsession. Non pas pour consumer ce monde, mais pour brûler sa propre âme. Utiliser cette méthode périlleuse au moment même où l'âme est sur le point d'être détruite afin de trouver un chemin vers la survie et engendrer le feu karmique. Cela donnerait à Suzaku une chance de s'éveiller pour la quatrième fois, permettant de passer du royaume du Feu Réel à celui du Feu Éthéré, un exploit extrêmement rare parmi les membres du Clan Suzaku!
 
 Le Feu Éthéré, source de tous les feux du monde. Qu'il s'agisse du feu de la jalousie, de la colère, de la folie ou d'autres émotions, tout pouvait être utilisé par ceux qui avaient atteint le royaume du Feu Éthéré!
 

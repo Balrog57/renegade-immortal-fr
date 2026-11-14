@@ -94,11 +94,11 @@ Wang Lin atterrit et fit un geste de la main gauche. Sun Ruonan fut projetée ve
 
 La bête semblait ravie. Elle poussa un rugissement avant de se transformer en une âme que Wang Lin rangea dans son étendard de l'âme.
 
-« Frère Sun, la restriction a été levée et votre petite sœur a été sauvée. Quant à vos oncles martiaux, vous devrez les retrouver par vous-même. Quant à celui qui se trouve dans ma Tribu de l'Affinement de l'Âme, je le libérerai. Adieu! » Sur ces mots, Wang Lin saisit le petit vieil homme qui prétendait venir du Royaume Céleste et disparut par téléportation.
+« Frère Sun, la restriction a été levée et votre petite sœur a été sauvée. Quant à vos oncles martiaux, vous devrez les retrouver par vous-même. Quant à celui qui se trouve dans ma Tribu Lian Hun, je le libérerai. Adieu! » Sur ces mots, Wang Lin saisit le petit vieil homme qui prétendait venir du Royaume Céleste et disparut par téléportation.
 
 Il n'avait guère de patience pour les querelles entre ce frère et cette sœur.
 
-La silhouette de Wang Lin apparut à l'intérieur de la tour de la Tribu de l'Affinement de l'Âme. Il jeta négligemment le petit vieil homme au sol et s'assit en position du lotus. Ses yeux brillaient alors qu'il touchait son sac de rangement; trois rayons d'énergie d'épée en jaillirent. Les pointes des épées dégageaient des auras froides et puissantes, qu'il pressa contre la peau du vieil homme.
+La silhouette de Wang Lin apparut à l'intérieur de la tour de la Tribu Lian Hun. Il jeta négligemment le petit vieil homme au sol et s'assit en position du lotus. Ses yeux brillaient alors qu'il touchait son sac de rangement; trois rayons d'énergie d'épée en jaillirent. Les pointes des épées dégageaient des auras froides et puissantes, qu'il pressa contre la peau du vieil homme.
 
 Ces trois épées étaient celles de Zi Shu, de Mo Yang et de Hai Zhu. Après avoir été raffinées par Wang Lin, l'énergie d'épée des trois armes fusionna. La maîtrise combinée de ces trois lames acheva l'activation de la formation!
 

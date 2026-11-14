@@ -58,7 +58,7 @@ La première concubine du Souverain Céleste, et également la sœur cadette de 
 
 ***
 
-Dans la Mer Yun se trouvait une gigantesque fissure spatiale au-delà de l'ancienne Secte Démon. Peu de gens savaient où menait cette brèche, mais de nombreuses bêtes féroces en surgissaient fréquemment.
+Dans la Mer Yun se trouvait une gigantesque fissure spatiale au-delà de l'ancienne Secte Yao. Peu de gens savaient où menait cette brèche, mais de nombreuses bêtes féroces en surgissaient fréquemment.
 
 À cet instant, au plus profond de la fissure, dans cet espace sombre et étrange, une bête gigantesque de plusieurs dizaines de milliers de pieds de long se trouvait là. Elle ressemblait à un lion, mais possédait une corne unique sur le front.
 

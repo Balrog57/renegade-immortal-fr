@@ -6,15 +6,15 @@ bookTitle: Clean Sweep
 en: Chapter 236 - Killing One Thousand
 slug: un-millier-de-morts
 ---
-La Vallée de Wu Feng était l'un des membres de l'alliance de la Voie Démoniaque de Zhao. C'était une secte de grande renommée il y a quatre cents ans, mais elle avait décliné au cours des quatre siècles passés.
+La Vallée Wu Feng était l'un des membres de l'alliance de la Voie Démoniaque de Zhao. C'était une secte de grande renommée il y a quatre cents ans, mais elle avait décliné au cours des quatre siècles passés.
 
 Ses cultivateurs de l'Âme Naissante n'avaient pas réussi à progresser. Leur longévité s'était épuisée et aucun d'entre eux n'avait pu échapper au cycle de la vie et de la mort.
 
-Cela avait entraîné le déclin progressif de cette autrefois grande secte; parallèlement à l'ascension fulgurante de la Secte Xuan Dao, la Vallée de Wu Feng était tombée au rang de secte de second ordre.
+Cela avait entraîné le déclin progressif de cette autrefois grande secte; parallèlement à l'ascension fulgurante de la Secte Xuan Dao, la Vallée Wu Feng était tombée au rang de secte de second ordre.
 
-Le déclin de la Vallée de Wu Feng avait attisé l'ambition de Teng Huayuan. Au fil des ans, il avait lentement infiltré de plus en plus de membres de la famille Teng au sein de la Vallée de Wu Feng. Les ancêtres de la vallée en étaient conscients, mais comme Teng Huayuan était extrêmement puissant, ils restaient impuissants.
+Le déclin de la Vallée Wu Feng avait attisé l'ambition de Teng Huayuan. Au fil des ans, il avait lentement infiltré de plus en plus de membres de la famille Teng au sein de la Vallée Wu Feng. Les ancêtres de la vallée en étaient conscients, mais comme Teng Huayuan était extrêmement puissant, ils restaient impuissants.
 
-Il faut préciser que Teng Huayuan était un Ancien invité de la Vallée de Wu Feng. De la sorte, les autres sectes ne pouvaient rien objecter, car cela était considéré comme un problème interne à la Vallée de Wu Feng.
+Il faut préciser que Teng Huayuan était un Ancien invité de la Vallée Wu Feng. De la sorte, les autres sectes ne pouvaient rien objecter, car cela était considéré comme un problème interne à la Vallée Wu Feng.
 
 À ce jour, la famille Teng comptait un total de 93 membres au sein de la vallée, dont la grande majorité jouissait déjà d'une certaine position au sein de la secte. Trois d'entre eux avaient même atteint des rangs élevés. Le plus éminent était un membre de la cinquième génération, Teng Gao, qui était déjà devenu un candidat pour le titre de chef de secte.
 
@@ -22,21 +22,21 @@ Les deux autres cultivateurs de l'Âme Naissante étaient totalement impuissants
 
 De plus, chaque année, la famille Teng leur offrait des cadeaux tels que des matériaux et des herbes spirituelles. Par conséquent, ils avaient encore plus de raisons de fermer les yeux; après tout, ils ne pouvaient espérer l'emporter contre Teng Huayuan.
 
-On pouvait dire que la Vallée de Wu Feng était devenue une secte privée appartenant à la famille Teng.
+On pouvait dire que la Vallée Wu Feng était devenue une secte privée appartenant à la famille Teng.
 
-À ses débuts, certains s'y opposaient. Les membres de la Vallée de Wu Feng s'étaient opposés et avaient fait part de leurs inquiétudes, mais après des centaines d'années, plus personne ne manifestait d'opposition, et même les disciples de la vallée acceptaient désormais la prise de contrôle de la famille Teng.
+À ses débuts, certains s'y opposaient. Les membres de la Vallée Wu Feng s'étaient opposés et avaient fait part de leurs inquiétudes, mais après des centaines d'années, plus personne ne manifestait d'opposition, et même les disciples de la vallée acceptaient désormais la prise de contrôle de la famille Teng.
 
-Après tout, des siècles peuvent tout changer, et la plupart des disciples actuels de la Vallée de Wu Feng appartenaient à une nouvelle génération acceptée au cours de la dernière centaine d'années.
+Après tout, des siècles peuvent tout changer, et la plupart des disciples actuels de la Vallée Wu Feng appartenaient à une nouvelle génération acceptée au cours de la dernière centaine d'années.
 
-Wang Lin se tenait au sommet de la bête moustique, son Sens Divin verrouillé sur les habitants de la Vallée de Wu Feng. Il avançait à toute vitesse, traînant derrière lui un tendon de dragon auquel étaient liés sept corps déjà raidis par les vents violents.
+Wang Lin se tenait au sommet de la bête moustique, son Sens Divin verrouillé sur les habitants de la Vallée Wu Feng. Il avançait à toute vitesse, traînant derrière lui un tendon de dragon auquel étaient liés sept corps déjà raidis par les vents violents.
 
-Wang Lin arriva aux abords de la Vallée de Wu Feng, imprégné d'une intention meurtrière monstrueuse.
+Wang Lin arriva aux abords de la Vallée Wu Feng, imprégné d'une intention meurtrière monstrueuse.
 
-Bien que la Vallée de Wu Feng porte le nom de "vallée", elle n'en était pas réellement une. La montagne où elle se trouvait, assez célèbre dans le pays de Zhao, s'appelait le Mont Wu Xian. Elle ressemblait à une main gigantesque surgie du sol, ce qui lui donnait sa forme étrange.
+Bien que la Vallée Wu Feng porte le nom de "vallée", elle n'en était pas réellement une. La montagne où elle se trouvait, assez célèbre dans le pays de Zhao, s'appelait le Mont Wu Xian. Elle ressemblait à une main gigantesque surgie du sol, ce qui lui donnait sa forme étrange.
 
-La Vallée de Wu Feng était établie sur cette montagne. La secte comptait cinq pics : outre le pic principal au centre, les quatre autres abritaient ses branches.
+La Vallée Wu Feng était établie sur cette montagne. La secte comptait cinq pics : outre le pic principal au centre, les quatre autres abritaient ses branches.
 
-Il y a bien longtemps, à l'apogée de la Vallée de Wu Feng, les cinq montagnes étaient toutes enveloppées d'une lumière spirituelle de pouvoir magique. Des milliers de cultivateurs y résidaient et la vallée régnait en maître sur la région.
+Il y a bien longtemps, à l'apogée de la Vallée Wu Feng, les cinq montagnes étaient toutes enveloppées d'une lumière spirituelle de pouvoir magique. Des milliers de cultivateurs y résidaient et la vallée régnait en maître sur la région.
 
 Mais aujourd'hui, le Mont Wu Xian était déchu et désert : plus aucune lumière spirituelle ne l'enveloppait, et la secte ne comptait plus même mille disciples, dont la plupart étaient des novices n'ayant pas encore commencé la Condensation de Qi ou n'ayant atteint que le premier ou deuxième niveau.
 
@@ -56,7 +56,7 @@ Cette colère venait du spectacle des sept corps liés au tendon de dragon, derr
 
 Wang Lin ne marqua aucune pause. Presque à l'instant où la grande formation protectrice de la montagne s'ouvrait, il sortit un ancien fourreau d'épée. Ses yeux brillaient d'une lueur impitoyable.
 
-Puisque la Vallée de Wu Feng utilisait le Qi de l'épée pour combattre, alors montrons-leur ce qu'est le véritable Qi de l'épée.
+Puisque la Vallée Wu Feng utilisait le Qi de l'épée pour combattre, alors montrons-leur ce qu'est le véritable Qi de l'épée.
 
 Wang Lin saisit une épée volante de sa main droite. Il possédait actuellement de nombreux trésors magiques de basse qualité; après tout, quatre cents ans d'accumulation de richesse ne constituaient pas une mince affaire.
 
@@ -70,13 +70,13 @@ Aussitôt, un Qi d'épée épais, mêlé d'une dense intention meurtrière, s'é
 
 Puis, d'un coup de fourreau de Wang Lin, le dragon divin antique formé par ce Qi d'épée épais se rua en rugissant, gueule féroce grande ouverte, vers le Mont Wu Xian en contrebas.
 
-Le sol trembla violemment et la poussière se souleva. La grande formation protectrice de la Vallée de Wu Feng se brisa aussitôt et, dans un grondement, deux pics du vaste Mont Wu Xian s'effondrèrent.
+Le sol trembla violemment et la poussière se souleva. La grande formation protectrice de la Vallée Wu Feng se brisa aussitôt et, dans un grondement, deux pics du vaste Mont Wu Xian s'effondrèrent.
 
 Quant aux membres de la famille Teng qui contrôlaient la formation, ils ne purent supporter une force aussi colossale et leurs corps explosèrent sur-le-champ ; mais d'un appel de la main droite de Wang Lin, leurs têtes, intactes, furent prises par le tendon de dragon et flottèrent derrière lui.
 
-Au même instant, Wang Lin sauta de la bête moustique et fondit sur la Vallée de Wu Feng, tuant un à un, selon le verrouillage de son Sens Divin, ceux qu'il avait repérés.
+Au même instant, Wang Lin sauta de la bête moustique et fondit sur la Vallée Wu Feng, tuant un à un, selon le verrouillage de son Sens Divin, ceux qu'il avait repérés.
 
-« Aujourd'hui, j'ai un différend privé avec la famille Teng. Quiconque me barrera la route sera tué ! » Une voix froide et impitoyable se répandit avec fracas dans toute la Vallée de Wu Feng, dans tout le Mont Wu Xian. À cet instant, les mortels qui l'entendirent sentirent monter en eux un froid intense.
+« Aujourd'hui, j'ai un différend privé avec la famille Teng. Quiconque me barrera la route sera tué ! » Une voix froide et impitoyable se répandit avec fracas dans toute la Vallée Wu Feng, dans tout le Mont Wu Xian. À cet instant, les mortels qui l'entendirent sentirent monter en eux un froid intense.
 
 Près d'une centaine de cultivateurs jaillirent soudain de tous les recoins du mont, chacun chevauchant sa lumière d'épée à sa vitesse maximale, filant dans toutes les directions, fuyant en panique.
 
@@ -132,11 +132,11 @@ Cruel, sanguinaire, peut-être ; mais en songeant au visage bienveillant de ses 
 
 Juste ou démoniaque, peu importait ; dès que son corps physique avait été réduit en miettes, il avait tout vu clairement.
 
-Dans un rayon de 500 kilomètres autour de la Vallée de Wu Feng, un enfer d'asuras s'était formé : les membres de la famille Teng mouraient les uns après les autres, leurs âmes recueillies dans la bannière d'âmes, leurs cadavres liés au tendon de dragon.
+Dans un rayon de 500 kilomètres autour de la Vallée Wu Feng, un enfer d'asuras s'était formé : les membres de la famille Teng mouraient les uns après les autres, leurs âmes recueillies dans la bannière d'âmes, leurs cadavres liés au tendon de dragon.
 
 Le sol se teintait peu à peu de rouge. Ce rouge n'était pas très profond, car il n'y avait que cent morts, pas assez pour un fleuve de sang, mais il s'en dégageait une aura à rendre fou.
 
-Un bâton d'encens plus tard, Wang Lin sortit de ce périmètre de 500 kilomètres, une tête à la main. Cette tête appartenait au membre le plus haut placé de la famille Teng dans la Vallée de Wu Feng: Teng Gao.
+Un bâton d'encens plus tard, Wang Lin sortit de ce périmètre de 500 kilomètres, une tête à la main. Cette tête appartenait au membre le plus haut placé de la famille Teng dans la Vallée Wu Feng: Teng Gao.
 
 Les yeux de Teng Gao étaient pétrifiés par la peur; cependant, parce qu'il portait le nom de Teng, il ne put rien y faire.
 
@@ -144,7 +144,7 @@ Derrière Wang Lin, l'extrémité du gros tendon de dragon retenait désormais c
 
 Ces corps et ces têtes se déployaient comme un éventail tandis que Wang Lin s'envolait. Quiconque aurait vu cette scène en aurait été terrifié.
 
-Une fois le massacre terminé, deux vieillards sortirent de la Vallée de Wu Feng. Il s'agissait des cultivateurs de l'Âme Naissante de la vallée. Loin d'être en colère, une excitation brûlante brillait dans leurs yeux alors que l'un d'eux s'exclamait: « La famille Teng est finie! »
+Une fois le massacre terminé, deux vieillards sortirent de la Vallée Wu Feng. Il s'agissait des cultivateurs de l'Âme Naissante de la vallée. Loin d'être en colère, une excitation brûlante brillait dans leurs yeux alors que l'un d'eux s'exclamait: « La famille Teng est finie! »
 
 L'autre hocha la tête en riant. « C'est vrai. Le niveau de culture de cet individu est prodigieux. Il doit être issu d'une secte démoniaque d'un pays de culture de rang supérieur. À en juger par ses actes, il compte anéantir la famille Teng. Je me demande si, au cas où Pu Nanzi interviendrait, cet homme pourrait lui résister. S'il n'y parvient pas, cela ne nous affectera pas non plus. »
 
@@ -166,7 +166,7 @@ Outre ces trois individus, des dizaines d'autres se tenaient autour du hall, la 
 
 Le jeune homme agenouillé possédait un visage aussi blanc et lisse que le jade. Il saisit le jade et le plaça contre son front. Son expression resta impassible lorsqu'il commença d'une voix lente: « Il y a quatre jours, cet homme est apparu à la Secte Tian Dao. Il a tué sept membres de notre famille Teng avant de repartir. »
 
-« Le même jour, il est apparu à la Vallée de Wu Feng et a utilisé un trésor magique, un fourreau d'épée, pour briser la grande formation protectrice de la vallée. Il a détruit deux pics, instauré une zone de restriction de 500 kilomètres et exterminé les 93 membres de notre famille Teng. »
+« Le même jour, il est apparu à la Vallée Wu Feng et a utilisé un trésor magique, un fourreau d'épée, pour briser la grande formation protectrice de la vallée. Il a détruit deux pics, instauré une zone de restriction de 500 kilomètres et exterminé les 93 membres de notre famille Teng. »
 
 « Il y a trois jours, il s'est présenté au domaine extérieur de la famille Teng. Il a tué une branche collatérale de notre famille : les 174 membres sont tous morts. »
 

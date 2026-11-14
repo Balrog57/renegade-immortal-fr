@@ -28,7 +28,7 @@ Après avoir médité un instant, le premier Suzaku laissa échapper un soupir.
 
 Alors que le premier Suzaku parlait, le feu aux neuf couleurs entre ses sourcils brilla. Il se condensa en une plume de neuf couleurs qui vola lentement vers Wang Lin.
 
-« Le traître possède un trésor de mon Clan Zhu Que, mais il ignore comment le contrôler. Je vais t'enseigner la méthode, et si tu as la puissance nécessaire pour le reprendre, je te ferai don de ce trésor! »
+« Le traître possède un trésor de mon Clan Suzaku, mais il ignore comment le contrôler. Je vais t'enseigner la méthode, et si tu as la puissance nécessaire pour le reprendre, je te ferai don de ce trésor! »
 
 Au moment où Wang Lin saisit la plume aux neuf couleurs, une incantation complexe fut gravée dans son âme.
 

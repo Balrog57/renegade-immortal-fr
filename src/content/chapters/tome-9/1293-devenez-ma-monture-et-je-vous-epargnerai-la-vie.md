@@ -6,15 +6,15 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1293 - Become My Mount and Ill Spare Your Life!"
 slug: devenez-ma-monture-et-je-vous-epargnerai-la-vie
 ---
-La Secte Démon possédait six planètes de culture. Ces six planètes formaient un cercle parfait; une configuration simple, mais qui dégageait une aura terrifiante.
+La Secte Yao possédait six planètes de culture. Ces six planètes formaient un cercle parfait; une configuration simple, mais qui dégageait une aura terrifiante.
 
 C'était une formation!
 
-Une immense formation composée de six planètes de culture. Cette structure était assez puissante pour anéantir le monde. Elle avait été placée par le Maître de la Secte Démon comme ultime ligne de défense contre les bêtes féroces!
+Une immense formation composée de six planètes de culture. Cette structure était assez puissante pour anéantir le monde. Elle avait été placée par le Maître de la Secte Yao comme ultime ligne de défense contre les bêtes féroces!
 
-La Secte Démon était divisée en six branches distinctes, chacune stationnée sur une planète différente. Plusieurs Anciens géraient chaque division, mais ils interagissaient rarement entre eux; ils travaillaient souvent de manière isolée!
+La Secte Yao était divisée en six branches distinctes, chacune stationnée sur une planète différente. Plusieurs Anciens géraient chaque division, mais ils interagissaient rarement entre eux; ils travaillaient souvent de manière isolée!
 
-Ce phénomène avait été instauré par le premier et unique Maître de la Secte Démon, et perdurait encore aujourd'hui.
+Ce phénomène avait été instauré par le premier et unique Maître de la Secte Yao, et perdurait encore aujourd'hui.
 
 Six stèles de pierre identiques, hautes comme le ciel, trônaient, une sur chacune des six planètes! Elles représentaient un homme d'âge moyen aux vêtements flottants, porté par un nuage sous ses pieds. Dans le ciel, neuf yeux semblaient contempler la terre.
 
@@ -22,21 +22,21 @@ Cet homme d'âge moyen regardait vers les cieux, comme s'il scrutait ces neuf ye
 
 Derrière lui se dressait un arbre colossal, si immense qu'il semblait que même les cieux ne pourraient entraver sa croissance.
 
-Chaque membre de la Secte Démon savait que cet homme d'âge moyen était le premier, et le dernier, Maître de la Secte Démon! Et cet arbre géant était le trésor vital du Maître de la Secte!
+Chaque membre de la Secte Yao savait que cet homme d'âge moyen était le premier, et le dernier, Maître de la Secte Yao! Et cet arbre géant était le trésor vital du Maître de la Secte!
 
-La rumeur prétendait que le Maître de la Secte Démon était un être d'une puissance capable de faire trembler les cieux. On disait que la faille spatiale était plus de cent fois plus vaste autrefois et que des bêtes féroces bien plus nombreuses en surgissaient: des bêtes royales, des bêtes impériales, et même des créatures légendaires capables de prendre forme humaine. Cependant, elles avaient toutes été annihilées par le Maître de la Secte Démon, et la faille spatiale avait été presque totalement scellée.
+La rumeur prétendait que le Maître de la Secte Yao était un être d'une puissance capable de faire trembler les cieux. On disait que la faille spatiale était plus de cent fois plus vaste autrefois et que des bêtes féroces bien plus nombreuses en surgissaient: des bêtes royales, des bêtes impériales, et même des créatures légendaires capables de prendre forme humaine. Cependant, elles avaient toutes été annihilées par le Maître de la Secte Yao, et la faille spatiale avait été presque totalement scellée.
 
-Pourtant, au moment où il achevait le sceau, un accident survint. Il semblait que quelqu'un, à l'intérieur, ait utilisé un sortilège inimaginable pour empêcher le Maître de la Secte Démon de parachever son œuvre.
+Pourtant, au moment où il achevait le sceau, un accident survint. Il semblait que quelqu'un, à l'intérieur, ait utilisé un sortilège inimaginable pour empêcher le Maître de la Secte Yao de parachever son œuvre.
 
 Malgré cela, le sceau avait porté ses fruits. La faille spatiale s'était considérablement réduite et, grâce à l'effet du sceau, les bêtes trop puissantes ne pouvaient plus en sortir en grand nombre.
 
-Quant aux neuf yeux dans le ciel, les simples disciples de la Secte Démon en connaissaient l'existence, mais seuls les Anciens savaient que ces neuf yeux représentaient le Royaume Céleste Ancien!
+Quant aux neuf yeux dans le ciel, les simples disciples de la Secte Yao en connaissaient l'existence, mais seuls les Anciens savaient que ces neuf yeux représentaient le Royaume Céleste Ancien!
 
-Parmi les Anciens, des rumeurs circulaient selon lesquelles la séparation de la Secte Démon et de la Secte Divine était due à un ordre du premier Maître de la lignée. Ce dernier avait ordonné qu'un groupe de la Secte Divine soit stationné ici pour des générations afin de garder ce lieu, interdisant à la moindre bête de sortir vivante de la faille spatiale!
+Parmi les Anciens, des rumeurs circulaient selon lesquelles la séparation de la Secte Yao et de la Secte Divine était due à un ordre du premier Maître de la lignée. Ce dernier avait ordonné qu'un groupe de la Secte Divine soit stationné ici pour des générations afin de garder ce lieu, interdisant à la moindre bête de sortir vivante de la faille spatiale!
 
-Certains prétendaient même que le Maître de la Secte Divine était la même personne que le Maître de la Secte Démon... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. La Secte Divine serait actuellement dirigée par l'un de ses esclaves agissant en son nom.
+Certains prétendaient même que le Maître de la Secte Divine était la même personne que le Maître de la Secte Yao... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. La Secte Divine serait actuellement dirigée par l'un de ses esclaves agissant en son nom.
 
-C'était pour cette raison que la Secte Démon n'obéissait pas aux ordres de la Secte Divine et possédait les moyens nécessaires pour lui faire face!
+C'était pour cette raison que la Secte Yao n'obéissait pas aux ordres de la Secte Divine et possédait les moyens nécessaires pour lui faire face!
 
 Bien sûr, tout cela n'était que des rumeurs. La véritable histoire s'était perdue dans le fleuve du temps, et très peu en connaissaient la réalité.
 
@@ -46,13 +46,13 @@ En chemin, Wang Lin avait déployé une vitesse presque insensée, il n'avait mi
 
 « Vieille Dame Blanche! C'est elle! »
 
-« La Vieille Dame Blanche est partie il y a une demi-lune sur ordre de la Secte Démon pour accomplir une mission pour Li Qianmei. Qui est cette personne devant elle? »
+« La Vieille Dame Blanche est partie il y a une demi-lune sur ordre de la Secte Yao pour accomplir une mission pour Li Qianmei. Qui est cette personne devant elle? »
 
 « Je ne parviens pas à percevoir le niveau de culture de cet individu, mais je tremble devant lui. Il est trop puissant! J'ignore de quelle secte il est l'Ancien, mais pourquoi est-il ici? »
 
 « Cet homme est trop puissant et trop étrange; même les bêtes féroces se sont retirées de terreur. Même ces crânes noirs ont commencé à paniquer en le sentant approcher! » Le vieil homme parmi les six génies regardait Wang Lin avec effroi.
 
-« Serait-il la raison pour laquelle Li Qianmei est punie par la Secte Démon et envoyée dans les profondeurs de la Faille Spatiale? » La femme indifférente observait Wang Lin, mais son esprit vacillait. Son regard et son Sens Divin se dissipèrent silencieusement dès qu'ils approchèrent de lui.
+« Serait-il la raison pour laquelle Li Qianmei est punie par la Secte Yao et envoyée dans les profondeurs de la Faille Spatiale? » La femme indifférente observait Wang Lin, mais son esprit vacillait. Son regard et son Sens Divin se dissipèrent silencieusement dès qu'ils approchèrent de lui.
 
 Les trois personnes entourées par le brouillard bleu devinrent méfiantes et fixèrent Wang Lin, leurs expressions cachées par la brume changeant radicalement.
 
@@ -80,7 +80,7 @@ Il avait terrassé toutes les bêtes présentes avant d'aspirer tous les crânes
 
 Parmi les milliers de cultivateurs, les six génies furent frappés de stupeur, leurs pupilles se rétractant de choc.
 
-Les trois membres de la Secte Démon, également ébranlés, commencèrent à discuter de la force de Wang Lin.
+Les trois membres de la Secte Yao, également ébranlés, commencèrent à discuter de la force de Wang Lin.
 
 « Il est au moins au premier niveau du Fléau Céleste, mais pourquoi n'a-t-il pas le halo des Hommes Célestes? »
 
@@ -90,7 +90,7 @@ Les trois membres de la Secte Démon, également ébranlés, commencèrent à di
 
 « Se pourrait-il que cet homme ait un lien avec le jade de l'âme de vie de Li Qianmei? »
 
-Les trois membres de la Secte Démon échangeaient des messages silencieux tout en restant sur leurs gardes.
+Les trois membres de la Secte Yao échangeaient des messages silencieux tout en restant sur leurs gardes.
 
 Seule la vieille femme en blanc restait de marbre. Elle avait observé chaque geste de Wang Lin et savait que même six Grands Anciens de la Secte Éternelle auraient eu trop peur pour l'arrêter; deux d'entre eux avaient même perdu leur corps physique. Pour elle, le fait qu'il ne tue que quelques bêtes féroces n'était rien de notable.
 
@@ -104,7 +104,7 @@ Wang Lin détourna les yeux. Il n'avait pas le temps d'attendre patiemment l'ouv
 
 Il allait arracher de force cette ouverture qui ne demandait qu'à s'élargir lentement!
 
-« Daoïste, arrêtez! Un Dragon des Neuf Abîmes se trouve à l'intérieur, et il est extrêmement puissant. S'il sort ainsi, le carnage sera immense. J'espère que vous attendrez que nous ayons déployé une formation avant de l'ouvrir! » s'exclama l'un des membres de la Secte Démon depuis le brouillard bleu.
+« Daoïste, arrêtez! Un Dragon des Neuf Abîmes se trouve à l'intérieur, et il est extrêmement puissant. S'il sort ainsi, le carnage sera immense. J'espère que vous attendrez que nous ayons déployé une formation avant de l'ouvrir! » s'exclama l'un des membres de la Secte Yao depuis le brouillard bleu.
 
 Les trois se précipitèrent vers la faille!
 

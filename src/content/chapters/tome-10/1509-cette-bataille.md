@@ -60,7 +60,7 @@ Situ Nan fixa Qing Lin, mais il ne fut pas ébranlé par ses paroles et ricana: 
 
 « Wang Lin est le disciple de cet Empereur Céleste. Qui ose lui faire du mal?! » Ce message de Sens Divin jaillit du Royaume Céleste de la Pluie et se propagea à travers toute l'Alliance, s'étendant sans fin.
 
-Dans la Mer Yun, dans la vallée où se trouvait l'homme en rouge, Maître Lu Fu était également présent. Il se tenait respectueusement aux côtés du maître de la Secte Démon et des siens.
+Dans la Mer Yun, dans la vallée où se trouvait l'homme en rouge, Maître Lu Fu était également présent. Il se tenait respectueusement aux côtés du maître de la Secte Yao et des siens.
 
 L'homme en rouge écoutait attentivement Maître Lu Fu. Bien qu'il restât calme, une lueur de froideur brillait dans ses yeux.
 
@@ -72,7 +72,7 @@ Cependant, à cet instant précis, tout le monde dans la vallée entendit le mes
 
 « Wang Lin ne deviendra jamais le pion du Souverain! »
 
-« À l'époque, le Seigneur du Royaume Scellé avait personnellement déclaré que Wang Lin devait mener le Royaume Intérieur pour résister à l'invasion! » Les expressions de Maître Lu Fu et du maître de la Secte Démon changèrent brusquement.
+« À l'époque, le Seigneur du Royaume Scellé avait personnellement déclaré que Wang Lin devait mener le Royaume Intérieur pour résister à l'invasion! » Les expressions de Maître Lu Fu et du maître de la Secte Yao changèrent brusquement.
 
 La froideur dans les yeux de l'homme en rouge s'intensifia et il esquissa un sourire.
 

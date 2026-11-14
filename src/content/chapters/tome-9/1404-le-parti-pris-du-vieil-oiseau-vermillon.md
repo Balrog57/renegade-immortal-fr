@@ -72,9 +72,9 @@ Le visage de Maître Simo, déjà tuméfié, gonfla davantage et il cracha du sa
 
 Le Suzaku osait pêcher un dragon et possédait un niveau de culture terrifiant. Bien que Maître Simo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si c'avait été quelqu'un d'autre, même doté de la culture de Suzaku, il aurait hésité, car le Conseil Souverain soutenait Maître Simo.
 
-Cependant, Suzaku n'en avait cure. Il n'avait qu'une seule pensée: personne ne pouvait provoquer le Clan Zhu Que! Même si ses adversaires possédaient une culture supérieure à la sienne, il s'en moquait. L'Ancêtre de la première génération s'en chargerait.
+Cependant, Suzaku n'en avait cure. Il n'avait qu'une seule pensée: personne ne pouvait provoquer le Clan Suzaku! Même si ses adversaires possédaient une culture supérieure à la sienne, il s'en moquait. L'Ancêtre de la première génération s'en chargerait.
 
-Le parti pris du Clan Zhu Que se transmettait de génération en génération.
+Le parti pris du Clan Suzaku se transmettait de génération en génération.
 
 Wang Lin esquissa un sourire en observant la scène. Il voyait en ce vieil homme l'ombre de Qing Shui et du cinquième Empereur Divin de Suzaku.
 

@@ -6,15 +6,15 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1301 - Divine Retribution Arrives
 slug: la-retribution-divine-arrive
 ---
-Les milliers de cultivateurs étaient toujours assis à l'extérieur de la faille spatiale, près de la Secte Démon. Ils cultivaient pour récupérer leur énergie originelle, ouvrant occasionnellement les yeux pour scruter la sombre crevasse spatiale.
+Les milliers de cultivateurs étaient toujours assis à l'extérieur de la faille spatiale, près de la Secte Yao. Ils cultivaient pour récupérer leur énergie originelle, ouvrant occasionnellement les yeux pour scruter la sombre crevasse spatiale.
 
 Ils étaient habitués à ce mode de vie et avaient passé de nombreuses années ainsi.
 
-Les trois membres de la Secte Démon, enveloppés de brume, étaient également assis au loin et jetaient parfois des regards vers la faille.
+Les trois membres de la Secte Yao, enveloppés de brume, étaient également assis au loin et jetaient parfois des regards vers la faille.
 
 Cela faisait presque un mois que Wang Lin était entré dans la faille spatiale. Pour des cultivateurs, un mois n'était qu'un instant; souvent, une seule session de culture pouvait durer plusieurs mois.
 
-Cependant, les cultivateurs environnants et les trois membres de la Secte Démon ne parvenaient pas à se concentrer sur leur culture. La faille spatiale, pourtant si familière, était devenue extrêmement étrange.
+Cependant, les cultivateurs environnants et les trois membres de la Secte Yao ne parvenaient pas à se concentrer sur leur culture. La faille spatiale, pourtant si familière, était devenue extrêmement étrange.
 
 Elle était plongée dans un silence terrifiant, comme un royaume de mort. Un tel phénomène était d'une rareté absolue au fil des éternités. Habituellement, des bêtes féroces rugissaient et surgissaient de l'intérieur, mais désormais, le silence régnait en maître.
 
@@ -36,13 +36,13 @@ Les paroles du vieil homme firent pâlir les visages des cultivateurs alentour. 
 
 « Cela doit être l'œuvre du cultivateur qui est entré pour sauver Li Qianmei il y a un mois. Sa culture est mystérieuse, et il a réussi à provoquer une telle calamité! Mais... c'est tout simplement trop incroyable. Peu importe sa puissance, il n'est qu'un seul homme; comment pourrait-il orchestrer un tel massacre? »
 
-« Même l'Ancien de la Secte Démon n'était pas de taille face à ce cultivateur; il en est même ressorti avec des blessures internes. Mais malgré sa force redoutable, je ne pense pas qu'il soit responsable de tout cela. Après tout, les bêtes féroces sont trop nombreuses, il ne peut pas tout gérer seul! »
+« Même l'Ancien de la Secte Yao n'était pas de taille face à ce cultivateur; il en est même ressorti avec des blessures internes. Mais malgré sa force redoutable, je ne pense pas qu'il soit responsable de tout cela. Après tout, les bêtes féroces sont trop nombreuses, il ne peut pas tout gérer seul! »
 
 « Il est probable qu'une nouvelle bête empereur ou une nouvelle bête humanoïde soit née. Les bêtes féroces se déchirent souvent entre elles, ou alors, il s'agit d'une mystérieuse et nouvelle bête empereur! »
 
 Un tumulte éclata parmi les cultivateurs après les propos du vieil homme. Ils fixèrent la faille spatiale, plus vigilants que jamais.
 
-Les trois membres de la Secte Démon affichaient également des visages graves. L'un d'eux sortit un jeton de jade pour rapporter l'information à la Secte, mais un changement colossal survint dans l'espace extérieur à la faille!
+Les trois membres de la Secte Yao affichaient également des visages graves. L'un d'eux sortit un jeton de jade pour rapporter l'information à la Secte, mais un changement colossal survint dans l'espace extérieur à la faille!
 
 Grâce à la nébuleuse éclatante qui illuminait l'obscurité, les cultivateurs pouvaient voir ce qui se passait. Cependant, tout sembla soudain s'assombrir alors qu'une pression colossale surgissait de toutes parts. Dès son apparition, des craquements sinistres retentirent.
 
@@ -72,7 +72,7 @@ Les milliers de cultivateurs, secoués et stupéfaits, contemplèrent les nuages
 
 Un cri de détresse monta de la foule. En entendant cela, les visages des cultivateurs environnants devinrent livides. Ils s'enfuirent comme des possédés pour sauver leur vie!
 
-« La Tribulation Céleste, c'est vraiment elle! » Les trois membres de la Secte Démon tremblaient, la peur lisible dans leurs yeux. Ils n'hésitèrent pas un instant à battre en retraite.
+« La Tribulation Céleste, c'est vraiment elle! » Les trois membres de la Secte Yao tremblaient, la peur lisible dans leurs yeux. Ils n'hésitèrent pas un instant à battre en retraite.
 
 Soudain, un rugissement de tonnerre retentit.
 
@@ -82,30 +82,30 @@ L'onde de choc se propagea instantanément, ébranlant toute la région de rang 
 
 C'était comme si l'apocalypse avait commencé dans la région de rang 9; le chaos était total!
 
-Au moment où les nuages apparurent et que le tonnerre gronda, tous les Anciens de la Secte Démon furent arrachés à leur culture. Leurs expressions changèrent radicalement et ils s'élancèrent hors de leurs planètes de culture respectives.
+Au moment où les nuages apparurent et que le tonnerre gronda, tous les Anciens de la Secte Yao furent arrachés à leur culture. Leurs expressions changèrent radicalement et ils s'élancèrent hors de leurs planètes de culture respectives.
 
-Lorsque les seize Anciens de la Secte Démon émergèrent, ils virent les nuages et leurs pupilles se rétractèrent de stupeur.
+Lorsque les seize Anciens de la Secte Yao émergèrent, ils virent les nuages et leurs pupilles se rétractèrent de stupeur.
 
 « Ceci... Quel genre de Tribulation Céleste est-ce là?! »
 
-Alors que les Anciens étaient sous le choc, une voix antique résonna depuis le cœur de la Secte Démon: « C'est la Rétribution Infinie! » Cette voix semblait extrêmement préoccupée par l'événement.
+Alors que les Anciens étaient sous le choc, une voix antique résonna depuis le cœur de la Secte Yao: « C'est la Rétribution Infinie! » Cette voix semblait extrêmement préoccupée par l'événement.
 
-En entendant cette voix, les seize Anciens se tournèrent respectueusement vers la Secte: « Salutations, Grand Ancien! » Un rayon de lumière jaillit de la Secte Démon et prit la forme d'un homme d'âge moyen vêtu d'une robe de daoïste. Bien qu'il paraisse jeune, il dégageait une aura ancestrale, comme s'il avait existé depuis des éternités.
+En entendant cette voix, les seize Anciens se tournèrent respectueusement vers la Secte: « Salutations, Grand Ancien! » Un rayon de lumière jaillit de la Secte Yao et prit la forme d'un homme d'âge moyen vêtu d'une robe de daoïste. Bien qu'il paraisse jeune, il dégageait une aura ancestrale, comme s'il avait existé depuis des éternités.
 
 L'homme regarda les nuages avec émotion et déclara lentement: « Il existe de nombreux types de Tribulations Célestes: le tonnerre, l'âme, la puissance, et bien d'autres. Mais seule la Rétribution Infinie est la plus terrifiante. Elle est en constante mutation et, selon la rumeur, sa puissance égale celle du Ciel lui-même. Elle tue sans aucun doute! Je me demande quel cultivateur a pu déclencher une telle rétribution! »
 
-« Le Maître de la Secte disait autrefois que toutes les créatures vivantes devront un jour subir la Rétribution Infinie. Je ne m'attendais pas à la voir aujourd'hui! Activez la formation de secte et laissez tous les cultivateurs entrer dans la Secte Démon; sinon, ils seront tous anéantis par elle! » L'homme d'âge moyen fixa les nuages, son expression devenant de plus en plus grave.
+« Le Maître de la Secte disait autrefois que toutes les créatures vivantes devront un jour subir la Rétribution Infinie. Je ne m'attendais pas à la voir aujourd'hui! Activez la formation de secte et laissez tous les cultivateurs entrer dans la Secte Yao; sinon, ils seront tous anéantis par elle! » L'homme d'âge moyen fixa les nuages, son expression devenant de plus en plus grave.
 
-Ses paroles firent office d'ordre. Les seize Anciens déployèrent leur Sens Divin et s'envolèrent immédiatement vers les planètes de culture. Une multitude de membres de la Secte Démon sortirent pour guider les cultivateurs du champ de bataille vers l'abri de la Secte.
+Ses paroles firent office d'ordre. Les seize Anciens déployèrent leur Sens Divin et s'envolèrent immédiatement vers les planètes de culture. Une multitude de membres de la Secte Yao sortirent pour guider les cultivateurs du champ de bataille vers l'abri de la Secte.
 
-Les disciples de la Secte Démon agissaient comme une armée disciplinée. Dès l'ordre donné, ils se déplacèrent avec efficacité, utilisant des méthodes inconnues pour acheminer rapidement tous les cultivateurs à l'intérieur de la Secte.
+Les disciples de la Secte Yao agissaient comme une armée disciplinée. Dès l'ordre donné, ils se déplacèrent avec efficacité, utilisant des méthodes inconnues pour acheminer rapidement tous les cultivateurs à l'intérieur de la Secte.
 
-Une fois que plus aucun cultivateur ne se trouvait à l'extérieur, la formation de la secte fut activée. Son rugissement fut tonitruant, semblant rivaliser avec la Tribulation Céleste. Bientôt, toutes les planètes de la Secte Démon furent protégées par la formation.
+Une fois que plus aucun cultivateur ne se trouvait à l'extérieur, la formation de la secte fut activée. Son rugissement fut tonitruant, semblant rivaliser avec la Tribulation Céleste. Bientôt, toutes les planètes de la Secte Yao furent protégées par la formation.
 
-« Personne au sein de ma Secte Démon n'a déclenché cette rétribution, donc la secte ne risque rien tant que la formation est active! Ce vieil homme veut voir qui a pu provoquer une telle Rétribution Infinie! » Les yeux du vieil homme brillaient d'une lueur intense, comme si son regard pouvait percer le vide pour scruter la faille spatiale.
+« Personne au sein de ma Secte Yao n'a déclenché cette rétribution, donc la secte ne risque rien tant que la formation est active! Ce vieil homme veut voir qui a pu provoquer une telle Rétribution Infinie! » Les yeux du vieil homme brillaient d'une lueur intense, comme si son regard pouvait percer le vide pour scruter la faille spatiale.
 
 Les nuages s'étendaient avec frénésie. En peu de temps, ils enveloppèrent totalement la région de rang 9. Les éclairs et les tonnerres étaient si denses à l'intérieur qu'ils auraient ébranlé l'esprit de tout cultivateur qui les voyait.
 
 Alors que les nuages continuaient leur progression, la brèche vers l'autre monde s'élargissait. Le gigantesque pavillon blanc était désormais à moitié sorti!
 
-Les pupilles du Grand Ancien de la Secte Démon se contractèrent lorsqu'il aperçut le pavillon de jade blanc émergeant des nuages. Il vit que sur le pavillon trônait une statue assise en tailleur, et que deux épées de pierre étaient plantées juste devant elle.
+Les pupilles du Grand Ancien de la Secte Yao se contractèrent lorsqu'il aperçut le pavillon de jade blanc émergeant des nuages. Il vit que sur le pavillon trônait une statue assise en tailleur, et que deux épées de pierre étaient plantées juste devant elle.

@@ -120,4 +120,4 @@ Wang Lin resta interdit un instant, fixant le Vieux Suzaku. Laissant sans voix, 
 
 L'Ancien poussa intérieurement un long soupir de soulagement. Il avait placé tous ses espoirs en Wang Lin. Voyant ce dernier acquiescer, il toussa et reprit: « Le sort de ce vieil homme ne peut déployer toute sa puissance que s'il est utilisé par quelqu'un ayant préservé le Yang de son âme originelle. Ce n'est pas par penchant particulier. Je ne te donnerai rien sans contrepartie, je vais t'enseigner un sort! »
 
-« C'est l'un des trois sorts les plus puissants de mon Clan Zhu Que. Il fut transmis par l'Ancien Souverain Céleste. Bien que ton Yang d'âme originelle soit brisé, tu peux tout de même le pratiquer. Ce sort est si puissant qu'il brûlera ta durée de vie; ne l'utilise donc pas avec légèreté, mais il sera capable de te sauver la vie! »
+« C'est l'un des trois sorts les plus puissants de mon Clan Suzaku. Il fut transmis par l'Ancien Souverain Céleste. Bien que ton Yang d'âme originelle soit brisé, tu peux tout de même le pratiquer. Ce sort est si puissant qu'il brûlera ta durée de vie; ne l'utilise donc pas avec légèreté, mais il sera capable de te sauver la vie! »

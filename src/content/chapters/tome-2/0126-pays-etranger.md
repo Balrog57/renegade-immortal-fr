@@ -12,7 +12,7 @@ La main géante se transforma en d'innombrables lignes noires. Elles planèrent 
 
 En raison de l'existence du Royaume Ji, Wang Lin devint le premier dévoreur d'âmes à passer du monde de la décomposition au monde des vivants. Bien que son sens divin n'ait été raffiné qu'en une simple parcelle de Sens Divin du Royaume Ji, l'essence d'un dévoreur d'âmes demeurait en lui.
 
-Huo Fen, pays de culture de rang 3, se situait dans la partie sud de la planète Suzaku, près de la Mer Xiu Mo. Huo Fen ne comptait que quatre sectes : le Temple Zhan Shen, la Secte Démon, la Secte Luo He et la Secte Shi Yin.
+Huo Fen, pays de culture de rang 3, se situait dans la partie sud de la planète Suzaku, près de la Mer Xiu Mo. Huo Fen ne comptait que quatre sectes : le Temple Zhan Shen, la Secte Xie Mo, la Secte Luo He et la Secte Shi Yin.
 
 Ce jour-là, au sommet du volcan Fentian, au centre de Huo Fen, un groupe de personnes du Temple Zhan Shen se tenait sur un immense réseau de transfert.
 

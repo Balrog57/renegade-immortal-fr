@@ -86,7 +86,7 @@ Lu Yanfei était également plongée dans la confusion en regardant la silhouett
 
 Lu Yuncong fut surpris. Avant qu'il ne puisse dire quoi que ce soit, un rayon de lumière jaillit soudainement de la plateforme nord. Ce trait de lumière provoqua un grondement assourdissant et charriait avec lui cent ans d'intention meurtrière. Balayant le ciel dans un fracas apocalyptique, Li Qianmei, aux cheveux bleus, apparut devant l'estrade où siégeaient les Anciens de la Secte Éternelle. Son regard se verrouilla sur les deux Anciens qui s'étaient levés.
 
-« Vous l'avez vu? » La voix de Li Qianmei était calme, mais un léger tremblement, qu'elle ne remarqua même pas, l'agitait. En fixant la silhouette devant elle, une obsession consumait son cœur. Pour cette seule pensée, elle n'avait pas hésité à risquer les châtiments de la Secte Démon pour rejoindre la Secte Éternelle, juste pour revoir cet homme.
+« Vous l'avez vu? » La voix de Li Qianmei était calme, mais un léger tremblement, qu'elle ne remarqua même pas, l'agitait. En fixant la silhouette devant elle, une obsession consumait son cœur. Pour cette seule pensée, elle n'avait pas hésité à risquer les châtiments de la Secte Yao pour rejoindre la Secte Éternelle, juste pour revoir cet homme.
 
 Cent ans n'étaient ni longs, ni courts. Même Li Qianmei ne savait pas définir ce sentiment inexplicable. Elle savait seulement que durant ces cent années de combat, chaque fois qu'elle quittait le champ de bataille, épuisée et blessée, sa silhouette apparaissait.
 

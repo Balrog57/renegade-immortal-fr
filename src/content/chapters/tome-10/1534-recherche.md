@@ -40,7 +40,7 @@ Heureusement, les Sectes Divine, Démoniaque et Gui n'avaient pas révélé l'es
 
 En raison de l'instabilité causée par cette bataille, toute la Mer Yun était devenue erratique. Des failles spatiales étaient apparues partout, rendant tout vol à travers la Mer Yun extrêmement périlleux.
 
-La Secte Démon avait envoyé près de 70 % de ses cultivateurs pour stationner en permanence à l'extérieur du site de la première bataille, la zone la plus vide de tout le royaume.
+La Secte Yao avait envoyé près de 70 % de ses cultivateurs pour stationner en permanence à l'extérieur du site de la première bataille, la zone la plus vide de tout le royaume.
 
 Sans la Formation de Scellement du Royaume, une fois la tempête passée, l'endroit, malgré ses vortex et ses trous noirs, constituait désormais la porte d'entrée vers le Royaume Intérieur!
 

@@ -32,7 +32,7 @@ Wang Lin était assis en position du lotus sous terre, les yeux clos. Entouré d
 
 Une quantité immense de jades célestes était nécessaire pour atteindre le stade avancé de la Transformation de l'Âme. Wang Lin ne prit aucun repos, se concentrant intensément sur l'absorption de cette énergie dans son corps. Il n'avait pas le temps de la fusionner avec sa propre essence; il la condensa donc en une substance similaire au cristal démoniaque.
 
-Il avait étudié le cristal démoniaque pendant longtemps au sein de la Tribu de l'Affinement de l'Âme, il en connaissait donc parfaitement la structure. Si l'énergie spirituelle démoniaque pouvait être condensée en un cristal, alors l'énergie spirituelle céleste le pouvait tout autant.
+Il avait étudié le cristal démoniaque pendant longtemps au sein de la Tribu Lian Hun, il en connaissait donc parfaitement la structure. Si l'énergie spirituelle démoniaque pouvait être condensée en un cristal, alors l'énergie spirituelle céleste le pouvait tout autant.
 
 Auparavant, il n'avait pas voulu gaspiller de jades célestes pour tenter l'expérience, mais maintenant qu'il en avait suffisamment, il commença ses tentatives. Une fois qu'une masse colossale d'énergie spirituelle céleste eut accumulé, un changement s'opéra.
 

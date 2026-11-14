@@ -14,7 +14,7 @@ C'est pour cette raison que Wang Lin gardait une certaine confiance en sa capaci
 
 Dès que ce jade apparut, les cieux tremblèrent et vacillèrent. Même la Tribulation Céleste des Huit Diagrammes fut ébranlée.
 
-À l'intérieur de la formation de la Secte Démon, le Grand Ancien déploya son sens divin. Tout en observant la Tribulation Céleste, il surveillait également Wang Lin, qui subissait l'assaut céleste. Lorsqu'il aperçut le jade, l'homme d'âge mûr fut saisi d'un tressaillement.
+À l'intérieur de la formation de la Secte Yao, le Grand Ancien déploya son sens divin. Tout en observant la Tribulation Céleste, il surveillait également Wang Lin, qui subissait l'assaut céleste. Lorsqu'il aperçut le jade, l'homme d'âge mûr fut saisi d'un tressaillement.
 
 Ses yeux s'écarquillèrent soudainement, révélant un choc indescriptible!
 
@@ -28,7 +28,7 @@ L'apparition de cet arbre colossal fit trembler le néant. Les Huit Diagrammes f
 
 L'arbre était si vaste qu'il comblait l'intégralité du vide. Un visage séculaire apparut progressivement sur son écorce.
 
-« Maître de Secte! » Le Grand Ancien de la Secte Démon regarda l'arbre gigantesque avec exaltation, ses yeux empreints d'une révérence extrême.
+« Maître de Secte! » Le Grand Ancien de la Secte Yao regarda l'arbre gigantesque avec exaltation, ses yeux empreints d'une révérence extrême.
 
 L'apparition de l'arbre provoqua un immense tumulte dans la région de rang 9. Au sein de la Secte Divine, le Shui Daozi arborait une expression hideuse et hurlait sans relâche. Cependant, à cet instant, son corps fut parcouru de tremblements et son visage se mua en un masque de terreur.
 
@@ -46,19 +46,19 @@ Après un long moment, il laissa échapper un soupir et prononça d'une voix anc
 
 « Xuan Bing... »
 
-Le Grand Ancien de la Secte Démon trembla, comme si le passé l'engloutissait. « Votre subordonné est là! » répondit-il sans la moindre hésitation.
+Le Grand Ancien de la Secte Yao trembla, comme si le passé l'engloutissait. « Votre subordonné est là! » répondit-il sans la moindre hésitation.
 
 « Utilise mon trésor Dao pour organiser la Mer Yun et rassemble toute sa force afin d'être prêt pour... la grande guerre contre le Royaume Extérieur dans quelques années! Tue quiconque se rebellera! »
 
-Le corps du Grand Ancien de la Secte Démon frémit et il leva les yeux. Une lueur de froideur passa dans son regard lorsqu'il s'écria: « À vos ordres! »
+Le corps du Grand Ancien de la Secte Yao frémit et il leva les yeux. Une lueur de froideur passa dans son regard lorsqu'il s'écria: « À vos ordres! »
 
 « Sous mes commandements, une fois la Mer Yun stabilisée, dirige-toi vers les trois autres grands systèmes stellaires. Va trouver Maître Nan Yunzi, Maître Hong Shanzi et Maître Zhan Xianzi. Dis-leur qu'ils peuvent enfin honorer l'accord passé...
 
 « Je veux que tu utilises ta vitesse maximale pour organiser les trois autres grands systèmes stellaires. Unissez les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair en un seul pour mener... la grande guerre qui éclatera dans quelques années! »
 
-« À vos ordres! » Le Grand Ancien de la Secte Démon était transporté par l'excitation.
+« À vos ordres! » Le Grand Ancien de la Secte Yao était transporté par l'excitation.
 
-Le visage antique sur l'arbre gigantesque regarda au loin et, après un long silence, murmura: « Esclave Dao... si tu peux aider la Secte Démon dans cette affaire, ce vieil homme ne te tuera pas... »
+Le visage antique sur l'arbre gigantesque regarda au loin et, après un long silence, murmura: « Esclave Dao... si tu peux aider la Secte Yao dans cette affaire, ce vieil homme ne te tuera pas... »
 
 Dans la chambre secrète de la Secte Divine, le Shui Daozi tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna à plusieurs reprises.
 

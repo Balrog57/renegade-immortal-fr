@@ -52,7 +52,7 @@ Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Shui Daozi s'
 
 « Mer Yun, Zhao He, Luotian et l'Alliance. Ce vieil homme est l'Ancien en chef de la Secte Divine et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur la Secte Divine et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur!
 
-« Aujourd'hui, ce vieil homme a reçu des informations précises: un cultivateur de l'Alliance nommé Wang Lin est un pion du Souverain du Royaume Extérieur! Cet individu s'est bien caché et a également obtenu le trésor suprême de mon maître issu du Royaume Céleste Antique, la Perle Défiant le Ciel. Il a séduit la Secte Démon, mais il ne pourra échapper à ce vieil homme!
+« Aujourd'hui, ce vieil homme a reçu des informations précises: un cultivateur de l'Alliance nommé Wang Lin est un pion du Souverain du Royaume Extérieur! Cet individu s'est bien caché et a également obtenu le trésor suprême de mon maître issu du Royaume Céleste Antique, la Perle Défiant le Ciel. Il a séduit la Secte Yao, mais il ne pourra échapper à ce vieil homme!
 
 « Il est revenu du Royaume Extérieur avec l'intention de semer le chaos dans le Royaume Intérieur; c'est un espion pour l'armée envahissante!
 

@@ -16,7 +16,7 @@ Sun Yunshan prit une profonde inspiration, recula de quelques pas et fit un prof
 
 « Frère Wang, quoi qu'il en soit, je m'en souviendrai! » La voix de Sun Yunshan était empreinte d'une sincérité profonde.
 
-Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu de l'Affinement de l'Âme, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'Union de Culture furent saisis par lui et disparurent.
+Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu Lian Hun, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'Union de Culture furent saisis par lui et disparurent.
 
 La guerre dans le Pays Huo Yao se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
 

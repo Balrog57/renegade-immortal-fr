@@ -56,7 +56,7 @@ Elle ressentit également la détermination de Wang Lin à travers cette vitesse
 
 « Il n'y a pas de formations de transfert dans les régions de rang 3 ou inférieur. La Secte Hai Hun de rang 4 possède une formation de transfert vers la Secte Xian Yin de rang 6, qui est une branche de la Secte Éternelle. Ils ont une formation vers la Secte Éternelle de rang 8... »
 
-« La Secte Éternelle possède également une formation de transfert pour atteindre la région de rang 9 à la vitesse la plus rapide possible! Une fois que nous serons dans la région de rang 9, je vous dirai où se trouve la Secte Démon! »
+« La Secte Éternelle possède également une formation de transfert pour atteindre la région de rang 9 à la vitesse la plus rapide possible! Une fois que nous serons dans la région de rang 9, je vous dirai où se trouve la Secte Yao! »
 
 « C'est la voie la plus rapide, mais les formations de transfert nécessitent énormément de cristaux d'origine, et je n'en ai pas assez. Ces formations ne sont généralement pas ouvertes, et on ne les prête pas si facilement... »
 

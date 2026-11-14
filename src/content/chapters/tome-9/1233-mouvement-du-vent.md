@@ -64,9 +64,9 @@ Simultanément, dans la région de rang 9, après l'abattage de vagues successiv
 
 Parmi eux, Li Qianmei, aux cheveux bleus, était le centre de toutes les attentions. Elle essuya le sang des bêtes sur son épée; la fatigue se lisait sur son visage, mais son calme restait intact.
 
-Regardant au loin, Li Qianmei quitta silencieusement le champ de bataille et se dirigea vers le portail de montagne de la branche locale de la Secte Démon.
+Regardant au loin, Li Qianmei quitta silencieusement le champ de bataille et se dirigea vers le portail de montagne de la branche locale de la Secte Yao.
 
-« Je m'absenterai pendant trois mois. » Dans la Secte Démon, Li Qianmei fixa la silhouette floue présente dans la salle. Bien que sa voix fût douce, elle était empreinte de résolution.
+« Je m'absenterai pendant trois mois. » Dans la Secte Yao, Li Qianmei fixa la silhouette floue présente dans la salle. Bien que sa voix fût douce, elle était empreinte de résolution.
 
 Le silence tomba sur la salle tandis qu'une silhouette indistincte relevait lentement la tête. Deux rayons de lumière jaillirent de cette figure pour se poser sur le corps de Li Qianmei.
 
@@ -96,7 +96,7 @@ Le silence retomba sur la salle.
 
 Ce n'est que bien longtemps après le départ de Li Qianmei qu'un soupir retentit dans la salle. La colère et la froideur avaient déserté la voix.
 
-« Puisque tu es si déterminée, prends mon jade et utilise le réseau de téléportation. Cela te fera gagner du temps. » À ces mots, une douce lumière jaillit de la Secte Démon pour venir se poser dans la main de Li Qianmei.
+« Puisque tu es si déterminée, prends mon jade et utilise le réseau de téléportation. Cela te fera gagner du temps. » À ces mots, une douce lumière jaillit de la Secte Yao pour venir se poser dans la main de Li Qianmei.
 
 Li Qianmei saisit le jade et regarda vers l'horizon. Elle murmura: « Après avoir disparu pendant cent ans, il devrait apparaître pour aider la Secte Gui Yuan lors de la compétition... Viendra-t-il...? »
 

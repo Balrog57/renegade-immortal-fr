@@ -98,7 +98,7 @@ Il y a dix ans, la renommée de Wang Lin avait, à mesure que les témoins de l'
 
 À cet instant, toute la Secte Xian Yin s'activait pour ouvrir le passage au plus vite. Le nouveau Maître de secte pleurait amèrement intérieurement; il ne voulait qu'une chose: renvoyer ce démon le plus rapidement possible. Il craignait de provoquer Wang Lin. Autrefois, Wang Lin avait tué le précédent Maître de secte, et aujourd'hui, il était fort probable qu'il recommence.
 
-Après avoir récupéré la sacoche contenant tous les cristaux d'origine, Wang Lin entra dans la formation avec la vieille femme. Cette dernière était profondément bouleversée par tout ce spectacle. Elle avait passé tout son temps sur le champ de bataille de la Secte Démon et ignorait ce qui s'était passé dix ans auparavant. En voyant la scène, elle n'en croyait pas ses yeux.
+Après avoir récupéré la sacoche contenant tous les cristaux d'origine, Wang Lin entra dans la formation avec la vieille femme. Cette dernière était profondément bouleversée par tout ce spectacle. Elle avait passé tout son temps sur le champ de bataille de la Secte Yao et ignorait ce qui s'était passé dix ans auparavant. En voyant la scène, elle n'en croyait pas ses yeux.
 
 Elle pouvait voir que les Anciens et le Maître de la Secte Xian Yin regardaient Wang Lin avec une terreur indicible. C'était comme s'ils tentaient d'éloigner une divinité colérique.
 

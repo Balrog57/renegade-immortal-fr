@@ -118,7 +118,7 @@ Son cœur tremblait à l'idée qu'elle n'avait pas remarqué le départ de Wang 
 
 Ces ondes de rugissements balayèrent les restes de la mort sanglante du Shui Daozi pour atteindre les oreilles des cultivateurs plongés dans le silence de la réflexion.
 
-« Les cultivateurs de la Secte Démon saluent le Seigneur du Royaume Scellé! » Les membres de la Secte Démon marquèrent un temps d'arrêt, puis s'inclinèrent avec leur Maître de Secte.
+« Les cultivateurs de la Secte Yao saluent le Seigneur du Royaume Scellé! » Les membres de la Secte Yao marquèrent un temps d'arrêt, puis s'inclinèrent avec leur Maître de Secte.
 
 « Les cultivateurs de la Secte Divine saluent le Seigneur du Royaume Scellé! » Ayant été témoins de tout ce qui s'était produit, les membres de la Secte Divine joignirent les mains, l'expression complexe.
 

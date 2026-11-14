@@ -12,7 +12,7 @@ Les pupilles de Wang Lin se rétractèrent instantanément et il baissa les yeux
 
 Wang Lin n'était pas étranger à cette silhouette sublime au sein du parchemin. Sur Suzaku, lorsqu'il avait dû affronter les bêtes libérées par les trois ancêtres, cette figure l'avait aspiré dans le parchemin d'un seul appel.
 
-Wang Lin s'était toujours interrogé sur ce parchemin. Juste après avoir atteint le stade Ascendant, il l'avait sorti alors qu'il se trouvait dans la Tribu de l'Affinement de l'Âme, mais n'avait fait aucun progrès. Bien qu'il puisse y laisser une empreinte, il ne parvenait pas à le contrôler.
+Wang Lin s'était toujours interrogé sur ce parchemin. Juste après avoir atteint le stade Ascendant, il l'avait sorti alors qu'il se trouvait dans la Tribu Lian Hun, mais n'avait fait aucun progrès. Bien qu'il puisse y laisser une empreinte, il ne parvenait pas à le contrôler.
 
 À cet instant, la figure du parchemin réapparut. Wang Lin lui envoya un message par sens divin:
 

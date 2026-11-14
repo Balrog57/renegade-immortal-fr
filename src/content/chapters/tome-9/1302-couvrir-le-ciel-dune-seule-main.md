@@ -10,9 +10,9 @@ Des grondements tonitruants résonnaient follement depuis les nuages. Ces fracas
 
 Le fracas de ce tonnerre était déjà indescriptible. Le son se propageait violemment à travers l'espace, repoussant la brume. Une multitude de bêtes de brume périrent sous l'onde de choc.
 
-Des continents sauvages s'effondraient les uns après les autres. Même la formation de la Secte Démon vacillait, luttant contre la puissance croissante de ce tonnerre qui semblait exister depuis l'aube des temps!
+Des continents sauvages s'effondraient les uns après les autres. Même la formation de la Secte Yao vacillait, luttant contre la puissance croissante de ce tonnerre qui semblait exister depuis l'aube des temps!
 
-Les innombrables cultivateurs de la Secte Démon tremblaient devant ce tonnerre et n'osaient nullement lui résister. C'était comme s'ils n'étaient que des fourmis face à la puissance céleste, incapables d'encaisser le moindre coup!
+Les innombrables cultivateurs de la Secte Yao tremblaient devant ce tonnerre et n'osaient nullement lui résister. C'était comme s'ils n'étaient que des fourmis face à la puissance céleste, incapables d'encaisser le moindre coup!
 
 « La Tribulation Céleste est ainsi... La Tribulation Céleste est ainsi... » À cet instant, la Tribulation Céleste se grava dans le cœur des cultivateurs, y laissant une empreinte indélébile!
 
@@ -22,7 +22,7 @@ Le tonnerre devint encore plus intense et l'espace trembla. Un bruit de déchiru
 
 « Affronte la rétribution... Affronte la rétribution... » Les grondements tonitruants semblaient résonner de ces deux mots. Lorsque le tonnerre eut remplacé tous les sons du monde, des éclairs violets jaillirent des nuages et enveloppèrent toute la région de rang 9.
 
-Ces éclairs étaient d'un violet profond et s'élançaient frénétiquement des nuages vers la fissure spatiale située à l'extérieur de la Secte Démon! Les décharges violettes occultèrent tout dans le ciel, attirant l'attention de tous les cultivateurs de la région de rang 9.
+Ces éclairs étaient d'un violet profond et s'élançaient frénétiquement des nuages vers la fissure spatiale située à l'extérieur de la Secte Yao! Les décharges violettes occultèrent tout dans le ciel, attirant l'attention de tous les cultivateurs de la région de rang 9.
 
 Il y avait trop d'éclairs, le tonnerre était trop intense et les rugissements faisaient trembler les cieux!
 
@@ -62,9 +62,9 @@ Sa main droite saisit Li Qianmei et il la fit basculer pour qu'elle soit sur son
 
 « Je suis le tonnerre. En exerçant mon droit de contrôler le tonnerre, ô tout tonnerre, écoutez mes ordres. Montez! » Les paroles de Wang Lin étaient empreintes d'une puissance suprême. Dès que sa voix résonna, l'éclair violet rugit et s'élança vers les nuages.
 
-L'éclair était infini et tourbillonnait autour de Wang Lin. Les gens de la Secte Démon étaient tous terrifiés et stupéfaits par ce spectacle!
+L'éclair était infini et tourbillonnait autour de Wang Lin. Les gens de la Secte Yao étaient tous terrifiés et stupéfaits par ce spectacle!
 
-Les yeux du Grand Ancien de la Secte Démon brillèrent intensément et il prit une profonde inspiration!
+Les yeux du Grand Ancien de la Secte Yao brillèrent intensément et il prit une profonde inspiration!
 
 Wang Lin pointa les nuages dans le ciel et laissa échapper un rugissement qui fit trembler les cieux: « Brise la Tribulation Céleste pour moi! »
 
@@ -88,15 +88,15 @@ Il fixa le vide, hébété, et lâcha un rugissement qui ébranla les cieux!
 
 La Secte Po Tian de rang 9 avait également entendu ce tonnerre et vu les nuages tourbillonnants. Ils déployèrent immédiatement la formation de protection de la secte!
 
-Le Maître de la Secte Po Tian, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection de la secte et chargea à travers les nuages de Tribulation Céleste vers la fissure spatiale de la Secte Démon!
+Le Maître de la Secte Po Tian, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection de la secte et chargea à travers les nuages de Tribulation Céleste vers la fissure spatiale de la Secte Yao!
 
-Outre la Secte Démon, la Secte Divine et la Secte Po Tian, il y avait encore la Secte Gui! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre, haute d'environ 100 000 pieds, possédait une seule corne, telle un dieu démon!
+Outre la Secte Yao, la Secte Divine et la Secte Po Tian, il y avait encore la Secte Gui! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre, haute d'environ 100 000 pieds, possédait une seule corne, telle un dieu démon!
 
 Elle fixait avidement les nuages en dégageant une aura diabolique. Neuf étoiles démoniaques tournaient dans son œil gauche et, à chaque rotation, une force mystérieuse pénétrait son corps.
 
 Les grondements tonitruants se propagèrent au-delà de la région de rang 9 pour atteindre la région de rang 8. Cela fit changer radicalement l'expression des cultivateurs de rang 8. Leurs esprits tremblèrent et ils furent plongés dans une stupeur totale.
 
-À l'extérieur de la fissure spatiale près de la Secte Démon, Wang Lin portait Li Qianmei et leva les yeux vers les nuages violets. Cette Tribulation Céleste était la plus puissante à ce jour! Et elle était extrêmement étrange. Il ne put s'empêcher de repenser au moment où il se trouvait dans le Système Stellaire de l'Alliance, lorsqu'il avait découvert ce monde étrange peuplé de statues d'anciens dieux, de diables et de démons, ainsi que ce jeune homme mystérieux assis sur une statue!
+À l'extérieur de la fissure spatiale près de la Secte Yao, Wang Lin portait Li Qianmei et leva les yeux vers les nuages violets. Cette Tribulation Céleste était la plus puissante à ce jour! Et elle était extrêmement étrange. Il ne put s'empêcher de repenser au moment où il se trouvait dans le Système Stellaire de l'Alliance, lorsqu'il avait découvert ce monde étrange peuplé de statues d'anciens dieux, de diables et de démons, ainsi que ce jeune homme mystérieux assis sur une statue!
 
 Son regard perça les nuages et il vit clairement le pavillon en jade blanc qui émergeait en grande partie de la brèche menant à un autre monde. Il vit également la statue d'une personne assise sur le pavillon et les deux épées de pierre devant elle!
 

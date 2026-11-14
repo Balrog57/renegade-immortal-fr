@@ -7,7 +7,7 @@ en: Chapter 1000 - The Strange Black Statue
 slug: letrange-statue-noire
 ---
 
-Le retour de Wang Lin provoqua une véritable frénésie parmi les membres de la Tribu de l'Affinement de l'Âme. Le Pays Huo Yao avait été rebaptisé Secte Lian Hun par Wang Lin!
+Le retour de Wang Lin provoqua une véritable frénésie parmi les membres de la Tribu Lian Hun. Le Pays Huo Yao avait été rebaptisé Secte Lian Hun par Wang Lin!
 
 La Secte Lian Hun comptait des millions de disciples. Si l'on devait compter tous les fragments d'âme rassemblés par ces derniers, le nombre serait inimaginable. On pourrait dire que la Secte Lian Hun ne serait pas de faible envergure, même dans un pays de culture de rang 7!
 
@@ -69,7 +69,7 @@ En contemplant l'œuvre, Wang Lin eut l'impression que la statue le fixait; c'é
 
 La statue était extrêmement brute; Treize et Ouyang Hua n'avaient pu faire grand-chose. Ils avaient réalisé cette sculpture pour que l'Ancêtre demeure à jamais dans leurs cœurs, afin que la statue devienne un symbole sacré, semblable aux esprits des anciens démons de la Terre Yao Ling.
 
-Cependant, l'étrangeté résidait dans le fait qu'avec le temps et la croissance de la Tribu de l'Affinement de l'Âme, la statue devenait de plus en plus lisse à force d'être vénérée quotidiennement par une multitude de fidèles. Ce qui avait stupéfié Treize et les autres, c'était que non seulement elle n'était plus brute, mais qu'elle s'était polie et avait commencé à changer lentement.
+Cependant, l'étrangeté résidait dans le fait qu'avec le temps et la croissance de la Tribu Lian Hun, la statue devenait de plus en plus lisse à force d'être vénérée quotidiennement par une multitude de fidèles. Ce qui avait stupéfié Treize et les autres, c'était que non seulement elle n'était plus brute, mais qu'elle s'était polie et avait commencé à changer lentement.
 
 Après des centaines d'années, la statue initialement rudimentaire avait évolué jusqu'à ressembler presque trait pour trait à Wang Lin. On pouvait même y ressentir son aura ancienne, celle d'un être ayant vécu plus de mille ans. Treize et ses compagnons étaient totalement perplexes face à ce phénomène; ils n'avaient pu que l'attribuer à l'esprit de l'Ancêtre!
 

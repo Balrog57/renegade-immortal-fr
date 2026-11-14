@@ -80,7 +80,7 @@ Des grondements tonitruants résonnèrent dans la paume géante. Quatre respirat
 
 Sur la Planète du Grand Empereur, les cultivateurs fixaient le corps de Wang Lin. À cet instant, il était entouré d'une brume formée par sa propre sueur. À la cinquième respiration, la brume se dissipa. L'encens céleste marqua une pause alors qu'il avait déjà brûlé près de la moitié de sa longueur.
 
-Après avoir tenu cinq respirations, Wang Lin rugit immédiatement: « Le Clan Zhu Que réside dans le Système Stellaire Antique, alors pourquoi le Clan Huo Que existe-t-il? »
+Après avoir tenu cinq respirations, Wang Lin rugit immédiatement: « Le Clan Suzaku réside dans le Système Stellaire Antique, alors pourquoi le Clan Huo Que existe-t-il? »
 
 « Le troisième Suzaku traître a été créé par l'ennemi. Il a volé mes trésors et s'est enfui pour fonder le Clan Huo Que. Étant scellé ici, je n'ai pu faire le ménage! De plus, l'existence du Clan Huo Que me sert; » répondit simplement la voix bourdonnante avant de retomber dans le silence.
 

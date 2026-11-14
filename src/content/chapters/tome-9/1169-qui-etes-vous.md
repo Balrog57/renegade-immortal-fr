@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1169 - Who Are You
 slug: qui-etes-vous
 ---
-« Tous les quelques centaines d'années, la région de rang 9 forme une armée de cultivateurs qui se rend à la Secte Démon pour l'aider à combattre les bêtes féroces issues du système stellaire mystérieux... Peut-être que bientôt Qianmei devra elle aussi s'en aller. » Les cheveux bleus de Li Qianmei flottaient et elle en saisit quelques mèches de sa main droite tout en souriant.
+« Tous les quelques centaines d'années, la région de rang 9 forme une armée de cultivateurs qui se rend à la Secte Yao pour l'aider à combattre les bêtes féroces issues du système stellaire mystérieux... Peut-être que bientôt Qianmei devra elle aussi s'en aller. » Les cheveux bleus de Li Qianmei flottaient et elle en saisit quelques mèches de sa main droite tout en souriant.
 
 Wang Lin réfléchit silencieusement.
 

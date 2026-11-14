@@ -14,19 +14,19 @@ Wang Lin toucha son sac de rangement et ses yeux devinrent glacials. Il pensa: �
 
 Wang Lin ferma les yeux tandis que son âme originelle continuait de graver son empreinte sur le démon dispersé. Il approfondit cette empreinte dans l'âme du démon, consolidant ainsi son contrôle.
 
-Par ailleurs, à mesure que la Tribu de l'Affinement de l'Âme s'accroissait, de plus en plus de personnes commençaient à cultiver le sortilège de raffinage des âmes. Comme il s'agissait d'un ancien champ de bataille, le lieu regorgeait de fragments d'âmes. Bien que la plupart fussent enfouis profondément sous terre, l'expansion de la Tribu de l'Affinement de l'Âme entraînait le creusement de vastes excavations. La culture au fond de ces fosses était devenue une méthode unique pour pratiquer le sortilège de raffinage des âmes.
+Par ailleurs, à mesure que la Tribu Lian Hun s'accroissait, de plus en plus de personnes commençaient à cultiver le sortilège de raffinage des âmes. Comme il s'agissait d'un ancien champ de bataille, le lieu regorgeait de fragments d'âmes. Bien que la plupart fussent enfouis profondément sous terre, l'expansion de la Tribu Lian Hun entraînait le creusement de vastes excavations. La culture au fond de ces fosses était devenue une méthode unique pour pratiquer le sortilège de raffinage des âmes.
 
 Ceci n'était qu'une des méthodes. L'autre consistait à se rendre au Pays Huo Yao pour absorber les âmes de tous les soldats démons décédés.
 
 Toutefois, seuls ceux ayant déjà obtenu un certain succès dans leur culture étaient qualifiés pour s'y rendre. Quiconque souhaitait tenter l'aventure seul devait être personnellement évalué par Ouyang Hua avant d'en recevoir la permission.
 
-La Tribu de l'Affinement de l'Âme progressait à une vitesse fulgurante! Cette croissance augmentait chaque jour. La tribu était comme un cocon absorbant ses nutriments; une fois que le jeune papillon s'en serait extrait, il serait capable de secouer les neuf pays!
+La Tribu Lian Hun progressait à une vitesse fulgurante! Cette croissance augmentait chaque jour. La tribu était comme un cocon absorbant ses nutriments; une fois que le jeune papillon s'en serait extrait, il serait capable de secouer les neuf pays!
 
 Dans l'esprit des membres de la tribu, la tour centrale était leur terre sacrée. Un lieu sacré que nul ne devait souiller, comme si les dieux y résidaient! Quant à Wang Lin, qui n'était pas sorti depuis dix ans, il était leur ancêtre! Leur gardien!
 
 Chaque jour, en plus de renforcer l'empreinte sur le démon dispersé, il créait d'innombrables restrictions qu'il plaçait sur le drapeau des restrictions. Au cours de ces dix dernières années, Wang Lin avait continué à déduire toujours plus de restrictions, s'approchant lentement du seuil de 9 999 ensembles.
 
-L'étendard des âmes avait été libéré par Wang Lin depuis longtemps, et les cent millions de fragments d'âmes couvraient le ciel au-dessus de la Tribu de l'Affinement de l'Âme. Les gémissements des fragments d'âmes pouvaient être entendus toute la journée, devenant ainsi le symbole unique de la tribu.
+L'étendard des âmes avait été libéré par Wang Lin depuis longtemps, et les cent millions de fragments d'âmes couvraient le ciel au-dessus de la Tribu Lian Hun. Les gémissements des fragments d'âmes pouvaient être entendus toute la journée, devenant ainsi le symbole unique de la tribu.
 
 Wang Lin passa également beaucoup de temps à étudier les cinq sceaux du Char de Guerre Divin. Lorsqu'il n'était qu'au stade intermédiaire de la Transformation de l'Âme, il pouvait à peine relâcher le premier sceau. Désormais, au stade Ascendant, il pouvait l'activer avec aisance. Cependant, cela ne suffisait pas; il voulait pouvoir briser le second sceau.
 
@@ -50,7 +50,7 @@ Wang Lin réfléchit un instant avant de frapper son sac de rangement, faisant j
 
 En observant le piège, les yeux de Wang Lin trahirent une hésitation. Sans l'aide de cet artefact, il devrait utiliser sa propre force pour soumettre totalement la bête spirituelle. Il devait suivre la méthode laissée par son créateur pour accomplir l'héritage, sans quoi ce trésor serait inutile.
 
-Wang Lin afficha un regard déterminé, saisit le piège à bêtes et se redressa. Il disparut de la tour et réapparut à cinq mille kilomètres de la Tribu de l'Affinement de l'Âme.
+Wang Lin afficha un regard déterminé, saisit le piège à bêtes et se redressa. Il disparut de la tour et réapparut à cinq mille kilomètres de la Tribu Lian Hun.
 
 L'endroit était une plaine totalement désertique. Wang Lin jeta le bracelet au sol avant de former un sceau et de le pointer du doigt. Le bracelet émit une lueur noire avant de se transformer en Char de Guerre Divin.
 
