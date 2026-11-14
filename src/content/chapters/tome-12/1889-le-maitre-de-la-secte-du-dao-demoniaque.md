@@ -44,7 +44,7 @@ Cette ombre était quelque peu floue. Il était évident qu'elle avait été end
 
 La main droite de Wang Lin poussa vers l'avant. Les centaines de cultivateurs, à l'exception du vieux monstre du stade avancé de la Tribulation du Vide, tremblèrent tous et leurs trajectoires de vol se déformèrent. Ils se retrouvèrent alignés comme une armée mortelle devant Wang Lin!
 
-C'était la formation d'armée! La puissance du Tremblement Divin résonna comme des ondes de choc, provoquant l'hémorragie de leurs orifices pour la moitié de ces cultivateurs!
+C'était la formation d'armée! La puissance du Tremblement Divin résonna comme des ondes de choc, faisant saigner les orifices de la moitié de ces cultivateurs!
 
 Le poing de Wang Lin s'ouvrit en une paume et une fumée s'échappa de la tête des cultivateurs. Cette fumée se condensa pour former une montagne au-dessus d'eux. Cette montagne de fumée s'abattit lourdement sur eux!
 
@@ -56,7 +56,7 @@ Ce sort du Dao Gu Sans Céleste fut lancé alors que son niveau de culture avait
 
 Des grondements tonitruants retentirent et une ondulation grise se propagea. Les centaines de cultivateurs périrent tous. L'expression du vieux monstre du stade avancé de la Tribulation du Vide changea et il battit en retraite précipitamment. Cependant, il fut tout de même touché par les ondes grises.
 
-Le visage du vieil homme devint instantanément livide et ses jambes commencèrent à se pétrifier. Il pressa son propre corps de ses mains, tentant à chaque fois d'injecter une rafale d'énergie pour résister à la puissance du Dao Gu qui envahissait son corps.
+Le visage du vieil homme devint instantanément livide et ses jambes commencèrent à se pétrifier. Il se frappa le corps de ses mains, tentant à chaque fois d'injecter une rafale d'énergie pour résister à la puissance du Dao Gu qui envahissait son corps.
 
 Hormis lui, tous les cultivateurs de la Secte Dao Mo à la frontière des deux continents furent exterminés!
 
@@ -100,7 +100,7 @@ Son véritable corps d'essence de feu apparut et s'étendit soudainement, envelo
 
 Le Feu Éthéré commença à consumer les cultivateurs. Des jaillissements de flammes illuminèrent la zone tandis que des cris misérables résonnaient.
 
-« Quiconque se mettra sur mon chemin mourra!! » Wang Lin se mordit la langue pour chasser sa fatigue. Dans un rugissement, il chargea. Dans un éclat de lumière rouge sang, l'épée de sang apparut dans sa main droite. Il agita sa main gauche et le Voile Fantôme surgit. La voile se transforma en une brume noire qui devint d'innombrables fantômes se précipitant devant Wang Lin!
+« Quiconque se mettra sur mon chemin mourra!! » Wang Lin se mordit la langue pour chasser sa fatigue. Dans un rugissement, il chargea. Dans un éclat de lumière rouge sang, l'épée de sang apparut dans sa main droite. Il agita sa main gauche et la Voile Fantôme surgit. La voile se transforma en une brume noire qui devint d'innombrables fantômes se précipitant devant Wang Lin!
 
 La scène était absolument terrifiante. Les cultivateurs brûlés par le Feu Éthéré étaient soit tués par les flammes, soit par l'épée de sang de Wang Lin. Les autres n'osaient même pas attaquer face à cette intention meurtrière monstrueuse qui semblait vouloir tout anéantir sur son passage.
 
@@ -114,7 +114,7 @@ Au moment où Wang Lin posa le pied sur le Continent Meng Tu, le reste de son ar
 
 Il lui restait encore l'armure élémentaire terrestre en forme humaine de la Secte Gui Yi. Bien qu'elle fût partiellement brisée, elle lui offrait toujours une protection puissante.
 
-Debout sur le Continent Meng Tu, il chancela alors que du sang coulait du coin de sa bouche, puis il s'enfonça dans la course. Il comprenait qu'en tant que cultivateur indépendant, il pouvait franchir la frontière entre deux continents; cependant, l'arrivée massive de disciples de la Secte Dao Mo était une tout autre affaire.
+Debout sur le Continent Meng Tu, il chancela alors que du sang coulait du coin de sa bouche, puis il s'enfuit à toute allure. Il comprenait qu'en tant que cultivateur indépendant, il pouvait franchir la frontière entre deux continents; cependant, l'arrivée massive de disciples de la Secte Dao Mo était une tout autre affaire.
 
 La Secte Dao Mo devait en avoir tenu compte; autrement, ils n'auraient pas ordonné aux deux Messagers du Démon Vert de s'autodétruire, ni à Yun Kong de le retarder pour s'assurer qu'il reste sur le Continent Lu Mo. Sans ces scrupules, ils n'auraient eu aucune raison de se presser : ils auraient simplement ouvert la voie par le massacre jusqu'au Continent Meng Tu pour le poursuivre.
 

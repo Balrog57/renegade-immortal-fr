@@ -26,7 +26,7 @@ Après encore un demi-bâton d'encens, le 16e palais, enveloppé de reflets dor�
 
 Ce rire trahissait son excitation. Il avait attendu ce jour pendant tant d'années, et il avait enfin franchi le 16e palais! Il apparut devant Wang Lin, révélant sa silhouette vêtue d'une robe noire.
 
-« Le 16e palais... Aujourd'hui, moi, Ming Dao, j'ai conquis le 16e palais!! Quel Ascendant Empyréen du Clan Céleste oserait rivaliser avec moi?! Je dois te remercier, toi qui excelles dans l'art de la tromperie. Si ce n'était pas... »
+« Le 16e palais... Aujourd'hui, moi, Ming Dao, j'ai conquis le 16e palais!! Quel Ascendant Empyréen du Clan Céleste oserait rivaliser avec moi?! Je dois te remercier, toi qui excelles dans l'art de la tromperie. Sans toi... »
 
 Avant d'avoir pu achever sa phrase, il s'interrompit brusquement car tout était devenu trop calme. Il n'y eut ni explosion de joie ni acclamations après son exploit, mais seulement les regards complexes des cultivateurs en contrebas.
 
@@ -112,7 +112,7 @@ C'était exactement ce que Ming Dao avait fait à Wang Lin!
 
 L'Empereur s'apprêtait à parler, mais Wang Lin fut plus rapide. Il regarda l'Ascendant Empyréen Ming Dao, qui tentait de contenir sa rage, et sa voix résonna à travers toute l'Épreuve Empyrée.
 
-« On dirait que tu n'as plus d'orgueil et que tu as abandonné ton estime de soi. Je me demandais pourquoi tu étais si pressé de partir sans tenter le 17e palais. Je crains qu'en plus d'avoir perdu ta dignité, tu n'aies aussi perdu ta foi. Tu n'es plus qu'un corps sans âme qui obéit à chaque ordre de l'Empereur Céleste. Il te dit de partir et tu n'oses même pas hésiter. »
+« On dirait que tu n'as plus d'orgueil et que tu as abandonné ton estime de soi. Je me demandais pourquoi tu étais si pressé de partir sans tenter le 17e palais. Je crains qu'en plus d'avoir perdu ta dignité, tu n'aies aussi perdu ta foi. Tu n'es plus qu'un corps sans âme qui obéit à chaque ordre de l'Empereur Céleste. Il te dit de partir et tu n'oses pas désobéir. »
 
 « Laisse tomber, un cultivateur comme toi ne mérite même plus mon regard. Dégage! » Wang Lin agita sa manche, sans masquer son mépris. Son regard transperça l'esprit de l'Ascendant Empyréen Ming Dao.
 

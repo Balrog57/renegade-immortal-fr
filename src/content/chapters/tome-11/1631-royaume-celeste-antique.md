@@ -10,7 +10,7 @@ Le Dieu Ancien portait une cicatrice béante sur la poitrine, comme si quelqu'un
 
 Rugissement!
 
-Le Dieu Ancien se trouvait à moins de mille pieds de Wang Lin. Bien que cette distance parût considérable, elle n'était qu'une portée de poing comparée au corps d'un Dieu Ancien qui mesurait dix mille pieds. Un grondement sourd retentit alors que le Dieu Ancien à 8 étoiles décocha son coup.
+Le Dieu Ancien se trouvait à moins de mille pieds de Wang Lin. Bien que cette distance parût considérable, elle n'était qu'une portée de poing comparée au corps d'un Dieu Ancien qui mesurait dix mille pieds. Un grondement sourd retentit alors que le Dieu Ancien à 8 étoiles décochait son coup.
 
 Une tempête d'une puissance inouïe se propagea, soulevant les nuages. Une ombre gigantesque apparut alors derrière le Dieu Ancien.
 
@@ -22,7 +22,7 @@ Cette ombre était le symbole de l'identité et des origines du Dieu Ancien. Le 
 
 Bien que les yeux de Wang Lin fussent clos, il percevait tout avec une clarté absolue. Tandis que le poing du Dieu Ancien s'abattait, le monde entier trembla. Alors que l'impact se trouvait à moins de cent pieds de lui, Wang Lin n'ouvrit toujours pas les yeux. Au lieu de cela, il fit un pas en avant et leva la paume de sa main droite pour parer le coup.
 
-Grâce à ce blocage, le corps de Wang Lin ne bougea pas d'un iota et il parvint à dévier l'assaut du Dieu Ancien sur le côté. Ses yeux ternes se remplirent d'incrédulité en voyant son coup de poing, pourtant si puissant, être ainsi repoussé avec une telle aisance.
+Grâce à ce blocage, le corps de Wang Lin ne bougea pas d'un iota et il parvint à dévier l'assaut du Dieu Ancien sur le côté. Les yeux ternes du Dieu Ancien se remplirent d'incrédulité en voyant son coup de poing, pourtant si puissant, être ainsi repoussé avec une telle aisance.
 
 Après avoir dévié l'attaque, la paume de Wang Lin vint tapoter délicatement le vaste corps du Dieu Ancien.
 
@@ -102,7 +102,7 @@ L'Empreinte de l'Esprit Guerrier qui avait anéanti les quatre démons se retour
 
 Au moment où il ferma les paupières, un grondement de tonnerre retentit. Les quatre Dieux Anciens disparurent tous. Avant de mourir, ils semblèrent afficher un visage empreint de soulagement.
 
-« La Tribulation Céleste doit être terminée! » Wang Lin leva la tête et rouvrit les yeux. Il contempla la faille et s'en dirigea pas à pas. Lorsqu'il pénétra dans la brèche et découvrit ce qui s'y cachait, ses pupilles se contractèrent.
+« La Tribulation Céleste doit être terminée! » Wang Lin leva la tête et rouvrit les yeux. Il contempla la faille et se dirigea vers elle pas à pas. Lorsqu'il pénétra dans la brèche et découvrit ce qui s'y cachait, ses pupilles se contractèrent.
 
 Il vit le monde qu'il avait entrevu par le passé. C'était un univers infini sous un ciel sombre, dont le sol était hérissé d'innombrables statues gigantesques.
 

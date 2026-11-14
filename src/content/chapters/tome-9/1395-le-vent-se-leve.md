@@ -20,7 +20,7 @@ Alors que ses paroles résonnaient, une lueur étrange brilla dans ses yeux et i
 
 Wang Lin ferma les yeux et concentra son esprit sur la fusion. Sous l'effet du sort du Dao, d'innombrables démons fusionnaient entre eux. Le temps s'écoulait lentement, et en un clin d'œil, sept jours s'étaient écoulés.
 
-Durant ces sept jours, Wang Lin utilisa continuellement le sort du Dao sans accorder le moindre répit à lui-même. Ce jour-là, les âmes s'étaient fusionnées pour former une sphère qui émettait une lueur spectrale. Cette lumière devint de plus en plus intense jusqu'à illuminer l'intégralité de la grotte.
+Durant ces sept jours, Wang Lin utilisa continuellement le sort du Dao sans se relâcher le moins du monde. Ce jour-là, les âmes s'étaient fusionnées pour former une sphère qui émettait une lueur spectrale. Cette lumière devint de plus en plus intense jusqu'à illuminer l'intégralité de la grotte.
 
 Une aura violente émanait de la sphère et, simultanément, un rugissement semblable au cri de milliers de démons fusionnés retentit.
 
@@ -36,7 +36,7 @@ Wang Lin se détendit légèrement et tendit sa main droite pour saisir la Boute
 
 « Ce trésor d'ancien diable contient 3 000 âmes d'anciens diables. Je vais fusionner ces 3 000 âmes pour former l'âme de mon avatar d'ancien diable! » Wang Lin agita sa manche et la grotte fut aussitôt envahie par une brume imprégnée d'énergie démoniaque.
 
-Le temps passa lentement tandis que Wang Lin affinait les âmes démoniaques. Un mois s'écoula.
+Le temps passa lentement tandis que Wang Lin raffinait les âmes démoniaques. Un mois s'écoula.
 
 Il restait moins d'un mois avant la Sélection des Anciens Luo Sheng. Wang Lin était en culture fermée au sein du Clan An Xie depuis plus de deux mois! Durant cette période, un événement majeur s'était produit dans les Terres Déchues!
 
@@ -112,4 +112,4 @@ En entendant cela, l'homme d'âge moyen éclata de rire. L'extase brillait dans 
 
 « Bien, bien, bien! Tu es digne d'avoir été choisi par moi pour être le patriarche du clan, excellent travail!! Envoie immédiatement tous les membres du clan pour trouver la source de ce sang dans les Terres Déchues, coûte que coûte!! »
 
-Le patriarche du Clan Huo Que hocha rapidement la tête et s'apprêta à partir. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il réprimait son excitation. Il ajouta: « Il ne m'est pas commode de me rendre dans les Terres Déchues, je vous attendrai donc à l'extérieur pour vous accueillir. De plus, soyez prudents une fois sur place et vérifiez s'il ne s'agit pas d'un piège! »
+Le patriarche du Clan Huo Que hocha rapidement la tête et s'apprêta à partir. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il réprimait son excitation. Il ajouta: « Il m'est difficile d'aller dans les Terres Déchues, je vous attendrai donc à l'extérieur pour vous accueillir. De plus, soyez prudents une fois sur place et vérifiez s'il ne s'agit pas d'un piège! »

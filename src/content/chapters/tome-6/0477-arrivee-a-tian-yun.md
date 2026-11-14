@@ -54,7 +54,7 @@ Cette intention de tuer formait une onde de choc massive qui se déplaçait comm
 
 Dès lors, lorsque les Cultivateurs Marginaux apercevaient Wang Lin, ils s'écartaient de loin, n'osant plus le provoquer.
 
-Ainsi continua Wang Lin sa course, tel une bête primordiale descendant des cieux.
+Ainsi continua Wang Lin sa course, telle une bête primordiale descendant des cieux.
 
 Le temps passa lentement et, en un clin d'œil, une nouvelle année s'écoula.
 
@@ -98,9 +98,9 @@ Wang Lin s'arrêta à la lisière de ce brouillard. En l'observant, il ressentit
 
 Tandis que Wang Lin méditait, ses yeux s'illuminèrent soudainement; il recula de mille pieds et observa le gaz vert avec une expression grave.
 
-Le brouillard mouvait comme si d'immenses mains le manipulaient, se scindant sous cette force. Au même moment, un jeune homme vêtu d'une robe noire apparut. Son visage était ordinaire et son regard calme alors qu'il interrogeait Wang Lin: « Avez-vous un message diplomatique? »
+Le brouillard se mouvait comme si d'immenses mains le manipulaient, se scindant sous cette force. Au même moment, un jeune homme vêtu d'une robe noire apparut. Son visage était ordinaire et son regard calme alors qu'il interrogeait Wang Lin: « Avez-vous un message diplomatique? »
 
-Bien que son ton fût apaisé, ses yeux étaient impassibles et toute sa personne dégageait une modestie apparente, ce mélange conférait à l'homme une arrogance plus puissante encore que celle de ceux qui l'affichent ouvertement.
+Bien que son ton fût apaisé, ses yeux étaient impassibles et toute sa personne dégageait une allure quelconque, ce mélange conférait à l'homme une arrogance plus puissante encore que celle de ceux qui l'affichent ouvertement.
 
 Son arrogance n'avait plus besoin d'être démontrée, car elle était gravée dans ses os mêmes.
 

@@ -24,9 +24,9 @@ Zhang Hu eut un sourire amer. Il dit: « Tu as dû t'attirer les foudres de la B
 
 Une rage sourde monta en Wang Lin, mais il pensa aux yeux de ses parents, empreints d'espoir, et réprima son emportement. Il se coucha, le cœur bouillonnant de colère.
 
-Le second jour, alors que l'obscurité régnait encore, Wang Lin sortit de son lit. Zhang Hu ronflait toujours. Wang Lin enfila sa tenue grise et se dirigea rapidement vers le local des corvées. Dès son arrivée, le soleil émergea peu à peu de l'est. Le jeune homme vêtu de jaune ouvrit la porte et lança à Wang Lin un regard en coin. Il dit d'un ton narquois: « Au moins, tu es à l'heure. Entre prendre les seaux, puis sors par la porte est. Il y a une source dans la montagne, va y chercher de l'eau. »
+Le second jour, alors que l'obscurité régnait encore, Wang Lin sortit de son lit. Zhang Hu ronflait toujours. Wang Lin enfila sa tenue grise et se dirigea rapidement vers le local des corvées. Dès son arrivée, le soleil émergea peu à peu de l'est. Le jeune homme vêtu de jaune ouvrit la porte et lança à Wang Lin un regard en coin. Il dit d'un ton narquois: « Au moins, tu es à l'heure. Entre, prends les seaux, puis sors par la porte est. Il y a une source dans la montagne, va y chercher de l'eau. »
 
-L'homme ne prêta plus attention à Wang Lin. Il s'assit en tailleur sur le sol et respirait lentement face au lever du soleil. Une brume blanche presque invisible s'échappait de son nez, s'enroulant comme deux dragons.
+L'homme ne prêta plus attention à Wang Lin. Il s'assit en tailleur sur le sol et respira lentement face au lever du soleil. Une brume blanche presque invisible s'échappait de son nez, s'enroulant comme deux dragons.
 
 Wang Lin l'observa avec envie. Il entra ensuite dans la pièce pour inspecter les lieux. Enfin, derrière une porte, il aperçut les dix jarres et laissa échapper un sourire amer avant de marcher vers la porte est.
 
@@ -48,7 +48,7 @@ Peu de temps après, Zhang Hu revint, l'expression toujours marquée par la fati
 
 Le temps passa rapidement et, en un clin d'œil, un mois s'était écoulé depuis que Wang Lin était devenu disciple de la Secte Heng Yue.
 
-Wang Lin apprit que le travail de Zhang Hu consistait à couper du bois de chauffage. Il devait en couper chaque jour une quantité suffisante avant de pouvoir manger. Cela faisait trois ans qu'il accomplissait cette tâche depuis qu'il était devenu disciple honoraire de la Secte Heng Yue. Il y a trois ans, il ne mangeait qu'une fois tous les trois ou quatre jours, se remplissant l'estomac uniquement d'eau, mais désormais, il avait réussi à réduire ce délai à une fois tous les deux jours.
+Wang Lin apprit que le travail de Zhang Hu consistait à couper du bois de chauffage. Il devait en couper chaque jour une quantité suffisante avant de pouvoir manger. Cela faisait trois ans qu'il accomplissait cette tâche depuis qu'il était devenu disciple honoraire de la Secte Heng Yue. Trois ans plus tôt, il ne mangeait qu'une fois tous les trois ou quatre jours, se remplissant l'estomac uniquement d'eau, mais désormais, il avait réussi à réduire ce délai à une fois tous les deux jours.
 
 D'après lui, les disciples honoraires devaient accomplir des corvées pendant dix ans et être capables de prendre trois repas par jour avant même d'apprendre quelques techniques immortelles de base.
 
@@ -56,7 +56,7 @@ Les disciples intérieurs n'étaient pas dans leur situation. Ils avaient leur p
 
 De plus, il existait une classe intermédiaire entre les disciples intérieurs et les honoraires, comme Wang Hao qui était devenu un assistant, bien qu'il ne fût en réalité qu'un serviteur. Ces personnes n'avaient pas de corvées à effectuer et pratiquaient également quelques techniques de bas niveau; elles devaient simplement accomplir le travail assigné par leur maître. Cependant, ces individus possédaient très peu de talent et passaient toute leur vie à n'être que des serviteurs.
 
-Quant au prétendu « talent », Wang Lin apprit par Zhang Hu qu'il ne s'agissait rien d'autre que des racines spirituelles. Tout le monde en possédait, mais en quantités variables. Si l'un en disposait suffisamment, il pouvait apprendre une technique immortelle en un an; si l'on en manquait, cela pouvait prendre dix ans, voire cent ans.
+Quant au prétendu « talent », Wang Lin apprit par Zhang Hu qu'il ne s'agissait de rien d'autre que des racines spirituelles. Tout le monde en possédait, mais en quantités variables. Si l'un en disposait suffisamment, il pouvait apprendre une technique immortelle en un an; si l'on en manquait, cela pouvait prendre dix ans, voire cent ans.
 
 La vie d'un homme est limitée. Celui qui possède un talent médiocre ne parvient souvent à rien de notable de son vivant. C'est pourquoi la secte accordait une telle importance aux racines spirituelles.
 

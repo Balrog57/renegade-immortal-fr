@@ -10,7 +10,7 @@ Parmi les quatre individus, il y avait un vieil homme vêtu d'une robe taoïste.
 
 Il s'agissait de Yin Dongshen, celui qui redoutait le plus Wang Lin.
 
-Le dernier à prendre la parole fut l'homme d'âge mûr. Il fronça les sourcils et dit lentement: « Je suggère également de ne pas provoquer ce Wang Lin avant d'en informer l'Ancien Na Duo. Sa réputation est immense, et depuis qu'il est venu nous rendre visite, si nous... »
+Le dernier à prendre la parole fut l'homme d'âge mûr. Il fronça les sourcils et dit lentement: « Je suggère également de ne pas provoquer ce Wang Lin avant d'en informer l'Ancien Na Duo. Sa réputation est immense, et puisqu'il est venu nous rendre visite, si nous... »
 
 « Quand notre Secte Gui Yi a-t-elle jamais eu peur de qui que ce soit? Même si ce Wang Lin est célèbre, et alors? Même s'il était un dragon, il devrait encore se prosterner devant nous! » s'écria la femme d'âge mûr.
 
@@ -98,7 +98,7 @@ Elle s'était transformée en une simple poignée de terre!
 
 Cette petite masse dégageait une puissante aura spirituelle. C'était l'esprit de la formation terrestre!
 
-Les quatre restèrent silencieux, plongés dans leur réflexion, avant que le vieil homme en robe noire ne suffoque, les yeux emplis de terreur. Il regarda, hébété, Wang Lin refermer la main sur cette poignée de terre, qui disparut. Lorsque Wang Lin leva les yeux vers lui, l'homme poussa un cri involontaire.
+Les quatre restèrent silencieux, plongés dans leur réflexion, avant que le vieil homme en robe noire n'inspire brusquement, les yeux emplis de terreur. Il regarda, hébété, Wang Lin refermer la main sur cette poignée de terre, qui disparut. Lorsque Wang Lin leva les yeux vers lui, l'homme poussa un cri involontaire.
 
 Il n'était pas le seul. Dès que le regard de Wang Lin balaya la zone, la femme et les deux autres sentirent leur cuir chevelu picoter. Ils reculèrent immédiatement.
 

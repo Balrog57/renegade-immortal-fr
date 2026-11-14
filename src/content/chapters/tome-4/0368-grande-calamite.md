@@ -8,7 +8,7 @@ slug: grande-calamite
 ---
 Quelque part dans un pays de culture de rang 1 à Suzaku, un vieil homme sale qui dévorait une cuisse de poulet toussa soudainement plusieurs fois et recracha la viande qu'il avait en bouche. Il leva la tête et regarda au loin en direction du pays de Suzaku. Son visage était sombre comme l'eau lorsqu'il se redressa pour partir, mais après avoir réfléchi un instant, il se rassit lentement.
 
-Son expression était particulièrement laide alors qu'il marmonnait pour lui-même: « Senior frère, nous avons combattu tout au long de nos vies. Allons-nous continuer à nous battre même alors que nous sommes sur le point de mourir... J'ai perdu la bataille pour le titre de Suzaku à l'époque pour te laisser la victoire... Mais tu ne devrais pas aller trop loin! Puisque Wang Lin a pu revenir du Royaume Céleste, il est mon choisi! Si tu le ruines, je ruinerai Qian Feng! »
+Son expression était particulièrement laide alors qu'il marmonnait pour lui-même: « Senior frère, nous avons combattu tout au long de nos vies. Allons-nous continuer à nous battre même alors que nous sommes sur le point de mourir... J'ai perdu la bataille pour le titre de Suzaku à l'époque pour te laisser la victoire... Mais tu ne devrais pas aller trop loin! Puisque Wang Lin a pu revenir du Royaume Céleste, il est celui que j'ai choisi! Si tu le ruines, je ruinerai Qian Feng! »
 
 Il jeta la cuisse de poulet qu'il tenait et ses yeux eurent un éclat fugace.
 
@@ -90,7 +90,7 @@ Wang Lin serra les dents et fit volte-face pour tenter une nouvelle fuite.
 
 C'est alors que le cultivateur de la Transformation de l'Âme vêtu de noir laissa échapper un grognement méprisant. Il rattrapa Wang Lin comme l'éclair et frappa doucement son dos de sa paume.
 
-Wang Lin poussa un gémissement de douleur. Il n'eut que le temps de concentrer toute l'énergie spirituelle restante de son corps sur son dos pour bloquer l'impact avec l'épée céleste. Pourtant, la force brutale fut telle qu'il fut projeté au sol à plus d'un kilomètre de là. Il cracha une énorme bouffée de sang, mêlée à des fragments de ses organes internes.
+Wang Lin poussa un gémissement de douleur. Il n'eut que le temps de concentrer toute l'énergie spirituelle restante de son corps sur son dos pour bloquer l'impact avec l'épée céleste. Pourtant, la force brutale fut telle qu'il fut projeté au sol à plusieurs milliers de pieds de là. Il cracha une énorme bouffée de sang, mêlée à des fragments de ses organes internes.
 
 Le visage de Wang Lin était aussi livide que celui d'un cadavre. De nouvelles blessures venaient s'ajouter aux précédentes.
 

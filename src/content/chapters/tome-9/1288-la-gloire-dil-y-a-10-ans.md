@@ -68,7 +68,7 @@ Sous leurs regards, Wang Lin ne marqua aucune pause et arriva près du réseau d
 
 Au moment où sa paume toucha la formation, Wang Lin dégagea une aura terrifiante!
 
-« Effondrez-vous! »
+« Effondre-toi! »
 
 Des grondements assourdissants résonnèrent à travers le monde, faisant trembler les trois continents. La formation vacilla violemment et commença à briller intensément. Des craquements retentirent alors que cinq fissures apparurent, suivant la ligne de ses cinq doigts!
 

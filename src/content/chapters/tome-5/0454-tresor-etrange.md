@@ -10,13 +10,13 @@ Wang Lin réfléchit un instant avant de s'élancer vers l'horizon. Il déploya 
 
 Ces deux derniers jours, Wang Lin avait survolé de nombreux lieux dévastés par les failles. Il aperçut au loin un bassin dont les auras d'épée perçaient le ciel comme des lames tranchantes.
 
-Il scanna la zone avec son sens divin et découvrit qu'elle comptait au moins plusieurs dizaines de milliers de bassins. Ils couvraient une superficie si vaste qu'il ne parvenait même pas à en voir les limites.
+Il balaya la zone avec son sens divin et découvrit qu'elle comptait au moins plusieurs dizaines de milliers de bassins. Ils couvraient une superficie si vaste qu'il ne parvenait même pas à en voir les limites.
 
 Une longue épée était plantée dans chaque bassin. Bien que la moitié des lames fussent enfouies sous terre, Wang Lin pouvait clairement ressentir leur puissante intention de l'épée.
 
 « Des fragments d'âmes métalliques... » songea Wang Lin.
 
-Il passait du temps dans le Tombeau Suzaku, et tout était si différent de ce que Situ Nan lui avait décrit. Wang Lin n'était pas stupide; il avait déjà ses propres spéculations sur l'origine de ces changements.
+Il se trouvait depuis un bon moment dans le Tombeau Suzaku, et tout était si différent de ce que Situ Nan lui avait décrit. Wang Lin n'était pas stupide; il avait déjà ses propres spéculations sur l'origine de ces changements.
 
 « Je crains que le Tombeau Suzaku ne soit en réalité le Cristal de la Planète de Culture lui-même. Je suis dans le Tombeau Suzaku, mais aussi à l'intérieur du Cristal de la Planète de Culture! »
 
@@ -80,7 +80,7 @@ Xu Liguo s'arrêta net, n'osant plus avancer. Il lança un regard complaisant à
 
 Cependant, alors que la moitié de son corps était déjà rentrée dans l'arme, Wang Lin saisit l'épée et la projeta, avec Xu Liguo à l'intérieur, en plein milieu de la masse d'épées de trésor.
 
-Xu Liguo poussa un cri de terreur, tentant de se replier précipitamment dans l'épée céleste pour tenter de s'enfuir.
+Xu Liguo poussa un cri de terreur, tentant de se replier précipitamment dans l'épée céleste pour s'enfuir.
 
 « Si tu es incapable de percer ce lieu pour moi, alors il est inutile de te garder! »
 

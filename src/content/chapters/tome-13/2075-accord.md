@@ -12,7 +12,7 @@ Au vu de l'érosion, la formation devrait se dissiper d'ici environ deux jours.
 
 Lorsque Wang Lin avait libéré Chi Hunzi, bien que celui-ci fût affaibli, il demeurait trop puissant pour lui. Désormais, le maître avait retrouvé son apogée, mais face à Wang Lin, il n'était plus qu'une simple fourmi.
 
-Une fourmi qu'il pourrait écraser d'innombrables fois d'un simple point de doigt.
+Une fourmi qu'il pourrait écraser d'innombrables fois d'un simple doigt.
 
 Dans un ricanement froid, Wang Lin fit un pas en avant et disparut de Luotian. Dès sa disparition, la porte de lumière s'évanouit comme si elle n'avait jamais existé.
 
@@ -28,7 +28,7 @@ Après avoir observé les alentours, Wang Lin agita la main droite. Trois rayons
 
 C'étaient Xu Liguo, Liu Jinbiao et le seul disciple à avoir suivi Wang Lin de retour dans le monde des grottes: Treize.
 
-Treize n'était pas un être ordinaire. En voyant la brume rouge, il fut un instant déconcerté, mais se reprit rapidement. Il s'inclina devant Wang Lin et resta silencieusement à ses côtés.
+Treize n'était pas un être ordinaire. En regardant le ciel et la terre alentour, il fut un instant déconcerté, mais se reprit rapidement. Il s'inclina devant Wang Lin et resta silencieusement à ses côtés.
 
 Pour lui, que ce soit sur le Continent Xian Gang ou dans le monde des grottes, peu importait, tant qu'il pouvait rester auprès de son maître.
 
@@ -38,7 +38,7 @@ C'était comme le sentiment d'un homme rentrant dans son petit village natal apr
 
 Il était clairement écrit sur leurs visages: « Vous savez quoi, je suis allé sur le Continent Xian Gang! Cet endroit, il est immense. »
 
-Wang Lin leva les yeux vers le ciel et dit: « Nous sommes de retour à la maison, faites ce que vous voulez. Je vais aller saluer de vieux amis. » Puis, d'un seul pas, il s'élança dans les airs.
+Wang Lin leva les yeux vers le ciel et dit: « Nous sommes de retour à la maison, faites ce que vous voulez. Je vais aller revoir de vieux amis. » Puis, d'un seul pas, il s'élança dans les airs.
 
 En pénétrant dans le Royaume Céleste, Wang Lin avait déjà balayé les environs de son Sens Divin. Il vit énormément de choses, et Mu Bingmei fut l'une d'entre elles.
 
@@ -62,7 +62,7 @@ Une femme magnifique, un parapluie à la main. Ses longs cheveux noirs lui donna
 
 « Si je suis encore en vie, je reviendrai... » Wang Lin regarda la femme devant lui. Son image se superposait à ses souvenirs et fusionnait lentement avec son cœur.
 
-Mu Bingmei n'osait croire ce qu'elle voyait. Elle était totalement stupéfaite. Dans un état de transe, la silhouette blanche de Wang Lin devint plus profonde encore, jusqu'à s'ancrer dans sa mémoire et se fondre dans son âme.
+Mu Bingmei n'osait croire ce qu'elle voyait. Elle était totalement stupéfaite. Dans un état de transe, la silhouette blanche de Wang Lin devint plus profonde encore, jusqu'à s'ancrer dans sa mémoire et se fondre dans son cœur.
 
 En un instant, elle sembla revoir la Secte Heng Yue de la planète Suzaku, d'il y a des millénaires. Parmi la foule, il n'y avait qu'un seul jeune homme qui ne s'était pas laissé éblouir par sa beauté.
 
@@ -74,7 +74,7 @@ Enfin, les images s'arrêtèrent sur l'instant où l'homme quitta le monde des g
 
 Dans cette averse, la silhouette de Wang Lin paraissait si singulière qu'elle lui brisait le cœur. Tandis que son cœur se serrait, elle vit son expression indifférente s'adoucir. Elle comprit que c'était parce qu'ils se séparaient et qu'il ne reviendrait peut-être jamais.
 
-« Si je suis encore en vie, je viendrai te saluer... » Mu Bingmei mordit sa lèvre inférieure tandis que les larmes perlaient au coin de ses yeux. Depuis le départ de Wang Lin du monde des grottes, elle ne s'était jamais montrée aussi vulnérable.
+« Si je suis encore en vie, je viendrai t'accueillir... » Mu Bingmei mordit sa lèvre inférieure tandis que les larmes perlaient au coin de ses yeux. Depuis le départ de Wang Lin du monde des grottes, elle ne s'était jamais montrée aussi vulnérable.
 
 Wang Lin regarda la belle femme et esquissa un sourire tendre. Il soupira en s'approchant d'elle, et ensemble, ils contemplèrent le ciel rouge sang.
 

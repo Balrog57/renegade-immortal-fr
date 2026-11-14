@@ -88,7 +88,7 @@ Il répéta l'opération plusieurs fois jusqu'à ce qu'il maîtrise parfaitement
 
 « Pourtant, ce Tan Lang est très étrange. Il est l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs, tout comme Qing Shui et Situ, mais pourquoi n'a-t-il pas eu besoin de se réincarner comme eux pour quitter le monde caverneux?... Même avec l'aide de ce Grand Empyréen, Xuan Luo est également intervenu... Cette affaire demeure inexplicable. » Cette question tourmentait Wang Lin depuis longtemps sans qu'il ne puisse en trouver la réponse.
 
-« Peu importe, je saurai peut-être en plus lors de notre rencontre. Y réfléchir davantage est vain. Je dois d'abord régler le problème du feu terrestre et de mon essence de feu. Du Qing de la Secte Cang Long n'est pas faible; s'il vient à ma rencontre, la bataille sera féroce! »
+« Peu importe, j'en saurai peut-être plus lors de notre rencontre. Y réfléchir davantage est vain. Je dois d'abord régler le problème du feu terrestre et de mon essence de feu. Du Qing de la Secte Cang Long n'est pas faible; s'il vient à ma rencontre, la bataille sera féroce! »
 
 « Je viens d'arriver sur le Continent Xian Gang et je ne souhaite pas attirer trop l'attention, mais il semble que je doive désormais me montrer un peu plus flamboyant pour asseoir ma position! » Une lueur froide traversa le regard de Wang Lin.
 

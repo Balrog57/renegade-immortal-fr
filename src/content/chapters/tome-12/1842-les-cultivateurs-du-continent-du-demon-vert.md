@@ -60,7 +60,7 @@ Le temps s'écoulait lentement. En un éclair, une journée passa. Durant cette 
 
 Après cette journée, la gigantesque Mer Dan avait baissé de 100 pieds, comme si l'eau s'était évaporée dans le néant. Cela commença à attirer l'attention des cultivateurs, mais en plein milieu du massacre, personne n'y prêta véritablement attention.
 
-C'en était de même pour les trois individus sous les drapeaux qui perçaient le ciel du côté du Continent Lu Mo.
+Il en allait de même pour les trois individus sous les drapeaux qui perçaient le ciel du côté du Continent Lu Mo.
 
 La belle femme consulta la boussole et ordonna: « Nord-est, à 390 000 kilomètres. Une escouade de Soldats du Démon Vert, partez! » Instantanément, des dizaines de cultivateurs s'élancèrent, plongeant dans l'eau pour disparaître sans laisser de trace.
 
@@ -80,7 +80,7 @@ Le jeune homme au visage de jade blanc sourit et leva la main droite. Un éventa
 
 Le cultivateur nommé Qian afficha une expression venimeuse et, sans un mot, s'avança dans la formation pour disparaître. Le jeune homme au visage de jade blanc secoua la tête avec un sourire et le suivit.
 
-Une fois les deux partis, la femme, entourée de milliers de cultivateurs, fronça les sourcils en observant sa boussole, troublée par un détail.
+Après le départ des deux, la femme, entourée de milliers de cultivateurs, fronça les sourcils en observant sa boussole, troublée par un détail.
 
 « Étrange... pourquoi le niveau de l'eau de la Mer Dan a-t-il autant chuté en une seule journée... » Son regard balaya tous les points blancs, y compris celui représentant Wang Lin.
 

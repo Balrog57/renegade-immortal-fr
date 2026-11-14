@@ -30,27 +30,27 @@ Xuan Luo marqua un temps d'arrêt, puis resta plongé dans une longue réflexion
 
 Le geste de Xuan Luo avait soudainement fait vibrer le cœur de Wang Lin. Cette aura lui procurait une sensation de chaleur intérieure. Elle ne supprimait pas sa culture, mais résistait au son des cloches en lui.
 
-Cela permit à la culture et aux essences de Wang Lin de se détendre un peu. Sa culture et ses essences se rassemblèrent rapidement. Tandis que le pouvoir de Xuan Luo imprégnait l'air et que le son des cloches s'annulait, ils finirent par s'estomper après un temps indéterminé. La culture et les essences de Wang Lin circulaient rapidement dans son corps lorsque, sans aucun vent, les cloches se remirent à résonner et une nouvelle vague de sons déferla sur l'esprit de Wang Lin.
+Cela permit à la culture et aux essences de Wang Lin de se détendre un peu. Sa culture et ses essences se rassemblèrent rapidement. Le pouvoir de Xuan Luo imprégna l'air et s'annula avec le son des cloches, puis ils finirent par s'estomper après un temps indéterminé. La culture et les essences de Wang Lin circulaient rapidement dans son corps lorsque, sans aucun vent, les cloches se remirent à résonner et une nouvelle vague de sons déferla sur l'esprit de Wang Lin.
 
 Une nouvelle confrontation s'engagea entre ces sons et la culture et les essences de Wang Lin.
 
-Wang Lin cracha une bouchée de sang et son corps trembla. Il recula, descendant les marches depuis le sommet de la montagne.
+Wang Lin cracha une gorgée de sang et son corps trembla. Il recula, descendant les marches depuis le sommet de la montagne.
 
-« Dissipe ta culture céleste, efface tes essences, oublie les souvenirs de ton passé, éveille l'héritage de ton lignage... Après cela, je te graverai le titre de gardien du Dao Gu et une culture de Grand Empyréen! » Une voix froide et antique résonna dans le cœur de Wang Lin, mêlée au son des cloches.
+« Dissipe ta culture céleste, efface tes essences, oublie les souvenirs de ton passé, éveille l'héritage de ton lignage... Après cela, je te conférerai le titre de gardien du Dao Gu et une culture de Grand Empyréen! » Une voix froide et antique résonna dans le cœur de Wang Lin, mêlée au son des cloches.
 
 Wang Lin leva soudain la tête.
 
 Ses yeux étaient injectés de sang et sa culture s'activa instantanément. Conjuguée à son pouvoir ancien, elle atteignit le sommet de sa puissance.
 
-« Je n'ai aucune culture du clan céleste! Ce que je possède est ma propre force, acquise au cours de mes plus de 3 000 ans de vie! De quel droit m'ordonnez-vous de la dissiper?! » Wang Lin rugit et les sons des cloches à l'intérieur de son corps éclatèrent. Ils entrèrent en collision avec sa culture et il cracha une bouchée de sang. Il continua de reculer comme poussé par une force invisible, sur plusieurs centaines de marches, jusqu'à ce qu'il se retrouve au milieu de la montagne.
+« Je n'ai aucune culture du clan céleste! Ce que je possède est ma propre force, acquise au cours de mes plus de 3 000 ans de vie! De quel droit m'ordonnez-vous de la dissiper?! » Wang Lin rugit et les sons des cloches à l'intérieur de son corps éclatèrent. Ils entrèrent en collision avec sa culture et il cracha une gorgée de sang. Il continua de reculer comme poussé par une force invisible, sur plusieurs centaines de marches, jusqu'à ce qu'il se retrouve au milieu de la montagne.
 
 « Mes essences sont la sédimentation de ma vie, elles portent mon destin et mes luttes! De quel droit m'ordonnez-vous de les dissiper?! » Wang Lin leva les yeux, son regard de plus en plus injecté de sang. Il poussa un rugissement vital.
 
-Alors qu'il rugissait, Wang Lin cracha une troisième bouchée de sang. Son corps trembla tandis que le son des cloches heurtait à nouveau sa culture. Il recula jusqu'au pied de la montagne. Il ne restait plus que 19 marches derrière lui!
+Alors qu'il rugissait, Wang Lin cracha une troisième gorgée de sang. Son corps trembla tandis que le son des cloches heurtait à nouveau sa culture. Il recula jusqu'au pied de la montagne. Il ne restait plus que 19 marches derrière lui!
 
 « Mes souvenirs sont encore plus précieux que ma culture, mes essences, mon lignage ou le pouvoir de Grand Empyréen que vous pourriez m'offrir! Je vis pour mes souvenirs. De quel droit m'ordonnez-vous de les oublier?! » Wang Lin laissa échapper son rugissement le plus puissant. Les sons des cloches à l'intérieur de son corps tonnèrent comme s'ils avaient explosé.
 
-Wang Lin cracha une quatrième bouchée de sang et recula de 18 marches. À la dernière marche, son pied droit percuta le sol avec fracas et il se força à s'arrêter là.
+Wang Lin cracha une quatrième gorgée de sang et recula de 18 marches. À la dernière marche, son pied droit percuta le sol avec fracas et il se força à s'arrêter là.
 
 Levant les yeux, le regard injecté de sang et l'expression farouche, il parvenait à réprimer totalement la puissance des cloches en lui. Une fois ce pouvoir maîtrisé, la culture de Wang Lin explosa. Ses cheveux devinrent soudainement mi-noirs, mi-blancs, et derrière lui apparut la silhouette d'un soleil de Grand Empyréen!
 
@@ -58,7 +58,7 @@ Ce soleil de Grand Empyréen était lui aussi mi-noir, mi-blanc. Il dégageait u
 
 Au moment où le soleil de Grand Empyréen de Wang Lin apparut, le ciel au-dessus du Mont Gu Dao changea!
 
-Une voix indifférente émana de la tour céleste et résonna à travers le monde: « Le Mont Gu Dao compte 999 marches au total. Si tu parviens à en franchir 300, je pourrai pardonner ton manque de respect! »
+Une voix indifférente émana de la haute tour et résonna à travers le monde: « Le Mont Gu Dao compte 999 marches au total. Si tu parviens à en franchir 300, je pourrai pardonner ton manque de respect! »
 
 Au sommet de la tour siégeait une silhouette enveloppée de brume, et devant elle se tenait Xuan Luo.
 

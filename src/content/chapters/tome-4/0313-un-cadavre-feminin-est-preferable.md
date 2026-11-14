@@ -18,7 +18,7 @@ Hongdie n'avait pas parlé depuis plusieurs jours. Elle laissa échapper un grog
 
 Le regard de Wang Lin devint intense alors qu'il lâchait froidement: « Ignorante! »
 
-Être traitée d'ignorante une fois de plus fit s'emparer l'intention meurtrière des yeux de Hongdie, qui fixa Wang Lin avec hostilité.
+Être traitée d'ignorante une fois de plus fit briller l'intention meurtrière dans les yeux de Hongdie, qui fixa Wang Lin avec hostilité.
 
 Chi Hu esquissa un sourire amer, leva rapidement la tête et dit: « Frère Zeng, il s'agit bien de la deuxième couche, mais mon ancêtre Xi Zu avait spéculé qu'il pourrait y avoir une troisième couche en dessous. »
 
@@ -116,7 +116,7 @@ Chi Hu lança un regard sombre à Hongdie. Après un long moment, il prit une pr
 
 Wang Lin dit lentement: « S'il existe une troisième couche, ceci doit en être l'entrée. »
 
-Hongdie laissa échapper un léger renâcle. Elle se déplaça discrètement près de la mare et plongea son regard dans l'eau.
+Hongdie laissa échapper un léger reniflement. Elle se déplaça discrètement près de la mare et plongea son regard dans l'eau.
 
 À cet instant précis, quelqu'un descendit du tunnel supérieur. En un seul pas, il apparut comme une ombre, flottant dans les airs juste au-dessus de la mare devant eux.
 

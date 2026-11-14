@@ -60,7 +60,7 @@ Allongé là, une intention meurtrière bouillonnait en lui. Il n'avait jamais �
 
 Le temps passa lentement. Une heure plus tard, le bruit des chariots se fit entendre au loin, se rapprochant progressivement.
 
-Soudain, les convois s'arrêtèrent et un homme bondit d'une monture. Il arriva rapidement auprès de Wang Lin et s'écria: « Chef, c'est un cadavre! »
+Soudain, les convois s'arrêtèrent et un cavalier arriva au galop auprès de Wang Lin et s'écria: « Chef, c'est un cadavre! »
 
 Sur ces mots, il sauta à terre et envoya Wang Lin rouler sur le bas-côté, avant de remonter en selle pour rejoindre les chariots.
 
@@ -112,7 +112,7 @@ L'eau, dont il ne pouvait deviner la couleur, lui montait jusqu'au cou et dégag
 
 « Il semble qu'un cultivateur ayant tout perdu soit encore plus misérable qu'un mortel... » Les yeux de Wang Lin étaient calmes. Une pointe de rage, née de sa frustration, était habilement dissimulée dans son regard.
 
-Le Wang Lin capable d'appeler le vent et la pluie n'existait plus. Il avait perdu toute énergie spirituelle, son âme originelle s'était effondrée, et il ne possédait même pas la vigueur d'un mortel ordinaire. Il ne pouvait même plus ouvrir son sac de rangement, qu'il avait sans doute perdu au profit de ces brigands.
+Le Wang Lin capable d'appeler le vent et la pluie n'existait plus. Il avait perdu toute énergie spirituelle, son âme originelle s'était effondrée, et il ne possédait même pas la vigueur d'un mortel ordinaire. Son sac de rangement avait disparu, sans doute pris par ces brigands.
 
 À cet instant, la magnifique silhouette de Liu Mei survola le Village des Nuages de Feu. Elle ne baissa même pas les yeux, ignorant que l'homme qu'elle cherchait se trouvait précisément dans ce village.
 

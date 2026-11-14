@@ -8,7 +8,7 @@ slug: cultiver-en-etant-piege
 ---
 Wang Lin apparut devant le septième étage du pavillon des trésors. Dès son apparition, il se transforma en un rayon de lumière et s'élança vers l'horizon.
 
-En chemin, Wang Lin progressait à une vitesse fulgurante, se dirigeant droit vers le Pavillon Zi Lin. Maintenant qu'il possédait suffisamment de jades célestes, il prévoyait d'entrer en culture en isolement pour les absorber tous et atteindre le stade intermédiaire de la Transformation de l'Âme le plus rapidement possible. Ainsi, il pourrait prétendre au titre de véritable disciple dans trois mois!
+En chemin, Wang Lin progressait à une vitesse fulgurante, se dirigeant droit vers le Pavillon Zi Lin. Maintenant qu'il possédait suffisamment de jades célestes, il prévoyait d'entrer en retraite pour les absorber tous et atteindre le stade intermédiaire de la Transformation de l'Âme le plus rapidement possible. Ainsi, il pourrait prétendre au titre de véritable disciple dans trois mois!
 
 La vitesse de Wang Lin était telle qu'il créait des détonations soniques, le rendant très voyant dans le calme de cette Montagne Zi Zong. À cet instant précis, juste en dessous de sa trajectoire, un élégant porche en bambou abritait trois vieillards. Ils étaient tous les trois des anciens disciplinaires de la Division Pourpre. L'un d'eux leva les yeux vers l'endroit où Wang Lin avait disparu avant de laisser échapper un grognement et de dire, d'un ton mécontent: « Ce Wang Lin est bien trop arrogant. Il ose user d'une telle vitesse au sein même du domaine de la secte! »
 
@@ -38,7 +38,7 @@ Cet homme était vêtu de bleu, avec trois dragons azur brodés sur sa poitrine.
 
 « Stade avancé de la Transformation de l'Âme! Et un niveau de culture légèrement supérieur à celui de la Quatrième Sœur; il doit être au sommet du stade avancé de la Transformation de l'Âme! » Les pupilles de Wang Lin se contractèrent imperceptiblement.
 
-Sima Rufeng déclara d'une voix forte: « Junior frère Wang Lin, bien que nous ne soyons pas de la même division, j'ai entendu parler de vous. Aujourd'hui, je vais vous présenter un autre Senior frère. Senior frère Wang, votre homonyme est venu ici; montrez-vous donc. »
+Sima Rufeng déclara d'une voix forte: « Junior frère Wang Lin, bien que nous ne soyons pas de la même division, j'ai entendu parler de vous. Aujourd'hui, je vais vous présenter un autre Senior frère. Senior frère Wang, votre parent de clan est venu ici; montrez-vous donc. »
 
 « Humph! » Un son glacial résonna dans le vide, empreint d'une froideur tranchante. Wang Lin se retourna et constata qu'une autre personne s'était manifestée à plusieurs centaines de pieds derrière lui sans qu'il ne s'en aperçoive.
 
@@ -48,7 +48,7 @@ Ce regard dégageait une froideur telle qu'il semblait tout contrôler; c'était
 
 « Bien qu'il n'ait pas encore atteint le stade Ascendant, il en est à mi-chemin... » Le visage de Wang Lin s'assombrit. Avec eux cinq, leur intention était évidente. Il posa lentement la main sur son sac de rangement.
 
-À cet instant, la Quatrième Sœur de la Division Pourpre afficha un regard impuissant et dit: « Septième Frère, on m'a demandé d'agir, je n'ai pas le choix. J'espère que vous pourrez me comprendre. »
+À cet instant, la Quatrième Sœur de la Division Pourpre afficha un air impuissant et dit: « Septième Frère, on m'a demandé d'agir, je n'ai pas le choix. J'espère que vous pourrez me comprendre. »
 
 Sur ces mots, elle forma un sceau de la main, pointa Wang Lin du doigt et entonna un chant. Un rayon de lumière argentée jaillit de son corps et enveloppa les 5 kilomètres environnants.
 

@@ -76,7 +76,7 @@ Tout en réfléchissant, le regard de Wang Lin passa sur le garçon. Celui-ci é
 
 Après un instant de réflexion, le garçon dit à Cang Songzi: « Si nous ne partons pas maintenant, quelqu'un d'autre doit-il encore venir? »
 
-« Il en manque toujours une... » Avant que Cang Songzi n'ait pu achever sa phrase, il leva soudainement la tête vers le lointain. Presque simultanément, le garçon et Yun Hunzi levèrent aussi les yeux.
+« Il en manque encore un... » Avant que Cang Songzi n'ait pu achever sa phrase, il leva soudainement la tête vers le lointain. Presque simultanément, le garçon et Yun Hunzi levèrent aussi les yeux.
 
 Wang Lin sentit nettement la terre trembler légèrement. Il regarda et vit une silhouette imposante s'approcher du continent sauvage à travers la brume. La silhouette se rapprochait de plus en plus jusqu'à révéler un homme grand et robuste vêtu de pourpre.
 
@@ -88,7 +88,7 @@ En un clin d'œil, l'homme robuste fut devant eux. Il les dévisagea froidement 
 
 Personne ne le vit faire le moindre mouvement, mais dès qu'il prit la parole, les centaines de bêtes commencèrent à rugir dans un fracas assourdissant. Soudain, certaines d'entre elles s'effondrèrent en un amas de chair et de sang. Rapidement, toutes les bêtes derrière lui périrent.
 
-À la mort de ces créatures, la terre devint rouge de sang et une odeur de mort se fit dense. Simultanément, les âmes des bêtes se rassemblèrent devant l'homme robuste et se condensèrent rapidement. Elles finirent par former un vortex noir que l'homme pinça de sa main droite, le transformant instantanément en une pilule noire.
+À la mort de ces créatures, la terre devint rouge de sang et une odeur de sang se fit dense. Simultanément, les âmes des bêtes se rassemblèrent devant l'homme robuste et se condensèrent rapidement. Elles finirent par former un vortex noir que l'homme pinça de sa main droite, le transformant instantanément en une pilule noire.
 
 L'homme robuste dévora la pilule et dit calmement: « Je suis arrivé tôt, alors j'en ai profité pour raffiner les bêtes féroces d'ici. »
 

@@ -62,9 +62,9 @@ Il scruta l'horizon, un éclat de froideur dans le regard.
 
 Dès leur apparition, tous tournèrent le regard vers une seule direction: celle où se trouvait Wang Lin en plein mouvement!
 
-Au même instant, dans le Kun Xu, alors que des ondulations résonnaient entre les étoiles, d'autres Tian Yunzis commencèrent à apparaître.
+Au même instant, dans le Kun Xu, alors que des ondulations résonnaient entre les étoiles, d'autres Tian Yunzi commencèrent à apparaître.
 
-À l'instant même, ils fixèrent tous Zhao He!
+Aussitôt, ils fixèrent tous Zhao He!
 
 Simultanément, des ondulations parcoururent Luotian et la Mer Yun. Le nombre total d'avatars à travers les quatre systèmes stellaires approchait désormais les 3 000!
 
@@ -82,7 +82,7 @@ Ses paroles précédentes semblaient banales, mais chaque mot cachait une intent
 
 Mais Tian Yunzi ne s'attendait pas à ce que Wang Lin, qui semblait incapable de trouver son corps originel, en soit désormais capable!
 
-Tian Yunzi lui avait donné cette confiance! C'étaient les 3 000 avatars de Tian Yunzi qui lui offraient ce pouvoir!
+Tian Yunzi lui avait donné cette confiance! C'étaient les 3 000 avatars de Tian Yunzi qui lui donnaient cette confiance!
 
 Wang Lin pouvait verrouiller chaque avatar. Il pouvait utiliser leurs auras pour traquer le corps originel!
 

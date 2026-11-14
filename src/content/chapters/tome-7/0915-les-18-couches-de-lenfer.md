@@ -100,7 +100,7 @@ C'était son propre domaine qu'il avait créé pour l'Arsenal Magique!
 
 Bai Fan possédait le Royaume Mystérieux et Qing Shui son Royaume Sha Lu. Wang Lin, lui, avait ses 18 Couches de la Réincarnation Infernale!
 
-Le Sceau Céleste servait de terre, les sceaux dorés, la rivière des enfers de cycle de réincarnation, le tout imprégné d'une aura de ressentiment pour parfaire les 18 couches de l'enfer.
+Le Sceau Céleste servait de terre, les sceaux dorés et la rivière des enfers servant de cycle de réincarnation, le tout imprégné d'une aura de ressentiment pour parfaire les 18 couches de l'enfer.
 
 Plus on descendait dans ces 18 couches, plus les âmes à l'intérieur étaient puissantes. Il n'y avait pas de fragments d'âme entre la 15e et la 18e couche, mais il y en avait un dans la 14e! Ce fragment était enveloppé d'un brouillard sanglant et d'une rancœur monstrueuse: c'était Xue Zu, tué par Wang Lin!
 
@@ -114,4 +114,4 @@ Wang Lin se leva et contempla les 18 couches de l'enfer dans le ciel. Un vortex 
 
 Un gaz noir infini s'échappa de cette énergie. Ce gaz noir représentait toutes les personnes tuées par Wang Lin. Dès qu'ils approchèrent des 18 couches de l'enfer, chaque couche les absorba selon leur force.
 
-Au même moment, Wang Lin frappa son sac de stockage et l'Étendard de l'Âme s'envola. Il agita le drapeau pour l'ouvrir, et les fragments d'âme s'en échappèrent comme des démons en furie.
+Au même moment, Wang Lin frappa son sac de stockage et l'Étendard de l'Âme s'envola. Il agita l'étendard pour l'ouvrir, et les fragments d'âme s'en échappèrent frénétiquement.

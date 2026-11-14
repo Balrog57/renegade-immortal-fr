@@ -74,7 +74,7 @@ La seule option était la confrontation!
 
 Le regard de Wang Lin se glaça et il fit un pas en avant. Il leva la main droite et déclara: « Invoque le Vent! » Wang Lin ne perdit pas de mots face à cet adversaire et utilisa son sort le plus puissant. Il visait la première place, et s'il s'empêtrait dans un combat prolongé avec cet homme, son élan faiblirait et l'obtention du premier rang deviendrait laborieuse.
 
-Une rafale de vent noir apparut soudainement. Ce vent était infini et envahit toute la zone. L'énergie tranchante qui scellait l'espace fut incapable de lui résister; les lames s'effondrèrent en fragments et furent balayées par le courant!
+Une rafale de vent noir apparut soudainement. Ce vent était infini et envahit toute la zone. L'énergie tranchante qui scellait l'espace fut incapable de lui résister; ces énergies s'effondrèrent en fragments et furent balayées par le courant!
 
 Le vent noir sifflait, créant un souffle glacial capable d'anéantir toute vie. Deux dragons noirs surgirent immédiatement de la tempête. Chacun mesurait dix mille pieds de long et, au rythme de leurs mouvements, de puissants grondements faisaient écho dans l'arène. Les rugissements de ces dragons féroces étaient comme la colère des cieux!
 
@@ -88,7 +88,7 @@ Au centre de l'arène, Wang Lin se tenait debout dans sa robe blanche, entouré 
 
 « Si tu veux combattre, alors combattons! » Une voix si calme qu'elle en était glaciale émana de Wang Lin.
 
-À cet instant, les expressions de tous les cultivateurs qui assistaient au sort changeant radicalement. Même les ancêtres des grandes familles furent frappés de stupeur.
+À cet instant, les expressions de tous les cultivateurs qui assistaient au sort changèrent radicalement. Même les ancêtres des grandes familles furent frappés de stupeur.
 
 « Ceci... Quel genre de sort est-ce là?! »
 

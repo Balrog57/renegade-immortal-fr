@@ -34,7 +34,7 @@ Wang Lin ne tourna pas la tête et ne daigna même pas regarder l'assaillant. Il
 
 Un rayon de lumière noire jaillit à nouveau. D'une rapidité fulgurante, il chargea l'énergie de l'épée. En un instant presque imperceptible, les deux forces entrèrent en collision!
 
-Un gémissement s'échappa de l'énergie de l'épée alors qu'elle se désintégrait, révélant la silhouette d'un homme. Son visage était d'une pâleur extrême; il cracha une bouchée de sang avant de battre en retraite frénétiquement. Sans aucune hésitation, il redoubla d'efforts pour s'éloigner.
+Un gémissement s'échappa de l'énergie de l'épée alors qu'elle se désintégrait, révélant la silhouette d'un homme. Son visage était d'une pâleur extrême; il cracha une gorgée de sang avant de battre en retraite frénétiquement. Sans aucune hésitation, il redoubla d'efforts pour s'éloigner.
 
 Cependant, le Doigt de la Mort fut trop rapide: il rattrapa l'homme en un éclair et s'imprima dans sa poitrine.
 

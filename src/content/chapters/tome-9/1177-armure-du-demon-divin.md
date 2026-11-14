@@ -82,7 +82,7 @@ Bien que cette pierre de montagne fût rare, elle n'avait provoqué qu'un léger
 
 « Ce trésor est une armure! » L'Ancien de la Secte Bao Yu prit une profonde inspiration, une pointe de doute et d'excitation dans les yeux. Il agita sa main droite et un amas de gaz noir apparut, laissant deviner la forme vague d'une armure à l'intérieur.
 
-Dès l'apparition de ce gaz noir, les expressions de certains cultivateurs changèrent et ils se figèrent. Parmi eux figuraient le vieil homme au visage balafré, le lettré en blanc et sa compagnie.
+Dès l'apparition de ce gaz noir, certains cultivateurs se concentrèrent pour regarder. Parmi eux figuraient le vieil homme au visage balafré, le lettré en blanc et sa compagnie.
 
 « Je demande au Daoïste Lu de lever le sceau afin que nous puissions mieux l'examiner. » Le vieil homme joignit les mains vers Wang Lin, soulignant que cet objet appartenait à Wang Lin.
 
@@ -122,7 +122,7 @@ L'Ancien de la Secte Dao Fa hésita, puis serra les dents: « 10 000 cristaux d'
 
 À l'annonce de ce prix, les cultivateurs environnants haletèrent. Un tel niveau d'enchère n'était pas à la portée du commun des mortels. C'est alors qu'une voix excentrique retentit:
 
-« La secte Mi Luo de rang 7 offre 13 000 cristaux d'origine! » Les regards se tournèrent vers un jeune homme en jaune qui tenait un éventail.
+« La Secte Mi Luo de rang 7 offre 13 000 cristaux d'origine! » Les regards se tournèrent vers un jeune homme en jaune qui tenait un éventail.
 
 L'Ancien de la Secte Dao Fa fixa l'armure et soupira, renonçant à la lutte. Le silence revint sur les autres; ils avaient atteint leur limite.
 

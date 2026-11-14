@@ -40,7 +40,7 @@ Wang Lin s'assit sur le côté et saisit sa propre tasse. Il en prit une gorgée
 
 « Elle a la chaleur du foyer », répondit Wang Lin en ouvrant les yeux et en souriant à son tour.
 
-En entendant cela, le jeune homme aux vêtements verts éclata de rire. Il avait attendu ici l'arrivée de son disciple, préparant même une théière fumante. C'était sa façon de dire à Wang Lin que, désormais, cet endroit était la maison de Wang Lin! Car ce thé pouvait réchauffer les corps et insuffler un sentiment de chaleur.
+En entendant cela, le jeune homme aux vêtements verts éclata de rire. Il avait attendu ici l'arrivée de son disciple, préparant même une théière fumante. C'était sa façon de dire à Wang Lin que, désormais, cet endroit était chez lui! Car ce thé pouvait réchauffer les corps et insuffler un sentiment de chaleur.
 
 Les deux ne s'étaient pas vus depuis des centaines d'années, mais à cet instant, aucune barrière ne subsistait entre eux. Le jeune homme regarda Wang Lin, et plus il le contemplait, plus il se sentait satisfait.
 
@@ -110,13 +110,13 @@ L'expression de Xuan Luo resta inchangée lorsqu'il demanda lentement: « Pourqu
 
 « C'est mon disciple. Je présume que son nom ne vous est pas inconnu: l'Ascendant Empyréen aux cheveux blancs du clan céleste, Wang Lin! Il me remplacera lors de ma réincarnation pour protéger le Dao Gu », déclara calmement Xuan Luo en lançant un regard profond à l'Empereur.
 
-« Wang Lin, il est l'empereur de mon Dao Gu! Il est aussi celui que vous devrez protéger à l'avenir. Lorsqu'il prendra sa retraite, vous devrez choisir parmi les nombreux princes pour devenir le nouvel empereur. C'est là le droit d'un Grand Empyréen! »
+« Wang Lin, il est l'empereur de mon Dao Gu! Il est aussi celui que tu devras protéger à l'avenir. Lorsqu'il prendra sa retraite, tu devras choisir parmi les nombreux princes pour devenir le nouvel empereur. C'est là le droit d'un Grand Empyréen! »
 
 L'expression de Wang Lin resta impassible, mais son cœur rata un battement. C'était la première fois qu'il apprenait que chaque génération d'empereurs était choisie par le Grand Empyréen!
 
 « La famille impériale et les Grands Empyréens coexistent depuis l'Antiquité... C'est sans doute pour cela! Pas étonnant que le Prince Ji Du ait sollicité mon aide. Ma puissance de combat est la première sous les Grands Empyréens. Mon soutien pourrait lui permettre d'obtenir les faveurs du Grand Empyréen de la lignée Shi Gu. »
 
-Alors que Wang Lin méditait, un rugissement s'éleva du vieil homme aux côtés de l'empereur.
+Alors que Wang Lin méditait, une sévère semonce s'éleva du vieil homme aux côtés de l'empereur.
 
 « Bien que tu sois le disciple d'un Grand Empyréen, tu restes un membre du Dao Gu. Selon les lois, tous les membres du clan, à l'exception du Grand Empyréen lui-même, doivent s'agenouiller devant l'Empereur du Dao Gu! »
 

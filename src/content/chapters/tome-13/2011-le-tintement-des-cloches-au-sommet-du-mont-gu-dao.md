@@ -24,7 +24,7 @@ Il existait un autre lieu très mystérieux, sous le pays de Zang, dans le Dao G
 
 En raison de la présence de ces trésors, la zone était enveloppée par le pouvoir des cinq éléments. Cette aura devint de plus en plus dense jusqu'à ce que l'aura des essences commence à se manifester.
 
-Wang Lin s'assit également dans cette nécropole pendant trois mois. Bien qu'il n'en ait pas eu envie, il cessa résolument d'absorber les essences des cinq éléments et partit avec Xuan Luo.
+Wang Lin s'assit également dans cette nécropole pendant trois mois. Malgré sa réticence à partir, il cessa résolument d'absorber les essences des cinq éléments et partit avec Xuan Luo.
 
 Dans le Shi Gu, Wang Lin vit le Grand Empyréen du Shi Gu. Il se rendit dans trois lieux différents pour cultiver et comprendre, une quête qui dura cinq mois.
 
@@ -78,7 +78,7 @@ Au bas de la montagne, Xuan Luo marchait devant et jeta un regard bienveillant �
 
 Il avait fait tout cela pour le Dao Gu, mais aussi pour que son disciple puisse protéger le clan sans subir d'humiliation.
 
-D'un côté se trouvait le clan qu'il protégeait depuis toujours, et de l'autre, ce disciple dont il était si fier et qu'il considérait comme son propre descendant. Xuan Luo voulait maintenir l'équilibre entre ces deux piliers.
+D'un côté se trouvait le clan qu'il protégeait depuis toujours, et de l'autre, ce disciple dont il était si fier et qu'il considérait comme son propre descendant. Xuan Luo voulait maintenir l'équilibre entre ces deux parties.
 
 Wang Lin suivait Xuan Luo en observant son dos. Ce dos n'était pas imposant, mais il dégageait une rare sensation de chaleur. Cette chaleur l'avait accompagné durant un an et demi.
 
@@ -90,7 +90,7 @@ Cette tour possédait neuf étages et était reliée à quatre piliers massifs p
 
 Ces sons étaient très agréables; lorsqu'ils pénétraient dans l'esprit, ils apportaient une clarté soudaine et semblaient même accélérer la circulation de la puissance ancienne dans le corps.
 
-Pourtant, en restant là, le visage de Wang Lin pâlit légèrement. Il sentait clairement que sa culture était réprimée. En revanche, sa puissance ancienne n'était pas seulement préservée, elle débordait de vitalité.
+En restant là, le visage de Wang Lin pâlit légèrement. Il sentait clairement que sa culture était réprimée. En revanche, sa puissance ancienne n'était pas seulement préservée, elle débordait de vitalité.
 
 Cette répression de sa culture et de ses essences lui donnait l'impression de porter plusieurs montagnes sur ses épaules. Bien qu'essoufflé, il serra les dents et resta derrière Xuan Luo.
 
@@ -98,7 +98,7 @@ Quatre personnes étaient assises sur les quatre piliers massifs. C'étaient des
 
 Même l'arrivée de Xuan Luo ne les incita pas à ouvrir les yeux.
 
-Le visage pâle de Wang Lin balaya les quatre silhouettes. Il fut stupéfait: ils ressemblaient à des mortels ne possédant aucune puissance ancienne.
+Le regard de Wang Lin, au visage pâle, balaya les quatre silhouettes. Il fut stupéfait: ils ressemblaient à des mortels ne possédant aucune puissance ancienne.
 
 « Le junior Xuan Luo sollicite une audience auprès du Grand Empyréen Gu Dao. » Xuan Luo joignit les mains et s'inclina devant la tour.
 

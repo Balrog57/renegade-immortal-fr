@@ -58,7 +58,7 @@ Le visage de Wang Lin pâlit et il prit une inspiration saccadée. Inconsciemmen
 
 « Souverain… » Ce nom n'était pas inconnu de Wang Lin! Dans la grotte de Qing Lin, il avait appris que parmi les gens du monde extérieur, existait une puissance redoutable nommée le Souverain!
 
-Cependant, à l'époque, le Souverain était une figure lointaine, un colosse appartenant à l'ère de Qing Lin. Des éons s'étaient écoulés depuis.
+Cependant, à l'époque, le Souverain était une figure lointaine, un colosse appartenant à l'ère de Qing Lin. De longues années s'étaient écoulées depuis.
 
 Pourtant, Wang Lin ne s'attendait pas à trouver un jade contenant des informations sur le Souverain dans le Système Stellaire de la Mer Yun, au sein de ce Monde aux Sept Couleurs, dans cette même vallée!
 

@@ -46,7 +46,7 @@ Au moment où elle surgit, l'aura sanglante passa de l'illusion à la réalité.
 
 L'épée de sang à ses côtés, Wang Lin avança vers le Shui Daozi stupéfait, le regard glacial! Il leva la main droite et la frappa violemment!
 
-Le monde trembla. Bien que Wang Lin ne fût pas un cultivateur du troisième pas, son corps était aussi puissant qu'un tel! Lorsqu'il leva la main, une paume gigantesque apparut dans le ciel!
+Le monde trembla. Bien que Wang Lin ne fût pas un cultivateur du troisième pas, son corps était aussi puissant que celui d'un tel cultivateur! Lorsqu'il leva la main, une paume gigantesque apparut dans le ciel!
 
 Cette paume couvrit l'horizon et retomba soudainement derrière Wang Lin, traversant son corps pour fondre sur le Shui Daozi, sur les pics en contrebas!
 
@@ -60,7 +60,7 @@ Des grondements tonnerreux secouèrent la planète entière et la paume illusoir
 
 Cependant, de la même manière, ces clous tremblèrent et furent balayés au loin!
 
-Tandis que la terre tremblait et que des débris s'effondraient des cinq pics, le Shui Daozi cracha une bouchée de sang et rugit avec terreur dans les yeux: « Zhou De!! »
+Tandis que la terre tremblait et que des débris s'effondraient des cinq pics, le Shui Daozi cracha une gorgée de sang et rugit avec terreur dans les yeux: « Zhou De!! »
 
 Il avait bien deviné que Wang Lin serait fort, mais il n'avait jamais imaginé qu'il le serait à ce point! La force d'une seule paume avait suffi à disperser les clous aux sept couleurs et à lui faire cracher du sang! Il n'avait même pas eu le temps de déployer ses autres atouts et se voyait contraint de demander de l'aide, à un prix très élevé!
 
@@ -94,7 +94,7 @@ Un hurlement de loup à ébranler les cieux retentit presque en même temps que 
 
 « Meute de loups, saluez la lune! » Un rugissement glacial résonna, et le ciel sombre sembla être déchiré par la lune de sang qui enveloppait la terre!
 
-Des grondements tonnerreux éclatèrent. Les sorts de l'homme en noir et de l'Estimé Ling Dong entrèrent en collision. Le vieil homme n'étant qu'un avatar, il ne pouvait absolument pas rivaliser avec l'Estimé Ling Dong en termes de flammes d'encens. Le marais du vieil homme s'effondra et il cracha une bouchée d'énergie de l'âme originelle. Il se retira alors rapidement, les yeux écarquillés par le choc.
+Des grondements tonnerreux éclatèrent. Les sorts de l'homme en noir et de l'Estimé Ling Dong entrèrent en collision. Le vieil homme n'étant qu'un avatar, il ne pouvait absolument pas rivaliser avec l'Estimé Ling Dong en termes de flammes d'encens. Le marais du vieil homme s'effondra et il cracha une gorgée d'énergie de l'âme originelle. Il se retira alors rapidement, les yeux écarquillés par le choc.
 
 « Qui es-tu?! »
 

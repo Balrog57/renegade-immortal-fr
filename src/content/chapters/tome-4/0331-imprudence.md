@@ -104,7 +104,7 @@ Le visage de Zhan Bai devint livide. Il s'apprêtait à utiliser la téléportat
 
 La faille surgit précisément au moment où Zhan Bai allait se téléporter. S'il avait réussi sa manœuvre, il aurait été déchiqueté en deux par la déchirure spatiale.
 
-« Fou! » terrifié, Zhan Bai interrompit immédiatement sa téléportation.
+« Fou! » s'écria Zhan Bai, terrifié. Il interrompit immédiatement sa téléportation.
 
 Alors que des vents glacials s'échappaient de la faille, le sol commença à se fissurer et l'énergie spirituelle environnante fut aspirée dans le vide.
 

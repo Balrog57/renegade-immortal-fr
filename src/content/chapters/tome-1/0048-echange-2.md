@@ -15,7 +15,7 @@ slug: echange-2
 
 « La Secte Xuan Dao est bien trop rusée. Ils ont déjà préparé une excuse pour parer à une éventuelle défaite. Je vais observer cela de près, Senior frère Zhao! Vas-y! »
 
-Tous les disciples de la Secte Heng Yue étaient en ébullition. Les propos de l'Ancien de la Secte Xuan Dao avaient atteint leur orgueil.
+Tous les disciples de la Secte Heng Yue étaient en ébullition. Les propos de l'Ancien de la Secte Xuan Dao avaient blessé leur orgueil.
 
 Les visages des Anciens de la Secte Heng Yue s'assombrirent. Bien qu'ils restassent silencieux, leurs regards devinrent glacials et leur hostilité envers la Secte Xuan Dao se fit palpable.
 

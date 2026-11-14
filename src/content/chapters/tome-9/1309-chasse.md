@@ -80,7 +80,7 @@ Cette arme était également un trésor de Dieu Ancien. Bien qu'elle ne fût pas
 
 Plus important encore, grâce à sa sagacité et à sa compréhension de Tuo Sen, il savait que ce dernier ne resterait pas caché. Il avait forcément mené un carnage, ce qui attirerait inévitablement l'attention des cultivateurs du troisième niveau du Système Stellaire Antique, pouvant même mener à une traque!
 
-« Outre la brèche de la Formation du Royaume Scellé, les blessures de Tuo Sen doivent aussi provenir d'un encerclement. Il semblait épuisé, je présume donc... qu'il est lui aussi traqué en ce moment! » Les yeux de Wang Lin s'illuminèrent et il se téléporta avec célérité.
+« Outre le fait d'avoir brisé la Formation du Royaume Scellé, les blessures de Tuo Sen doivent aussi provenir d'un encerclement. Il semblait épuisé, je présume donc... qu'il est lui aussi traqué en ce moment! » Les yeux de Wang Lin s'illuminèrent et il se téléporta avec célérité.
 
 Sa silhouette traversa l'espace, franchissant à chaque éclat des distances incommensurables. Après un temps, Wang Lin ne détecta aucun signe de la poursuite de Tuo Sen, ce qui confirma ses soupçons.
 
@@ -102,7 +102,7 @@ Toutefois, la vitesse d'activation de la formation était bien trop lente pour l
 
 Les hurlements de douleur déchirèrent le ciel de cette planète imprégnée de ressentiment. Tous les cultivateurs furent encerclés par le brouillard noir. Leur chair se flétrissait, tandis que toute leur vitalité, leur sang et leur âme originelle étaient aspirés par l'obscurité.
 
-Un vieil homme vêtu de vert s'élança hors de la planète en rugissant: « Quel démon ose venir dévorer sur ma planète Mo Na?! » Une aura verte l'enveloppait. C'était un cultivateur ayant atteint le premier stade du Fléau Céleste!
+Un vieil homme vêtu de vert s'élança hors de la planète en rugissant: « Quel cultivateur démoniaque ose venir dévorer sur ma planète Mo Na?! » Une aura verte l'enveloppait. C'était un cultivateur ayant atteint le premier stade du Fléau Céleste!
 
 « Un puissant cultivateur! » Les yeux de Wang Lin devinrent glacials et il se lécha les lèvres. Soudain, son corps entier se mua en un éclair du Royaume Ji qui perça le brouillard pour frapper le vieillard.
 

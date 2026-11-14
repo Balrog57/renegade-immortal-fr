@@ -36,7 +36,7 @@ Ji Du réprima l'excitation dans son cœur et suivit Wang Lin.
 
 Marchant en tête, Wang Lin dit calmement: « Prépare-moi un endroit, je vais entrer en culture isolée! »
 
-« Le fils dispose d'une chambre secrète dans mon palais. Si cela ne convient pas au Parrain, je peux faire en sorte qu'on en crée une autre immédiatement, » répondit rapidement le Prince Ji Du.
+« Ce fils dispose d'une chambre secrète dans son palais. Si cela ne convient pas au Parrain, je peux faire en sorte qu'on en crée une autre immédiatement, » répondit rapidement le Prince Ji Du.
 
 Wang Lin agita sa manche; le monde autour d'eux se déforma et ils disparurent tous deux. Lorsqu'ils réapparurent, ils se trouvaient à l'intérieur du palais du Prince Ji Du.
 
