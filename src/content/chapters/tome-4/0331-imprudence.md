@@ -58,7 +58,7 @@ Ce vent glacial frappa le corps de Zhan Bai. Pour lui, il était plus froid que 
 
 Avant même que le combat ne commence, l'idée de s'enfuir lui traversa l'esprit.
 
-Zhan Bai balbutia: « Ceng... Zeng Niu, je ne savais pas que tu appartenais à la Secte Yun Tian. Cette fois, j'ai été imprudent... »
+Zhan Bai balbutia: « Zeng... Zeng Niu, je ne savais pas que tu appartenais à la Secte Yun Tian. Cette fois, j'ai été imprudent... »
 
 « Imprudent? » Les yeux de Wang Lin s'illuminèrent et il chargea soudainement. Le drapeau de restriction sortit de son sac de rangement et se transforma en un brouillard noir qui fonça sur Zhan Bai.
 

@@ -22,7 +22,7 @@ Une fois que le fou commença à bavarder, il devint presque incessant. Il parla
 
 Wang Lin n'entendit pas un seul mot. Son corps se trouvait dans un état chaotique. Son corps d'Ancien Dieu était à l'extérieur tandis que son origine céleste résidait à l'intérieur, agissant comme son âme originelle. Plus profondément encore, la Perle Défiant le Ciel tournait lentement.
 
-En temps mortel, il fallait vingt-quatre heures pour que la Perle Défiant le Ciel accomplisse une rotation complète.
+En temps mortel, il fallait douze heures pour que la Perle Défiant le Ciel accomplisse une rotation complète.
 
 L'énergie originelle à l'intérieur de son corps s'était effondrée et avait disparu sans laisser de trace. Ce qui l'avait remplacée était la dense énergie spirituelle céleste issue du nouveau sang produit par sa moelle osseuse!
 

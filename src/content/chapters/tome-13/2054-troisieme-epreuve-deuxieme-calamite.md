@@ -14,7 +14,7 @@ Depuis des temps immémoriaux, très peu d'individus avaient satisfait aux condi
 
 Wang Lin se tenait au centre de la cité impériale des Anciens Shi. Il se trouvait sous l'antique statue, qui semblait soutenir le ciel, et la regardait en silence.
 
-Cette statue était identique à celle de l'Ancien Dao. L'Ancêtre, les mains dans le dos, regardait les cieux et la terre avec un mépris souverain. Avant que Wang Lin ne traverse les trois Ponts du Piétinement des Cieux, il n'avait rien ressenti de particulier en contemplant la statue de l'Ancêtre dans l'Ancien Dao.
+Cette statue était identique à celle du Dao Gu. L'Ancêtre, les mains dans le dos, regardait les cieux et la terre avec un mépris souverain. Avant que Wang Lin ne traverse les trois Ponts du Piétinement des Cieux, il n'avait rien ressenti de particulier en contemplant la statue de l'Ancêtre dans le Dao Gu.
 
 Cependant, à cet instant précis, cette statue lui apparut sous un jour nouveau.
 
@@ -78,7 +78,7 @@ En un éclair, vingt années supplémentaires passèrent. Cinquante ans après l
 
 Ce n'était pas le couronnement de Ji Du, mais son mariage. Il avait choisi comme épouse une descendante de la lignée de Song Tian, nommée Song Yu. Cette femme était choyée par Song Tian et comptait parmi les rares descendantes à pouvoir recevoir personnellement ses enseignements.
 
-Ce grand festival dura plusieurs mois, durant lesquels les membres et les familles royales des deux autres clans arrivèrent. Un homme d'âge mûr vint de l'Ancien Dao; si Wang Lin l'avait vu, il aurait remarqué sa ressemblance frappante avec Ye Mo. C'était un descendant de Ye Mo.
+Ce grand festival dura plusieurs mois, durant lesquels les membres et les familles royales des deux autres clans arrivèrent. Un homme d'âge mûr vint du Dao Gu; si Wang Lin l'avait vu, il aurait remarqué sa ressemblance frappante avec Ye Mo. C'était un descendant de Ye Mo.
 
 Une fois le festival terminé et les invités repartis, Ji Du amena sa femme devant le temple ancestral sous la lumière de la lune.
 

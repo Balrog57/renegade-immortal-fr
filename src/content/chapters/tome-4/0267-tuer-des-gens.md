@@ -42,7 +42,7 @@ Dehors, la neige redoublait de force tandis que le vent hurlait dans le ciel.
 
 Après que Zhou Wutai eut parcouru une certaine distance, quatre ombres apparurent soudainement à ses côtés. Alors qu'ils commençaient à le suivre, leurs sens divins furent tous braqués sur la boutique de Wang Lin.
 
-L'un d'eux lança d'un ton glacial: « Confrère cultivateur Zhou, l'ordre donné par l'Alliance des Quatre Sectes est de tuer tout cultivateur suspect entré dans le pays au cours des deux cents dernières années. Pourquoi n'avez-vous pas agi? »
+L'un d'eux lança d'un ton glacial: « Daoïste Zhou, l'ordre donné par l'Alliance des Quatre Sectes est de tuer tout cultivateur suspect entré dans le pays au cours des deux cents dernières années. Pourquoi n'avez-vous pas agi? »
 
 Zhou Wutai ne se retourna même pas et ricana: « Avec votre niveau de culture à tous les quatre, même si je vous aidais, pensez-vous que nous pourrions le tuer? S'il voulait s'enfuir, qui pourrait l'arrêter? »
 

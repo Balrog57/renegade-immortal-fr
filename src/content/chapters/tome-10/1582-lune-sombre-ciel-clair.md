@@ -78,7 +78,7 @@ Elle connaissait les sorts de la Secte Yin Yue. Leurs techniques étaient extrê
 
 Une folie sauvage apparut dans les yeux de Wang Lin et il leva sa main droite. Après avoir utilisé *Lune Sombre, Ciel Clair*, il forma un poing et lança un coup vers la femme!
 
-Ce coup contenait une puissance antique, mais il utilisait également le sort le plus puissant de la Tortue Noire qu'il avait appris du vieux Suzaku dans les Terres Déchues!
+Ce coup contenait la puissance de Dao Gu, mais il utilisait également le sort le plus puissant de la Tortue Noire qu'il avait appris du vieux Suzaku dans les Terres Déchues!
 
 Des ondes de choc formèrent des ondulations autour du poing de Wang Lin. De loin, ces vibrations donnaient l'impression que l'espace entre Wang Lin et la femme ressemblait à la surface de l'eau.
 

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 492 - Ancient Demon
 slug: demon-ancestral
 ---
-Zhao Xingsha leva soudain la tête, et l'illusion d'un démon géant apparut au-dessus de lui. Ce démon mesurait environ 330 mètres de haut et arborait deux cornes. Bien qu'il ne s'agît que d'une silhouette floue, il dégageait une puissante aura démoniaque.
+Zhao Xingsha leva soudain la tête, et l'illusion d'un démon géant apparut au-dessus de lui. Ce démon mesurait environ mille pieds de haut et arborait deux cornes. Bien qu'il ne s'agît que d'une silhouette floue, il dégageait une puissante aura démoniaque.
 
 Le démon était massif et musclé, et de faibles lignes bleues luisaient sur son corps vaporeux. Sa main gigantesque, dont les ongles ressemblaient à des épées, témoignait de la nature anormale de cette créature.
 
@@ -40,7 +40,7 @@ Le regard de Wang Lin devint grave lorsqu'il vit un vortex rouge apparaître là
 
 Le visage de Zhao Xingsha était blême, tandis que celui de l'illusion commençait à virer au bleu, ses yeux tremblant comme s'il allait s'éveiller d'un instant à l'autre.
 
-Les yeux de Wang Lin se glacèrent. D'une simple pensée, le drapeau des âmes apparut dans sa main. D'un coup sec, il fit croître le drapeau jusqu'à plus de 300 mètres, qui extirpa alors les âmes primaires du vortex rouge.
+Les yeux de Wang Lin se glacèrent. D'une simple pensée, le drapeau des âmes apparut dans sa main. D'un coup sec, il fit croître le drapeau jusqu'à mille pieds, qui extirpa alors les âmes primaires du vortex rouge.
 
 Au moment où Wang Lin récupéra ses âmes, le démon au-dessus de Zhao Xingsha laissa échapper un rugissement terrassant. Ses yeux s'ouvrirent brusquement, révélant un regard capable de faire vaciller le cœur de n'importe quelle forme de vie. Son regard était d'une froideur absolue, plusieurs fois plus glaçant que celui de ceux qui avaient cultivé l'insensibilité, et il perçait les os plus profondément que celui de ceux ayant tranché toute émotion.
 

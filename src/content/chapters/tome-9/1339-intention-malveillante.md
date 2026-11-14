@@ -110,7 +110,7 @@ L'homme d'âge moyen devint soudainement prudent sous le regard de Wang Lin. Il 
 
 Wang Lin répondit avec un sourire: « Yu Fei! »
 
-« Yu Fei? Ce nom me semble familier... » L'homme réfléchit un instant, puis ses yeux brillèrent d'une lueur étrange. Il joignit les mains et rit: « Alors c'est bien vous, le Daoïste Yu Fei, celui qui vient d'intégrer le Classement du Tonnerre Dispersé! »
+« Yu Fei? Ce nom me semble familier... » L'homme réfléchit un instant, puis ses yeux brillèrent d'une lueur étrange. Il joignit les mains et rit: « Alors c'est bien vous, le Daoïste Yu Fei, celui qui vient d'intégrer le Classement Shan Lei! »
 
 L'homme ajouta quelques mots, pensant avoir percé à jour Wang Lin, puis reprit: « Daoïste Yu, ce n'est pas ici qu'il faut discuter, et la formation menant aux 7 Millions de Mondes est sur le point de s'ouvrir. Que diriez-vous d'y aller? »
 

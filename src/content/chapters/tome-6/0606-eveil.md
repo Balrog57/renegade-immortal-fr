@@ -101,7 +101,7 @@ Ce changement radical et cette scène inexplicable laissèrent l'esprit de Hu Pa
 
 « Ton sort de raffinage d'âmes a été manipulé par quelqu'un pour en faciliter le contrôle. Cependant, comment la racine même du sort pourrait-elle être si aisément modifiée sans la véritable transmission et des dizaines de milliers d'années de sacrifices?! »
 
-Wang Lin était l'héritier du sort de raffinage d'âmes, et la Secte Lian Hun vénérait l'étendard d'un milliard d'âmes comme suprême. Bien qu'il ne s'agisse pas d'un sort capable de bouleverser les mondes, il avait été affiné par d'innombrables générations de disciples. Les membres de la secte avaient passé des millénaires à étudier avec diligence comment perfectionner ce sort. Comment quelqu'un aurait-il pu le reconstruire entièrement en une dizaine d'années sans posséder la véritable transmission?!
+Wang Lin était l'héritier du sort de raffinage d'âmes, et la Secte Lian Hun vénérait l'étendard d'un milliard d'âmes comme suprême. Bien qu'il ne s'agisse pas d'un sort capable de bouleverser les mondes, il avait été affiné par d'innombrables générations de disciples. Les membres de la secte avaient passé des dizaines de milliers d'années à étudier avec diligence comment perfectionner ce sort. Comment quelqu'un aurait-il pu le reconstruire entièrement en une dizaine d'années sans posséder la véritable transmission?!
 
 Le bienfaiteur de Hu Pao ne pouvait pas faire une telle chose. Peut-être que l'homme dans l'armure le pouvait, mais il n'aurait pas gaspillé son temps pour une si futilité.
 

@@ -50,7 +50,7 @@ Cette scène se répétait sur près de cent autres planètes!
 
 C'était l'une des dix grandes formations de l'Alliance: le Sceau de l'Âme et du Sang d'un Million de Bêtes!
 
-Ces quelque cent tours avaient été forgées avec un matériau spécial et renforcées par des sous-formations, pour s'harmoniser avec cette formation. À cet instant, alors que des millions de bêtes mouraient sur les cent planètes, la poudre noire entourant le Serpent aux yeux de lune dégagea une puissante odeur de sang!
+Ces quelque cent tours avaient été forgées avec un matériau spécial et renforcées par des sous-formations, pour s'harmoniser avec cette formation. À cet instant, alors qu'un million de bêtes mouraient sur les cent planètes, la poudre noire entourant le Serpent aux yeux de lune dégagea une puissante odeur de sang!
 
 Cette effluve était si dense que quiconque la respirait en aurait eu le cœur tremblant!
 

@@ -94,7 +94,7 @@ Les quatre symboles explosèrent tous au contact de l'épée volante, la repouss
 
 Des craquements sinistres déchirèrent le sol, incapable de supporter une telle pression. Tous les arbres géants environnants s'effondrèrent. Au moment précis où l'épée allait frapper, le corps de Wang Lin fut enveloppé d'une lumière bleue et il se téléporta.
 
-Alors que la lame était sur le point de le percuter, il apparut à trois cent trente mètres de là, un filet de sang coulant de son front.
+Alors que la lame était sur le point de le percuter, il apparut à mille pieds de là, un filet de sang coulant de son front.
 
 La grande épée s'écrasa au sol dans un fracas assourdissant. Peu après, un hurlement spectral retentit et une silhouette fantomatique, exhalant une odeur de charogne, chargea vers Teng Li.
 

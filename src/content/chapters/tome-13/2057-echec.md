@@ -44,7 +44,7 @@ Dès qu'il les ferma, l'ombre au-dessus de sa tête trembla et de fines fissures
 
 Dans le ciel de la ville impériale, Xuan Luo regardait vers le bas avec un sourire. Il s'assit et continua de veiller sur son disciple.
 
-Dans son cœur, il savait que si le Dao Antique avait besoin de sa protection, son disciple, qui serait affaibli durant cette scission, en avait tout autant besoin.
+Dans son cœur, il savait que si le Dao Gu avait besoin de sa protection, son disciple, qui serait affaibli durant cette scission, en avait tout autant besoin.
 
 En un éclair, trois ans passèrent.
 
@@ -62,7 +62,7 @@ Même la nuit, la lumière des halos illuminait l'intégralité du palais impér
 
 Dix ans s'étaient écoulés depuis le début de la seconde scission d'âme. Certains enfants nés durant cette période pensaient que le ciel de la cité impériale avait toujours été ainsi.
 
-La rumeur de ces dix années de scission d'âme se répandit progressivement dans tout le clan des Anciens. Même des membres du Dao Antique et du Ji Antique étaient venus observer le phénomène.
+La rumeur de ces dix années de scission d'âme se répandit progressivement dans tout le clan des Anciens. Même des membres du Dao Gu et du Ji Gu étaient venus observer le phénomène.
 
 Le temps continuait de s'écouler. Lorsque la dixième année passa, l'ombre surplombant Wang Lin se brisa complètement. Il souffrait d'une douleur inimaginable, mais il tenait bon.
 

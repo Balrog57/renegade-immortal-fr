@@ -16,7 +16,7 @@ Au plafond de la grotte pendaient quelques stalactites; de temps à autre, une g
 
 Pendant un long moment, une étrange lumière changeante émana du visage de Pu Nanzi. Puis, il ouvrit progressivement les yeux; des nuages de brume y passèrent en un éclair, comme s'ils contenaient le soleil, la lune et les étoiles.
 
-Pu Nanzi leva sa main droite et fit lentement un calcul divinatoire, son visage ne trahissant ni joie ni colère. Il agita ensuite la main vers l'avant, et la paroi rocheuse, à une dizaine de mètres devant lui, s'illumina soudainement.
+Pu Nanzi leva sa main droite et fit lentement un calcul divinatoire, son visage ne trahissant ni joie ni colère. Il agita ensuite la main vers l'avant, et la paroi rocheuse, à plusieurs dizaines de pieds devant lui, s'illumina soudainement.
 
 Bientôt, dix points de lumière apparurent lentement sur la paroi rocheuse.
 

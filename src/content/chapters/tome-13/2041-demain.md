@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2041 - Tomorrow
 slug: demain
 ---
-La tempête qui avait secoué le palais impérial de l'Ancien Dao, où le disciple de Xuan Luo, Wang Lin, avait fait irruption pour utiliser sa propre mort afin de rendre la gratitude de son maître, avait attiré l'attention d'innombrables personnes. En fin de compte, il avait tué l'Empereur de l'Ancien Dao, et même l'Empereur Saint Ye Wei n'avait pu empêcher Wang Lin de partir.
+La tempête qui avait secoué le palais impérial du Dao Gu, où le disciple de Xuan Luo, Wang Lin, avait fait irruption pour utiliser sa propre mort afin de rendre la gratitude de son maître, avait attiré l'attention d'innombrables personnes. En fin de compte, il avait tué l'Empereur Dao Gu, et même l'Empereur Saint Ye Wei n'avait pu empêcher Wang Lin de partir.
 
 Cette nouvelle s'était propagée progressivement après le départ des membres des deux autres clans. Presque tous ceux qui en étaient dignes en avaient entendu parler.
 
@@ -24,7 +24,7 @@ Dao Yi, Wu Feng, ainsi que plusieurs Grands Empyréens du clan Ancien, dont Xuan
 
 Simultanément, un message fut transmis depuis le Mont Gu Dao aux trois clans royaux et à leurs Grands Empyréens. Le message était d'une simplicité glaciale: il ordonnait de cesser d'observer le Royaume Divin Immémorial, car celui-ci s'ouvrirait dans cinq cents ans. Il enjoignait également les trois clans et leurs Grands Empyréens respectifs à se préparer à la guerre pendant ce délai.
 
-Le Mont Gu Dao n'accorda aucune importance à la mort de l'Empereur de l'Ancien Dao. Ce phénomène étrange suffit à réduire au silence la faction de l'Ancien Dao qui prônait la traque de Wang Lin par le Grand Empyréen Gu Dao; ils ne mentionnèrent plus jamais cette affaire.
+Le Mont Gu Dao n'accorda aucune importance à la mort de l'Empereur Dao Gu. Ce phénomène étrange suffit à réduire au silence la faction du Dao Gu qui prônait la traque de Wang Lin par le Grand Empyréen Gu Dao; ils ne mentionnèrent plus jamais cette affaire.
 
 À l'instar du clan Ancien, le clan Céleste envoya également un message aux soixante-douze continents, annonçant que le Royaume Divin Immémorial s'ouvrirait dans cinq cents ans. Ils devaient consacrer ces cinq siècles à l'entraînement des puissants sous leur autorité. Les Exaltés Empyréens et les Ascendants Empyréens étaient les plus enthousiastes. Le Royaume Divin Immémorial était pour eux comme la porte du dragon: une fois qu'ils y auraient acquis une fortune, ils deviendraient des Grands Empyréens!
 
@@ -38,15 +38,15 @@ Le clan Ancien se préparait... Le clan Céleste en faisait autant!
 
 Cinq cents ans, seulement cinq cents ans! Pour les mortels, les cultivateurs de bas niveau ou les membres subalternes des trois clans, cinq cents ans pouvaient sembler une éternité. Pourtant, pour les puissants, ce n'était qu'un battement de cils.
 
-Les signes de guerre se manifestaient à travers le Continent Xian Gang en raison de l'émergence du Royaume Divin Immémorial. Dans un pays situé aux frontières de l'Ancien Dao et de l'Ancien Shi, c'était la saison des pluies. La pluie n'était pas torrentielle, mais elle semblait destinée à durer longtemps.
+Les signes de guerre se manifestaient à travers le Continent Xian Gang en raison de l'émergence du Royaume Divin Immémorial. Dans un pays situé aux frontières du Dao Gu et de l'Ancien Shi, c'était la saison des pluies. La pluie n'était pas torrentielle, mais elle semblait destinée à durer longtemps.
 
-Sous la pluie, les cités de l'Ancien Dao demeuraient animées, tandis que la terre alentour restait paisible. La pluie tombait sur les feuilles avec un crépitement, puis sur le sol, s'accumulant en de petits ruisseaux.
+Sous la pluie, les cités du Dao Gu demeuraient animées, tandis que la terre alentour restait paisible. La pluie tombait sur les feuilles avec un crépitement, puis sur le sol, s'accumulant en de petits ruisseaux.
 
 Le ciel était sombre et brumeux. Dans une montagne non loin de là, un jeune homme vêtu de blanc tenait un parapluie de papier. À ses côtés se trouvait une femme d'une grande beauté, qui contemplait l'horizon avec lui.
 
 « Voilà donc l'histoire entre toi et le fragment d'âme en moi nommé Wan Er... ? » dit doucement la femme, détournant son regard de la pluie pour observer l'homme en blanc.
 
-C'était cet homme qui avait forcé le palais de l'Ancien Dao, tué l'Empereur de l'Ancien Dao et s'en était extrait seul contre tous, sans que personne n'ose l'arrêter. C'était lui qui l'avait conduite ici.
+C'était cet homme qui avait forcé le palais du Dao Gu, tué l'Empereur Dao Gu et s'en était extrait seul contre tous, sans que personne n'ose l'arrêter. C'était lui qui l'avait conduite ici.
 
 Elle ignorait ce que Wang Lin comptait faire, mais durant le voyage, la gentillesse et la prévenance de cet homme avaient fait naître une chaleur au plus profond de son cœur.
 
@@ -60,9 +60,9 @@ La femme resta silencieuse. Elle sentait que le regard tendre de Wang Lin ne s'a
 
 « À l'endroit où nous nous sommes rencontrés pour la première fois. » Wang Lin prit Song Zhi dans ses bras et, d'un mouvement, s'avança sous la pluie vers le lointain.
 
-Il ne voyageait pas à pleine vitesse, car il devait ménager le corps fragile de Song Zhi et le fragment d'âme instable en elle. Ainsi, près d'un an s'était écoulé depuis qu'il avait tué l'Empereur de l'Ancien Dao.
+Il ne voyageait pas à pleine vitesse, car il devait ménager le corps fragile de Song Zhi et le fragment d'âme instable en elle. Ainsi, près d'un an s'était écoulé depuis qu'il avait tué l'Empereur Dao Gu.
 
-Durant cette année, Wang Lin n'avait pas été traqué par le Mont Gu Dao, et le clan Ancien n'avait rien dit. Wang Lin conduisit calmement la femme jusqu'aux confins du territoire de l'Ancien Dao.
+Durant cette année, Wang Lin n'avait pas été traqué par le Mont Gu Dao, et le clan Ancien n'avait rien dit. Wang Lin conduisit calmement la femme jusqu'aux confins du territoire du Dao Gu.
 
 Au-delà de ce lieu se trouvait l'Ancien Shi.
 
@@ -70,7 +70,7 @@ Au-delà de ce lieu se trouvait l'Ancien Shi.
 
 Wang Lin ne répondit pas et disparut progressivement avec elle dans la pluie.
 
-Quelques mois plus tard, Wang Lin et Song Zhi quittèrent l'Ancien Dao pour atteindre l'Ancien Shi. Une fois arrivée, l'humeur de Song Zhi s'était apaisée. En contemplant l'Ancien Shi, elle y trouva un sentiment de familiarité.
+Quelques mois plus tard, Wang Lin et Song Zhi quittèrent le Dao Gu pour atteindre l'Ancien Shi. Une fois arrivée, l'humeur de Song Zhi s'était apaisée. En contemplant l'Ancien Shi, elle y trouva un sentiment de familiarité.
 
 Mais elle parlait de moins en moins. Face à Wang Lin, elle devenait de plus en plus silencieuse, habitée par des sentiments complexes. Au cours de ce voyage, elle sentait parfois Wang Lin lui transmettre une énergie chaleureuse. Elle ignorait son but, mais elle percevait que le fragment d'âme fusionné avec elle montrait des signes de séparation.
 
@@ -110,7 +110,7 @@ Lorsque le soleil couchant devint une lueur rouge et diffuse, Song Zhi releva la
 
 « Tu ne mourras pas. » Wang Lin regarda calmement la femme. Tout en parlant, il pointa du doigt l'espace entre ses sourcils. La vision de Song Zhi se troubla et elle s'affaissa comme si elle sombrait dans le sommeil.
 
-Une heure plus tard, elle se réveilla, les yeux empreints de confusion. Elle observa silencieusement les alentours en fronçant les sourcils et, après un long moment, sembla se souvenir de quelque chose.
+Une demi-heure plus tard, elle se réveilla, les yeux empreints de confusion. Elle observa silencieusement les alentours en fronçant les sourcils et, après un long moment, sembla se souvenir de quelque chose.
 
 À cet instant, le soleil était presque couché, sur le point de disparaître. Song Zhi se leva et toucha son cou, où elle trouva un pendentif en jade dégageant une douce chaleur.
 

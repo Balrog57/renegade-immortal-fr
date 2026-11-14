@@ -28,7 +28,7 @@ Il réfléchit un instant avant de se lever et de s'éloigner lentement.
 
 Nous étions déjà au septième jour; il restait donc encore huit jours avant le concours des généraux démons!
 
-Le crépuscule tombait, et en raison de l'aura oppressante qui régnait sur la Cité Tian Yao, les passants se faisaient rares. Un jeune homme vêtu d'une robe verte marchait lentement vers la demeure de Mo, à une distance de 330 mètres.
+Le crépuscule tombait, et en raison de l'aura oppressante qui régnait sur la Cité Tian Yao, les passants se faisaient rares. Un jeune homme vêtu d'une robe verte marchait lentement vers la demeure de Mo, à mille pieds.
 
 Il portait une grande épée dans le dos et son expression était d'un calme imperturbable tandis qu'il progressait. À mesure qu'il approchait, une subtile énergie spirituelle céleste commença à se diffuser autour de lui.
 
@@ -50,7 +50,7 @@ Alors que les débris volaient, deux gémissements déchirants retentirent. Une 
 
 Une voix calme s'échappa de sa bouche. Il continua d'avancer sans s'arrêter, pénétrant dans la demeure de Mo et se dirigeant vers la chambre secrète où Mo Lihai était en pleine culture de porte close.
 
-D'innombrables soldats et subordonnés de Mo Lihai accoururent. Cependant, quiconque s'approchait à moins de 33 mètres de cet homme se transformait silencieusement en un brouillard sanglant.
+D'innombrables soldats et subordonnés de Mo Lihai accoururent. Cependant, quiconque s'approchait à moins de cent pieds de cet homme se transformait silencieusement en un brouillard sanglant.
 
 Tout au long de son chemin, des explosions retentissaient; personne ne pouvait l'arrêter. Même certains bâtiments et montagnes artificielles furent détruits, tout comme la porte d'entrée.
 
@@ -60,7 +60,7 @@ L'homme de la Secte Da Luo Jian secoua légèrement la tête et poursuivit sa ma
 
 Une épée qui avait déjà révélé son tranchant!
 
-L'homme recula involontairement. Lorsqu'il fut à quelques mètres, une main vint se poser sur son épaule pour le soutenir. À cet instant, il poussa un profond soupir de soulagement.
+L'homme recula involontairement. Lorsqu'il fut à quelques dizaines de pieds, une main vint se poser sur son épaule pour le soutenir. À cet instant, il poussa un profond soupir de soulagement.
 
 Trois personnes étaient apparues derrière lui. Il s'agissait de trois vieillards aux cheveux blancs qui se tenaient là, fixant froidement l'homme de la Secte Da Luo Jian.
 
@@ -86,7 +86,7 @@ Un seul mot y était inscrit: Combat!
 
 Mais au moment de se retourner, tout son corps se raidit et il libéra une aura puissante. Cette aura était extrêmement vigoureuse, bien plus que celle qu'il avait dégagée en entrant dans la demeure de Mo.
 
-Ses yeux brillèrent alors qu'il fixait une silhouette mince apparue à 330 mètres de lui: « Septième disciple de la Division Pourpre, Wang Lin! »
+Ses yeux brillèrent alors qu'il fixait une silhouette mince apparue à mille pieds de lui: « Septième disciple de la Division Pourpre, Wang Lin! »
 
 Mo Lihai ne remarqua l'apparition de Wang Lin qu'à cet instant, ce qui le détendit légèrement.
 
@@ -138,7 +138,7 @@ L'illusion d'un immense bélier violet émana du symbole, libérant une aura vio
 
 « Tranchant d'Épée Mo Yang! » Alors que l'homme criait, l'énergie spirituelle céleste de son corps jaillit. Il abattit immédiatement sa main droite tandis que la grande épée dans les airs s'élançait. Elle s'abattit sur Wang Lin avec une quantité inimaginable d'énergie d'épée.
 
-L'expression de Mo Lihai changea et il commença aussitôt à reculer. Ses subordonnés firent de même, et en un clin d'œil, ils s'étaient éloignés de plusieurs centaines de mètres.
+L'expression de Mo Lihai changea et il commença aussitôt à reculer. Ses subordonnés firent de même, et en un clin d'œil, ils s'étaient éloignés de plusieurs milliers de pieds.
 
 La lame géante descendit comme la foudre, accompagnée de rugissements tonitruants.
 

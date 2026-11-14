@@ -10,7 +10,7 @@ slug: une-vie-semblable-a-un-reve
 
 C'était comme si sa parole faisait loi!
 
-Tandis qu'un grondement résonnait, trois bâtons d'encens gigantesques et non allumés, épais de milliers de pieds et hauts de dizaines de milliers de pieds, apparurent sur le dos de la tortue!
+Tandis qu'un grondement résonnait, trois bâtons d'encens gigantesques et non allumés, épais de mille pieds et hauts de dizaines de milliers de pieds, apparurent sur le dos de la tortue!
 
 Ces trois bâtons d'encens, d'un bleu sombre, perçaient le ciel. La tortue géante semblait s'être métamorphosée en un autel; la vue de ces trois piliers sur son dos était absolument stupéfiante!
 

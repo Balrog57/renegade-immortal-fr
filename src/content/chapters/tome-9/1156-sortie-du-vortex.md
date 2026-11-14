@@ -70,15 +70,15 @@ Les Neuf Transformations Mystérieuses!
 
 Dès que les neuf couches apparurent, elles se contractèrent violemment autour de Wang Lin. Son corps semblait consumé par les flammes alors qu'il faisait un pas en avant.
 
-À cet instant, son corps disparut pour laisser place à un oiseau vermillon blanc de plusieurs centaines de pieds de large. Cet oiseau vermillon blanc, c'était Wang Lin!
+À cet instant, son corps disparut pour laisser place à un Suzaku blanc de plusieurs centaines de pieds de large. Ce Suzaku blanc, c'était Wang Lin!
 
 D'un battement d'ailes, Wang Lin rattrapa Qian Guizhong dans une traînée de flammes et percuta violemment son âme originelle!
 
 Les pupilles de l'âme de Qian Guizhong se rétractèrent dans un cri. Il sentit la mort approcher et il était trop tard pour réfléchir. La folie embrasa son regard alors qu'il tentait une ultime action, une aura destructrice émanant de son âme.
 
-Dans ce moment de péril, il choisit l'autodestruction de son âme originelle, mais à son niveau de culture, il pouvait en contrôler l'ampleur. Ses bras explosèrent soudainement en un tourbillon pour tenter d'emprisonner l'oiseau vermillon. Le trésor plumeau qu'il tenait explosa également en d'innombrables lignes blanches qui chargèrent l'oiseau.
+Dans ce moment de péril, il choisit l'autodestruction de son âme originelle, mais à son niveau de culture, il pouvait en contrôler l'ampleur. Ses bras explosèrent soudainement en un tourbillon pour tenter d'emprisonner le Suzaku. Le trésor plumeau qu'il tenait explosa également en d'innombrables lignes blanches qui chargèrent le Suzaku.
 
-Cependant, cela ne put stopper l'oiseau vermillon avant l'impact. Les flammes enveloppèrent l'âme originelle de Qian Guizhong.
+Cependant, cela ne put stopper le Suzaku avant l'impact. Les flammes enveloppèrent l'âme originelle de Qian Guizhong.
 
 Des cris déchirants retentirent alors que l'âme de Qian Guizhong s'affaiblissait. Il recula désespérément, enveloppé de flammes, pour tenter de s'échapper.
 
@@ -86,7 +86,7 @@ En fuyant, ses mains formèrent des sceaux et des runes mystérieuses apparurent
 
 Après avoir absorbé l'âme de son esprit de bête, Qian Guizhong s'enfuit comme un possédé sans même se retourner.
 
-L'oiseau vermillon disparut et Wang Lin réapparut. Sa poitrine était un carnage et l'on distinguait vaguement des fils blancs qui se faufilaient dans sa chair. Il fixa l'âme fuyante de Qian Guizhong, et son intention meurtrière redoubla d'intensité.
+Le Suzaku disparut et Wang Lin réapparut. Sa poitrine était un carnage et l'on distinguait vaguement des fils blancs qui se faufilaient dans sa chair. Il fixa l'âme fuyante de Qian Guizhong, et son intention meurtrière redoubla d'intensité.
 
 « Âme de Tian Yunzi, fusionne avec mon sens divin! » Wang Lin n'utilisa pas le sort d'Arrêt, mais forma un sceau avant de pointer vers l'âme de Tian Yunzi. Les yeux de l'âme scintillèrent et se transformèrent en un rayon de lumière qui pénétra le corps de Wang Lin.
 

@@ -32,7 +32,7 @@ Il laissa échapper un soupir et pointa du doigt son corps véritable des cinq �
 
 Enfin, Wang Lin tourna son regard vers l'essence de massacre. Cette essence était la plus cruciale et la plus insaisissable qu'il possédât!
 
-« Lu Mo... Lorsqu'il est apparu pour la première fois, il s'est nommé lui-même "Lu Mo". Le Maître Impérial du Dao Ancien connaît également cet avatar... » L'expression de Wang Lin était complexe. Il nourrissait ses propres spéculations, mais elles restaient enfouies au plus profond de son cœur.
+« Lu Mo... Lorsqu'il est apparu pour la première fois, il s'est nommé lui-même "Lu Mo". Le Maître Impérial du Dao Gu connaît également cet avatar... » L'expression de Wang Lin était complexe. Il nourrissait ses propres spéculations, mais elles restaient enfouies au plus profond de son cœur.
 
 « Massacre est un corps immortel. Elle représente la destruction et ne peut donc être effacée. Cette essence de massacre n'est qu'à l'état d'achèvement, elle ne peut pas encore former de corps véritable d'essence. J'ignore si ma démarche est juste... ou erronée. » Wang Lin hésitait.
 
@@ -70,9 +70,9 @@ Au cours de ce conflit, même des Grands Empyréens pourraient tomber. Quant aux
 
 Dans le clan Ancien, le constat était identique. Les trois familles royales suivaient les ordres du Grand Empyréen Gu Dao pour se préparer au combat. Tous ressentaient cette pression, et leurs Grands Empyréens respectifs s'étaient retirés en culture fermée.
 
-Dans le Dao Ancien, Luo Chen était devenu le nouvel empereur. Cependant, en tant que nouveau souverain, il ne maîtrisait pas encore l'ensemble du Dao Ancien. Il lui faudrait du temps pour s'adapter avant de véritablement tout posséder.
+Dans le Dao Gu, Luo Chen était devenu le nouvel empereur. Cependant, en tant que nouveau souverain, il ne maîtrisait pas encore l'ensemble du Dao Gu. Il lui faudrait du temps pour s'adapter avant de véritablement tout posséder.
 
-Pendant ce processus, l'Empereur Saint Ye Wei remplaçait temporairement l'empereur dans la gestion du Dao Ancien. Quant à Xuan Luo, après avoir nommé Luo Chen, il s'était également retiré en culture fermée.
+Pendant ce processus, l'Empereur Saint Ye Wei remplaçait temporairement l'empereur dans la gestion du Dao Gu. Quant à Xuan Luo, après avoir nommé Luo Chen, il s'était également retiré en culture fermée.
 
 Il approchait de sa réincarnation et devait faire face à l'ouverture du Royaume Divin Immémorial. Ce n'était pas le moment idéal pour se réincarner; il devait contenir cette pulsion et attendre que les choses s'apaisent.
 
@@ -90,7 +90,7 @@ Une jeune femme se tenait à ses côtés, le regardant de temps à autre avec un
 
 « En termes de calendrier, tout devrait se décider au cours des prochaines années. Si tu ne sollicites pas l'aide du Senior Wang Lin, je crains qu'il ne soit trop tard... » soupira la jeune femme. C'était elle qui accompagnait Ji Du autrefois, avant d'épouser, il y a quelques dizaines d'années, l'un des génies de l'Ancien Shi — un homme considéré comme le plus puissant de sa génération et désormais un proche confident de Ji Du. Cet homme était assis à côté d'elle et observait toute la scène d'un œil froid.
 
-« La rumeur prétend que ce Senior est le dixième soleil, mais après avoir quitté le Dao Ancien, il s'est immédiatement retiré en culture fermée. Il semble blessé... Peut-il vraiment faire changer d'avis le Seigneur Song? » C'était le mari de la jeune femme, un homme vêtu de pourpre.
+« La rumeur prétend que ce Senior est le dixième soleil, mais après avoir quitté le Dao Gu, il s'est immédiatement retiré en culture fermée. Il semble blessé... Peut-il vraiment faire changer d'avis le Seigneur Song? » C'était le mari de la jeune femme, un homme vêtu de pourpre.
 
 « Frère royal! » s'exclama la femme, encore plus anxieuse.
 

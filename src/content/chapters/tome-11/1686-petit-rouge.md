@@ -130,6 +130,6 @@ Le temps pressait; il devait garder les idées claires pour pouvoir mobiliser to
 
 S'il obtenait davantage d'informations, il lui serait impossible de garder son sang-froid. Wang Lin s'assit donc, les yeux clos, tentant de calmer le tumulte qui agitait son cœur.
 
-Le temps passa. Tandis que les cultivateurs observant Wang Lin par leur sens divin continuaient de spéculer, les six dernières heures s'écoulèrent lentement.
+Le temps passa. Tandis que les cultivateurs observant Wang Lin par leur sens divin continuaient de spéculer, les trois dernières heures s'écoulèrent lentement.
 
 À l'instant précis où le compte à rebours toucha à sa fin, Wang Lin ouvrit brusquement les yeux!

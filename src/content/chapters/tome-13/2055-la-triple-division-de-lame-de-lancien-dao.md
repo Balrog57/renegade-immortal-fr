@@ -112,7 +112,7 @@ Dès que le Sens Divin de Wang Lin se rétracta, son corps trembla et il leva la
 
 Wang Lin connaissait cette silhouette.
 
-« Maître... » murmura-t-il. Il savait que son maître ne quitterait pas l'Ancien Dao sans raison. Son maître était venu parce que Xuan Luo voulait le protéger alors qu'il était au plus vulnérable face à la calamité.
+« Maître... » murmura-t-il. Il savait que son maître ne quitterait pas le Dao Gu sans raison. Son maître était venu parce que Xuan Luo voulait le protéger alors qu'il était au plus vulnérable face à la calamité.
 
 Dans le ciel, Xuan Luo contemplait la cité impériale des Anciens Shi et la statue de l'Ancêtre. Il percevait faiblement l'aura de Wang Lin émanant du temple ancestral.
 

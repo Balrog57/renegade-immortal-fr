@@ -92,7 +92,7 @@ S'il n'y avait eu qu'un seul adversaire, en utilisant toute sa puissance et l'ai
 
 Wang Lin soupira intérieurement tout en accélérant sa course.
 
-Seize heures plus tard, alors que la nuit était tombée, il avait utilisé son Royaume Ji à plusieurs reprises, mais cela ne servait qu'à les ralentir. Il déploya son sens divin et s'arrêta brusquement. Il se retourna pour faire face aux ennemis qui le traquaient depuis deux jours et une nuit.
+Huit heures plus tard, alors que la nuit était tombée, il avait utilisé son Royaume Ji à plusieurs reprises, mais cela ne servait qu'à les ralentir. Il déploya son sens divin et s'arrêta brusquement. Il se retourna pour faire face aux ennemis qui le traquaient depuis deux jours et une nuit.
 
 Les trois hommes étaient épuisés, mais ils ne pouvaient pas renoncer. S'ils laissaient Wang Lin s'échapper et atteindre le stade de la Formation du Noyau, leur mort serait certaine. En voyant Wang Lin s'arrêter soudainement, ils furent frappés de confusion.
 

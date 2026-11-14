@@ -104,7 +104,7 @@ Cette dernière phrase résonna dans tout le Système Stellaire Antique, parvena
 
 « Réouvrez le classement du Système Stellaire Antique, dont les noms resteront gravés dix mille ans! Les 1 000 premiers recevront la fortune du Royaume Céleste Antique. Les 100 premiers deviendront les disciples des concubines impériales célestes. Les 10 premiers pourront chacun contrôler un royaume! »
 
-« Pour les trois premiers, s'ils sont des cultivateurs du troisième pas, ils recevront chacun dix esprits taoïstes de rang 3! S'ils ne le sont pas, ils deviendront les disciples du Souverain! »
+« Pour les trois premiers, s'ils sont des cultivateurs du troisième pas, ils recevront chacun dix esprits du Dao de rang 3! S'ils ne le sont pas, ils deviendront les disciples du Souverain! »
 
 « Selon le décret du Royaume Céleste Antique, le premier du classement final de cette bataille pourra devenir le partenaire de culture d'une concubine impériale céleste et sera nommé Souverain Céleste! »
 
@@ -122,7 +122,7 @@ Alors que les cris de guerre résonnaient dans le Royaume Extérieur, les treize
 
 Une marque se trouvait entre les sourcils de chaque individu. Au milieu de cette intention meurtrière, une aura étrange commença à poindre. Le sang de ces 90 000 cultivateurs se mit à bouillir, les rendant progressivement agités et déchaînés. Ils étaient comme des bêtes féroces affamées depuis trop longtemps, prêtes à tout dévorer!
 
-Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Dong Dizi! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade du Vide Arcanique!
+Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe daoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Dong Dizi! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade du Vide Arcanique!
 
 À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! Nanzhao Shangren! Bien que son niveau de culture ne fût pas aussi élevé que celui de Da Huang — étant seulement au début du stade du Vide Spirituel — sa maîtrise des poisons était tout aussi célèbre!
 
