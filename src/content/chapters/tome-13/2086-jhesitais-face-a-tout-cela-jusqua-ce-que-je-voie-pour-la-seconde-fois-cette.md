@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2086 - Reincarnation is Right There
 slug: jhesitais-face-a-tout-cela-jusqua-ce-que-je-voie-pour-la-seconde-fois-cette
 ---
-« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral de Shi Antique. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas Tian Yunzi, mais fixa le pont situé derrière Tian Yunzi.
+« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral de Shi Gu. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas Tian Yunzi, mais fixa le pont situé derrière Tian Yunzi.
 
 « J'avais peur que cette scène soit réelle, peur que la résurrection de Wan Er ait échoué. Je craignais que tout ne soit qu'une vie antérieure où j'avais rencontré Wan Er et fait de mon mieux pour la ressusciter, en vain; alors je me suis immergé dans le Dao du Rêve pour modifier la réincarnation jusqu'à ce que mon rêve devienne réalité!
 
@@ -34,7 +34,7 @@ Des caractères étaient gravés sur ce crâne, émettant une lueur froide et un
 
 « À l'origine, j'étais très confus quant à la résurrection de Li Muwan. Je ne savais même pas comment la ramener à la vie jusqu'à ce que vous apparaissiez sur la montagne désertée du Dao Gu.
 
-« J'ai gardé vos paroles en mémoire et, fort de mon expérience, j'ai conçu une méthode lorsque j'ai vu cette silhouette hurlante dans le temple ancestral de Shi Antique!
+« J'ai gardé vos paroles en mémoire et, fort de mon expérience, j'ai conçu une méthode lorsque j'ai vu cette silhouette hurlante dans le temple ancestral de Shi Gu!
 
 « Lorsque j'ai conçu ce plan et que je l'ai mis en œuvre, j'étais hésitant. Mon existence était-elle réelle ou n'était-ce qu'un rêve? Le Continent Xian Gang existait-il vraiment?
 

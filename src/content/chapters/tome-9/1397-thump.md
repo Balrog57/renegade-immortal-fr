@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1397 - Thump
 slug: thump
 ---
-La veille de la Sélection des Anciens Déchus, Wang Lin arriva aux abords de la Planète du Grand Empereur avec le Clan An Xie et le Clan Yun Dun. En découvrant cette étrange planète, les yeux de Wang Lin se rétrécirent.
+La veille de la Sélection des Anciens Luo Sheng, Wang Lin arriva aux abords de la Planète du Grand Empereur avec le Clan An Xie et le Clan Yun Dun. En découvrant cette étrange planète, les yeux de Wang Lin se rétrécirent.
 
 La Planète du Grand Empereur était enveloppée d'une couche d'illusion, comme si elle était dissimulée par un voile de brume. Pourtant, de vastes déchirures apparaissaient par moments dans la brume illusoire, semblables à des gueules acérées dévorant tout ce qui s'y trouvait.
 
@@ -26,7 +26,7 @@ Quant à Wang Lin, grâce à son niveau de culture, très peu de personnes parve
 
 L'expression de Wang Lin resta impassible tandis qu'il fixait froidement l'horizon.
 
-« Chaque Sélection des Anciens Déchus se déroule sur la Planète du Grand Empereur, mais elle est normalement inaccessible. Une fois que tout le monde est rassemblé, un tunnel s'ouvre de l'intérieur pour permettre l'entrée, » murmura le Patriarche du Clan An Xie à Wang Lin.
+« Chaque Sélection des Anciens Luo Sheng se déroule sur la Planète du Grand Empereur, mais elle est normalement inaccessible. Une fois que tout le monde est rassemblé, un tunnel s'ouvre de l'intérieur pour permettre l'entrée, » murmura le Patriarche du Clan An Xie à Wang Lin.
 
 « Nous ne sommes pas arrivés trop tard, le tunnel devrait donc s'ouvrir bientôt. »
 
@@ -44,7 +44,7 @@ Le Patriarche du Clan An Xie murmura: « C'est l'Ancien en chef du Clan Hun She.
 
 Le Patriarche du Clan Yun Dun se tenait naturellement aux côtés de Wang Lin. Lorsqu'il entendit les paroles de l'Ancien en chef du Clan Hun She, il resta calme et garda la tête baissée, silencieux.
 
-L'Ancien en chef du Clan Hun She sourit et dit lentement: « La rumeur prétend que le Clan Yun Dun a invité Tan Lang en tant qu'Ancien honorifique. Avec Tan Lang, je présume que le Clan Yun Dun est assuré d'obtenir un siège d'Ancien Déchu! Cependant, comment se fait-il que je ne voie pas le Senior Tan Lang? »
+L'Ancien en chef du Clan Hun She sourit et dit lentement: « La rumeur prétend que le Clan Yun Dun a invité Tan Lang en tant qu'Ancien honorifique. Avec Tan Lang, je présume que le Clan Yun Dun est assuré d'obtenir un siège d'Ancien Luo Sheng! Cependant, comment se fait-il que je ne voie pas le Senior Tan Lang? »
 
 Sa voix n'était pas forte, mais elle était imprégnée de sa puissance de culture, ce qui la fit résonner.
 
@@ -62,11 +62,11 @@ Le Patriarche du Clan Yun Dun leva la tête et regarda Wang Lin. Puis il déclar
 
 Le vieil homme qui venait de parler vit cette scène, et ses pupilles se contractèrent.
 
-« Une branche du Clan aquatique des Cinq Éléments, le patriarche du Clan Chuan He. Il est actuellement le 13ème Ancien Déchu! » murmura doucement le Patriarche du Clan An Xie à côté de Wang Lin.
+« Une branche du Clan aquatique des Cinq Éléments, le patriarche du Clan Chuan He. Il est actuellement le 13ème Ancien Luo Sheng! » murmura doucement le Patriarche du Clan An Xie à côté de Wang Lin.
 
 L'expression de Wang Lin resta calme et il hocha légèrement la tête.
 
-« Qui ose prononcer le nom de ce vieil homme?! » lança froidement le Patriarche du Clan Chuan He, le 13ème Ancien Déchu. Son regard fut comme un éclair, se posant sur Wang Lin et le Patriarche du Clan An Xie.
+« Qui ose prononcer le nom de ce vieil homme?! » lança froidement le Patriarche du Clan Chuan He, le 13ème Ancien Luo Sheng. Son regard fut comme un éclair, se posant sur Wang Lin et le Patriarche du Clan An Xie.
 
 Les yeux du Patriarche du Clan Chuan He s'illuminèrent et il ajouta lentement: « Petit scorpion, pourquoi n'es-tu pas venu te prosterner devant ce vieil homme? » Cependant, son regard restait verrouillé sur Wang Lin.
 
@@ -76,25 +76,25 @@ Le tumulte attira l'attention des cultivateurs environnants, qui tous se tournè
 
 L'homme d'âge moyen du Clan Hun She sourit et secoua la tête: « Petit scorpion, même si tu veux grimper les échelons, tu devrais faire attention à ceux que tu choisis de suivre. Mais je ne peux t'en blâmer, les scorpions qui ne savent que se cacher sous terre sont forcément myopes. »
 
-« Quoi, tu ne viens toujours pas? C'est bien. Toi, viens ici et agenouille-toi! » Le 13ème Ancien Déchu, le Patriarche du Clan Chuan He, désigna directement Wang Lin du doigt.
+« Quoi, tu ne viens toujours pas? C'est bien. Toi, viens ici et agenouille-toi! » Le 13ème Ancien Luo Sheng, le Patriarche du Clan Chuan He, désigna directement Wang Lin du doigt.
 
 Après qu'il eut parlé, l'expression du Patriarche du Clan An Xie se détendit pour laisser place à une pointe de dérision. Non seulement lui, mais le Patriarche du Clan Yun Dun leva également la tête, ses yeux brillant d'une moquerie mêlée à un profond sentiment de fierté cachée.
 
 Wang Lin sourit en regardant le vieil homme et dit lentement: « Votre nom ne peut-il donc pas être prononcé? »
 
-Les yeux du 13ème Ancien Déchu s'illuminèrent. Il vit la manière dont le Patriarche du Clan Yun Dun regardait Wang Lin et, d'après leur position, comprit que cet homme semblait être celui qui commandait. C'était pour cela qu'il avait parlé.
+Les yeux du 13ème Ancien Luo Sheng s'illuminèrent. Il vit la manière dont le Patriarche du Clan Yun Dun regardait Wang Lin et, d'après leur position, comprit que cet homme semblait être celui qui commandait. C'était pour cela qu'il avait parlé.
 
-En tant que 13ème Ancien Déchu, il devait faire une démonstration de force pour assurer sa réélection. Bien que le Clan An Xie fût petit, le Clan Yun Dun ne l'était pas. Avec la réputation de Tan Lang, ils étaient l'outil idéal pour étaler sa puissance.
+En tant que 13ème Ancien Luo Sheng, il devait faire une démonstration de force pour assurer sa réélection. Bien que le Clan An Xie fût petit, le Clan Yun Dun ne l'était pas. Avec la réputation de Tan Lang, ils étaient l'outil idéal pour étaler sa puissance.
 
 D'après ce que le vieil homme savait, Wang Lin était un envoyé de Tan Lang; utiliser Wang Lin pour s'imposer revenait donc à utiliser Tan Lang lui-même! Pourtant, la moquerie dans les yeux des Patriarches du Clan An Xie et du Clan Yun Dun lui donna le pressentiment que quelque chose n'allait pas.
 
-« Cet homme doit être l'envoyé de Tan Lang. Bien que Tan Lang soit puissant, je suis un Ancien Déchu, il n'y a aucune raison de craindre quoi que ce soit! »
+« Cet homme doit être l'envoyé de Tan Lang. Bien que Tan Lang soit puissant, je suis un Ancien Luo Sheng, il n'y a aucune raison de craindre quoi que ce soit! »
 
 Pensant cela, le vieil homme renifla froidement: « Seules les personnes qualifiées peuvent parler ainsi. Je me demande si tu en as les qualifications. »
 
 Les anciens et les patriarches étaient de vieux renards; ils devinaient plus ou moins la situation. Ils étaient tous arrivés à la même conclusion: Wang Lin était un envoyé de Tan Lang.
 
-« Tu ne dois pas être originaire de la Terre Déchue. Je te conseille de t'agenouiller rapidement devant moi. Sache que même ton maître, Tan Lang, n'aurait d'autre choix que de s'agenouiller dans une telle situation. » Les yeux de l'Ancien en chef du Clan Hun She brillèrent. C'était lui qui avait provoqué cela, et il se réjouissait de voir le 13ème Ancien Déchu cibler le Clan Yun Dun.
+« Tu ne dois pas être originaire de la Terre Déchue. Je te conseille de t'agenouiller rapidement devant moi. Sache que même ton maître, Tan Lang, n'aurait d'autre choix que de s'agenouiller dans une telle situation. » Les yeux de l'Ancien en chef du Clan Hun She brillèrent. C'était lui qui avait provoqué cela, et il se réjouissait de voir le 13ème Ancien Luo Sheng cibler le Clan Yun Dun.
 
 « Qualifications... » Wang Lin sourit.
 
@@ -112,7 +112,7 @@ Cette scène provoqua un choc immense chez tous les cultivateurs présents.
 
 « Le Clan Long Jia du neuvième ancien! »
 
-« On raconte que le neuvième Ancien Déchu a été dépouillé de son titre il y a quelques mois et qu'un nouveau patriarche a été choisi! »
+« On raconte que le neuvième Ancien Luo Sheng a été dépouillé de son titre il y a quelques mois et qu'un nouveau patriarche a été choisi! »
 
 « Cette affaire a fait grand bruit. Cependant, la raison de la destitution du neuvième ancien est restée secrète, peu de gens la connaissent! »
 
@@ -132,4 +132,4 @@ Cette intuition fut pour lui comme un seau d'eau glacée jeté sur sa tête. Son
 
 Des dizaines de cultivateurs au regard glacial sortirent du tunnel. Celui qui les menait était l'émissaire apparu précédemment sur la planète du Clan Long Jia. Il ne daigna même pas regarder la foule environnante et vola directement vers Wang Lin.
 
-En voyant cela, le 13ème Ancien Déchu sentit son cœur rater un battement.
+En voyant cela, le 13ème Ancien Luo Sheng sentit son cœur rater un battement.

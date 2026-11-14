@@ -26,11 +26,11 @@ Wang Lin leva la main droite et fouilla son espace de stockage pour en sortir un
 
 Il s'agissait de l'Étendard de l'Âme!
 
-Ce drapeau lui avait été donné par Dun Tian il y a de nombreuses années, et il en avait confié une partie à Treize. Actuellement, il ne lui restait que ce fragment brisé, mais lorsque la puissance de la Porte Kong s'y engouffra, l'Étendard de l'Âme dégagea une aura puissante.
+Ce drapeau lui avait été donné par Dun Tian il y a de nombreuses années, et il en avait confié une partie à Treize. Actuellement, il ne lui restait que ce fragment brisé, mais lorsque la puissance de la Porte du Vide s'y engouffra, l'Étendard de l'Âme dégagea une aura puissante.
 
-Une fois l'Étendard de l'Âme réparé, la puissance de la Porte Kong se dissipa rapidement du monde.
+Une fois l'Étendard de l'Âme réparé, la puissance de la Porte du Vide se dissipa rapidement du monde.
 
-Le vortex de la Porte Kong disparut. Wang Lin se tenait là, ses cheveux blancs flottant au vent. Son œil gauche contenait le feu, son œil droit contenait le tonnerre, et entre ses sourcils, outre les étoiles de l'Ancien Dieu, trois marques verticales étaient apparues!
+Le vortex de la Porte du Vide disparut. Wang Lin se tenait là, ses cheveux blancs flottant au vent. Son œil gauche contenait le feu, son œil droit contenait le tonnerre, et entre ses sourcils, outre les étoiles de l'Ancien Dieu, trois marques verticales étaient apparues!
 
 Ces trois marques représentaient le karma au centre, la vie et la mort à gauche, et le vrai et le faux à droite!
 
@@ -52,7 +52,7 @@ La Porte Wan Kong Gu ressemblait à un tatouage dans la paume droite de Wang Lin
 
 Situ Nan lança un regard anxieux à Wang Lin.
 
-« Une Tribulation Céleste... Quand j'ai brisé la Porte Kong, il n'y en a pas eu. Wang Lin, lui... » Situ Nan regarda Maître Nan Yunzi et y vit également une pointe d'inquiétude.
+« Une Tribulation Céleste... Quand j'ai brisé la Porte du Vide, il n'y en a pas eu. Wang Lin, lui... » Situ Nan regarda Maître Nan Yunzi et y vit également une pointe d'inquiétude.
 
 « Le Seigneur du Royaume Scellé possède la volonté de défier les cieux et est appelé cultivateur défiant le ciel. Les cultivateurs défiant le ciel doivent affronter la Tribulation Céleste, c'est une loi transmise depuis l'Antiquité... Ce vieil homme en a vu passer plusieurs. Ainsi, le Seigneur du Royaume Scellé est également un cultivateur défiant le ciel... » Maître Nan Yunzi regarda au loin et vit une masse de nuages se précipiter vers eux.
 

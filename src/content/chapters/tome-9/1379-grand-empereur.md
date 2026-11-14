@@ -130,7 +130,7 @@ Les pupilles de Wang Lin se contractèrent alors qu'il s'apprêtait à utiliser 
 
 « Intéressant. Si tu parviens à vaincre cet avatar de cultivateur du troisième pas en cinq respirations, je te promets la sécurité dans la Terre Déchue! »
 
-Dans la terre sainte du Clan Long Jia, l'expression du Neuvième Ancien Déchu, le Patriarche du Clan Long Jia, changea radicalement lorsqu'il s'exclama: « Grand Empereur! »
+Dans la terre sainte du Clan Long Jia, l'expression du Neuvième Ancien Luo Sheng, le Patriarche du Clan Long Jia, changea radicalement lorsqu'il s'exclama: « Grand Empereur! »
 
 L'expression de Maître Si Mo changea elle aussi brusquement, la panique envahissant son visage.
 

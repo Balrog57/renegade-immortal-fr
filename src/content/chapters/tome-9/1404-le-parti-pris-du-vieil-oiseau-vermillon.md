@@ -78,7 +78,7 @@ Le parti pris du Clan Suzaku se transmettait de génération en génération.
 
 Wang Lin esquissa un sourire en observant la scène. Il voyait en ce vieil homme l'ombre de Qing Shui et du cinquième Empereur Divin de Suzaku.
 
-La personnalité de Wang Lin était parfois très simple: ceux qui lui étaient bienveillants recevaient des faveurs multipliées plusieurs fois. À l'instar de Situ Nan, Qing Shui, de l'ancien Empereur Divin de Suzaku ou de Dun Tian... Les cultivateurs qui se disputaient le poste d'Ancien Déchu s'arrêtèrent et reculèrent. Les dizaines de milliers de cultivateurs des Terres Déchues manifestèrent un immense respect, et la dizaine de messagers du Grand Empereur levèrent également les yeux vers le ciel avec déférence.
+La personnalité de Wang Lin était parfois très simple: ceux qui lui étaient bienveillants recevaient des faveurs multipliées plusieurs fois. À l'instar de Situ Nan, Qing Shui, de l'ancien Empereur Divin de Suzaku ou de Dun Tian... Les cultivateurs qui se disputaient le poste d'Ancien Luo Sheng s'arrêtèrent et reculèrent. Les dizaines de milliers de cultivateurs des Terres Déchues manifestèrent un immense respect, et la dizaine de messagers du Grand Empereur levèrent également les yeux vers le ciel avec déférence.
 
 Quant aux autres personnes suspendues dans le ciel, elles restèrent silencieuses.
 
@@ -106,7 +106,7 @@ Les yeux de Suzaku s'écarquillèrent en entendant l'insulte « vieux oiseau »,
 
 « Prends-le. Cette chose contient le venin de ce petit insecte. C'est une arme redoutable contre tes ennemis! »
 
-Tandis qu'il parlait, Suzaku leva la main droite et fit un geste vers l'arène. Il cria: « La Sélection des Anciens Déchus est reportée, et l'épreuve du Jeune Empereur commence! »
+Tandis qu'il parlait, Suzaku leva la main droite et fit un geste vers l'arène. Il cria: « La Sélection des Anciens Luo Sheng est reportée, et l'épreuve du Jeune Empereur commence! »
 
 Sa voix tonna comme le tonnerre et résonna dans toute l'arène. Le rugissement d'une tortue dragon retentit, et la tortue géante, déjà apparue sous les coups de Wang Lin, surgit de l'arène, sa carapace se reformant plaque après plaque.
 

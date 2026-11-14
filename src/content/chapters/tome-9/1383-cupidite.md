@@ -26,7 +26,7 @@ Les deux autres s'enfuirent, gravement blessés!
 
 Cet événement provoqua une onde de choc immense dans la Terre Déchue; c'était tout simplement incroyable. Un cultivateur Purificateur du Nirvana n'avait pas péri sous la poursuite de trois cultivateurs Briseur du Nirvana, et avait même réussi à en tuer un!
 
-Le nom de Tan Lang se répandit comme une traînée de poudre sur la Terre Déchue, mais, parallèlement, le clan du défunt cultivateur Briseur du Nirvana était furieux. Bien que ce clan ne possédât pas d'Ancien Déchu, il restait très puissant. Afin d'éliminer Tan Lang, le clan envoya un cultivateur Fléau Céleste de premier niveau!
+Le nom de Tan Lang se répandit comme une traînée de poudre sur la Terre Déchue, mais, parallèlement, le clan du défunt cultivateur Briseur du Nirvana était furieux. Bien que ce clan ne possédât pas d'Ancien Luo Sheng, il restait très puissant. Afin d'éliminer Tan Lang, le clan envoya un cultivateur Fléau Céleste de premier niveau!
 
 Qu'un cultivateur Fléau Céleste de premier niveau tue un cultivateur Purificateur du Nirvana revenait à un tigre piétinant une fourmi! L'affaire fit grand bruit et, alors que tout le monde était convaincu que Tan Lang était condamné, un autre miracle se produisit!
 

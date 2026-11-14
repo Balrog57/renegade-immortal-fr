@@ -98,7 +98,7 @@ Les douze piliers noirs émettaient une lueur sombre qui, en réaction à ce cha
 
 Une pointe de tristesse apparut dans les yeux de Wang Lin. Il vit la lutte intérieure dans le regard de Chi Hu. Pourtant, il n'avait que peu de liens avec quiconque et considérait sincèrement Chi Hu comme un ami.
 
-Dans un rayon de 33 kilomètres, lui et Chi Hu étaient les seuls à rester debout. Tous les autres étaient assis en tailleur, chantant ce chant singulier.
+Dans un rayon de cent mille pieds, lui et Chi Hu étaient les seuls à rester debout. Tous les autres étaient assis en tailleur, chantant ce chant singulier.
 
 Chi Hu regarda Wang Lin avec une expression complexe et dit amèrement: « Zeng Niu, je suis désolé! Cependant, l'ancêtre est l'espoir de notre clan, et en tant que Jeune Maître de Secte, c'est mon devoir... Même avec le corps de l'ancêtre, il ne peut supporter huit assauts de la formation du Passage Céleste. Ton corps n'est pas aussi robuste que celui des membres de mon clan; tu n'as aucune chance de survie... »
 

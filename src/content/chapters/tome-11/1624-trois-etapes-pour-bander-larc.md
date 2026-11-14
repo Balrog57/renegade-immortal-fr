@@ -92,9 +92,9 @@ Il cracha une bouchée de sang et tituba en reculant de quelques pas. Il regarda
 
 Dans Kun Xu, aux abords de la planète Suzaku, Wang Lin ouvrit les yeux. L'arc disparut de sa main et la flèche retourna du vide pour se loger à nouveau dans la goutte de sang doré qu'il tenait dans sa main droite.
 
-Il pressa la goutte de sang contre son front et s'élança vers le vortex formé par l'effondrement de la Porte Kong. Sa troisième étape était presque condensée : il ne lui manquait plus qu'un dernier fil.
+Il pressa la goutte de sang contre son front et s'élança vers le vortex formé par l'effondrement de la Porte du Vide. Sa troisième étape était presque condensée : il ne lui manquait plus qu'un dernier fil.
 
-Non loin de là, Zhou Jin était le seul cultivateur du Royaume Extérieur à avoir survécu aux ondes. Son corps tremblait et il n'osait plus bouger. Il regarda Wang Lin entrer dans le vortex et absorber la puissance de la Porte Kong avec une intensité folle.
+Non loin de là, Zhou Jin était le seul cultivateur du Royaume Extérieur à avoir survécu aux ondes. Son corps tremblait et il n'osait plus bouger. Il regarda Wang Lin entrer dans le vortex et absorber la puissance de la Porte du Vide avec une intensité folle.
 
 « Si puissant... Il... Il est devenu si puissant! » L'esprit de Zhou Jin était vide, son visage livide.
 

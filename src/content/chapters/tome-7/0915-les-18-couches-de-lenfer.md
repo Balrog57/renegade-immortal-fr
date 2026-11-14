@@ -114,4 +114,4 @@ Wang Lin se leva et contempla les 18 couches de l'enfer dans le ciel. Un vortex 
 
 Un gaz noir infini s'échappa de cette énergie. Ce gaz noir représentait toutes les personnes tuées par Wang Lin. Dès qu'ils approchèrent des 18 couches de l'enfer, chaque couche les absorba selon leur force.
 
-Au même moment, Wang Lin frappa son sac de stockage et le Étendard de l'Âme s'envola. Il agita le drapeau pour l'ouvrir, et les fragments d'âme s'en échappèrent comme des démons en furie.
+Au même moment, Wang Lin frappa son sac de stockage et l'Étendard de l'Âme s'envola. Il agita le drapeau pour l'ouvrir, et les fragments d'âme s'en échappèrent comme des démons en furie.

@@ -102,7 +102,7 @@ Un coup de tonnerre éclata et plusieurs éclairs reliant le ciel et la terre d�
 
 Observant les nuages noirs tourbillonnants, Wang Lin prit une profonde inspiration, envahi par un sentiment d'irritation inexplicable. Il fronça les sourcils et réprima les découvertes qu'il venait de faire sur la planète Suzaku. Pour l'instant, il devait raffiner la force de rejet en lui et porter à leur plénitude ses essences de vie et de mort, de karma, et de vrai et de faux!
 
-Il affinerait ensuite l'épée d'essence de massacre que Qing Shui lui avait donnée et utiliserait ses six essences pour atteindre le Dao, briser la Porte Kong et devenir un expert du troisième pas!
+Il affinerait ensuite l'épée d'essence de massacre que Qing Shui lui avait donnée et utiliserait ses six essences pour atteindre le Dao, briser la Porte du Vide et devenir un expert du troisième pas!
 
 Wang Lin se leva pour partir. Derrière lui, les nuages tourbillonnants s'engouffrèrent comme si un dieu du massacre se cachait en leur sein, le fixant du regard. Il voulait le dévorer et le détruire, tout comme l'oiseau.
 

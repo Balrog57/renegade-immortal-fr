@@ -100,7 +100,7 @@ Wang Lin observa ce pont et, après une courte réflexion, leva le pied. Cependa
 
 Simultanément, le quatrième pont trembla soudainement devant lui et se fragmenta en d'innombrables éclats de lumière. Ces particules se précipitèrent vers lui, formant un vortex gigantesque qui engloutit la silhouette de Wang Lin.
 
-Au moment où il fut dévoré, sur la terre du clan Ancien du Continent Xian Gang, dans le pays de Luo Hou, l'un des douze pays de la lignée Shi Antique, dans la chambre secrète du palais du Prince Ji Du, Wang Lin ouvrit brusquement les yeux.
+Au moment où il fut dévoré, sur la terre du clan Ancien du Continent Xian Gang, dans le pays de Luo Hou, l'un des douze pays de la lignée Shi Gu, dans la chambre secrète du palais du Prince Ji Du, Wang Lin ouvrit brusquement les yeux.
 
 Ses yeux restèrent empreints d'une profonde confusion pendant un long moment. Son corps véritable d'essence de massacre s'était totalement intégré à son propre corps; il n'y avait plus d'ombre superposée.
 

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 578 - Dao Of Slaughter!"
 slug: le-dao-de-la-boucherie
 ---
-Au deuxième étage d'un restaurant situé à 3,3 kilomètres de Wang Lin, de l'autre côté de la rivière, deux hommes étaient assis près de la fenêtre, leurs regards fixés sur lui.
+Au deuxième étage d'un restaurant situé à dix mille pieds de Wang Lin, de l'autre côté de la rivière, deux hommes étaient assis près de la fenêtre, leurs regards fixés sur lui.
 
 Tous deux portaient des robes noires. L'un était plus âgé, tandis que l'autre était un peu plus jeune.
 
@@ -26,7 +26,7 @@ L'énergie de l'épée, chargée d'une puissante intention meurtrière, fonçait
 
 Le bateau sur la rivière, ayant pressenti cette anomalie, accéléra soudainement.
 
-L'énergie de l'épée se rapprocha brusquement et franchit les 3,3 kilomètres en un instant. Toute l'herbe autour de Wang Lin s'inclina d'un côté, comme sous l'effet d'un vent violent.
+L'énergie de l'épée se rapprocha brusquement et franchit les dix mille pieds en un instant. Toute l'herbe autour de Wang Lin s'inclina d'un côté, comme sous l'effet d'un vent violent.
 
 Les sifflements stridents se mêlaient à la musique de la cithare, créant une harmonie singulière!
 
@@ -44,7 +44,7 @@ Une traînée de gaz gris s'échappa de son corps vers Wang Lin.
 
 Wang Lin ne prit même pas la peine de prêter attention à la trajectoire du Doigt de la Mort et continua d'écouter silencieusement la musique de la cithare.
 
-Dans le restaurant, à 3,3 kilomètres de là, le jeune homme se leva brusquement et fixa Wang Lin de l'autre côté de la rivière. Après un long moment, il prit une profonde inspiration avant de se rasseoir.
+Dans le restaurant, à dix mille pieds de là, le jeune homme se leva brusquement et fixa Wang Lin de l'autre côté de la rivière. Après un long moment, il prit une profonde inspiration avant de se rasseoir.
 
 Seule l'expression de l'homme plus âgé était restée inchangée.
 
@@ -64,7 +64,7 @@ Tout en parlant, il se leva une nouvelle fois pour faire face à Wang Lin.
 
 Alors que le jeune homme sortait du restaurant, une brise provenant de la rivière fit flotter ses vêtements. Il marcha contre le vent en progressant lentement vers Wang Lin.
 
-Il franchit les 3,3 kilomètres avec un calme olympien, comme s'il déambulait dans son propre jardin. À chaque pas, la puissance de son aura croissait, comme si elle était destinée à augmenter sans fin.
+Il franchit les dix mille pieds avec un calme olympien, comme s'il déambulait dans son propre jardin. À chaque pas, la puissance de son aura croissait, comme si elle était destinée à augmenter sans fin.
 
 Il s'arrêta à trois cents pieds de Wang Lin. Il était alors entièrement enveloppé d'énergie spirituelle démoniaque, mais ce qui était étrange, c'est qu'une part d'énergie spirituelle céleste se mêlait à sa nature démoniaque.
 
@@ -104,7 +104,7 @@ L'aura puissante qu'il avait déployée en marchant s'était totalement effondr�
 
 Tous les hommes en robe noire qui observaient depuis le premier étage du restaurant furent frappés de stupeur. Bien qu'ils fussent éloignés, ils eurent l'impression d'être sur le lieu même de l'affrontement. La sueur qui perla sur leurs corps trempa instantanément leurs vêtements.
 
-Avec leur niveau de culture, ils ne comprenaient pas comment un regard porté depuis 3,3 kilomètres pouvait donner la sensation d'une lame contre la gorge et de la mort approchant. C'était comme si cet homme s'était transformé en le Dieu de la Boucherie!
+Avec leur niveau de culture, ils ne comprenaient pas comment un regard porté depuis dix mille pieds pouvait donner la sensation d'une lame contre la gorge et de la mort approchant. C'était comme si cet homme s'était transformé en le Dieu de la Boucherie!
 
 Au deuxième étage, les yeux de l'homme plus âgé s'illuminèrent; il se leva brusquement et fit exploser la table devant lui par réflexe.
 

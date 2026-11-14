@@ -116,7 +116,7 @@ Le crâne scintilla et une courte ligne de mots s'y afficha avant de disparaîtr
 
 « Vous avez tous tort... » Wang Lin détourna le regard et sourit en regagnant la maison en bois. Il regarda Li Muwan qui dormait et s'assit à ses côtés. Son regard était empreint d'une infinie tendresse alors qu'il la contemplait.
 
-« Wan Er, tu te réveilleras... Car je connais enfin la véritable méthode... Et j'ai déjà commencé les préparatifs dans le temple ancestral de Shi Antique. »
+« Wan Er, tu te réveilleras... Car je connais enfin la véritable méthode... Et j'ai déjà commencé les préparatifs dans le temple ancestral de Shi Gu. »
 
 Une trace de folie dansait dans les yeux de Wang Lin. Cette méthode était, en vérité, totalement insensée!
 

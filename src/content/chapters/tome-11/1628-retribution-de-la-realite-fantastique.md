@@ -76,13 +76,13 @@ Tandis qu'il réfléchissait, d'autres silhouettes l'encerclèrent. Wang Lin lai
 
 Ayant compris l'essence du Vrai et du Faux, cela lui inspirait une certaine émotion, sans avoir de prise sur lui. En fermant les yeux, tout devenait faux; en les ouvrant, tout redevenait réel.
 
-Dans un soupir, Wang Lin referma de nouveau les paupières et agita la main droite. Tout comme il avait réduit la Porte Kong en poussière, il balaya ces silhouettes, qu'elles fussent réelles ou non. De la poussière à la poussière, de la terre à la terre, elles retournaient à leur origine.
+Dans un soupir, Wang Lin referma de nouveau les paupières et agita la main droite. Tout comme il avait réduit la Porte du Vide en poussière, il balaya ces silhouettes, qu'elles fussent réelles ou non. De la poussière à la poussière, de la terre à la terre, elles retournaient à leur origine.
 
 « Puisque les cieux sont assez impitoyables pour m'opposer une telle méthode, je ferai de même! Cieux, ouvrez vos yeux et voyez combien d'êtres, en dehors de moi, rugissent face à vous! » Wang Lin ouvrit les yeux, pointa le firmament et hurla!
 
 Dans son cri, son Dao du Vrai et du Faux surgit soudainement!
 
-Au cœur des nuages grondants, alors que Wang Lin rugissait, de multiples figures illusoires apparurent. Ces formes étaient façonnées par son propre Dao. Si l'on disait qu'elles étaient réelles, elles l'étaient; si on les disait fausses, elles ne l'étaient pas.
+Au cœur des nuages grondants, alors que Wang Lin rugissait, de multiples figures illusoires apparurent. Ces formes étaient façonnées par son propre Dao. Si l'on disait qu'elles étaient réelles, elles l'étaient; si on les disait fausses, elles l'étaient.
 
 Parmi ces figures se trouvait Zhou Yi, tenant le cadavre de la femme et rugissant lamentablement vers le ciel, les larmes aux yeux...
 Parmi elles, Bai Fan, pointant les cieux en riant comme un fou...

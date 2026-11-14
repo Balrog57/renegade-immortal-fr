@@ -96,7 +96,7 @@ Au début, l'énergie était puissante, mais elle s'étiolait à mesure qu'elle 
 
 Wang Lin réfléchit un instant avant de charger directement vers le ciel. En prenant de l'altitude, il sentit une force colossale l'empêcher de monter plus haut.
 
-Cette pression devenait de plus en plus lourde, comme si les cieux eux-mêmes pesaient sur lui. Loin de renoncer, il poussa un rugissement et accéléra encore, franchissant plus d'un kilomètre supplémentaire.
+Cette pression devenait de plus en plus lourde, comme si les cieux eux-mêmes pesaient sur lui. Loin de renoncer, il poussa un rugissement et accéléra encore, franchissant plusieurs milliers de pieds supplémentaires.
 
 À ce moment-là, de loin, on ne pouvait distinguer qu'une silhouette violette s'élançant dans le ciel au-dessus de la forêt. Un rideau de lumière argentée le surplombait sans relâche; à mesure qu'il montait, le rideau le suivait et s'étirait en une forme saillante, large à la base et étroite au sommet.
 

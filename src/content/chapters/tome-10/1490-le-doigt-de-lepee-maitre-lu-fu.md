@@ -1,6 +1,6 @@
 ---
 n: 1490
-title: "Le Doigt de l'Épée, Maître Lu Fu!"
+title: "L'épée pointée sur Maître Lu Fu!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1490 - Sword Finger Master Lu Fu!"

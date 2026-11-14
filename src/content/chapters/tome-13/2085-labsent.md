@@ -36,7 +36,7 @@ Une boussole gigantesque. Les tranchées servaient de graduations et les chaîne
 
 Tandis qu'il méditait, son regard balaya le monde et s'arrêta au centre de la boussole. Là se dressait une montagne perçant les nuages, sur laquelle tombait une neige aux sept couleurs.
 
-En contemplant ce pic, l'expression de Wang Lin devint complexe. Dans le temple ancestral de Shi Antique, lors de sa triple division de l'âme, il avait déjà vu cette montagne mystérieuse.
+En contemplant ce pic, l'expression de Wang Lin devint complexe. Dans le temple ancestral de Shi Gu, lors de sa triple division de l'âme, il avait déjà vu cette montagne mystérieuse.
 
 C'était là qu'il avait aperçu cette silhouette tenant un corps et interrogeant le monde. Cependant, en observant cette montagne enneigée de sept couleurs, il ne vit pas cette figure, mais une autre silhouette familière qui siégeait là, le regardant.
 

@@ -18,7 +18,7 @@ Cependant, il restait les essences éthérées, telles que le karma, la vie et l
 
 La raison pour laquelle il y avait si peu de cultivateurs du Vide Arcanique — à peine une douzaine parmi des millions, voire davantage — résidait dans la difficulté d'obtenir une essence éthérée.
 
-Si l'on possédait déjà une essence éthérée lors du franchissement de la Porte Kong, le goulot d'étranglement du stade du Vide Arcanique serait bien plus facile à surmonter. Cependant, trop peu de personnes avaient atteint la troisième étape avec une essence éthérée. Par conséquent, ils devaient soit en voler une, soit en comprendre une.
+Si l'on possédait déjà une essence éthérée lors du franchissement de la Porte du Vide, le goulot d'étranglement du stade du Vide Arcanique serait bien plus facile à surmonter. Cependant, trop peu de personnes avaient atteint la troisième étape avec une essence éthérée. Par conséquent, ils devaient soit en voler une, soit en comprendre une.
 
 Bien qu'il soit difficile de compléter une essence après avoir atteint la troisième étape, au fil des âges innombrables, de nombreux êtres étranges et des génies avaient tenté l'expérience. Ils finirent par élaborer une méthode.
 

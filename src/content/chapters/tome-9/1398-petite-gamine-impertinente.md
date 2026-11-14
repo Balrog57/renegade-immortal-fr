@@ -16,9 +16,9 @@ Le Jeune Empereur était bien réel! Cette nouvelle avait été annoncée par le
 
 « Le... Jeune Empereur?!! » L'homme d'âge moyen du Clan Hun She pâlit, les yeux emplis de terreur. Son cœur battait à tout rompre, sa bouche devint sèche et une sueur froide perla sur son front. Il fixait Wang Lin, totalement abasourdi.
 
-Il y avait aussi le 13e Ancien Déchu. Son expression changea radicalement et il recula inconsciemment de quelques pas. Son esprit tremblait et ses yeux étaient pétris de peur. Il n'aurait jamais imaginé que ses soupçons soient fondés!
+Il y avait aussi le 13e Ancien Luo Sheng. Son expression changea radicalement et il recula inconsciemment de quelques pas. Son esprit tremblait et ses yeux étaient pétris de peur. Il n'aurait jamais imaginé que ses soupçons soient fondés!
 
-« Dès que j'ai vu le Clan Long Jia, j'aurais dû m'en douter. Le neuvième Ancien Déchu a été dépouillé de son titre pour avoir offensé cette personne!! Je... J'ai osé m'en servir pour asseoir mon autorité... »
+« Dès que j'ai vu le Clan Long Jia, j'aurais dû m'en douter. Le neuvième Ancien Luo Sheng a été dépouillé de son titre pour avoir offensé cette personne!! Je... J'ai osé m'en servir pour asseoir mon autorité... »
 
 Le Patriarche du Clan Chuan He tremblait, léchant ses lèvres desséchées. Une panique sourde envahissait son cœur.
 
@@ -32,7 +32,7 @@ Le messager commença à expliquer respectueusement: « J'ai fait attendre le Je
 
 « Ce troisième Jeune Empereur doit être encore plus estimé que les deux précédents, sinon le passage ne se serait pas ouvert prématurément. Une telle chose est sans précédent! »
 
-« Héhé, le 13e Ancien Déchu est vraiment aveugle d'avoir provoqué le Jeune Empereur. Je veux voir comment il compte s'en sortir! »
+« Héhé, le 13e Ancien Luo Sheng est vraiment aveugle d'avoir provoqué le Jeune Empereur. Je veux voir comment il compte s'en sortir! »
 
 « Il y a aussi l'Ancien en chef du Clan Hun She. Je crains qu'il ne subisse également les conséquences. »
 
@@ -42,7 +42,7 @@ Les paroles du messager avaient déclenché une onde de choc dans le cœur des c
 
 Wang Lin avança lentement dans le passage qui venait de s'ouvrir, accompagné du messager.
 
-En voyant cela, le 13e Ancien Déchu se détendit. Il sentit que Wang Lin n'était pas un homme rancunier et qu'il ne lui compliquerait pas la tâche. Quoi qu'il en soit, il restait un Ancien Déchu. Même si l'autre partie était le Jeune Empereur, ce dernier devait encore accorder une certaine dignité à son rang. Peut-être pourrait-il même profiter de cette situation pour se le concilier.
+En voyant cela, le 13e Ancien Luo Sheng se détendit. Il sentit que Wang Lin n'était pas un homme rancunier et qu'il ne lui compliquerait pas la tâche. Quoi qu'il en soit, il restait un Ancien Luo Sheng. Même si l'autre partie était le Jeune Empereur, ce dernier devait encore accorder une certaine dignité à son rang. Peut-être pourrait-il même profiter de cette situation pour se le concilier.
 
 « Cet homme est bienveillant. Bien qu'il soit le Jeune Empereur, c'est un homme facile à intimider... » Mais alors qu'il pensait avoir de la chance, ses pupilles se contractèrent.
 
@@ -56,23 +56,23 @@ Le messager à ses côtés s'arrêta également, affichant un air dubitatif. Il 
 
 Le membre du Clan Hun She afficha un regard de désespoir. Derrière lui, les membres de son clan virent leurs visages se décomposer sous l'effet de la peur.
 
-« Son péché ne mérite pas la mort, mais le Clan Hun She est privé de son droit de participer à la Sélection des Anciens Déchus! » La voix de Wang Lin était basse, mais elle résonna distinctement aux oreilles de tous les cultivateurs.
+« Son péché ne mérite pas la mort, mais le Clan Hun She est privé de son droit de participer à la Sélection des Anciens Luo Sheng! » La voix de Wang Lin était basse, mais elle résonna distinctement aux oreilles de tous les cultivateurs.
 
 Ceux qui chargeaient l'homme s'arrêtèrent net et reculèrent derrière Wang Lin sans aucune hésitation.
 
 L'homme du Clan Hun She pâlit davantage en entendant ces paroles; un désespoir encore plus profond envahit ses yeux. Ces mots étaient bien pires que la mort. Certes, sa mort n'aurait coûté qu'une vie, mais bien qu'il soit sauvé, il venait de devenir le paria de tout son clan. L'homme joignit les mains et sourit amèrement: « Merci, Jeune Empereur, pour votre clémence. »
 
-L'attention de Wang Lin se détourna de lui pour se poser sur le Patriarche du Clan Chuan He, le 13e Ancien Déchu.
+L'attention de Wang Lin se détourna de lui pour se poser sur le Patriarche du Clan Chuan He, le 13e Ancien Luo Sheng.
 
 Le cœur de ce dernier rata un battement et son visage devint livide.
 
-Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchoyez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la planète du Clan An Xie pendant cent ans! »
+Wang Lin pointa le 13e Ancien Luo Sheng du doigt et dit lentement au messager: « Déchoyez-le de son rang d'Ancien Luo Sheng, et forcez-le à s'agenouiller sur la planète du Clan An Xie pendant cent ans! »
 
 Le messager hésita un instant, mais face à la froideur qui brillait dans les yeux de Wang Lin, il acquiesça.
 
-« Le Clan Chuan He perd également sa place dans la Sélection des Anciens Déchus! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche du Clan Yun Dun, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
+« Le Clan Chuan He perd également sa place dans la Sélection des Anciens Luo Sheng! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche du Clan Yun Dun, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
 
-Le Patriarche du Clan Yun Dun sentit la sueur perler sur son front. Il savait que Wang Lin était puissant; il avait délibérément poussé le 13e Ancien Déchu à provoquer ce dernier, sans s'attendre à ce que Wang Lin remarque son manège.
+Le Patriarche du Clan Yun Dun sentit la sueur perler sur son front. Il savait que Wang Lin était puissant; il avait délibérément poussé le 13e Ancien Luo Sheng à provoquer ce dernier, sans s'attendre à ce que Wang Lin remarque son manège.
 
 À cet instant, il serra les dents, sa main droite prit la forme d'une épée et il pointa son épaule gauche sans hésiter. Dans un craquement sinistre, tous les méridiens de son bras gauche furent brisés.
 

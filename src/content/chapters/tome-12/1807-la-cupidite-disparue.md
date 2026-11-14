@@ -1,6 +1,6 @@
 ---
 n: 1807
-title: "Tan Lang disparu!"
+title: "Tan Lang me manque!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1807 - Missing Greed!"

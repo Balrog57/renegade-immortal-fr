@@ -6,21 +6,21 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1619 - One Word and the Thunder Surges Like the Sea
 slug: un-mot-et-le-tonnerre-deferle-comme-une-mer
 ---
-« En mon nom, Wang Lin, j'ordonne au tonnerre des cieux! » Le corps de Wang Lin s'élança vers la porte et sa main droite se crispa en un poing. Le tonnerre gronda et une foudre infinie s'accumula dans son poing, comme s'il l'avait capturée tout entière. Il frappa la Porte Kong qui se dressait devant lui.
+« En mon nom, Wang Lin, j'ordonne au tonnerre des cieux! » Le corps de Wang Lin s'élança vers la porte et sa main droite se crispa en un poing. Le tonnerre gronda et une foudre infinie s'accumula dans son poing, comme s'il l'avait capturée tout entière. Il frappa la Porte du Vide qui se dressait devant lui.
 
-« Il ne peut pas l'ouvrir, il ne pourra absolument pas l'ouvrir! Cette porte a été formée par tant d'essences que personne ne peut l'ouvrir! » Zhou Jin était devenu presque fou. Il recula, le regard empreint de désespoir. Il ne pouvait qu'espérer que Wang Lin échoue à ouvrir la Porte Kong pour avoir une chance de survie.
+« Il ne peut pas l'ouvrir, il ne pourra absolument pas l'ouvrir! Cette porte a été formée par tant d'essences que personne ne peut l'ouvrir! » Zhou Jin était devenu presque fou. Il recula, le regard empreint de désespoir. Il ne pouvait qu'espérer que Wang Lin échoue à ouvrir la Porte du Vide pour avoir une chance de survie.
 
-« Avec six essences, la Porte Kong est plusieurs fois plus difficile à ouvrir que lorsque je l'ai fait, et ce Wang Lin... Lui... Ce sera très difficile pour lui. Plus il y a d'essences, plus l'ouverture de la porte est ardue. Il échouera, et dans son échec, il mourra! » Le jeune homme en robe verte recula également. Il comprenait que tenter d'empêcher quelqu'un de briser la Porte Kong revenait, en réalité, à l'aider.
+« Avec six essences, la Porte du Vide est plusieurs fois plus difficile à ouvrir que lorsque je l'ai fait, et ce Wang Lin... Lui... Ce sera très difficile pour lui. Plus il y a d'essences, plus l'ouverture de la porte est ardue. Il échouera, et dans son échec, il mourra! » Le jeune homme en robe verte recula également. Il comprenait que tenter d'empêcher quelqu'un de briser la Porte du Vide revenait, en réalité, à l'aider.
 
-L'expression de Xushen Tianzun était sombre alors qu'il battait en retraite. Fixant Wang Lin, sur le point de briser la Porte Kong, il ricana.
+L'expression de Xushen Tianzun était sombre alors qu'il battait en retraite. Fixant Wang Lin, sur le point de briser la Porte du Vide, il ricana.
 
-« Si la Porte Kong était si facile à ouvrir, le monde serait plongé dans le chaos. Une porte déclenchée par six essences est d'une difficulté dépassant l'imagination. Un simple junior, même s'il avait eu la chance de récolter six essences, à quoi cela lui servirait-il? Je veux voir comment il compte s'y prendre. Peut-être n'aurai-je même pas besoin d'agir et la Porte Kong se chargera de l'exécuter! »
+« Si la Porte du Vide était si facile à ouvrir, le monde serait plongé dans le chaos. Une porte déclenchée par six essences est d'une difficulté dépassant l'imagination. Un simple junior, même s'il avait eu la chance de récolter six essences, à quoi cela lui servirait-il? Je veux voir comment il compte s'y prendre. Peut-être n'aurai-je même pas besoin d'agir et la Porte du Vide se chargera de l'exécuter! »
 
-Ils ne croyaient pas que Wang Lin puisse briser la Porte Kong, ou ils refusaient simplement d'y croire.
+Ils ne croyaient pas que Wang Lin puisse briser la Porte du Vide, ou ils refusaient simplement d'y croire.
 
-Cependant, du fond de leur cœur, les cultivateurs du Royaume Intérieur espéraient que Wang Lin brise la Porte Kong pour devenir un cultivateur du troisième niveau!
+Cependant, du fond de leur cœur, les cultivateurs du Royaume Intérieur espéraient que Wang Lin brise la Porte du Vide pour devenir un cultivateur du troisième niveau!
 
-« Wang Lin, tu dois ouvrir cette porte! » Situ Nan serra les poings, nerveux. Il avait brisé sa propre Porte Kong et, même avec l'aide de Qing Lin, il en avait souffert. Il savait à quel point la tâche était périlleuse, et la Porte Kong de Wang Lin était bien plus puissante que la sienne. Cette pensée l'accablait d'inquiétude.
+« Wang Lin, tu dois ouvrir cette porte! » Situ Nan serra les poings, nerveux. Il avait brisé sa propre Porte du Vide et, même avec l'aide de Qing Lin, il en avait souffert. Il savait à quel point la tâche était périlleuse, et la Porte du Vide de Wang Lin était bien plus puissante que la sienne. Cette pensée l'accablait d'inquiétude.
 
 Les yeux du Maître Nan Yunzi s'illuminèrent et il prit une profonde inspiration. Il avait déjà pris la décision de déployer toute sa puissance pour aider Wang Lin au moment critique.
 
@@ -32,15 +32,15 @@ L'Empereur Divin Dragon Azure était particulièrement inquiet. Il connaissait W
 
 « Au moment le plus critique, j'utiliserai les trésors des Quatre Sectes Divines pour l'aider à briser la porte. »
 
-Ignorant les pensées d'autrui, Wang Lin, enveloppé de tonnerre, se précipita vers la Porte Kong. Comparée à cette dernière, la silhouette de Wang Lin paraissait minuscule. Pourtant, c'était ce petit être qui laissait les dizaines de milliers de cultivateurs alentour, repoussés par la puissance de la Porte Kong, sans voix et l'esprit vide, fascinés par son coup de poing tonitruant.
+Ignorant les pensées d'autrui, Wang Lin, enveloppé de tonnerre, se précipita vers la Porte du Vide. Comparée à cette dernière, la silhouette de Wang Lin paraissait minuscule. Pourtant, c'était ce petit être qui laissait les dizaines de milliers de cultivateurs alentour, repoussés par la puissance de la Porte du Vide, sans voix et l'esprit vide, fascinés par son coup de poing tonitruant.
 
-Wang Lin avait déjà frappé la Porte Kong auparavant, mais il n'avait réussi qu'à l'entrouvrir d'un mince filet. Désormais, il maîtrisait six essences; bien qu'elles ne fussent pas encore fusionnées, son tonnerre était déjà plusieurs fois plus puissant qu'auparavant.
+Wang Lin avait déjà frappé la Porte du Vide auparavant, mais il n'avait réussi qu'à l'entrouvrir d'un mince filet. Désormais, il maîtrisait six essences; bien qu'elles ne fussent pas encore fusionnées, son tonnerre était déjà plusieurs fois plus puissant qu'auparavant.
 
-Le coup partit et un fracas de tonnerre retentit. La silhouette de Wang Lin, telle le premier tonnerre éternel du monde, percuta la Porte Kong.
+Le coup partit et un fracas de tonnerre retentit. La silhouette de Wang Lin, telle le premier tonnerre éternel du monde, percuta la Porte du Vide.
 
 Les grondements de tonnerre résonnèrent dans toutes les directions. L'onde de choc violente fit cracher le sang à de nombreux cultivateurs alentour, les projetant en arrière. Terrifiés, certains cherchèrent à fuir.
 
-Tandis que les roulements de tonnerre continuaient de faire écho, la gigantesque Porte Kong trembla comme si elle ne pouvait supporter l'assaut, et s'entrouvrit lentement.
+Tandis que les roulements de tonnerre continuaient de faire écho, la gigantesque Porte du Vide trembla comme si elle ne pouvait supporter l'assaut, et s'entrouvrit lentement.
 
 À l'instant même où la porte s'entrouvrit, Wang Lin poussa un rugissement. Alors que ce cri résonnait à travers Kun Xu, des éclairs surgirent partout dans l'espace. C'était comme si quelque chose les avait appelés, et ils se précipitaient tous vers la planète Suzaku.
 
@@ -62,7 +62,7 @@ Ils étaient confus, totalement dépassés par les événements! Pourtant, Kun X
 
 Les Sens Divins se déployèrent un à un, tentant de percer le mystère.
 
-Si l'on regardait d'en haut, on aurait vu un déluge de tonnerre se rassembler frénétiquement vers la planète Suzaku, vers Wang Lin, qui se tenait près de la Porte Kong!
+Si l'on regardait d'en haut, on aurait vu un déluge de tonnerre se rassembler frénétiquement vers la planète Suzaku, vers Wang Lin, qui se tenait près de la Porte du Vide!
 
 Le désespoir inonda les yeux de Zhou Jin; il avait peine à croire ce qu'il voyait. Il entendait des rugissements étouffés provenant de toutes parts. Lorsqu'il leva les yeux, il fut pétrifié.
 

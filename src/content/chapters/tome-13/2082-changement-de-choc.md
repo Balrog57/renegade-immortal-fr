@@ -26,7 +26,7 @@ Wang Lin n'était pas pressé. Il avait attendu des milliers d'années, alors qu
 
 Cependant, une question lui taraudait l'esprit.
 
-« Je me demande à quoi ressemblerait le Royaume Divin Immémorial si je n'avais pas lancé ce plan insensé dans le temple ancestral de Shi Antique... » Wang Lin médita silencieusement sur cette pensée pendant un long moment, mais c'était une question sans réponse.
+« Je me demande à quoi ressemblerait le Royaume Divin Immémorial si je n'avais pas lancé ce plan insensé dans le temple ancestral de Shi Gu... » Wang Lin médita silencieusement sur cette pensée pendant un long moment, mais c'était une question sans réponse.
 
 Wang Lin attendit l'ouverture du Royaume Divin Immémorial. Il ne restait plus qu'un mois avant l'événement quand trois rayons de lumière jaillirent du clan Ancien. C'étaient les trois Grands Empyréens du clan Ancien.
 

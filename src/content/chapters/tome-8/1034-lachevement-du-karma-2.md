@@ -66,7 +66,7 @@ Un grondement fit trembler les cieux. Lorsque Wang Lin frappa, l'ombre d'un Dieu
 
 Le poing de Wang Lin percuta soudainement ce vent démoniaque infini. Des bruits de déchirement résonnèrent alors que le vent était fendu et contraint de se disperser.
 
-Wang Lin fixa le Démon du Vent qui avait déjà disparu au loin, mais il ne paniqua pas. Il frappa son sac de rangement pour en sortir le Tatou Flétri, puis l'appliqua sur lui-même.
+Wang Lin fixa le Démon du Vent qui avait déjà disparu au loin, mais il ne paniqua pas. Il frappa son sac de rangement pour en sortir le Talisman Flétri, puis l'appliqua sur lui-même.
 
 Dès que le tatouage fut posé, un vent noir jaillit de Wang Lin et un tourbillon gigantesque surgit dans ce monde. Parallèlement, un immense vortex se forma dans l'océan sous ses pieds.
 

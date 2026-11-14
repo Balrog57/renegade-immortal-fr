@@ -12,7 +12,7 @@ Même l'esprit d'un cultivateur serait ébranlé par ces cris. Ils étaient le f
 
 Parmi eux se trouvaient Xue Zu, les êtres célestes, les membres de la famille Yao et bien d'autres puissants cultivateurs. Bien qu'ils ne fussent que des fragments d'âmes et n'aient plus leur force d'autrefois, leur puissance n'était pas de nature à ce que des cultivateurs ordinaires puissent y résister!
 
-S'y ajoutaient les innombrables fragments d'âmes contenus dans le Étendard de l'Âme. Avec eux, les dix-huit couches de l'enfer étaient désormais dignes de leur nom!
+S'y ajoutaient les innombrables fragments d'âmes contenus dans l'Étendard de l'Âme. Avec eux, les dix-huit couches de l'enfer étaient désormais dignes de leur nom!
 
 À l'intérieur du Étendard de l'Âme, il ne restait plus que les âmes primaires; Wang Lin le rangea donc. S'il n'avait pas été un présent de Dun Tian, il aurait lui-même placé le drapeau dans le Sceau Céleste.
 

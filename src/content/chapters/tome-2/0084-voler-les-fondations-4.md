@@ -52,7 +52,7 @@ Toutes les boules de foudre qui fonçaient vers le zombie se dissipèrent. Même
 
 Wang Lin saisit la sculpture de glace et recula rapidement, tout en pointant l'épée volante verte vers le zombie.
 
-Le zombie fixa Wang Lin et poussa un cri. Il s'apprêtait à charger quand son regard fut attiré par la faille au sol. Profitant de cet instant d'hésitation, Wang Lin s'était déjà éloigné de près d'un kilomètre et avait disparu via une téléportation.
+Le zombie fixa Wang Lin et poussa un cri. Il s'apprêtait à charger quand son regard fut attiré par la faille au sol. Profitant de cet instant d'hésitation, Wang Lin s'était déjà éloigné de trois mille pieds et avait disparu via une téléportation.
 
 Le zombie poussa un rugissement et lança un regard de frustration vers la direction de Wang Lin. Il sauta dans la faille, récupéra l'épée de Teng Li avec un air d'excitation et l'avala.
 

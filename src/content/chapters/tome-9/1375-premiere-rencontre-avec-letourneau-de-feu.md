@@ -28,7 +28,7 @@ Au moment où ils approchèrent, trois rayons de lumière foncèrent vers eux. L
 
 Les deux personnes derrière le vieil homme saluèrent avec une politesse extrême.
 
-Le Clan An Xie faisait toujours partie des 372 clans. Bien qu'il ne soit pas un Ancien Déchu, son patriarche n'était pas quelqu'un que les membres ordinaires pouvaient traiter avec désinvolture. Le Patriarche du Clan An Xie sourit et hocha la tête. Il laissa Wang Lin passer en premier avant de le suivre. Les trois représentants du Clan Long Jia les guidèrent vers la planète.
+Le Clan An Xie faisait toujours partie des 372 clans. Bien qu'il ne soit pas un Ancien Luo Sheng, son patriarche n'était pas quelqu'un que les membres ordinaires pouvaient traiter avec désinvolture. Le Patriarche du Clan An Xie sourit et hocha la tête. Il laissa Wang Lin passer en premier avant de le suivre. Les trois représentants du Clan Long Jia les guidèrent vers la planète.
 
 En observant le comportement du Patriarche du Clan An Xie, les trois membres du Clan Long Jia furent stupéfaits. Les yeux du vieil homme s'illuminèrent et il scruta attentivement Wang Lin. Bien qu'il n'ait rien remarqué de particulier, il commença à redoubler de vigilance.
 
@@ -64,7 +64,7 @@ Maître Si Mo sourit, les yeux brillants, tandis qu'il regardait au loin. Une si
 
 Maître Si Mo rit à son tour et joignit les mains: « Daoïste Sun, cela fait quelques siècles que nous ne nous sommes pas croisés. Je viens vous importuner de nouveau. »
 
-« Comment la venue d'un Senior pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Si Mo, je serais déjà mort au troisième niveau du Fléau Céleste. Senior Si Mo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Si Mo et sortit immédiatement.
+« Comment la venue d'un Senior pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Si Mo, je serais déjà mort au troisième niveau du Fléau Céleste. Senior Si Mo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Luo Sheng et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Si Mo et sortit immédiatement.
 
 Les deux discutèrent tout en s'approchant de la planète, leurs silhouettes s'estompant peu à peu.
 

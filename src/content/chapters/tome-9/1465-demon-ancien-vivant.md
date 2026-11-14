@@ -16,7 +16,7 @@ Tandis que les deux reculaient, Wang Lin essuya le sang au coin de sa bouche. Ut
 
 D'un geste gracieux de sa main de jade, elle déclara doucement: « Les Trois Dao de la Porte Céleste. Trois portes du soleil, de la lune et des étoiles: ouvre-toi, Porte Stellaire! » Tandis que ses paroles résonnaient, sa main droite traça un sceau. D'innombrables rayons de lumière stellaire apparurent soudainement devant Jiutian Mozun.
 
-Ces rayons convergèrent pour former une porte gigantesque qui perçait le ciel. Elle ressemblait énormément à la Porte Kong, mais son essence était différente. La Porte Stellaire surgit précisément au moment où Jiutian Mozun pointait vers l'avant, et ces deux sorts Dao entrèrent instantanément en collision.
+Ces rayons convergèrent pour former une porte gigantesque qui perçait le ciel. Elle ressemblait énormément à la Porte du Vide, mais son essence était différente. La Porte Stellaire surgit précisément au moment où Jiutian Mozun pointait vers l'avant, et ces deux sorts Dao entrèrent instantanément en collision.
 
 Il n'y eut ni son ni onde de choc, mais la Porte Stellaire trembla violemment avant de se dissiper à l'intérieur de la Tombe de l'Ordre Antique. Simultanément, Jiutian Mozun cracha un flot de sang; le visage pâle, il fut projeté en arrière sur des milliers de pieds. Il fixa la femme en blanc et hurla: « Pourquoi une Concubine Céleste s'oppose-t-elle à moi?! »
 

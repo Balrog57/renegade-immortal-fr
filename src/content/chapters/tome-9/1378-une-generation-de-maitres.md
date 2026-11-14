@@ -24,7 +24,7 @@ Le jeune maître du Clan Long Jia réfléchit un instant, puis dit doucement: «
 
 « Il n'y a aucune possibilité! Même s'il ne meurt pas, il sera gravement blessé. Il n'aura même pas le temps de s'enfuir ou de guérir, encore moins de venir nous chercher des ennuis. Et même s'il venait chercher des ennuis, je ferai en sorte qu'il ne reparte jamais! »
 
-« Ton père est, après tout, le neuvième Ancien Déchu et un représentant du Conseil Déchu. Il n'osera pas! » Le Patriarche du Clan Long Jia, l'air fier, agita sa manche et partit.
+« Ton père est, après tout, le neuvième Ancien Luo Sheng et un représentant du Conseil Déchu. Il n'osera pas! » Le Patriarche du Clan Long Jia, l'air fier, agita sa manche et partit.
 
 Face aux grands événements, garder son calme!
 
@@ -40,7 +40,7 @@ Cependant, dans ce monde, tant dans le Royaume Intérieur que dans le Royaume Ex
 
 Il osait affronter les cieux, lutter contre le destin et combattre le Dao!
 
-C'était Wang Lin! Il avait arraché la vie de Li Muwan au Dao Céleste, jouant une chance de survie au cœur du danger. Il possédait le royaume capable de condenser les Flammes d'Encens mais avait renoncé à s'élever par une force extérieure, ne comptant que sur ses cinq essences pour déclencher la Grande Porte Kong. Il avait emprunté un chemin vers le Dao que bien peu avaient foulé depuis toujours!
+C'était Wang Lin! Il avait arraché la vie de Li Muwan au Dao Céleste, jouant une chance de survie au cœur du danger. Il possédait le royaume capable de condenser les Flammes d'Encens mais avait renoncé à s'élever par une force extérieure, ne comptant que sur ses cinq essences pour déclencher la Grande Porte du Vide. Il avait emprunté un chemin vers le Dao que bien peu avaient foulé depuis toujours!
 
 Il avait conduit les sept millions d'habitants du monde à briser le ciel et la terre pour retourner dans l'espace stellaire! Il avait tué le Grand Ancien du Clan Shan Lei malgré un niveau de culture inférieur! Il avait utilisé sa propre puissance pour venir dans l'Ancien Système Stellaire afin de ramener Li Qianmei chez elle!
 
@@ -70,7 +70,7 @@ Les volcans surgissaient un à un. Leurs grondements créaient une onde de choc 
 
 Wang Lin était entouré de volcans. Son visage était serein, mais ses yeux brûlaient d'une puissante intention meurtrière!
 
-L'expression du Maître Si Mo devint sérieuse. Il n'oserait pas sous-estimer la puissance de quelqu'un capable de déclencher la Porte Kong sans aucune Flamme d'Encens. À cet instant, il forma un sceau et fit un geste: le vortex autour de lui jaillit pour charger Wang Lin!
+L'expression du Maître Si Mo devint sérieuse. Il n'oserait pas sous-estimer la puissance de quelqu'un capable de déclencher la Porte du Vide sans aucune Flamme d'Encens. À cet instant, il forma un sceau et fit un geste: le vortex autour de lui jaillit pour charger Wang Lin!
 
 Simultanément, la main droite de Wang Lin, levée vers le ciel, s'abattit impitoyablement vers le bas!
 

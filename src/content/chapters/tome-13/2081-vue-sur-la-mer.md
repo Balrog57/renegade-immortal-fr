@@ -90,7 +90,7 @@ Wang Lin jeta un dernier regard à la Secte Qi Dao avant d'y établir une format
 
 Après avoir accompli tout cela, Wang Lin ne se retourna pas et marcha vers le ciel jusqu'à devenir transparent et disparaître.
 
-« Trois cents ans représentent plusieurs vies pour les mortels, mais pour les cultivateurs, ce n'est pas long... Le fou est devenu l'Empereur Céleste et Ji Du est devenu l'Empereur Shi Antique. Je me demande ce qu'ils deviennent... » songea Wang Lin.
+« Trois cents ans représentent plusieurs vies pour les mortels, mais pour les cultivateurs, ce n'est pas long... Le fou est devenu l'Empereur Céleste et Ji Du est devenu l'Empereur Shi Gu. Je me demande ce qu'ils deviennent... » songea Wang Lin.
 
 « Et... Li Qianmei, où es-tu exactement... » soupira-t-il. Il pouvait deviner que Li Qianmei avait elle-même réveillé ses souvenirs, tout comme Qing Shui. Il pouvait aussi deviner la raison pour laquelle elle ne le verrait pas.
 

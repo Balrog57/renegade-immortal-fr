@@ -8,7 +8,7 @@ slug: voler-les-fondations-2
 ---
 L'épée géante balaya le ciel et toutes les sphères de foudre la suivirent; dans un fracas de tonnerre, elle s'abattit soudain.
 
-Situ Nan n'attendit pas que Wang Lin lui donne ses instructions; après avoir juré à plusieurs reprises, il les téléporta instantanément à nouveau, à environ trois kilomètres de là.
+Situ Nan n'attendit pas que Wang Lin lui donne ses instructions; après avoir juré à plusieurs reprises, il les téléporta instantanément à nouveau, à environ dix mille pieds de là.
 
 Teng Li fronça les sourcils. Il laissa échapper un grognement et pointa l'index de sa main droite. L'épée volante fit aussitôt demi-tour et se posa sous ses pieds, l'emportant à la poursuite de Wang Lin.
 

@@ -1,6 +1,6 @@
 ---
 n: 1368
-title: La Grande Porte Kong
+title: La Grande Porte du Vide
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1368 - The Great Void Gate
@@ -73,7 +73,7 @@ Il s'intégra instantanément! Dans l'œil droit de Wang Lin, les neuf types de 
 
 Alors que le grondement résonnait, une porte illusoire gigantesque apparut soudainement devant les cultivateurs de la planète, totalement médusés! Cette porte était infinie et semblait faire partie des cieux eux-mêmes. C'était comme la porte du ciel étoilé, le verrou du ciel et de la terre; si l'on parvenait à l'ouvrir, on pourrait s'élancer hors de ce monde!
 
-« Troisième étape... La Grande Porte Kong!!! » Certains cultivateurs reconnurent immédiatement le phénomène, et leurs visages se décomposèrent. L'incrédulité et la stupeur les envahirent!
+« Troisième étape... La Grande Porte du Vide!!! » Certains cultivateurs reconnurent immédiatement le phénomène, et leurs visages se décomposèrent. L'incrédulité et la stupeur les envahirent!
 
 À l'instant où la porte apparut, Wang Lin sentit clairement le pouvoir indescriptible qui s'en dégageait. C'était comme si tout ce qu'il possédait n'était que poussière face à elle!
 

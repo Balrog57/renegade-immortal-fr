@@ -106,7 +106,7 @@ Il agita la main et les trois pierres blanches apparurent dans sa paume avant de
 
 « J'ai beaucoup de pilules. Je ne sais simplement pas ce que vous pouvez offrir en retour », répondit Wang Lin avec un sourire en fixant l'homme.
 
-Interrogé à son tour, l'homme fut surpris un instant avant de déclarer: « N'importe quelle planète possédant un Ancien Déchu peut vendre des marionnettes et des Cristaux de Mutation de Feu Déchaîné, mais mon Clan Long Jia possède trois trésors uniques! Vous ne pouvez obtenir ces trois trésors que chez nous! Le premier est constitué d'Écailles de Dragon. Un ensemble de 3 982 écailles, imprégnées du sang de mon clan, peut former de multiples couches de protection après l'activation d'un sort. Aucun trésor ordinaire ne peut les percer; elles peuvent même bloquer certains sorts! »
+Interrogé à son tour, l'homme fut surpris un instant avant de déclarer: « N'importe quelle planète possédant un Ancien Luo Sheng peut vendre des marionnettes et des Cristaux de Mutation de Feu Déchaîné, mais mon Clan Long Jia possède trois trésors uniques! Vous ne pouvez obtenir ces trois trésors que chez nous! Le premier est constitué d'Écailles de Dragon. Un ensemble de 3 982 écailles, imprégnées du sang de mon clan, peut former de multiples couches de protection après l'activation d'un sort. Aucun trésor ordinaire ne peut les percer; elles peuvent même bloquer certains sorts! »
 
 Il poursuivit en regardant Wang Lin: « Il y a aussi le deuxième trésor: le Dragon d'Os Blanc. Ce dragon est issu du raffinage des squelettes de membres décédés du Clan Long Jia sur plusieurs générations. Ils sont rares, mais chaque Dragon d'Os Blanc possède une force capable de briser la terre. De plus, puisqu'ils sont déjà morts, ils vivront éternellement! »
 

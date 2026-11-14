@@ -124,7 +124,7 @@ Wang Lin médita en silence alors que Suzaku qu'il avait formé se dissipait len
 
 « En l'absence de Flammes d'Encens, tu possèdes déjà cinq essences. Bien qu'elles viennent de se former, ce phénomène est rare. Cependant, ton chemin est erroné! » déclara lentement le premier Suzaku.
 
-« Ton essence de tonnerre a formé la Porte Kong, mais tu n'as pu l'ouvrir... Tu penses ne pas être assez fort, et c'est à la fois vrai et faux. Tu crois devoir attendre que ton essence de feu soit complète avant de tenter de nouveau d'ouvrir la Porte Kong. Au fond de ton cœur, tu ne valorises même pas les cinq Fléaux Célestes. Tu ne veux pas les traverser; tu veux briser directement la Porte Kong au sommet du stade Briseur du Nirvana! Si tu penses pouvoir y parvenir, tu te trompes! »
+« Ton essence de tonnerre a formé la Porte du Vide, mais tu n'as pu l'ouvrir... Tu penses ne pas être assez fort, et c'est à la fois vrai et faux. Tu crois devoir attendre que ton essence de feu soit complète avant de tenter de nouveau d'ouvrir la Porte du Vide. Au fond de ton cœur, tu ne valorises même pas les cinq Fléaux Célestes. Tu ne veux pas les traverser; tu veux briser directement la Porte du Vide au sommet du stade Briseur du Nirvana! Si tu penses pouvoir y parvenir, tu te trompes! »
 
 Wang Lin fut stupéfait mais resta silencieux.
 

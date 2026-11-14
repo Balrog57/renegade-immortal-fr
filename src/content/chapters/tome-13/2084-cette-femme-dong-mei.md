@@ -76,7 +76,7 @@ Lorsque l'onde traversa le bassin, le vent s'arrêta net. Song Tian et les autre
 
 Au sein du clan Antique, qu'ils soient mortels ou cultivateurs, tout être vivant se figea lorsque l'onde passa. Le feu, les rivières, tout s'immobilisa en cet instant précis.
 
-Dans les terres du Ji Antique, la pluie tombait, mais soudain, même les gouttes suspendirent leur chute dans le ciel.
+Dans les terres du Ji Gu, la pluie tombait, mais soudain, même les gouttes suspendirent leur chute dans le ciel.
 
 Il en fut de même pour le clan Céleste. Le groupe de trois de Jiu Di, Shuangzi, l'Empereur Céleste et d'innombrables cultivateurs, mortels et bêtes célestes cessèrent tout mouvement. Les cinq éléments du monde, toutes les lois de l'univers, tout s'arrêta complètement.
 
@@ -98,7 +98,7 @@ Lorsque le Continent Xian Gang reprit ses droits, les neuf piliers du bassin bri
 
 Une fois la porte disparue, le vortex résiduel gronda sans fin. L'océan infini qui avait été englouti se déversa à nouveau dans le bassin. L'eau retomba dans un fracas de tonnerre. Plusieurs heures plus tard, le vaste bassin redevint une mer infinie où les vagues s'entrechoquaient. Les grondements cessèrent, remplacés par le murmure régulier de l'océan.
 
-Tout revint à la normale. Le clan Céleste et le clan Antique retrouvèrent leur état initial. Tout reprit son cours, y compris pour les deux silhouettes se trouvant dans une cour élégante de la Ville Hei Shi, au sein du clan Shi Antique.
+Tout revint à la normale. Le clan Céleste et le clan Antique retrouvèrent leur état initial. Tout reprit son cours, y compris pour les deux silhouettes se trouvant dans une cour élégante de la Ville Hei Shi, au sein du clan Shi Gu.
 
 La demeure n'était pas vaste et l'intérieur restait simple, mais elle dégageait une atmosphère chaleureuse. Sur le lit reposait une vieille femme. Son visage était sillonné de rides, mais on devinait encore la beauté de sa jeunesse.
 

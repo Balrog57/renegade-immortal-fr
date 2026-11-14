@@ -8,7 +8,7 @@ slug: ciel-et-terre
 ---
 « Puissance impériale, embrase! »
 
-Un son assourdissant résonna à travers la cité impériale de Shi Antique. Le palais entier fut plongé dans le silence tandis que tous les regards convergeaient vers la place, vers l’homme vêtu de la robe royale devant le fourneau.
+Un son assourdissant résonna à travers la cité impériale de Shi Gu. Le palais entier fut plongé dans le silence tandis que tous les regards convergeaient vers la place, vers l’homme vêtu de la robe royale devant le fourneau.
 
 Ji Du ne ressemblait plus à un jeune homme; il dégageait désormais une aura de maturité. Il restait là, contemplant le ciel alors que ce son fracassant résonnait encore à ses oreilles.
 
@@ -16,11 +16,11 @@ Le ciel était d'un bleu limpide, sans le moindre nuage. Une brise légère souf
 
 Devant lui se dressait le grand fourneau, et l'encens attendait d'être allumé.
 
-À cet instant précis, il était observé par tous les occupants du palais ainsi que par chaque habitant de la cité impériale de Shi Antique. Même ceux qui n'étaient pas dignes de pénétrer dans la cité impériale avaient été rassemblés par leurs seigneurs locaux pour scruter, de loin, la direction de la capitale.
+À cet instant précis, il était observé par tous les occupants du palais ainsi que par chaque habitant de la cité impériale de Shi Gu. Même ceux qui n'étaient pas dignes de pénétrer dans la cité impériale avaient été rassemblés par leurs seigneurs locaux pour scruter, de loin, la direction de la capitale.
 
-Même au sein des cités impériales du Dao Gu et de Ji Antique, les regards perçants étaient tournés vers la cité de Shi Antique.
+Même au sein des cités impériales du Dao Gu et de Ji Gu, les regards perçants étaient tournés vers la cité de Shi Gu.
 
-« Empereur de Shi Antique... Parrain, je deviendrai bientôt l'empereur! » Ji Du leva les yeux vers le ciel, son regard se posant sur la statue de l'Ancêtre Ancien au loin. Il prit une profonde inspiration et agita sa manche. Une flamme ardente jaillit autour du fourneau, et l'encens s'embrasa.
+« Empereur de Shi Gu... Parrain, je deviendrai bientôt l'empereur! » Ji Du leva les yeux vers le ciel, son regard se posant sur la statue de l'Ancêtre Ancien au loin. Il prit une profonde inspiration et agita sa manche. Une flamme ardente jaillit autour du fourneau, et l'encens s'embrasa.
 
 « Salutations, Empereur! » Un autre son tonitruant retentit dans tout le palais. Tous les sujets tombèrent à genoux; seul le père de Ji Du resta debout à l'intérieur du palais pour contempler son fils.
 
@@ -30,13 +30,13 @@ Un géant, un dieu antique de plusieurs centaines de milliers de pieds de haut, 
 
 Le corps de Ji Du trembla et il s'élança dans les airs. Lorsqu'il fut à la hauteur du tambour de guerre, il n'hésita pas une seconde et lui asséna un coup de poing.
 
-Dans un fracas retentissant, le battement sourd d'un tambour commença immédiatement à résonner. Il se propagea dans tout le palais, à travers la cité impériale et sur l'ensemble de Shi Antique.
+Dans un fracas retentissant, le battement sourd d'un tambour commença immédiatement à résonner. Il se propagea dans tout le palais, à travers la cité impériale et sur l'ensemble de Shi Gu.
 
 « Premier hommage! » Des voix brisant le firmament retentirent de nouveau, et tous les membres du clan s'inclinèrent.
 
 « Salutations, Empereur! » En s'inclinant, leurs voix fusionnèrent pour former une puissante onde sonore. Un cri encore plus puissant jaillit de chaque recoin de la cité impériale.
 
-Alors que le tambour résonnait, chaque ville de Shi Antique projeta les mêmes clameurs!
+Alors que le tambour résonnait, chaque ville de Shi Gu projeta les mêmes clameurs!
 
 Bang!
 
@@ -108,7 +108,7 @@ Dans le palais, le tambour résonna.
 
 « Neuvième hommage! »
 
-« Salutations, Empereur!! » Alors que les voix des membres de Shi Antique fusionnaient en un rugissement assourdissant, une lumière extrêmement vive émana de la statue de l'Ancêtre Ancien.
+« Salutations, Empereur!! » Alors que les voix des membres de Shi Gu fusionnaient en un rugissement assourdissant, une lumière extrêmement vive émana de la statue de l'Ancêtre Ancien.
 
 Ji Du, qui flottait dans le ciel près du tambour, tourna brusquement la tête. Il fixa la statue alors que les vingt-sept halos brillaient intensément. Simultanément, une ombre s'étira et recouvrit la moitié de la statue de l'Ancêtre Ancien.
 
@@ -130,13 +130,13 @@ Alors que tous observaient la scène, et même la cérémonie de Ji Du était su
 
 Les halos montèrent dans l'azur, créant des ondulations dans l'air. Une fois le dernier halo projeté vers les cieux, le ciel changea de couleur!
 
-Les neuf chants résonnèrent à travers la cité impériale de Shi Antique!
+Les neuf chants résonnèrent à travers la cité impériale de Shi Gu!
 
 Ce son était merveilleux, indescriptible. Des ondulations apparurent, suivies d'une lumière spectrale descendant soudainement du firmament. Puis, un faible rayon rouge apparut, s'intensifiant progressivement jusqu'à transformer cette lueur sombre en un rouge sanglant!
 
 C'était une goutte de sang!
 
-Cette goutte dégageait l'aura d'une âme, et à son apparition, toute la cité impériale de Shi Antique fut plongée dans un silence de mort!
+Cette goutte dégageait l'aura d'une âme, et à son apparition, toute la cité impériale de Shi Gu fut plongée dans un silence de mort!
 
 « Sang d'âme!! » Sur la Montagne Yuan Shi, au moment où Song Tian vit le sang, il fut frappé de stupeur et afficha un regard d'incrédulité!
 

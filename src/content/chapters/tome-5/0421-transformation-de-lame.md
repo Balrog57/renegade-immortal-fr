@@ -78,7 +78,7 @@ Le parfum s'échappa de la grotte, faisant briller les yeux de Dun Tian. Un écl
 
 Il exécuta un sceau manuel, et une lumière noire enveloppa immédiatement la grotte pour empêcher la fragrance de se propager.
 
-« Le parfum issu de la première étape de la Transformation de l'Âme attire des bêtes démoniaques puissantes et des âmes féroces qui cherchent à posséder ce corps. Cependant, ma Secte Lian Hun est l'ancêtre de ceux qui contrôlent les âmes; si ces âmes ne viennent pas, tant mieux, mais si elles osent se présenter, elles seront absorbées par le Étendard de l'Âme, ce qui lui fera un petit renfort. »
+« Le parfum issu de la première étape de la Transformation de l'Âme attire des bêtes démoniaques puissantes et des âmes féroces qui cherchent à posséder ce corps. Cependant, ma Secte Lian Hun est l'ancêtre de ceux qui contrôlent les âmes; si ces âmes ne viennent pas, tant mieux, mais si elles osent se présenter, elles seront absorbées par l'Étendard de l'Âme, ce qui lui fera un petit renfort. »
 
 « Je ne crains pas non plus les bêtes. La formation de protection de la Secte peut les tenir à distance. Aucune bête capable de me faire reculer n'a encore été repérée sur toute la planète Suzaku. »
 
@@ -124,4 +124,4 @@ Dans le ciel, une silhouette drapée de rouge apparut. Elle dégageait une aura 
 
 À cet instant, le ciel perdit toutes ses couleurs; seule cette silhouette semblait exister.
 
-« Zhu Quezi! » L'expression de Dun Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita le Étendard de l'Âme pour l'emmagasiner précipitamment.
+« Zhu Quezi! » L'expression de Dun Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita l'Étendard de l'Âme pour l'emmagasiner précipitamment.

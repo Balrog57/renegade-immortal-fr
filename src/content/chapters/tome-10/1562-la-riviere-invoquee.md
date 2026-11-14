@@ -6,17 +6,17 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1562 - Summoned River
 slug: la-riviere-invoquee
 ---
-La Porte Kong se brisa et l'énergie s'en déversa. Qing Shui, vêtu d'une robe verte, transforma l'âme de sa femme, Han Yan, en une marque qu'il plaça près de son cœur. Ce n'était pas qu'il ne pouvait pas la ranger dans son espace de stockage, mais Qing Shui n'en avait pas envie.
+La Porte du Vide se brisa et l'énergie s'en déversa. Qing Shui, vêtu d'une robe verte, transforma l'âme de sa femme, Han Yan, en une marque qu'il plaça près de son cœur. Ce n'était pas qu'il ne pouvait pas la ranger dans son espace de stockage, mais Qing Shui n'en avait pas envie.
 
 Qing Shui était déterminé à donner cette épée de massacre à Wang Lin, qui l'emporta donc. Un fragment d'essence de massacre était né en Wang Lin lors de sa première bataille contre le Royaume Extérieur. Cependant, cette essence était encore très faible et venait à peine de naître.
 
 Avec cette épée de massacre, Wang Lin posséderait six essences! Quant au marquage de combat qui n'était pas une essence, il s'était depuis longtemps transformé en une étoile de loi gravée profondément dans le corps de Wang Lin.
 
-Wang Lin n'avait pas l'intention de raffiner immédiatement l'essence de massacre; ce n'était pas le moment. Il allait attendre que ses essences de Karma, de Vie et de Mort, ainsi que de Vérité et de Faux soient complètes. Ensuite, au moment où il s'apprêterait à ouvrir la Porte Kong, il absorberait l'essence de massacre et briserait la porte d'un seul coup pour devenir un extrêmement rare cultivateur de la troisième étape doté de six essences!
+Wang Lin n'avait pas l'intention de raffiner immédiatement l'essence de massacre; ce n'était pas le moment. Il allait attendre que ses essences de Karma, de Vie et de Mort, ainsi que de Vérité et de Faux soient complètes. Ensuite, au moment où il s'apprêterait à ouvrir la Porte du Vide, il absorberait l'essence de massacre et briserait la porte d'un seul coup pour devenir un extrêmement rare cultivateur de la troisième étape doté de six essences!
 
-Qing Shui descendit du ciel et contempla la Porte Kong qui se dissipait. Sa main droite s'élança dans le vide pour saisir la gourde verte contenant le vin de sang de dragon. Il en but une gorgée et, tandis que le goût épicé se répandait dans son corps, ses yeux devinrent lentement glacials. Il passa ensuite la cruche à Wang Lin.
+Qing Shui descendit du ciel et contempla la Porte du Vide qui se dissipait. Sa main droite s'élança dans le vide pour saisir la gourde verte contenant le vin de sang de dragon. Il en but une gorgée et, tandis que le goût épicé se répandait dans son corps, ses yeux devinrent lentement glacials. Il passa ensuite la cruche à Wang Lin.
 
-Face au vent froid, les deux hommes regardèrent la Porte Kong s'estomper sur la planète abandonnée. Le vent soulevait des couches de poussière tandis qu'ils buvaient leur vin en silence.
+Face au vent froid, les deux hommes regardèrent la Porte du Vide s'estomper sur la planète abandonnée. Le vent soulevait des couches de poussière tandis qu'ils buvaient leur vin en silence.
 
 Personne ne parla.
 
@@ -44,7 +44,7 @@ Qing Shui regarda Wang Lin et hocha lentement la tête.
 
 C'était une promesse!
 
-Le vin de sang de dragon était extrêmement puissant et aurait pu enivrer la plupart des gens, mais il ne pouvait pas rendre Wang Lin ou Qing Shui ivres. La Porte Kong commença à se dissiper alors qu'il ne restait plus beaucoup de vin.
+Le vin de sang de dragon était extrêmement puissant et aurait pu enivrer la plupart des gens, mais il ne pouvait pas rendre Wang Lin ou Qing Shui ivres. La Porte du Vide commença à se dissiper alors qu'il ne restait plus beaucoup de vin.
 
 Qing Shui ferma les yeux. Paraissant un peu solitaire, il demanda doucement: « Wang Lin, je ne te l'ai jamais demandé auparavant... As-tu des descendants? »
 
@@ -62,7 +62,7 @@ Qing Shui se leva et prit une profonde inspiration. Une froideur intense envahit
 
 Cette aura se propagea, plongeant toute la planète abandonnée dans le froid.
 
-L'essence de massacre était une essence extrêmement spéciale. Très peu de personnes la possédaient, mais ceux qui en étaient dotés pouvaient aisément briser la Porte Kong. Cette essence représentait l'apogée même du massacre.
+L'essence de massacre était une essence extrêmement spéciale. Très peu de personnes la possédaient, mais ceux qui en étaient dotés pouvaient aisément briser la Porte du Vide. Cette essence représentait l'apogée même du massacre.
 
 Bien que Qing Shui fût au début du stade Vide du Nirvana, grâce à son essence de massacre et aux dizaines de milliers d'années passées au combat, même un cultivateur du Vide du Nirvana au stade avancé craindrait de croiser son chemin!
 
@@ -118,6 +118,6 @@ Des dizaines de milliers de cultivateurs du Royaume Extérieur étaient assis so
 
 Qing Shui était entré un instant avant Wang Lin. Dès son apparition, il jeta un regard au Maître Long Pan et au vieillard en noir avant qu'une lueur glaciale ne surgisse dans ses yeux; il se précipita alors vers les dizaines de milliers de cultivateurs du Royaume Extérieur. Les cris de douleur que Wang Lin entendit à son entrée provenaient de ces derniers.
 
-Qing Shui tuait. Après avoir ouvert la Porte Kong, son essence de massacre était arrivée à maturité. Il avait passé sa vie dans le carnage, et désormais, d'un simple geste de la main, il faisait tomber d'innombrables vies.
+Qing Shui tuait. Après avoir ouvert la Porte du Vide, son essence de massacre était arrivée à maturité. Il avait passé sa vie dans le carnage, et désormais, d'un simple geste de la main, il faisait tomber d'innombrables vies.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il regardait au-delà du Maître Long Pan et du vieillard en noir. Il vit un gigantesque Fruit du Dao suspendu sous les nuages aux sept couleurs qui surplombaient la scène.

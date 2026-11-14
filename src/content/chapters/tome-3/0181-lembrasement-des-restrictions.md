@@ -184,7 +184,7 @@ Alors qu'il finissait sa phrase, son visage changea brusquement. Ignorant l'Empe
 
 « Trop tard! » Une voix glaciale retentit de toutes parts. Soudain, dans un rayon de trois mille pieds autour du sommet, d'innombrables cercles illusionnaires apparurent, déclenchant toutes les restrictions sur leur passage.
 
-Wang Lin était assis sur un rocher à plus d'un kilomètre et demi de là. Durant l'année écoulée, il avait accumulé des cercles illusionnaires au sein de ses multiples restrictions. Il venait de libérer ses pièges, et tous les cercles en sortirent pour s'écraser contre la plupart des restrictions situées à plus de deux mille pieds au-dessus de lui.
+Wang Lin était assis sur un rocher à cinq mille pieds de là. Durant l'année écoulée, il avait accumulé des cercles illusionnaires au sein de ses multiples restrictions. Il venait de libérer ses pièges, et tous les cercles en sortirent pour s'écraser contre la plupart des restrictions situées à plus de deux mille pieds au-dessus de lui.
 
 On pourrait dire que chaque restriction posée par Wang Lin servait de réserve pour ces cercles illusionnaires. Sous la pression dévastatrice de ces derniers, le Seigneur Démon des Six Désirs et l'Empereur Antique furent soudainement pris au dépourvu.
 

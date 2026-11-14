@@ -66,7 +66,7 @@ Mu Bingmei n'osait croire ce qu'elle voyait. Elle était totalement stupéfaite.
 
 En un instant, elle sembla revoir la Secte Heng Yue de la planète Suzaku, d'il y a des millénaires. Parmi la foule, il n'y avait qu'un seul jeune homme qui ne s'était pas laissé éblouir par sa beauté.
 
-Elle vit l'homme qui l'avait arrêtée dans la Tombe du Suzaku et qui l'avait fixée avec froideur.
+Elle vit l'homme qu'elle avait arrêté dans la Tombe du Suzaku, et qui la fixait avec froideur.
 
 Et à Luotian, l'homme qui avait poussé un cri déchirant en apprenant tout ce qu'avait fait l'avatar de Mu Bingmei, le regard empli de chagrin.
 

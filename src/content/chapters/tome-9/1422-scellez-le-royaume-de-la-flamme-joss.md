@@ -42,7 +42,7 @@ Ce n'était pas fini. En un instant, d'autres dragons de tonnerre apparurent et 
 
 Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré le tonnerre éternel du Clan Shan Lei et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet!
 
-Sans cela, comment aurait-il pu faire apparaître la Porte Kong avec sa seule essence de tonnerre, puis réussir à l'entrouvrir?
+Sans cela, comment aurait-il pu faire apparaître la Porte du Vide avec sa seule essence de tonnerre, puis réussir à l'entrouvrir?
 
 Alors qu'il pointait le doigt, les neuf éclairs accompagnateurs tournèrent rapidement autour de l'essence de tonnerre et entamèrent un combat contre le vent violet imminent!
 

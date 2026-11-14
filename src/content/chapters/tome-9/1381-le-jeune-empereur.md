@@ -26,7 +26,7 @@ Le gravement blessé Maître Si Mo ne put esquiver alors que l'épée de sang lu
 
 L'avatar de Maître Si Mo était, après tout, celui d'un cultivateur du Cinquième Fléau Céleste; il n'était donc pas aisé de le tuer. Wang Lin s'y était pleinement préparé: Pilule d'Effondrement du Dragon, Cristal de Mutation de Feu Déchaîné, dix millions de rayons d'énergie d'épée et, au moment critique, l'épée de sang. En un laps de temps très court, Wang Lin avait déployé tous ses coups mortels, mais il n'avait tout de même pas réussi à terrasser un cultivateur du Cinquième Fléau Céleste.
 
-Cependant, le blesser à ce point ferait de Wang Lin une légende dans les Royaumes Intérieur et Extérieur. Après tout, il n'avait accompli qu'une seule essence. S'il complétait sa deuxième, troisième, quatrième et cinquième essence, même s'il n'avait pas encore ouvert la Porte Kong, il pourrait affronter un cultivateur de la troisième étape!
+Cependant, le blesser à ce point ferait de Wang Lin une légende dans les Royaumes Intérieur et Extérieur. Après tout, il n'avait accompli qu'une seule essence. S'il complétait sa deuxième, troisième, quatrième et cinquième essence, même s'il n'avait pas encore ouvert la Porte du Vide, il pourrait affronter un cultivateur de la troisième étape!
 
 Voyant que Maître Si Mo ne succombait toujours pas, l'expression de Wang Lin devint sombre. Il leva son index vers le ciel, prêt à lancer un sort pour le poursuivre, quand soudain, cette voix issue du vide résonna une fois de plus:
 
@@ -98,7 +98,7 @@ Le visage du Patriarche changea radicalement. Il agrippa son fils et recula pré
 
 En voyant cette lumière, la peur dans les yeux du Patriarche disparut, remplacée par une extase totale!
 
-« Le Messager du Grand Empereur!! Haha, le Messager est là! Un étranger comme toi ose provoquer un Ancien Déchu? Tu es mort! » Non seulement le Patriarche était ravi, mais son fils se détendit également, affichant un regard de joie.
+« Le Messager du Grand Empereur!! Haha, le Messager est là! Un étranger comme toi ose provoquer un Ancien Luo Sheng? Tu es mort! » Non seulement le Patriarche était ravi, mais son fils se détendit également, affichant un regard de joie.
 
 Wang Lin leva la tête. Il ne se précipita pas pour attaquer, mais observa froidement vers le haut.
 

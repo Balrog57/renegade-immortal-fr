@@ -22,13 +22,13 @@ Les fragments de peau ainsi prélevés étaient empilés sur les jambes de l'hom
 
 Après un temps indéterminé, l'homme ouvrit lentement les yeux, laissant apparaître un regard terrifiant. Il restait calme tout en contemplant le lointain. Après un long moment, il murmura pour lui-même:
 
-« Bien que je n'aie pas encore absorbé tout le tatouage sacré de l'Ancêtre, j'ai acquis une grande compréhension de l'art du Tatou Flétri... Cependant, le souvenir de la silhouette de mon ancien maître ne s'efface pas... » L'homme réfléchit en silence avant de laisser échapper un soupir et de refermer les yeux.
+« Bien que je n'aie pas encore absorbé tout le tatouage sacré de l'Ancêtre, j'ai acquis une grande compréhension de l'art du Talisman Flétri... Cependant, le souvenir de la silhouette de mon ancien maître ne s'efface pas... » L'homme réfléchit en silence avant de laisser échapper un soupir et de refermer les yeux.
 
-Wang Lin, qui se trouvait dans les profondeurs de l'océan, détacha son regard de la grande épée. Il la rappela, retira le Tatou Flétri et le rangea dans son sac de rangement.
+Wang Lin, qui se trouvait dans les profondeurs de l'océan, détacha son regard de la grande épée. Il la rappela, retira le Talisman Flétri et le rangea dans son sac de rangement.
 
-« Avec ce Tatou Flétri, j'aurai un moyen supplémentaire de me sauver en cas de danger, mais il est véritablement mystérieux. Après avoir quitté la Terre Yao Ling, je devrai trouver l'occasion d'en fabriquer d'autres. Cependant, d'après le gaz vert, le meilleur matériau consiste à utiliser la peau située entre les sourcils d'une bête féroce. »
+« Avec ce Talisman Flétri, j'aurai un moyen supplémentaire de me sauver en cas de danger, mais il est véritablement mystérieux. Après avoir quitté la Terre Yao Ling, je devrai trouver l'occasion d'en fabriquer d'autres. Cependant, d'après le gaz vert, le meilleur matériau consiste à utiliser la peau située entre les sourcils d'une bête féroce. »
 
-« Plus la bête est féroce, plus cette peau sera de qualité; cela affecte même la puissance du Tatou Flétri lui-même. Il faut utiliser un sortilège pour figer l'âme et l'essence sanguine de la bête entre ses sourcils avant de prélever la peau... »
+« Plus la bête est féroce, plus cette peau sera de qualité; cela affecte même la puissance du Talisman Flétri lui-même. Il faut utiliser un sortilège pour figer l'âme et l'essence sanguine de la bête entre ses sourcils avant de prélever la peau... »
 
 Tout en réfléchissant, Wang Lin prit une profonde inspiration et frappa son sac de rangement. Un éclat de lumière jaune jaillit, et le cristal jaune apparut dans sa main.
 

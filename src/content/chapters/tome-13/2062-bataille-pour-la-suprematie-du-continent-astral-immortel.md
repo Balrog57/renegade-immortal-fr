@@ -82,7 +82,7 @@ Wang Lin fronça les sourcils en observant la silhouette émergeant de la brume.
 
 « Dans la cité impériale du Dao Gu, j'ai tué Ye Dao. Avec mon niveau de culture de l'époque, si tu avais agi, je n'aurais eu aucune certitude de l'emporter. Pourtant, tu es resté silencieux. C'est le deuxième point! »
 
-« Dans le Shi Antique, Ji Du est devenu empereur et tu ne l'as pas arrêté. C'est le troisième! »
+« Dans le Shi Gu, Ji Du est devenu empereur et tu ne l'as pas arrêté. C'est le troisième! »
 
 « Dans ma vie, je rends toujours les bienfaits comme les offenses. Puisque tu m'as aidé à trois reprises, j'accepte de rester cent ans sans explication. Cependant, pour les deux cents années restantes, je partirai! » déclara Wang Lin d'un ton posé.
 

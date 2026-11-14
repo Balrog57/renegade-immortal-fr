@@ -14,11 +14,11 @@ Le Clan An Xie, au statut le plus élevé, occupa une zone située à plusieurs 
 
 Zhong Dahong était extrêmement arrogant; il se déplaçait entre les deux clans à sa guise. La joie d'être au centre de tous les regards était une sensation qu'il n'avait jamais connue au sein du Clan Shan Lei.
 
-À l'intérieur de la grotte, Wang Lin siégeait en méditation. Plus tôt, au Clan Long Jia, avant que l'envoyé du Grand Empereur ne parte, celui-ci lui avait annoncé qu'un événement crucial se produirait dans trois mois: ce jour-là, les Anciens Déchus seraient restructurés.
+À l'intérieur de la grotte, Wang Lin siégeait en méditation. Plus tôt, au Clan Long Jia, avant que l'envoyé du Grand Empereur ne parte, celui-ci lui avait annoncé qu'un événement crucial se produirait dans trois mois: ce jour-là, les Anciens Luo Sheng seraient restructurés.
 
 Certains conserveraient leur statut, tandis que d'autres seraient remplacés.
 
-Cependant, Wang Lin n'y accordait guère d'importance. Ce qui lui importait, c'était la manière dont il pourrait atteindre son objectif auprès du Clan Huo Que grâce à cette élection des Anciens Déchus.
+Cependant, Wang Lin n'y accordait guère d'importance. Ce qui lui importait, c'était la manière dont il pourrait atteindre son objectif auprès du Clan Huo Que grâce à cette élection des Anciens Luo Sheng.
 
 « L'appât est posé... » Les yeux de Wang Lin s'illuminèrent, puis il les ferma tandis que son Sens Divin se déployait. Son Sens Divin fusionna progressivement avec le monde, ne faisant plus qu'un avec lui.
 

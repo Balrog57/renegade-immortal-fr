@@ -64,7 +64,7 @@ Cependant, juste au moment où le démon ancien s'éloignait, une voix froide et
 
 Cette voix était celle du Prince Ji Du!
 
-Parmi les douze pays de la lignée Shi Antique se trouvait le Pays You. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays You reposait une entité semblable à une brume, capturée puis scellée par l'Ancêtre Ancien pour former ce pays.
+Parmi les douze pays de la lignée Shi Gu se trouvait le Pays You. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays You reposait une entité semblable à une brume, capturée puis scellée par l'Ancêtre Ancien pour former ce pays.
 
 Au cœur de la brume se dressait une montagne en forme de fer à cheval, sur laquelle trônait un immense palais dégageant une aura puissante. De nombreux serviteurs et gardes y résidaient. Ce jour-là, le brouillard au-dessus du palais se fendit, révélant le ciel nocturne. Une immense faille apparut, et un géant démon ancien en sortit!
 
@@ -80,7 +80,7 @@ Wang Lin descendit calmement. Derrière lui marchaient le Prince et la femme, la
 
 Une fois au sol, Wang Lin observa le démon géant soumis. « Ce démon ancien est plutôt remarquable. »
 
-« C'est un honneur pour lui de recevoir les éloges du Senior. Mon père me l'a offert pour faciliter mes voyages et assurer ma protection. Un tel démon est rare. Il fut autrefois un garde impérial de mon clan Shi Antique, mais malheureusement, après la fusion de ses 27 étoiles, il n'obtint pas la reconnaissance de l'Ancêtre Ancien. Il dégénéra en démon et perdit la raison », soupira le Prince.
+« C'est un honneur pour lui de recevoir les éloges du Senior. Mon père me l'a offert pour faciliter mes voyages et assurer ma protection. Un tel démon est rare. Il fut autrefois un garde impérial de mon clan Shi Gu, mais malheureusement, après la fusion de ses 27 étoiles, il n'obtint pas la reconnaissance de l'Ancêtre Ancien. Il dégénéra en démon et perdit la raison », soupira le Prince.
 
 Wang Lin acquiesça. Son regard balaya une nouvelle fois la créature avant de se tourner vers le palais.
 
@@ -98,7 +98,7 @@ Wang Lin dit lentement: « Est-ce là la compensation dont vous parliez? »
 
 Le palais était luxueux, mais dégageait une aura écrasante. Dès que Wang Lin eut franchi le seuil de la salle, le Prince s'avança promptement devant lui. Il joignit les mains avec une gravité extrême et s'inclina brusquement.
 
-« Le Junior du clan Shi Antique, le Prince Ji Du, salue l'Ascendant Empyréen aux cheveux blancs! » À ces mots, un cri de stupeur retentit de la part de la femme derrière lui. Déconcertée, elle recula de plusieurs pas, totalement bouleversée par les propos de son frère.
+« Le Junior du clan Shi Gu, le Prince Ji Du, salue l'Ascendant Empyréen aux cheveux blancs! » À ces mots, un cri de stupeur retentit de la part de la femme derrière lui. Déconcertée, elle recula de plusieurs pas, totalement bouleversée par les propos de son frère.
 
 L'Ascendant Empyréen aux cheveux blancs!!
 

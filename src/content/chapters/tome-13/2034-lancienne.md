@@ -44,7 +44,7 @@ Son accession au trône avait provoqué un tollé dans tout le Dao Gu. Après av
 
 Cette femme faisait également partie de la famille impériale. À cette époque, le Dao Gu touchait presque à son apogée et était devenu le plus puissant des trois clans sous sa direction. Cependant, après son règne, le Dao Gu finit par devenir le plus faible des trois clans des dizaines de milliers d'années plus tard.
 
-En raison de ses contributions et du fait qu'elle avait mené le Dao Gu à surpasser les clans Shi Antique et Ji Antique, elle fut nommée l'Empereur Saint par les empereurs suivants.
+En raison de ses contributions et du fait qu'elle avait mené le Dao Gu à surpasser les clans Shi Gu et Ji Gu, elle fut nommée l'Empereur Saint par les empereurs suivants.
 
 Les habitants du Dao Gu la surnommaient également l'Ancêtre de l'Empereur Saint!
 

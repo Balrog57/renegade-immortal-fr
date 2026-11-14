@@ -12,7 +12,7 @@ Sang violet, le sang d'âme de l'Ancêtre Ancien!
 
 L'aura spirituelle à l'intérieur devint encore plus puissante, teintant tout le ciel de violet!
 
-Toute la cité impériale de Shi Antique, y compris le nouvel Empereur Ji Du, contemplait le sang d'âme violet surplombant la statue de l'Ancêtre Ancien. À cet instant, la lumière violette forma un halo et descendit rapidement depuis le sommet de la statue.
+Toute la cité impériale de Shi Gu, y compris le nouvel Empereur Ji Du, contemplait le sang d'âme violet surplombant la statue de l'Ancêtre Ancien. À cet instant, la lumière violette forma un halo et descendit rapidement depuis le sommet de la statue.
 
 En un éclair, ce halo violet disparut dans les profondeurs du temple ancestral.
 
@@ -56,7 +56,7 @@ Finalement, lorsque toute la lumière violette eut pénétré le corps de Wang L
 
 Le ciel retrouva lentement sa normale et plus aucune trace de violet ne subsistait. La statue de l'Ancêtre Ancien resta calme, semblant toujours contempler le ciel avec dédain et mépris.
 
-Une fois le calme revenu, les habitants de Shi Antique sortirent de leur stupeur. Bien qu'une immense vague ait déferlé dans leurs cœurs, ils s'efforcèrent de garder une apparence sereine.
+Une fois le calme revenu, les habitants de Shi Gu sortirent de leur stupeur. Bien qu'une immense vague ait déferlé dans leurs cœurs, ils s'efforcèrent de garder une apparence sereine.
 
 Leurs regards portés vers le temple ancestral étaient empreints d'émotions diverses: jalousie, envie, sentiments complexes, émotion...
 
@@ -100,13 +100,13 @@ Ji Du, interdit, fixa son parrain. Il sentait que ce dernier avait l'intention d
 
 D'un geste de la main, il renvoya la couronne vers Ji Du. Elle se posa sur sa tête: il était désormais le véritable empereur!
 
-Avec un sourire, Wang Lin se retourna et fit un pas vers le vide. Il disparut de la cité impériale de Shi Antique, s'effaçant des regards de tous et des yeux de Ji Du.
+Avec un sourire, Wang Lin se retourna et fit un pas vers le vide. Il disparut de la cité impériale de Shi Gu, s'effaçant des regards de tous et des yeux de Ji Du.
 
 « Parrain! » cria Ji Du vers la direction où Wang Lin s'était volatilisé. Une profonde tristesse l'envahit face à ce départ. Il ne pouvait oublier que tout ce qu'il possédait n'était possible que grâce à Wang Lin.
 
 Wang Lin était parti.
 
-Il quitta Shi Antique et tourna son regard vers le clan céleste, en direction de la Secte Qi Dao. Après une courte réflexion, il se mit en route vers la cité impériale du Dao Gu qu'il avait quittée deux siècles plus tôt.
+Il quitta Shi Gu et tourna son regard vers le clan céleste, en direction de la Secte Qi Dao. Après une courte réflexion, il se mit en route vers la cité impériale du Dao Gu qu'il avait quittée deux siècles plus tôt.
 
 Dans cette cité, personne à part Xuan Luo n'avait remarqué son arrivée. Dans les montagnes arrières du Temple Dao Gu, Wang Lin vit Xuan Luo dans la demeure où il avait séjourné autrefois.
 

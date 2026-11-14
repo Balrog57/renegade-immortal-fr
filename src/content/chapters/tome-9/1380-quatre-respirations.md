@@ -62,13 +62,13 @@ Ces trois éclairs jaillirent avec une puissance colossale, faisant briller le t
 
 En un éclair, d'innombrables serpents argentés apparurent dans le ciel. Ils remplirent l'espace et convergèrent vers le tatouage de tonnerre.
 
-Ce tatouage de tonnerre était phénoménal; dès qu'il apparut, Wang Lin le projeta en avant. Il lança son attaque sur Maître Si Mo, tout comme il avait attaqué la Porte Kong!
+Ce tatouage de tonnerre était phénoménal; dès qu'il apparut, Wang Lin le projeta en avant. Il lança son attaque sur Maître Si Mo, tout comme il avait attaqué la Porte du Vide!
 
 Le tatouage de tonnerre envahit le ciel et chargea vers Maître Si Mo!
 
-L'expression de Maître Si Mo devint grave. Tout au long de ce combat, c'était le sort de tonnerre de Wang Lin qu'il redoutait le plus. Bien qu'il n'ait jamais vu cette technique de tonnerre ni affronté Wang Lin, la seule scène aperçue sur la planète de culture du Clan Zhen Yan, où Wang Lin avait frappé la Porte Kong, suffisait à lui donner la chair de poule.
+L'expression de Maître Si Mo devint grave. Tout au long de ce combat, c'était le sort de tonnerre de Wang Lin qu'il redoutait le plus. Bien qu'il n'ait jamais vu cette technique de tonnerre ni affronté Wang Lin, la seule scène aperçue sur la planète de culture du Clan Zhen Yan, où Wang Lin avait frappé la Porte du Vide, suffisait à lui donner la chair de poule.
 
-À cet instant, en voyant le tatouage de tonnerre, il se remémora la scène où Wang Lin avait tenté de briser la Porte Kong. Il agita la main et la Restriction Temporelle l'enveloppa.
+À cet instant, en voyant le tatouage de tonnerre, il se remémora la scène où Wang Lin avait tenté de briser la Porte du Vide. Il agita la main et la Restriction Temporelle l'enveloppa.
 
 « Voyons si votre tonnerre est plus fort que mes Restrictions Temporelles! »
 

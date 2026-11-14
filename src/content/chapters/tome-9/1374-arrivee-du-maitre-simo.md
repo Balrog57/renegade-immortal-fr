@@ -100,12 +100,12 @@ Wang Lin saisissait vaguement quelques indices, mais tout était trop confus pou
 
 « Grand Empereur des Terres Déchues... qui est donc cet individu? » Wang Lin songea silencieusement alors que la porte de la grotte s'ouvrait et qu'il en sortait.
 
-« Ancien du Clan An Xie, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu! » Le vieil homme du Clan An Xie hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
+« Ancien du Clan An Xie, guidez-moi vers la planète de culture la plus proche abritant un Ancien Luo Sheng! » Le vieil homme du Clan An Xie hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
 
 À cet instant, des ondulations apparurent dans l'espace à l'extérieur des Terres Déchues et un homme d'âge moyen en sortit. C'était celui qui poursuivait Wang Lin: Maître Si Mo. Ses yeux étaient sombres et une lueur étrange y brillait tandis qu'il scrutait le domaine stellaire non contrôlé par le Conseil Souverain.
 
-« Le Grand Maître Yun Luo a prédit qu'il se cachait dans les Terres Déchues... Cet endroit est extrêmement chaotique, je dois donc être prudent... Heureusement que je suis venu ici auparavant et que j'ai d'anciens liens avec le neuvième Ancien Déchu, le chef du Clan Long Jia. En empruntant l'identité du Clan Long Jia, je ne devrais rencontrer aucun problème! »
+« Le Grand Maître Yun Luo a prédit qu'il se cachait dans les Terres Déchues... Cet endroit est extrêmement chaotique, je dois donc être prudent... Heureusement que je suis venu ici auparavant et que j'ai d'anciens liens avec le neuvième Ancien Luo Sheng, le chef du Clan Long Jia. En empruntant l'identité du Clan Long Jia, je ne devrais rencontrer aucun problème! »
 
 Tout en réfléchissant, Maître Si Mo s'élança vers les Terres Déchues.
 
-« Je dois le trouver au plus vite, mort ou vif, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte Kong sans les Flammes d'Encens! »
+« Je dois le trouver au plus vite, mort ou vif, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte du Vide sans les Flammes d'Encens! »

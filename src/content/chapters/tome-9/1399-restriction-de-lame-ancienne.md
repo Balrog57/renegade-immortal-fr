@@ -26,9 +26,9 @@ Tout en progressant, le regard de Wang Lin devint vif. Ce qu'il avait infligé a
 
 Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan Long Jia, quelques mois auparavant, suivait la même logique, tout comme celle des Clans Chuan He et Hun She. Ce n'était qu'en sondant sans cesse les limites de son interlocuteur que Wang Lin pourrait découvrir sa véritable nature!
 
-« Il a dépouillé deux Anciens Déchus de leurs titres, il m'a laissé choisir le patriarche du Clan Long Jia, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Déchus. Tout cela ne dépasse pas ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
+« Il a dépouillé deux Anciens Luo Sheng de leurs titres, il m'a laissé choisir le patriarche du Clan Long Jia, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Luo Sheng. Tout cela ne dépasse pas ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
 
-« Le Patriarche du Clan An Xie n'est pas mal; j'ai l'intention de le nommer Ancien Déchu. »
+« Le Patriarche du Clan An Xie n'est pas mal; j'ai l'intention de le nommer Ancien Luo Sheng. »
 
 Le messager fut surpris et hésita un instant. Le regard de Wang Lin balaya le serviteur, et ses pupilles se rétractèrent. Il pressentit vaguement que le messager utilisait une méthode spéciale pour transmettre un message à quelqu'un.
 
@@ -50,13 +50,13 @@ Seule la région du nord-ouest présentait une végétation plus clairsemée, r�
 
 « C'est donc... » En contemplant les restrictions, les yeux de Wang Lin s'illuminèrent et une pensée jaillit dans son esprit.
 
-« C'est l'emplacement de la Sélection des Anciens Déchus », expliqua rapidement le messager lorsqu'il vit le regard de Wang Lin se fixer sur le nord-ouest.
+« C'est l'emplacement de la Sélection des Anciens Luo Sheng », expliqua rapidement le messager lorsqu'il vit le regard de Wang Lin se fixer sur le nord-ouest.
 
 Après ses explications, le messager joignit les mains et dit: « Jeune Empereur, j'ai reçu l'ordre de vous conduire ici. Je dois maintenant retourner chercher les autres cultivateurs. Si le Jeune Empereur n'a pas d'autres ordres, ce subordonné prend congé. »
 
 Wang Lin n'avait pas l'intention de le retenir. Il joignit les mains à son tour: « Merci beaucoup! » La règle de conduite de Wang Lin avait toujours été de traiter autrui comme on le traitait lui-même. Puisque le messager s'était montré respectueux lors de leurs deux rencontres, il ne lui causerait aucun désagrément.
 
-« Le Jeune Empereur peut d'abord se familiariser avec la Planète du Grand Empereur. Demain matin, lorsque la Sélection des Anciens Déchus commencera, quelqu'un viendra vous en informer. » Le messager s'inclina avant de disparaître au loin.
+« Le Jeune Empereur peut d'abord se familiariser avec la Planète du Grand Empereur. Demain matin, lorsque la Sélection des Anciens Luo Sheng commencera, quelqu'un viendra vous en informer. » Le messager s'inclina avant de disparaître au loin.
 
 Une fois l'homme parti, Wang Lin eut l'impression d'être le seul être vivant sur cette planète immense. Son regard resta un instant suspendu sur l'arène du nord-ouest avant qu'il ne se retire et disparaisse à son tour.
 

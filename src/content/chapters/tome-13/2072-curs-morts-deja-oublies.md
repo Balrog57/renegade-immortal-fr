@@ -78,7 +78,7 @@ Wang Lin, de son côté, restait plongé dans ses pensées.
 
 « La réincarnation. Lorsque j'ai déverrouillé les souvenirs des êtres en réincarnation, je ne me suis pas demandé si j'étais moi aussi prisonnier d'un cycle... Si je suis réellement dans un cycle de réincarnation, alors qui viendra déverrouiller mes propres souvenirs? » En y songeant, Wang Lin éclata de rire, un rire qui se mua en sanglots.
 
-« La réincarnation, c'est donc cela la réincarnation!! Mais même si je suis dans un cycle, je ne choisirai jamais d'oublier, jamais!! » Il riait encore, l'esprit soudain porté vers la silhouette qui, dans le temple ancestral de la cité impériale de Shi Antique, rugissait vers le ciel lors de ses Trois Divisions d'Âme de l'Ancien Dao.
+« La réincarnation, c'est donc cela la réincarnation!! Mais même si je suis dans un cycle, je ne choisirai jamais d'oublier, jamais!! » Il riait encore, l'esprit soudain porté vers la silhouette qui, dans le temple ancestral de la cité impériale de Shi Gu, rugissait vers le ciel lors de ses Trois Divisions d'Âme de l'Ancien Dao.
 
 Les paroles de cette figure retentirent une fois de plus à ses oreilles:
 

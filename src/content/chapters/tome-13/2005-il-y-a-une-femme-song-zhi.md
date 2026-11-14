@@ -10,7 +10,7 @@ L'expression de Wang Lin était calme, ses cheveux blancs flottant au gré du ve
 
 « Je peux déjà percevoir l'étendue du pouvoir impérial du clan Antique à travers cette simple affaire... » Outre l'obtention d'un jade cartographique, Wang Lin était resté ici pour tester la véritable puissance de l'autorité impériale du clan Antique.
 
-Un simple prince, sans même être l'Empereur Shi Antique, suffisait à faire agenouiller une ville entière. Et le simple fait qu'il ait refusé de s'agenouiller avait déjà stupéfié l'assistance.
+Un simple prince, sans même être l'Empereur Shi Gu, suffisait à faire agenouiller une ville entière. Et le simple fait qu'il ait refusé de s'agenouiller avait déjà stupéfié l'assistance.
 
 L'homme massif en armure dorée, initialement poli, fut soudainement envahi par une intention meurtrière et une colère noire. C'était comme si refuser de s'agenouiller constituait un crime impardonnable!
 
@@ -18,7 +18,7 @@ Quant au prince, pour la seule raison qu'il ne s'était pas agenouillé, il s'ap
 
 Une telle situation ne pouvait survenir que lorsque le pouvoir impérial avait atteint un paroxysme extrême. Plus important encore, tous ceux qui étaient agenouillés regardaient le prince avec une révérence et une exaltation sincères. C'était comme s'ils étaient prêts à tout exécuter sur ordre du prince, fût-ce se donner la mort.
 
-« Si le Shi Antique est ainsi, alors le Dao Gu doit l'être aussi... Peut-être ne suis-je pas fait pour cet endroit... » Wang Lin réfléchit silencieusement et fit un pas en avant. Lorsqu'il entama son troisième pas, les griffes du démon ancien se refermèrent sur lui. Tout le monde vit les griffes de la créature percuter la silhouette de Wang Lin!
+« Si le Shi Gu est ainsi, alors le Dao Gu doit l'être aussi... Peut-être ne suis-je pas fait pour cet endroit... » Wang Lin réfléchit silencieusement et fit un pas en avant. Lorsqu'il entama son troisième pas, les griffes du démon ancien se refermèrent sur lui. Tout le monde vit les griffes de la créature percuter la silhouette de Wang Lin!
 
 On aurait dit que Wang Lin avait été pris au piège!
 
@@ -78,7 +78,7 @@ Un total de 27 étoiles! Ces 27 étoiles émettaient une lueur spectrale, et tro
 
 Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
-« Quels que soient tes griefs envers le Shi Antique, cela ne concerne pas notre Dao Gu! » Le vieil homme ressentait une amertume profonde. Il ignorait pourquoi Wang Lin marchait vers eux.
+« Quels que soient tes griefs envers le Shi Gu, cela ne concerne pas notre Dao Gu! » Le vieil homme ressentait une amertume profonde. Il ignorait pourquoi Wang Lin marchait vers eux.
 
 « Le groupe de trois de Liang Yun possède une culture équivalente au Vide Arcanique. Peut-être que la différence de lignée crée des disparités. Quant à ce vieil homme aux 27 étoiles, sa culture équivaut au niveau de la Tribulation du Vide. »
 
@@ -96,7 +96,7 @@ Si le plus fort avait réagi ainsi, il n'était même pas nécessaire de mention
 
 Chez l'homme devant lui, c'était sa propre force!
 
-« Oui... L'Empereur Antique m'a donné le nom de Ye Hai, et c'est mon sixième voyage au sein du Shi Antique pour aider l'Empereur à trouver une concubine. » Le vieil homme prit une profonde inspiration et cessa de lutter contre la pression de Wang Lin, affichant plutôt un profond respect.
+« Oui... L'Empereur Antique m'a donné le nom de Ye Hai, et c'est mon sixième voyage au sein du Shi Gu pour aider l'Empereur à trouver une concubine. » Le vieil homme prit une profonde inspiration et cessa de lutter contre la pression de Wang Lin, affichant plutôt un profond respect.
 
 « Des centaines d'années pour choisir une concubine? » répéta Wang Lin, toujours surpris.
 

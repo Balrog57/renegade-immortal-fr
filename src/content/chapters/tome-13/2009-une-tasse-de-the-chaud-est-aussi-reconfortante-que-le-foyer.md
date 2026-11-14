@@ -114,7 +114,7 @@ L'expression de Xuan Luo resta inchangée lorsqu'il demanda lentement: « Pourqu
 
 L'expression de Wang Lin resta impassible, mais son cœur rata un battement. C'était la première fois qu'il apprenait que chaque génération d'empereurs était choisie par le Grand Empyréen!
 
-« La famille impériale et les Grands Empyréens coexistent depuis l'Antiquité... C'est sans doute pour cela! Pas étonnant que le Prince Ji Du ait sollicité mon aide. Ma puissance de combat est la première sous les Grands Empyréens. Mon soutien pourrait lui permettre d'obtenir les faveurs du Grand Empyréen de la lignée Shi Antique. »
+« La famille impériale et les Grands Empyréens coexistent depuis l'Antiquité... C'est sans doute pour cela! Pas étonnant que le Prince Ji Du ait sollicité mon aide. Ma puissance de combat est la première sous les Grands Empyréens. Mon soutien pourrait lui permettre d'obtenir les faveurs du Grand Empyréen de la lignée Shi Gu. »
 
 Alors que Wang Lin méditait, un rugissement s'éleva du vieil homme aux côtés de l'empereur.
 

@@ -26,9 +26,9 @@ Des ondulations résonnèrent derrière Wang Lin et le Prince Ji Du fit un pas h
 
 « J'ai informé le Seigneur de la Ville de veiller sur Song Zhi pour qu'elle ne subisse aucun préjudice. Soyez assuré que j'ai même envoyé des gardes pour vivre ici afin de la protéger. » Le Prince Ji Du savait à quel point Song Zhi était importante pour son parrain, il n'osait donc pas être négligent à cet égard.
 
-Le Prince Ji Du était resté ici car, selon ses analyses, Wang Lin viendrait probablement. Il attendait depuis son retour dans le Shi Antique, et Wang Lin était enfin arrivé.
+Le Prince Ji Du était resté ici car, selon ses analyses, Wang Lin viendrait probablement. Il attendait depuis son retour dans le Shi Gu, et Wang Lin était enfin arrivé.
 
-Wang Lin ne montra aucune émotion face au fait que Ji Du l'ait attendu. Au contraire, si Ji Du n'avait pas fait cela, cela signifierait qu'il ne serait pas utile à Wang Lin, et il serait alors très difficile pour lui d'obtenir le poste d'Empereur Shi Antique.
+Wang Lin ne montra aucune émotion face au fait que Ji Du l'ait attendu. Au contraire, si Ji Du n'avait pas fait cela, cela signifierait qu'il ne serait pas utile à Wang Lin, et il serait alors très difficile pour lui d'obtenir le poste d'Empereur Shi Gu.
 
 « Allons-y. » Wang Lin jeta un dernier regard vers Ville Hei Shi puis s'éloigna dans la distance.
 
@@ -44,7 +44,7 @@ Wang Lin agita sa manche; le monde autour d'eux se déforma et ils disparurent t
 
 Voyant que Wang Lin s'apprêtait à entrer dans la chambre, le Prince Ji Du hésita. Il semblait vouloir dire quelque chose, mais paraissait craindre de parler.
 
-Wang Lin, alors qu'il était à mi-chemin de la chambre, s'arrêta et regarda le Prince Ji Du: « Si tu veux devenir l'Empereur Shi Antique, alors le Grand Empyréen Song Tian est la clé. S'il te désigne, alors tout sera simple. »
+Wang Lin, alors qu'il était à mi-chemin de la chambre, s'arrêta et regarda le Prince Ji Du: « Si tu veux devenir l'Empereur Shi Gu, alors le Grand Empyréen Song Tian est la clé. S'il te désigne, alors tout sera simple. »
 
 Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
@@ -52,7 +52,7 @@ Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
 « Mon frère cadet, Chi Man, est très proche du Seigneur Song. Il vit sur la Montagne Yuan Shi et la rumeur dit qu'il est sur le point d'être accepté comme disciple du Seigneur Song.
 
-« Mon père semble aussi porter beaucoup d'intérêt à Chi Man. L'ensemble du clan Shi Antique penche en sa faveur pour le prochain trône, » dit amèrement Ji Du.
+« Mon père semble aussi porter beaucoup d'intérêt à Chi Man. L'ensemble du clan Shi Gu penche en sa faveur pour le prochain trône, » dit amèrement Ji Du.
 
 L'expression de Wang Lin resta calme et, après avoir entendu cela, il réfléchit silencieusement un instant.
 
@@ -82,13 +82,13 @@ En observant Ji Du devant lui, Wang Lin voyait une personne redoutable. Quelqu'u
 
 Le Prince Ji Du resta agenouillé un moment encore avant de se relever respectueusement, une joie manifeste brillant dans ses yeux.
 
-« Avec le pouvoir du Parrain, Seigneur Song pourrait vraiment changer d'avis... Mais je dois aussi lancer mon plan. Cette fois, je dois me battre! Une fois que j'aurai réussi, dans deux cents ans, moi, Ji Du, serai l'empereur du Shi Antique! »
+« Avec le pouvoir du Parrain, Seigneur Song pourrait vraiment changer d'avis... Mais je dois aussi lancer mon plan. Cette fois, je dois me battre! Une fois que j'aurai réussi, dans deux cents ans, moi, Ji Du, serai l'empereur du Shi Gu! »
 
 Excité, le Prince Ji Du prit plusieurs inspirations profondes avant de réprimer son enthousiasme. Il envoya immédiatement un ordre pour faire de cet endroit une zone interdite: quiconque oserait y pénétrer serait instantanément tué. Il fit même déployer plusieurs gardes pour protéger les lieux jour et nuit.
 
 Wang Lin entra dans la chambre secrète et fit le tour du regard. D'un geste de la main droite, il dispersa une multitude de restrictions à travers la pièce, scellant ainsi toute la chambre. Avec son niveau de culture actuel, les restrictions qu'il avait placées faisaient en sorte que même des Grands Empyréens ne pourraient entrer sans qu'il ne le sache.
 
-Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé Song Zhi chez elle, il y avait une raison plus profonde à sa venue dans le Shi Antique et à son aide pour que le Prince Ji Du devienne empereur.
+Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé Song Zhi chez elle, il y avait une raison plus profonde à sa venue dans le Shi Gu et à son aide pour que le Prince Ji Du devienne empereur.
 
 « Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Zi Yang, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant des collections du Grand Empyréen Shuangzi.
 
@@ -108,7 +108,7 @@ C'était l'unique moyen d'avoir une chance d'obtenir à nouveau l'approbation de
 
 « Même si Luo Chen est reconnu comme l'Empereur du Dao Gu... je ne veux toujours pas retourner là-bas... » Wang Lin soupira, affichant une expression complexe.
 
-« Quant au Ji Antique, je n'ai que peu de contacts avec eux. Le Shi Antique me convient bien mieux, d'autant plus que malgré l'ambition de Ji Du, il n'osera pas s'opposer à mes intentions.
+« Quant au Ji Gu, je n'ai que peu de contacts avec eux. Le Shi Gu me convient bien mieux, d'autant plus que malgré l'ambition de Ji Du, il n'osera pas s'opposer à mes intentions.
 
 « 500 ans... Les 500 dernières années! » Wang Lin prit une profonde inspiration et agita la main. Un cercueil d'une clarté cristalline apparut devant lui.
 

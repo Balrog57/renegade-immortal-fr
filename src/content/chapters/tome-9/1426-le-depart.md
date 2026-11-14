@@ -12,7 +12,7 @@ Cette bataille n'avait mené à aucun résultat. C'était inattendu pour tous le
 
 Quoi qu'il en soit, cela n'entraverait en rien l'ascension de la réputation de Wang Lin dans les Terres Déchues! Aux yeux des dizaines de milliers de cultivateurs présents, le simple déroulement du combat suffisait à faire de Wang Lin quelqu'un capable de rivaliser avec un cultivateur du troisième niveau!
 
-La Sélection des Anciens Déchus, qui avait été interrompue, reprit son cours, mais plus rien de tout cela ne concernait Wang Lin.
+La Sélection des Anciens Luo Sheng, qui avait été interrompue, reprit son cours, mais plus rien de tout cela ne concernait Wang Lin.
 
 Dans les Terres Déchues, la planète abandonnée où se trouvaient Liu Jinbiao et Xu Liguo avait été minutieusement fouillée par les membres du Clan Huo Que.
 

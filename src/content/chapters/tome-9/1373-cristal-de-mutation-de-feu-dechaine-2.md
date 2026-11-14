@@ -58,15 +58,15 @@ Quant à Zhong Dahong, il était devenu encore plus hardi; il était désormais 
 
 « Il existe 372 petits clans dans la Terre Déchue. Mon Clan An Xie est au bas de l'échelle. Nous ne contrôlons que cette planète presque abandonnée et comptons peu de membres... »
 
-« Le Système Stellaire Antique possède le Conseil Souverain, tandis que la Terre Déchue est gouvernée par le Conseil Déchu. Il y a un total de 13 Anciens Déchus qui dirigent la Terre Déchue. Quant au Grand Empereur de la Terre Déchue, il contrôle le Conseil Déchu. Il est très mystérieux, et la rumeur dit qu'il est un cultivateur du troisième niveau, c'est pourquoi cet endroit n'est pas sous le contrôle du Conseil Souverain. »
+« Le Système Stellaire Antique possède le Conseil Souverain, tandis que la Terre Déchue est gouvernée par le Conseil Déchu. Il y a un total de 13 Anciens Luo Sheng qui dirigent la Terre Déchue. Quant au Grand Empereur de la Terre Déchue, il contrôle le Conseil Déchu. Il est très mystérieux, et la rumeur dit qu'il est un cultivateur du troisième niveau, c'est pourquoi cet endroit n'est pas sous le contrôle du Conseil Souverain. »
 
 « Les membres du Conseil Déchu ne sont pas immuables. Tous les cent ans, ils peuvent être contestés, et le vainqueur devient le nouvel Ancien. La rumeur prétend qu'au fil des ans, le Conseil Souverain a secrètement envoyé de nombreuses personnes ici pour tenter de s'emparer d'un siège d'Ancien. Cependant, aucune n'a jamais réussi, et toutes sont mortes de manière inexplicable avant le défi. »
 
-« Si vous n'avez pas l'intention de devenir un Ancien Déchu, il n'y a pas lieu de craindre pour votre vie. » L'ancien du Clan An Xie regarda Wang Lin à ce moment-là.
+« Si vous n'avez pas l'intention de devenir un Ancien Luo Sheng, il n'y a pas lieu de craindre pour votre vie. » L'ancien du Clan An Xie regarda Wang Lin à ce moment-là.
 
 À cet instant, il se tenait respectueusement dans la grotte de Wang Lin et lui racontait tout ce qu'il savait.
 
-« Quant aux marionnettes, elles ne peuvent être achetées que sur des planètes de culture contrôlées par un Ancien Déchu. Même les marionnettes de mon Clan An Xie ont été achetées là-bas. »
+« Quant aux marionnettes, elles ne peuvent être achetées que sur des planètes de culture contrôlées par un Ancien Luo Sheng. Même les marionnettes de mon Clan An Xie ont été achetées là-bas. »
 
 « Cependant, plus le niveau de culture de la marionnette est élevé, plus elle est difficile à acquérir. Les cultivateurs ordinaires ne peuvent même pas les acheter; seuls les clans de la Terre Déchue en sont qualifiés. »
 

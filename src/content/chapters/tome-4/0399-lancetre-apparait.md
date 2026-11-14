@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 399 - The ancestor appears
 slug: lancetre-apparait
 ---
-La voix de Wang Lin résonna à l'intérieur du Clan Ju Mo. Dans la partie nord du territoire, à 3,3 kilomètres sous la surface, une grotte cristalline abritait un homme solitaire.
+La voix de Wang Lin résonna à l'intérieur du Clan Ju Mo. Dans la partie nord du territoire, à dix mille pieds sous la surface, une grotte cristalline abritait un homme solitaire.
 
 Ce dernier était assis en position de lotus, absorbé par sa culture. Il avait une allure imposante et des traits bien marqués.
 
@@ -48,7 +48,7 @@ La silhouette de Wang Lin disparut et il chargea vers le nord.
 
 Se déplaçant avec le corps d'un Dieu Ancien à trois étoiles, il volait aussi vite que la foudre. En quelques téléportations seulement, il atteignit la partie septentrionale du Clan Ju Mo. Vu d'en haut, l'endroit ressemblait à une vaste plaine.
 
-Le regard de Wang Lin était acéré. En déployant son Sens Divin, il sentit que quelque chose clochait. À environ 3,3 kilomètres sous la surface, une fine barrière déviait doucement son Sens Divin lorsqu'il passait au-dessus. Sans cette proximité, il n'aurait pu la détecter.
+Le regard de Wang Lin était acéré. En déployant son Sens Divin, il sentit que quelque chose clochait. À environ dix mille pieds sous la surface, une fine barrière déviait doucement son Sens Divin lorsqu'il passait au-dessus. Sans cette proximité, il n'aurait pu la détecter.
 
 Un rictus aux lèvres, Wang Lin poussa un rugissement, chargea son poing et frappa le sol de toutes ses forces.
 

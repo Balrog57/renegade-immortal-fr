@@ -70,7 +70,7 @@ L'expression de Zhao Xingsha devint très laide et il recula promptement. Non se
 
 Outre ces deux-là, les divers cultivateurs des autres sectes utilisèrent toutes sortes de techniques pour s'enfuir après avoir vu l'explosion de la flamme démoniaque.
 
-La flamme qui avait explosé s'était propagée sur plus de 3 kilomètres avant de finalement se dissiper. Toutes les tables situées dans ce périmètre furent réduites en cendres, et même les nuages furent totalement consumés, laissant derrière eux un immense vide.
+La flamme qui avait explosé s'était propagée sur plus de dix mille pieds avant de finalement se dissiper. Toutes les tables situées dans ce périmètre furent réduites en cendres, et même les nuages furent totalement consumés, laissant derrière eux un immense vide.
 
 La silhouette de Wang Lin se déplaça comme l'éclair. Sans un mot, il chargea, l'épée céleste à la main. Il abattit son arme et un rayon d'énergie tranchante de cent pieds de haut s'abattit sur l'homme d'âge moyen.
 
@@ -102,7 +102,7 @@ L'âme originelle poussa un cri et parvint à se téléporter mystérieusement.
 
 Le regard de Wang Lin s'assombrit, puis il fit claquer le Fouet Kunji. Il utilisait ce fouet depuis plusieurs jours et savait qu'il pouvait s'étendre indéfiniment; sa portée était égale à celle de son regard.
 
-Dans un fracas assourdissant, l'âme originelle, située à plus de 3 kilomètres de là, trembla et fut sur le point de s'effondrer. Une marque profonde apparut sur son dos et une immense quantité d'essence spirituelle céleste en jaillit.
+Dans un fracas assourdissant, l'âme originelle, située à plus de dix mille pieds de là, trembla et fut sur le point de s'effondrer. Une marque profonde apparut sur son dos et une immense quantité d'essence spirituelle céleste en jaillit.
 
 Le corps de Wang Lin disparut. Lorsqu'il réapparut, il était devant l'âme originelle et la saisit de plein fouet.
 

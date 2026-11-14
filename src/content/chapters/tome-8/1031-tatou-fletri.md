@@ -1,6 +1,6 @@
 ---
 n: 1031
-title: Tatou Flétri
+title: Talisman Flétri
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1031 - Wither Tattoo
@@ -86,27 +86,27 @@ L'expression de Wang Lin changea et il fronça progressivement les sourcils. En 
 
 Après un long moment, Wang Lin serra le poing et la sphère se dissipa.
 
-« Tatou Flétri... C'est une création propre au Clan Fu Wen; si un étranger souhaite le fabriquer, il doit obtenir l'aide d'un membre du clan pour l'activer. Son pouvoir se divise principalement en quatre types: le sceau, l'effondrement, l'évasion et la rupture! » Tout en réfléchissant, Wang Lin frappa son sac de rangement, faisant apparaître un talisman jaune orné de runes complexes. Il paraissait très ancien et sa couleur était délavée.
+« Talisman Flétri... C'est une création propre au Clan Fu Wen; si un étranger souhaite le fabriquer, il doit obtenir l'aide d'un membre du clan pour l'activer. Son pouvoir se divise principalement en quatre types: le sceau, l'effondrement, l'évasion et la rupture! » Tout en réfléchissant, Wang Lin frappa son sac de rangement, faisant apparaître un talisman jaune orné de runes complexes. Il paraissait très ancien et sa couleur était délavée.
 
 Wang Lin possédait initialement deux de ces talismans obtenus de Luotian. Il les avait étudiés longuement sans parvenir à comprendre leur usage. La seule fois où il en avait utilisé un, c'était lors de son combat contre un membre de la famille Yao à Luotian.
 
-En observant le gaz vert, Wang Lin put en conclure que ce talisman était bien un Tatou Flétri!
+En observant le gaz vert, Wang Lin put en conclure que ce talisman était bien un Talisman Flétri!
 
 Après avoir examiné minutieusement les runes complexes du talisman, Wang Lin commença à réfléchir. Un instant plus tard, il mordit son index gauche pour en extraire une goutte de sang. Sa main gauche traça rapidement le sceau enregistré dans le gaz vert et pointa le sang.
 
 La goutte resta suspendue dans l'air, sa surface se couvrant d'innombrables protubérances. Puis, elle explosa en un brouillard rouge qui fonça vers le talisman.
 
-Le mouvement fut si rapide que le sang pénétra instantanément dans l'objet. Wang Lin fixa le talisman; le sort qu'il venait d'utiliser servait à identifier la nature du Tatou Flétri.
+Le mouvement fut si rapide que le sang pénétra instantanément dans l'objet. Wang Lin fixa le talisman; le sort qu'il venait d'utiliser servait à identifier la nature du Talisman Flétri.
 
 Un instant plus tard, le talisman s'agita soudainement et un tourbillon noir apparut. Ce vortex fut si violent qu'il modifia instantanément l'état de la mer environnante.
 
 La silhouette vague d'un grand oiseau semblable à un roc se dessina au sein du tourbillon. Cet oiseau était d'un noir absolu, ses yeux semblables à des éclairs. Il traversa le tourbillon une fois et disparut avec lui.
 
-« C'est un Tatou Flétri de type évasion, déjà activé par le Clan Fu Wen! » Les yeux de Wang Lin se plissèrent et il frappa son sac de rangement. Une grande épée en jaillit. C'était l'une des quatre-vingt-dix-neuf épées qu'il avait obtenues du Royaume Sha Yu.
+« C'est un Talisman Flétri de type évasion, déjà activé par le Clan Fu Wen! » Les yeux de Wang Lin se plissèrent et il frappa son sac de rangement. Une grande épée en jaillit. C'était l'une des quatre-vingt-dix-neuf épées qu'il avait obtenues du Royaume Sha Yu.
 
 Bien qu'il en eût fait exploser plus d'une dizaine, Wang Lin en possédait encore une grande quantité.
 
-Tenant le Tatou Flétri, Wang Lin l'écrasa sans hésitation sur la grande épée. Sa main droite traça un sceau étrange et pointa l'arme. Un tourbillon enveloppa l'épée avant qu'elle ne disparaisse instantanément.
+Tenant le Talisman Flétri, Wang Lin l'écrasa sans hésitation sur la grande épée. Sa main droite traça un sceau étrange et pointa l'arme. Un tourbillon enveloppa l'épée avant qu'elle ne disparaisse instantanément.
 
 La disparition fut si fulgurante que Wang Lin n'en vit qu'un sillage flou. Quand sa vision se fut éclaircie, l'épée avait disparu devant lui pour réapparaître cent pieds plus loin.
 

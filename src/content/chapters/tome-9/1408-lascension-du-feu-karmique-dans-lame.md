@@ -24,9 +24,9 @@ Même la nostalgie de Lanmeng Daozun pour sa femme et sa tendresse pour sa fille
 
 La véritable terreur d'un cultivateur du Feu Éthéré ne résidait pas dans les duels singuliers, mais dans les batailles de groupe!
 
-Un cultivateur du Feu Éthéré pouvait s'opposer à des milliers d'adversaires... Les cultivateurs de la troisième étape savaient qu'il était extrêmement difficile de briser la Porte Kong en tant que cultivateur du tonnerre. Le tonnerre étant une force contrôlée par les Cieux, tenter de briser la Porte Kong avec lui s'avérait encore plus ardu!
+Un cultivateur du Feu Éthéré pouvait s'opposer à des milliers d'adversaires... Les cultivateurs de la troisième étape savaient qu'il était extrêmement difficile de briser la Porte du Vide en tant que cultivateur du tonnerre. Le tonnerre étant une force contrôlée par les Cieux, tenter de briser la Porte du Vide avec lui s'avérait encore plus ardu!
 
-L'essence du feu faisait partie des cinq éléments. Ce n'est qu'en devenant un Feu Éthéré que celle-ci pouvait s'affranchir de ces cinq éléments. Si elle parvenait à évoluer davantage en feu Dao et à accomplir l'art de la grande origine, on pourrait alors l'utiliser pour consumer la Porte Kong et ainsi devenir un cultivateur de la troisième étape!
+L'essence du feu faisait partie des cinq éléments. Ce n'est qu'en devenant un Feu Éthéré que celle-ci pouvait s'affranchir de ces cinq éléments. Si elle parvenait à évoluer davantage en feu Dao et à accomplir l'art de la grande origine, on pourrait alors l'utiliser pour consumer la Porte du Vide et ainsi devenir un cultivateur de la troisième étape!
 
 Le regard de Wang Lin était calme. Le Feu Éthéré était difficile à obtenir en raison de la graine de feu nécessaire au quatrième éveil de Suzaku! Cependant, n'étant pas disposé à brûler ce monde, il devait choisir la voie la plus exigeante.
 
