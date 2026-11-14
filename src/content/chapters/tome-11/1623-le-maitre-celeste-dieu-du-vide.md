@@ -26,7 +26,7 @@ Tout cela se produisit en un instant. Wang Lin avait repoussé le jeune homme, p
 
 « Réglons ce qui s'est passé autrefois. » Le regard de Wang Lin était glacial, bien qu'il restât serein. Il fixa Xushen Tianzun et s'avança vers lui.
 
-« Dao du Vide des Myriades de Nuages Rouges! » Xushen Tianzun laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables âmes de flammes jaillirent, grimaçantes, soulevant une multitude de nuages rouges incandescents. Dix mille statues gigantesques et floues émergèrent de ces nuages.
+« Dao du Vide des Myriades de Nuages Rouges! » Xushen Tianzun laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables âmes des Flammes d'Encens jaillirent, grimaçantes, soulevant une multitude de nuages rouges incandescents. Dix mille statues gigantesques et floues émergèrent de ces nuages.
 
 « Écrasez cet homme! Plongez-le dans la réincarnation du monde! Laissez-le tomber dans l'abîme parmi les étoiles afin que son âme ne puisse jamais s'en échapper d'un pouce! » rugit Xushen Tianzun en pointant le doigt. Les statues s'illuminèrent et s'abattirent sur Wang Lin, comme pour l'ensevelir sous la voûte étoilée.
 

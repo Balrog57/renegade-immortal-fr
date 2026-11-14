@@ -37,7 +37,7 @@ Les tornades bourdonnaient, et il semblait y avoir des silhouettes cachées en l
 
 Il agita sa main droite et projeta davantage de sphères d'éclairs violets. Cette fois, les éclairs contournèrent les tornades car il avait une nouvelle cible: la faille. Le vieil homme eut la même idée et pointa la faille de sa main droite.
 
-En conséquence, les quatre tornades réussirent à passer outre l'homme couvert d'écailles et chargèrent vers la créature longue de dix mille pieds. Bientôt, elles atteignirent la bête. Lorsque les sphères d'éclairs frappèrent la faille, celle-ci rétrécit peu à peu jusqu'à disparaître.
+En conséquence, les quatre tornades réussirent à passer outre l'homme couvert d'écailles et chargèrent vers la créature longue de cent mille pieds. Bientôt, elles atteignirent la bête. Lorsque les sphères d'éclairs frappèrent la faille, celle-ci rétrécit peu à peu jusqu'à disparaître.
 
 L'homme couvert d'écailles fut stupéfait. Sans un mot, il agita ses deux mains et toutes les sphères d'éclairs environnantes se précipitèrent soudainement vers les quatre tornades. Il n'avait plus le temps de contrôler le clone qui combattait Tuo Sen et s'élança lui-même vers les tourbillons.
 

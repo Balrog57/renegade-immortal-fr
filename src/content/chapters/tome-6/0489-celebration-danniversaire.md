@@ -55,7 +55,7 @@ Il se tenait actuellement au sommet de la brume violette, contemplant la planèt
 
 Les yeux de Zhao Xingsha brillèrent d'une lueur mystérieuse et ses lèvres formèrent un léger sourire. La brume violette commença soudainement à s'agiter; Zhao Xingsha retrouva alors son expression sereine et regarda au loin.
 
-Il aperçut un gigantesque char de guerre doré volant lentement vers la planète. Ce char, entièrement doré et hérissé d'innombrables piques menaçantes, était colossal, haut de plus de 3,3 kilomètres. Quatre bêtes démoniaques géantes tiraient l'engin, ce qui lui permettait d'avancer si rapidement. Avant même qu'il ne soit à portée, on pouvait entendre des rugissements tonitruants provenant de cette direction.
+Il aperçut un gigantesque char de guerre doré volant lentement vers la planète. Ce char, entièrement doré et hérissé d'innombrables piques menaçantes, était colossal, haut de plus de 10 000 pieds. Quatre bêtes démoniaques géantes tiraient l'engin, ce qui lui permettait d'avancer si rapidement. Avant même qu'il ne soit à portée, on pouvait entendre des rugissements tonitruants provenant de cette direction.
 
 Ces rugissements émanaient des quatre bêtes qui tiraient le char. Leurs corps étaient énormes et il s'agissait d'une espèce capable de voler sur de courtes distances dans l'espace. Bien qu'elles ne puissent utiliser aucun sort, elles ne devaient pas être sous-estimées.
 
@@ -63,7 +63,7 @@ Dix personnes se tenaient à dix endroits différents sur ce char de guerre. Ell
 
 Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce junior est Zhao Xingsha, disciple de la Division Pourpre de la Secte Tian Yun. Salutations, Senior Jin Mozi. »
 
-Lorsque le char s'arrêta à 330 mètres de lui, une aura puissante se verrouilla instantanément sur lui. C'étaient les regards venimeux des quatre bêtes féroces; certaines laissaient même couler de la bave au coin de leur gueule. Au sommet du char, les dix individus fixaient silencieusement Zhao Xingsha de leurs yeux froids.
+Lorsque le char s'arrêta à 1 000 pieds de lui, une aura puissante se verrouilla instantanément sur lui. C'étaient les regards venimeux des quatre bêtes féroces; certaines laissaient même couler de la bave au coin de leur gueule. Au sommet du char, les dix individus fixaient silencieusement Zhao Xingsha de leurs yeux froids.
 
 Une sueur froide perla sur le front de Zhao Xingsha. Il avait perdu une partie de son assurance car il connaissait l'identité de Jin Mozi. Ce dernier était le souverain d'une des petites planètes du système. Il régnait seul et de manière très autoritaire; si quelqu'un osait s'opposer à lui, il cherchait la vengeance quelles que soient les conséquences. C'était un excentrique qui favorisait excessivement ses propres partisans et pouvait tuer sans la moindre réflexion; d'innombrables vies s'étaient éteintes sur un simple caprice de sa part.
 

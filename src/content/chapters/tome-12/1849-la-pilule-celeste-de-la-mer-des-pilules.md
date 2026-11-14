@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1849 - Pill Sea’s Celestial Pill!"
 slug: la-pilule-celeste-de-la-mer-des-pilules
 ---
-La boussole entre les mains de la femme commença à se brouiller alors qu'elle continuait d'y apposer des sceaux. Elle était sur le point d'inverser le temps pour révéler la scène où Wang Lin se transformait en fumée afin de prendre possession de l'un des cultivateurs aux robes vertes.
+La boussole entre les mains de la femme commença à se brouiller alors qu'elle continuait d'y apposer des sceaux. Elle était sur le point d'inverser le temps pour révéler la scène où Wang Lin se transformait en fumée afin de prendre possession de l'un des cultivateurs.
 
 À cet instant, le groupe de cultivateurs dans lequel se trouvait Wang Lin se situait encore à 10 000 pieds de la femme. Le cultivateur contrôlé par Wang Lin fit un pas en avant et dépassa plusieurs autres membres du groupe. Tandis qu'ils le regardaient avec stupeur, il arriva derrière le cultivateur qui menait la marche.
 
@@ -30,7 +30,7 @@ Profitant de cet instant de stupéfaction, l'homme contrôlé par Wang Lin vola 
 
 Dès que Wang Lin apparut, le liquide noir qu'il avait projeté explosa. Cette substance semblable à de l'encre se répandit avec une rapidité effrayante, et tout ce qui se trouvait dans un rayon de 10 000 pieds devint noir!
 
-Les centaines de cultivateurs venaient à peine de réaliser ce qui arrivait lorsqu'ils poussèrent des cris déchirants. Leurs corps se décomposèrent instantanément pour se transformer en liquide noir. Même les plus d'une douzaine de cultivateurs aux robes vertes derrière Wang Lin ne purent s'échapper à temps et périrent tous.
+Les centaines de cultivateurs venaient à peine de réaliser ce qui arrivait lorsqu'ils poussèrent des cris déchirants. Leurs corps se décomposèrent instantanément pour se transformer en liquide noir. Même les plus d'une douzaine de cultivateurs du Continent Lu Mo derrière Wang Lin ne purent s'échapper à temps et périrent tous.
 
 Au même moment, un rugissement retentit derrière Wang Lin. La marionnette Yi Si, bien qu'ayant perdu son bras droit, chargea vers les trois drapeaux. Dans un fracas assourdissant, Yi Si brisa l'un des drapeaux avant de foncer sur les deux restants!
 

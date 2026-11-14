@@ -360,11 +360,11 @@ C'était exact. Alors que Wang Lin chargeait vers le sommet d'une montagne, Xu L
 
 La silhouette de Qiu Siping apparut dans le pavillon; il semblait épuisé et son souffle était court. Wang Lin entra et s'assit sur une chaise de pierre pour examiner son compagnon.
 
-Qiu Siping esquissa un sourire amer: « Cher compagnon, je vous ai attendu ici plus d'un demi-mois. Si je n'avais pas été certain que vous teniez vos promesses, je serais déjà parti. »
+Qiu Siping esquissa un sourire amer: « Cher Daoïste, je vous ai attendu ici plus d'un demi-mois. Si je n'avais pas été certain que vous teniez vos promesses, je serais déjà parti. »
 
 Wang Lin eut un air contrit: « Les bouleversements dans la Mer Xiu Mo ont provoqué une vague de meurtres et les sectes cherchent à étendre leur pouvoir, ce qui a retardé mon voyage. Je vous ai fait attendre. »
 
-Qiu Siping soupira: « Ce n'est pas grave. J'ai tué quelques cultivateurs avides au passage, j'en ai tiré profit. Cher compagnon, seriez-vous prêt à nous rendre dans cet endroit dès maintenant? »
+Qiu Siping soupira: « Ce n'est pas grave. J'ai tué quelques cultivateurs avides au passage, j'en ai tiré profit. Cher Daoïste, seriez-vous prêt à nous rendre dans cet endroit dès maintenant? »
 
 Wang Lin hocha la tête: « Très bien. Je vous en prie, montrez-moi le chemin. »
 

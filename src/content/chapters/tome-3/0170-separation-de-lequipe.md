@@ -58,7 +58,7 @@ Le visage sombre, il utilisa l'énergie spirituelle de son corps pour se stabili
 
 La gigantesque créature serpentine chutait rapidement dans le vide obscur.
 
-Il fallut environ une heure avant que la chute ne ralentisse et que le serpent percute le sol. La collision provoqua des ondes de choc qui résonnèrent longuement avant que le silence ne revienne.
+Il fallut une demi-heure avant que la chute ne ralentisse et que le serpent percute le sol. La collision provoqua des ondes de choc qui résonnèrent longuement avant que le silence ne revienne.
 
 Wang Lin prit une profonde inspiration et, sans un mot, poursuivit l'extraction de la moelle. À ce stade, le serpent ne tremblait plus et rien d'anormal ne se produisait. Après un certain temps, une goutte de liquide doré s'échappa de la colonne vertébrale de la bête, accompagnée d'un parfum suave. Wang Lin devint très sérieux et sortit avec précaution une fiole de jade.
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 225 - Take This To Refine A Pill
 slug: prends-ceci-pour-raffiner-une-pilule
 ---
-Dans la chambre située sous la place, une fissure apparut sur le couvercle du fourneau à pilules aux sept têtes de dragon que Li Muwan avait fabriqué. Dans un fracas retentissant, la fissure s'étendit du couvercle jusqu'au corps même du fourneau.
+Dans la chambre située sous la place, une fissure apparut sur le couvercle du fourneau à pilules aux sept dragons que Li Muwan avait fabriqué. Dans un fracas retentissant, la fissure s'étendit du couvercle jusqu'au corps même du fourneau.
 
 Au même instant, un rayon de lumière arc-en-ciel s'échappa de la brèche. La lueur devint de plus en plus éclatante à mesure que la fissure s'élargissait. Toute la chambre fut baignée d'une lumière multicolore; à cet instant, la pièce ressemblait à un pays féerique, enveloppée d'un éclat arc-en-ciel infini.
 

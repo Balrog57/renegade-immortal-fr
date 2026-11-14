@@ -47,11 +47,11 @@ La culture de cet homme, aux yeux de Mai Guorong, était aussi profonde que l'oc
 
 Xu Li ayant passé sa vie à étudier l'alchimie, il possédait un sens très aigu des fluctuations d'énergie spirituelle. Il pouvait presque imaginer combien de personnes cet homme avait dû tuer pour dégager une telle intention meurtrière. Il devait rester sur ses gardes, sous peine de catastrophe.
 
-Sur ce, il joignit rapidement les mains et dit: « Collègue cultivateur, je suis Xu Li de la Secte Hao Ran, et voici mon disciple. Monsieur semble pressé. Quel est le problème? Si je peux vous être utile, je le ferai sans tarder. »
+Sur ce, il joignit rapidement les mains et dit: « Daoïste, je suis Xu Li de la Secte Hao Ran, et voici mon disciple. Monsieur semble pressé. Quel est le problème? Si je peux vous être utile, je le ferai sans tarder. »
 
-Le jeune homme aux cheveux blancs était Wang Lin. Il balaya les deux cultivateurs du regard et ses yeux se posèrent sur Xu Li. Il joignit les mains et demanda: « Collègue cultivateur, dans quel pays de culture me trouvé-je? »
+Le jeune homme aux cheveux blancs était Wang Lin. Il balaya les deux cultivateurs du regard et ses yeux se posèrent sur Xu Li. Il joignit les mains et demanda: « Daoïste, dans quel pays de culture me trouvé-je? »
 
-Xu Li fut déconcerté. Il observa Wang Lin un instant avant de répondre: « Nous sommes dans le pays de culture Chu. D'où vient ce collègue? »
+Xu Li fut déconcerté. Il observa Wang Lin un instant avant de répondre: « Nous sommes dans le pays de culture Chu. D'où vient ce Daoïste? »
 
 « Le pays de culture Chu... » marmonna Wang Lin pour lui-même, sans répondre à la question. Il tapa sur son sac de rangement.
 
@@ -63,7 +63,7 @@ En entendant le nom de Chu, il eut l'impression de l'avoir déjà entendu quelqu
 
 On pouvait dire que le pays de culture Chu était très proche de cette chaîne de montagne. Selon les descriptions du jade, ce pays était vaste et abritait de nombreux cultivateurs. En tant que nation de culture, Chu était sur le point d'accéder au rang 4. Cela s'expliquait par la présence de plus de dix personnes au stade avancé de l'Âme Naissante; ces puissants cultivateurs constituaient le cœur du pays. Dès que l'un d'eux parviendrait au stade de la Formation de l'Âme, le pays entier serait élevé au rang 4. C'est d'ailleurs pour cette raison qu'après les bouleversements de Huo Fen, ses cultivateurs choisirent d'envahir Xuan Wu plutôt que Chu. Après tout, comparé à Chu, Xuan Wu était un choix bien plus opportun.
 
-Le jade contenait également des informations sur certaines sectes du pays de Chu. Wang Lin l'examina un instant, puis le rangea. Il regarda Xu Li et demanda: « Collègue cultivateur, dans quelle partie de Chu nous trouvons-nous? »
+Le jade contenait également des informations sur certaines sectes du pays de Chu. Wang Lin l'examina un instant, puis le rangea. Il regarda Xu Li et demanda: « Daoïste, dans quelle partie de Chu nous trouvons-nous? »
 
 Xu Li garda la main sur son sac de rangement, extrêmement vigilant. En entendant la question, il réfléchit un instant avant de répondre: « Nous sommes dans la chaîne de montagnes Yun Tian! »
 

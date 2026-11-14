@@ -86,7 +86,7 @@ Puis, d'un signe de tête envers Ouyang Tian, il disparut.
 
 L'expression d'Ouyang Tian devint plus complexe encore. Il secoua la tête dans un soupir et retourna vers son anneau doré.
 
-« Le pouvoir de lignée du Clan Ju Mo est extrêmement puissant, mais leur patriarche vient à peine d'atteindre le stade de la Transformation de l'Âme; il ne peut donc pas l'utiliser pleinement. Il ne peut s'en servir que pour téléporter quelqu'un dans le vide, au-delà de Suzaku. » Wang Lin n'avait pas quitté la Secte Lian Hun mais s'était assis au sommet de la Montagne de l'Affinement, le regard étincelant.
+« Le pouvoir de lignée du Clan Ju Mo est extrêmement puissant, mais leur patriarche vient à peine d'atteindre le stade de la Transformation de l'Âme; il ne peut donc pas l'utiliser pleinement. Il ne peut s'en servir que pour téléporter quelqu'un dans le vide, au-delà de Suzaku. » Wang Lin n'avait pas quitté la Secte Lian Hun mais s'était assis au sommet du Pic Lian Hun, le regard étincelant.
 
 À l'intérieur du jade, Dun Tian avait consigné une description très détaillée du pouvoir de lignée du Clan Ju Mo.
 

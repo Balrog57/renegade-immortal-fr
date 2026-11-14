@@ -22,7 +22,7 @@ Ses cheveux blancs flottaient derrière lui de manière sinistre et des bruits d
 
 Ces dix ongles étaient d'un rouge violacé et paraissaient extrêmement démoniaques! L'énergie démoniaque autour de son corps se condensa en une armure pourpre. Il s'agissait d'une armure démoniaque que les membres du clan de l'ancien démon pouvaient créer une fois qu'ils atteignaient huit étoiles!
 
-Revêtu de cette armure, Wang Lin s'assit sur l'autel. L'ombre de l'Ancien se dissipa pour laisser place à une immense ombre d'ancien démon. Il avait une corne unique sur la tête, son corps entier était d'un vert éclatant et ses yeux projetaient une lumière étrange. Elle flottait derrière Wang Lin, dans une posture assise.
+Revêtu de cette armure, Wang Lin s'assit sur l'autel. L'ombre de Dao Gu se dissipa pour laisser place à une immense ombre d'ancien démon. Il avait une corne unique sur la tête, son corps entier était d'un vert éclatant et ses yeux projetaient une lumière étrange. Elle flottait derrière Wang Lin, dans une posture assise.
 
 Les cheveux de l'ancien démon ondulaient dans l'air et s'étendaient sur des milliers de pieds de long. De loin, sa chevelure ressemblait à de la fumée!
 
@@ -76,19 +76,19 @@ Un ancien dieu de huit étoiles!
 
 Wang Lin avait cultivé pendant plus de 2 000 ans. À travers diverses fortunes et des situations de vie ou de mort, il était arrivé à ce stade pour devenir un ancien dieu de huit étoiles! Non seulement il était un ancien dieu, mais il était aussi un ancien démon de huit étoiles et un ancien diable de huit étoiles!
 
-Lorsque les trois fusionneraient en un seul, avec l'ancien dieu comme corps principal, ils deviendraient un Être Ancien! Les yeux de Wang Lin brillèrent d'une lumière étrange alors que vingt-quatre étoiles tournaient simultanément. L'aura d'un Être Ancien se propagea, remplissant les étoiles.
+Lorsque les trois fusionneraient en un seul, avec l'ancien dieu comme corps principal, ils deviendraient un Dao Gu! Les yeux de Wang Lin brillèrent d'une lumière étrange alors que vingt-quatre étoiles tournaient simultanément. L'aura de Dao Gu se propagea, remplissant les étoiles.
 
 Un sentiment de puissance brute envahit l'esprit de Wang Lin. Il serra les poings avec acharnement. Il savait que ce qu'il allait affronter maintenant était la véritable calamité!
 
 La troisième épreuve des clans anciens, où les trois viendraient à la fois!
 
-Cette troisième épreuve comportait trois calamités: la première étant le Sang Céleste de la Race Ancienne! La deuxième, les Trois Distractions du Dao Ancien! Et quant à la troisième, c'était la plus redoutable des calamités affrontées par les Êtres Anciens: la Bénédiction de l'Ancêtre Ancien!
+Cette troisième épreuve comportait trois calamités: la première étant le Sang Céleste de la Race Ancienne! La deuxième, les Trois Distractions du Dao Ancien! Et quant à la troisième, c'était la plus redoutable des calamités des individus des trois clans anciens: la Bénédiction de l'Ancêtre Ancien!
 
 Wang Lin ne connaissait pas tous les détails. Bien qu'il ait reçu l'héritage de Ye Mo, ses souvenirs étaient limités. Il savait seulement que pour affronter les deux dernières calamités, surtout la dernière, il devrait se rendre au temple ancien du Pays Ancien sur le Continent Xian Gang.
 
 Chaque fois qu'un membre du Pays Ancien atteignait la dernière calamité, un événement grandiose était organisé dans tout le pays. Une cérémonie solennelle avait lieu! Dao Gu Ye Mo avait traversé la dernière calamité dans le temple ancien. Il avait ensuite obtenu le titre de Dao Gu et était devenu l'un des piliers du Pays Ancien, admiré par cent millions de personnes. Même les célestes accordaient une importance capitale à cette ultime épreuve des clans anciens.
 
-Alors que Wang Lin restait assis sur l'autel, son corps fut enveloppé par une aura d'Être Ancien encore plus puissante pour affronter la première calamité de la troisième épreuve. Une fois cette étape franchie, il deviendrait un véritable ancien dieu de huit étoiles!
+Alors que Wang Lin restait assis sur l'autel, son corps fut enveloppé par une aura de Dao Gu encore plus puissante pour affronter la première calamité de la troisième épreuve. Une fois cette étape franchie, il deviendrait un véritable ancien dieu de huit étoiles!
 
 Avec le pouvoir de huit étoiles issu des trois clans anciens, même sans sa culture, Wang Lin serait confiant dans sa capacité à surpasser les cultivateurs du stade initial du Vide Arcanique. Si son niveau de culture augmentait encore avec la formation de la septième essence, même les cultivateurs du milieu du stade du Vide Arcanique ne feraient pas le poids une fois sa culture et son pouvoir d'Ancien fusionnés. Il pourrait directement combattre des cultivateurs du stade avancé du Vide Arcanique!
 
@@ -96,7 +96,7 @@ Le Sang Céleste de la Race Ancienne, la calamité est arrivée!
 
 La soi-disant calamité du Sang Céleste exigeait que l'on condense toute la puissance des trois clans en une seule goutte de sang. Cette goutte était tout pour celui qui affrontait cette épreuve! Elle devait être utilisée pour percer les cieux et être offerte en sacrifice à la race ancienne. Une fois la reconnaissance de l'Ancêtre Ancien obtenue, peu importe où vous vous trouviez, une goutte de sang vous serait renvoyée.
 
-Cette goutte fusionnerait avec celle formée par l'essence de la personne subissant la calamité. Une fois la fusion accomplie, le corps reconstruit posséderait la véritable lignée des Êtres Anciens! Cette lignée était l'égale de la lignée céleste!
+Cette goutte fusionnerait avec celle formée par l'essence de la personne subissant la calamité. Une fois la fusion accomplie, le corps reconstruit posséderait la véritable lignée ancienne! Cette lignée était l'égale de la lignée céleste!
 
 La difficulté de cette calamité ne résidait pas dans la douleur de condenser cette goutte, mais dans l'obtention de la reconnaissance de l'Ancêtre Ancien. Ce n'était pas une chose à la portée de tous! Même avec cette reconnaissance, la quantité de sang reçue variait selon le degré de faveur accordé. Si elle était ordinaire, on ne recevait qu'une goutte; si elle était élevée, on pouvait en obtenir deux.
 

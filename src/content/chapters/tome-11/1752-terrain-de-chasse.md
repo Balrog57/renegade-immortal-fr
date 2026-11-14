@@ -44,7 +44,7 @@ Il en allait de même pour le Vieux Fantôme Zhan. L'ombre qui l'entourait fixai
 
 Les deux n'accordèrent aucune importance aux paroles de Wang Lin, mais les autres ressentirent un frisson dans leur cœur. En particulier les quatre généraux et les concubines qui, tout en reculant, réfléchissaient silencieusement.
 
-Le temps passa lentement. Une heure après l'entrée de Wang Lin, la porte s'ouvrit complètement. À cet instant précis, la tempête se déchaîna avec une violence folle, repoussant chacun à des dizaines de milliers de pieds. Pourtant, soudainement, la tempête disparut.
+Le temps passa lentement. Une demi-heure après l'entrée de Wang Lin, la porte s'ouvrit complètement. À cet instant précis, la tempête se déchaîna avec une violence folle, repoussant chacun à des dizaines de milliers de pieds. Pourtant, soudainement, la tempête disparut.
 
 C'était comme si elle n'avait jamais existé. La force qui bloquait tout le monde s'était évanouie, révélant clairement la porte devant eux!
 

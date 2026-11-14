@@ -16,11 +16,11 @@ Wang Lin n'utilisa pas la Distorsion Spatiale pour se précipiter vers le Clan A
 
 « Ce voyage au clan Ancien ne devrait présenter aucun danger de mort. Après tout, le Maître Xuan Luo est là-bas... » Après un long moment, Wang Lin ouvrit les yeux. Le ciel était bleu et limpide, et la chaleur du soleil se posait sur son corps sous une lumière éclatante.
 
-« Une fois au clan Ancien, je devrai rester calme. Durant ma culture silencieuse, je dois accomplir ma promesse au Maître. Je dois protéger l'Ancien Dao et garder la réincarnation du Maître. Après tout, j'appartiens au clan Ancien... » Wang Lin laissa échapper un soupir mélancolique.
+« Une fois au clan Ancien, je devrai rester calme. Durant ma culture silencieuse, je dois accomplir ma promesse au Maître. Je dois protéger le Dao Gu et garder la réincarnation du Maître. Après tout, j'appartiens au clan Ancien... » Wang Lin laissa échapper un soupir mélancolique.
 
 « Malheureusement, dans le clan Céleste, je n'ai trouvé ni Qing Shui, ni Situ Nan... Et je n'ai pas trouvé non plus... Li Qianmei. Quel dommage. Peu importe. Lorsque je retournerai au clan Céleste, j'en trouverai peut-être la trace. » Wang Lin soupira de nouveau. Avant de partir, il avait déployé son Sens Divin pour les chercher, mais sans succès.
 
-« Je ne me rendrai ni vers l'Ancien Shi, ni vers l'Ancien Ji, mais vers la cité impériale de l'Ancien Dao. Je me demande comment elle se compare à la cité ancestrale du clan Céleste. » Wang Lin fixa silencieusement l'horizon.
+« Je ne me rendrai ni vers l'Ancien Shi, ni vers l'Ancien Ji, mais vers la cité impériale du Dao Gu. Je me demande comment elle se compare à la cité ancestrale du clan Céleste. » Wang Lin fixa silencieusement l'horizon.
 
 « Ma culture est encore insuffisante; je dois donc entrer en culture fermée au sein du clan Ancien et m'efforcer de devenir un Grand Empyréen. Une fois ma promesse au Maître accomplie, j'irai chercher l'âme de Wan Er... » En pensant à Li Muwan, les yeux de Wang Lin se remplirent de tristesse.
 
@@ -28,7 +28,7 @@ Wang Lin n'utilisa pas la Distorsion Spatiale pour se précipiter vers le Clan A
 
 Auparavant, il ne pouvait l'ouvrir sans endommager son espace de stockage, mais désormais, il le faisait avec aisance. Il pouvait parfaitement compenser la force entre le Monde des Grottes et le Continent Xian Gang afin que son espace de stockage ne soit pas détruit. L'épée de sang qui avait rendu Wang Lin célèbre dans le Monde des Grottes s'envola, dégageant une intention meurtrière sous l'éclat du soleil.
 
-« Cet objet appartient au clan de l'Ancien Dao... » Wang Lin saisit l'épée et la toucha délicatement. L'intention meurtrière sembla s'animer de joie en s'enroulant autour de ses doigts.
+« Cet objet appartient au clan Dao Gu... » Wang Lin saisit l'épée et la toucha délicatement. L'intention meurtrière sembla s'animer de joie en s'enroulant autour de ses doigts.
 
 « Elle appartenait à Ye Mo... Lorsque j'ai obtenu la tête de Ye Mo, j'avais promis d'être bienveillant envers ses descendants. Lors de ce voyage au clan Ancien, je dois les trouver... » Tenant l'épée de sang, Wang Lin fit un geste et elle s'élança dans le ciel. Après un long moment, des grondements sourds résonnèrent.
 
@@ -40,7 +40,7 @@ Une fois le sceau rompu, l'intention meurtrière émanant de l'épée devint enc
 
 Son corps entier était couvert d'une armure et, dans sa main droite, elle brandissait une fine épée de sang. Une arme qui semblait capable de fendre le ciel!
 
-« La terre natale de Ye Mo, là où se trouve le Maître, l'Ancien Dao... Le lieu que je dois protéger. Je me demande quel genre d'endroit c'est. » Wang Lin regarda l'épée de sang avant de la ranger. L'ombre disparut, révélant à nouveau la clarté du ciel.
+« La terre natale de Ye Mo, là où se trouve le Maître, le Dao Gu... Le lieu que je dois protéger. Je me demande quel genre d'endroit c'est. » Wang Lin regarda l'épée de sang avant de la ranger. L'ombre disparut, révélant à nouveau la clarté du ciel.
 
 « Après avoir absorbé le fragment d'épée, mon essence de métal est complète et les cinq éléments fusionnent en un seul. Mon niveau de culture a augmenté. » La culture de Wang Lin différait de celle des autres; il avait besoin d'essences. Ce n'était qu'avec elles que son niveau pouvait progresser.
 

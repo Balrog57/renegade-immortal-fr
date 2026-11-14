@@ -22,7 +22,7 @@ Soudain, la mer de liquide rouge se fendit en deux, comme si de gigantesques mai
 
 Sans plus hésiter, Wang Lin atterrit pour enregistrer l'ancien réseau de transfert sur un morceau de jade. Il s'envola de nouveau et agita la main pour récupérer le drapeau de restriction.
 
-Une fois le drapeau revenu à Wang Lin, le liquide rouge recouvrit à nouveau le réseau de transfert. Une à une, des plantes encore plus grandes commencèrent à envahir la zone. Leur hauteur atteignait déjà plus d'une centaine de mètres, soit plus de trois fois leur taille précédente.
+Une fois le drapeau revenu à Wang Lin, le liquide rouge recouvrit à nouveau le réseau de transfert. Une à une, des plantes encore plus grandes commencèrent à envahir la zone. Leur hauteur atteignait déjà plusieurs centaines de pieds, soit plus de trois fois leur taille précédente.
 
 Flottant dans les airs, Wang Lin observa le jade avec une expression grave. Après un long moment de réflexion, il s'éloigna sans dire un mot.
 
@@ -114,6 +114,6 @@ Des cercles de lumière apparurent. Au moment où le réseau s'ouvrit, Wang Lin 
 
 Le réseau fut pleinement activé et la silhouette de Wang Lin commença à disparaître. Juste avant de s'effacer, il agita la main pour faire revenir le drapeau de restriction.
 
-Une fois sa disparition consommée, le liquide rouge recouvrit immédiatement le réseau et des plantes hautes de plus d'une centaine de mètres commencèrent à croître. La végétation était si dense qu'avec les craquements de la croissance, le réseau de transfert finit par se briser sous la pression, des plantes poussant dans ses fissures.
+Une fois sa disparition consommée, le liquide rouge recouvrit immédiatement le réseau et des plantes hautes de plusieurs centaines de pieds commencèrent à croître. La végétation était si dense qu'avec les craquements de la croissance, le réseau de transfert finit par se briser sous la pression, des plantes poussant dans ses fissures.
 
 Désormais, même muni d'une carte, il serait presque impossible de deviner qu'un ancien réseau de transfert se cachait en ce lieu.

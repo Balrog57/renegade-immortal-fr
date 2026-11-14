@@ -93,7 +93,7 @@ Le cœur de l'Empereur Antique rata un battement. Il consomma rapidement une pil
 
 Cependant, la lumière de la pagode faiblit. L'âme de Wang Lin envoya un nouveau message. Cette fois, plus de dix mille âmes errantes se condensèrent en ombres et fixèrent la pagode. Le cœur de l'Empereur Antique s'emballa. C'était mauvais. Il fit un geste rapide pour envoyer des vagues de lumière dans la pagode. À chaque vague, son visage pâlissait davantage. Après la dernière salve, il était blanc comme la craie et sa culture chuta au stade intermédiaire de l'Âme Naissante.
 
-Simultanément, les âmes errantes se coordonnèrent en vagues pour assaillir la lumière. Cependant, elles s'enflammèrent dès qu'elles tentaient d'approcher, ne parvenant pas à franchir la barre des 33 mètres autour de l'Empereur Antique. La distance restait grande.
+Simultanément, les âmes errantes se coordonnèrent en vagues pour assaillir la lumière. Cependant, elles s'enflammèrent dès qu'elles tentaient d'approcher, ne parvenant pas à franchir la barre des cent pieds autour de l'Empereur Antique. La distance restait grande.
 
 L'Empereur Antique laissa échapper un rire désespéré. Il avait fait tout ce qu'il pouvait. Le nombre d'âmes était trop colossal pour sa résistance. Même les anciens d'il y a mille ans avaient été consumés par elles. Comment lui, dont la culture était si affaiblie, pouvait-il espérer survivre? Il craignait de manquer de Qi et de ne plus pouvoir maintenir la pagode, avant d'être submergé.
 

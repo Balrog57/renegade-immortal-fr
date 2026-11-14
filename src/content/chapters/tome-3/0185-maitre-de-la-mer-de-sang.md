@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 185 - Master of the Blood Sea
 slug: maitre-de-la-mer-de-sang
 ---
-L'individu qui se tenait là mesurait plus de 33 mètres de haut. Il portait une armure violet sombre d'où jaillissaient plusieurs épines osseuses extrêmement acérées, qui diffusaient un éclat glacial.
+L'individu qui se tenait là mesurait plus de cent pieds de haut. Il portait une armure violet sombre d'où jaillissaient plusieurs épines osseuses extrêmement acérées, qui diffusaient un éclat glacial.
 
 Ses cheveux noirs flottaient derrière sa tête sans qu'un souffle de vent ne les agite. Son visage était d'une grande beauté, aux traits tranchants. Il avait quelque chose de sinistre et de démoniaque, surtout à cause de ses lèvres légèrement minces, qui lui donnaient un air dur et impitoyable.
 
@@ -88,7 +88,7 @@ Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais Meng Tuozi ét
 
 Cependant, même si le poison était inoffensif, la force de percussion des huit épines était comparable à celle de huit épées volantes. N'importe qui d'autre aurait vu sa paume transpercée, mais le corps démoniaque de Meng Tuozi avait atteint une dureté inimaginable. Lorsque les épines frappèrent sa main, elles se brisèrent en deux sous l'impact.
 
-Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Meng Tuozi ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa culture était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de trois cent trente mètres de Meng Tuozi.
+Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Meng Tuozi ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa culture était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de mille pieds de Meng Tuozi.
 
 Le visage de Meng Tuozi s'assombrit. Fixant la direction de l'échappée, il agita la main droite et déchira l'espace. Un Sens Divin extrêmement autoritaire jaillit de la faille, balaya les environs puis enveloppa l'intégralité du Nirvana de la troisième épreuve, tout en contournant soigneusement l'endroit où le dévoreur d'âmes dormait.
 
@@ -108,7 +108,7 @@ Le Sens Divin du messager scanna rapidement le troisième essai et localisa Wang
 
 Le Seigneur Démon des Six Désirs poussa un gémissement et serra les dents. Sans hésiter, il sacrifia un autre désir pour réactiver l'Évasion par le Désir Sanguin. Cette fois, son corps peina à supporter la technique et il cracha une bouchée de sang. Les âmes errantes en lui commencèrent à le dévorer; il afficha un sourire amer et chargea en avant.
 
-Le Sens Divin scanna de nouveau le Seigneur Démon des Six Désirs mais n'intervint pas cette fois. Après un bref examen, il partit vers la sortie du troisième essai, où il vit Wang Lin à 3,3 kilomètres du but. Le Sens Divin projeta une vague ciblant l'homme. Wang Lin remarqua l'attaque dès son apparition. Bien que très puissante, elle lui parut étrange; il sentait que quelque chose clochait.
+Le Sens Divin scanna de nouveau le Seigneur Démon des Six Désirs mais n'intervint pas cette fois. Après un bref examen, il partit vers la sortie du troisième essai, où il vit Wang Lin à dix mille pieds du but. Le Sens Divin projeta une vague ciblant l'homme. Wang Lin remarqua l'attaque dès son apparition. Bien que très puissante, elle lui parut étrange; il sentait que quelque chose clochait.
 
 En subissant l'attaque, il réalisa soudainement l'anomalie: ce Sens Divin n'appartenait pas à un cultivateur, mais à une âme errante sur le point de devenir un dévoreur d'âmes. C'était la première fois que Wang Lin rencontrait une âme errante d'une telle envergure, mais une âme errante restait une âme errante. Tant qu'elle n'était pas devenue un dévoreur d'âmes, elle demeurait inférieure à ces derniers, malgré sa taille. Le fossé à franchir était immense.
 

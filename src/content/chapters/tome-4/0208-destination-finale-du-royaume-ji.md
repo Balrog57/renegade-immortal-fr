@@ -100,7 +100,7 @@ Wang Lin acquiesça. Il s'assit rapidement à l'arrière du bateau et pointa son
 
 Simultanément, il frappa son sac de rangement d'où sortit la bannière de restriction. Cette fois, sous son contrôle, elle enveloppa son corps.
 
-Peu après, une voix froide émana du brouillard noir: « Cher compagnon Qiu, je vais entrer en culture isolée pendant deux jours, ne me dérangez pas. »
+Peu après, une voix froide émana du brouillard noir: « Daoïste Qiu, je vais entrer en culture isolée pendant deux jours, ne me dérangez pas. »
 
 Qiu Siping accepta immédiatement. Après un regard vers le brouillard noir, il se détourna pour se concentrer sur la conduite du bateau afin d'accélérer la course.
 
