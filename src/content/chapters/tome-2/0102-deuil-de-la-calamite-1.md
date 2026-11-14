@@ -56,7 +56,7 @@ Le sang et les membres volaient dans les airs. Wang Lin fit volte-face et s'enfu
 
 Après avoir parcouru une grande distance, Wang Lin s'arrêta à la lisière d'une jungle. Il avait le sentiment d'avoir enfin découvert la véritable férocité de la Secte Shi Yin. S'il n'avait pas empêché ce cultivateur de broyer le jade, il serait devenu la nourriture de ces créatures.
 
-Wang Lin eut un rire froid dans son cœur. Il savait que la Vallée Jue Ming était extrêmement dangereuse, car les sectes orthodoxes et démoniaques y étaient toutes rassemblées pour la compétition visant à obtenir le droit d'accéder au champ de bataille étranger. Wang Lin ne voulait pas s'immiscer dans ces troubles; il comptait trouver la sortie pour quitter cet endroit. Pour l'instant, il voulait simplement trouver des lieux imprégnés d'un Yin extrême pour se consacrer à une culture en porte close et devenir plus fort.
+Wang Lin eut un rire froid dans son cœur. Il savait que la Vallée Jue Ming était extrêmement dangereuse, car les sectes orthodoxes et démoniaques y étaient toutes rassemblées pour la compétition visant à obtenir le droit d'accéder au champ de bataille étranger. Wang Lin ne voulait pas s'immiscer dans ces troubles; il comptait trouver la sortie pour quitter cet endroit. Pour l'instant, il voulait simplement trouver des lieux imprégnés d'un Yin extrême pour se consacrer à une culture en isolement et devenir plus fort.
 
 Plus il côtoyait le monde de la culture, plus les dangers s'intensifiaient. Il avait l'impression qu'un seul faux pas pourrait lui être fatal. Mais puisqu'il était déjà entré dans ce monde, la seule façon d'assurer sa sécurité était de gagner en puissance.
 

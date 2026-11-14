@@ -130,7 +130,7 @@ Toute la Secte Da Hun était en émoi. Même certains des vieux monstres en cult
 
 Le rugissement résonnait dans son esprit et continuait de marteler son âme originelle. Bien qu'il paraisse calme, sa vision devenait floue.
 
-Cette confusion fut remarquée par Yan Luan, par les innombrables cultivateurs de la Secte Da Hun et par les vieux monstres en retraite méditative!
+Cette confusion fut remarquée par Yan Luan, par les innombrables cultivateurs de la Secte Da Hun et par les vieux monstres en isolement!
 
 « Il est sur le point d'échouer! » Un sourire de joie apparut sur le visage de Yan Luan.
 

@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2040 - Don’t Talk About It!"
 slug: ne-parlons-pas-de-ca
 ---
-Alors que l'ensemble du Continent Xian Gang alternait entre l'ombre et la lumière, au Mont Di, le Grand Empyréen Jiu Di sortit de sa retraite en porte clos. Il scruta l'horizon et son expression changea.
+Alors que l'ensemble du Continent Xian Gang alternait entre l'ombre et la lumière, au Mont Di, le Grand Empyréen Jiu Di sortit de son isolement. Il scruta l'horizon et son expression changea.
 
 « C'est donc bien le Royaume Divin Immémorial... Il s'ouvre depuis le Clan Ancien cette fois... Et bien plus tôt que prévu... L'ouverture du Royaume Divin Immémorial ne devrait pas se produire si tôt. Cela signifie que... »
 
@@ -18,13 +18,13 @@ Alors que l'ensemble du Continent Xian Gang alternait entre l'ombre et la lumiè
 
 « Si la porte s'ouvre totalement, alors il pourrait exister un moyen pour les Grands Empyréens de transcender leur niveau actuel et d'atteindre celui de l'Ancêtre Céleste! »
 
-Au sein du Clan Céleste, dans la Secte Dao Yi, les années avaient transformé ces terres en un lieu lugubre. D'innombrables puissants y avaient péri, et le Grand Empyréen Dao Yi était resté en retraite prolongée, rendant la population de ce secteur clairsemée.
+Au sein du Clan Céleste, dans la Secte Dao Yi, les années avaient transformé ces terres en un lieu lugubre. D'innombrables puissants y avaient péri, et le Grand Empyréen Dao Yi était resté en isolement prolongé, rendant la population de ce secteur clairsemée.
 
 Pourtant, à cet instant, un rugissement retentit à la Secte Dao Yi. Tandis que l'écho résonnait, l'un des monts s'effondra et une silhouette enveloppée de brumes grises en jaillit. Cette figure, d'une allure féroce, fixait l'horizon.
 
 « Le Royaume Divin Immémorial!! Il pourrait y avoir là-bas un moyen pour moi de me débarrasser définitivement de la malédiction et de faire progresser ma culture! »
 
-Au sein de la Secte Zi Yang, les deux adorables fillettes étaient en retraite. Les yeux de l'Ancêtre Céleste se trouvaient entre elles deux, émettant une étrange lumière qui les reliait. À cet instant, elles ouvrirent les yeux simultanément et regardèrent dans la même direction. Leurs regards semblaient transpercer les murs pour embrasser le monde extérieur.
+Au sein de la Secte Zi Yang, les deux adorables fillettes étaient en isolement. Les yeux de l'Ancêtre Céleste se trouvaient entre elles deux, émettant une étrange lumière qui les reliait. À cet instant, elles ouvrirent les yeux simultanément et regardèrent dans la même direction. Leurs regards semblaient transpercer les murs pour embrasser le monde extérieur.
 
 Wu Feng fut le premier du Clan Céleste à remarquer ce phénomène; il se tenait sur un iceberg, l'œil chargé d'anticipation.
 

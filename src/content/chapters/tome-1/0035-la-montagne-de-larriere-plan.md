@@ -18,7 +18,7 @@ L'homme à ses côtés éclata de rire: « Tu exagères, mon frère. Le Junior f
 
 Le visage de Sun Dazhu oscilla entre le rouge et le blanc pendant un instant. Il lança un regard sévère à Wang Lin, poussa un grognement mécontent et, ignorant le garçon, retourna s'asseoir.
 
-L'homme en robe bleue fronça les sourcils. Il jeta un ultime regard sur Wang Lin avant de passer à autre chose: « Comme annoncé précédemment, ces quatre années d'entraînement intensif doivent porter leurs fruits. Nous devons impérativement l'emporter lors de la compétition contre la Secte Xuan Dao. À compter d'aujourd'hui, vous intégrerez la montagne arrière. Chacun aura son propre lieu de culture: retirez-vous-y en méditation fermée pour élever votre culture. Pour cette occasion, la secte mettra à votre disposition 10 000 pilules de rassemblement de Qi. Aucun d'entre vous n'est autorisé à quitter la montagne durant cette période. Vous l'avez bien retenu? »
+L'homme en robe bleue fronça les sourcils. Il jeta un ultime regard sur Wang Lin avant de passer à autre chose: « Comme annoncé précédemment, ces quatre années d'entraînement intensif doivent porter leurs fruits. Nous devons impérativement l'emporter lors de la compétition contre la Secte Xuan Dao. À compter d'aujourd'hui, vous intégrerez la montagne arrière. Chacun aura son propre lieu de culture: retirez-vous-y en isolement pour élever votre culture. Pour cette occasion, la secte mettra à votre disposition 10 000 pilules de rassemblement de Qi. Aucun d'entre vous n'est autorisé à quitter la montagne durant cette période. Vous l'avez bien retenu? »
 
 Tous les disciples internes répondirent d'une seule voix.
 

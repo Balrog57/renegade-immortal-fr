@@ -92,7 +92,7 @@ Wang Lin se frotta le nez. Il ne s'en souvenait vraiment absolument pas.
 
 « Le patriarche Dun Tian? » Les yeux de Wang Lin s'illuminèrent.
 
-« Ce n'est pas un secret que je te cache maintenant, puisque tu vas devenir membre de la secte interne. Notre Secte Lian Hun possède deux patriarches au stade de la Transformation de l'Âme; l'un d'eux est le patriarche Dun Tian. Vois-tu ces anneaux dorés? Derrière eux se trouvent encore deux anneaux de sang: ce sont les lieux de retraite des deux patriarches. »
+« Ce n'est pas un secret que je te cache maintenant, puisque tu vas devenir membre de la secte interne. Notre Secte Lian Hun possède deux patriarches au stade de la Transformation de l'Âme; l'un d'eux est le patriarche Dun Tian. Vois-tu ces anneaux dorés? Derrière eux se trouvent encore deux anneaux de sang: ce sont les lieux d'isolement des deux patriarches. »
 
 Wang Lin leva les yeux. Il pouvait distinguer une faible ombre rouge sang derrière les neuf anneaux dorés.
 

@@ -138,7 +138,7 @@ Dans le ciel surplombant la ville flottait un imposant homme chauve, un python g
 
 Il portait sur lui de nombreux sacs de rangement qui émettaient des ondes de pression dues à la puissance spirituelle qu'ils contenaient.
 
-Cet homme était l'un des gardiens de la ville de Lian Mo. Il était en méditation fermée lorsqu'il apprit la dissipation du sang de l'âme de son disciple. Fou de rage, il sortit de sa retraite et envoya ce message pour traquer le meurtrier.
+Cet homme était l'un des gardiens de la ville de Lian Mo. Il était en isolement lorsqu'il apprit la dissipation du sang de l'âme de son disciple. Fou de rage, il sortit de son isolement et envoya ce message pour traquer le meurtrier.
 
 Pour empêcher toute fuite, il avait ordonné le blocage des portes de la ville. Ayant obtenu une description du coupable auprès des témoins, il déployait son sens divin sur toute la cité.
 
@@ -206,7 +206,7 @@ Nombreux furent ceux qui virent le combat, y compris des cultivateurs de l'Âme 
 
 Même les trois gardiens n'osèrent pas confronter Wang Lin. Dans la Mer Xiu Mo, la force était la seule loi. Ils devaient également rapporter l'incident au seigneur de la ville de Lian Mo.
 
-Cependant, le seigneur de la ville étant presque toujours en méditation fermée, l'affaire risquait d'être classée ainsi. Après tout, la puissance du jeune homme semblait égaler celle d'un stade intermédiaire ou avancé de l'Âme Naissante.
+Cependant, le seigneur de la ville étant presque toujours en isolement, l'affaire risquait d'être classée ainsi. Après tout, la puissance du jeune homme semblait égaler celle d'un stade intermédiaire ou avancé de l'Âme Naissante.
 
 Les trois hommes se regardèrent et, dans un soupir collectif, partirent.
 

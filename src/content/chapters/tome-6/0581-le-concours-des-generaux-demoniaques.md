@@ -38,7 +38,7 @@ Le sentiment de Mo Lihai changea à nouveau. Si Wang Lin ressemblait auparavant 
 
 Mo Lihai prit une profonde inspiration et dit: « J'ai perdu le combat contre Mo Fei! »
 
-Wang Lin hocha la tête et sortit de la pièce. Il leva les yeux vers le ciel et, après une courte réflexion, demanda: « Combien de temps suis-je resté en culture de retraite? »
+Wang Lin hocha la tête et sortit de la pièce. Il leva les yeux vers le ciel et, après une courte réflexion, demanda: « Combien de temps suis-je resté en isolement? »
 
 « Demain a lieu le concours des généraux démoniaques! » répondit Mo Lihai. Après un instant de réflexion, il ajouta: « Mo Fei est extrêmement puissant. Il a pu résister à mon Intention du Poing de l'Effondrement des Dix, et ma Mer Démoniaque aux Cent Vagues a été renvoyée contre moi par un sort de disque rotatif. C'est ce sort qui m'a fait perdre! »
 

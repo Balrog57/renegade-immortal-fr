@@ -32,7 +32,7 @@ Le plus content fut Lu Song, qui devint le grand Senior frère des disciples int
 
 Quant à Huang Long et aux autres, ils n'avaient guère eu de contacts approfondis avec Wang Lin. Ils ne l'avaient remarqué qu'après son apparition soudaine; après quatre ans sans nouvelles, ils l'avaient peu à peu oublié.
 
-Durant la première année de la réclusion de Wang Lin, il garda des contacts réguliers avec Zhou Peng. Il apprit ainsi que tous les cultivateurs de la Secte Xuan Dao au stade de l'Établissement des Fondations et au-delà s'étaient retirés dans la montagne arrière, si bien que nul n'avait remarqué l'anomalie de Zhou Peng. Grâce au statut de disciple principal de Zhou Peng, personne n'osait s'en prendre à lui au sein de la secte, ce qui facilita ses recherches. Zhou Peng élimina en secret plusieurs anciens disciples de la Secte Heng Yue qui avaient leurs propres idées, et le souvenir de Wang Lin disparut peu à peu de toutes les mémoires.
+Durant la première année de l'isolement de Wang Lin, il garda des contacts réguliers avec Zhou Peng. Il apprit ainsi que tous les cultivateurs de la Secte Xuan Dao au stade de l'Établissement des Fondations et au-delà s'étaient retirés dans la montagne arrière, si bien que nul n'avait remarqué l'anomalie de Zhou Peng. Grâce au statut de disciple principal de Zhou Peng, personne n'osait s'en prendre à lui au sein de la secte, ce qui facilita ses recherches. Zhou Peng élimina en secret plusieurs anciens disciples de la Secte Heng Yue qui avaient leurs propres idées, et le souvenir de Wang Lin disparut peu à peu de toutes les mémoires.
 
 L'entrée de la grotte où Wang Lin cultivait était désormais recouverte de végétation, rendant l'endroit très difficile à repérer, même de près.
 

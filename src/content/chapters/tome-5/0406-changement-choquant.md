@@ -106,7 +106,7 @@ Il le frappa de la main gauche et le jeton se divisa en deux, puis en quatre, et
 
 « En tant que Zhu Quezi de la 14e génération, j'appelle tous les pays de culture! La seconde guerre contre le Clan Xian Yi commence! »
 
-Les jetons nuageux disparurent rapidement. Puis, un vieil homme aux cheveux blancs sortit de sa longue retraite à la Secte Tian Yu, dans le pays de Suzaku.
+Les jetons nuageux disparurent rapidement. Puis, un vieil homme aux cheveux blancs sortit de son long isolement à la Secte Tian Yu, dans le pays de Suzaku.
 
 Vêtu d'une robe noire et très maigre, ses yeux s'illuminèrent lorsqu'il tourna son regard vers le Cimetière des Immortels. Il murmura: « Les choses changent! »
 
@@ -118,7 +118,7 @@ Soudain, cet homme ouvrit les yeux. Son regard portait une aura antique tandis q
 
 La dernière secte de Suzaku était la Secte Ren Dao Xian; pourtant, aucun mouvement ne fut perceptible ici. L'ancêtre Ascendant de ce secteur était très mystérieux. Très peu de gens connaissaient sa demeure ou même son apparence.
 
-Pays de Pilu, dans la Secte Lian Hun, où Dun Tian était en retraite.
+Pays de Pilu, dans la Secte Lian Hun, où Dun Tian était en isolement.
 
 Dun Tian ouvrit les yeux et ricana avant de les refermer une fois de plus.
 

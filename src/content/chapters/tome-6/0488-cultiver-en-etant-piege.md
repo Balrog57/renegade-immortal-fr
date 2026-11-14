@@ -8,7 +8,7 @@ slug: cultiver-en-etant-piege
 ---
 Wang Lin apparut devant le septième étage du pavillon des trésors. Dès son apparition, il se transforma en un rayon de lumière et s'élança vers l'horizon.
 
-En chemin, Wang Lin progressait à une vitesse fulgurante, se dirigeant droit vers le Pavillon Zi Lin. Maintenant qu'il possédait suffisamment de jades célestes, il prévoyait d'entrer en retraite pour les absorber tous et atteindre le stade intermédiaire de la Transformation de l'Âme le plus rapidement possible. Ainsi, il pourrait prétendre au titre de véritable disciple dans trois mois!
+En chemin, Wang Lin progressait à une vitesse fulgurante, se dirigeant droit vers le Pavillon Zi Lin. Maintenant qu'il possédait suffisamment de jades célestes, il prévoyait d'entrer en isolement pour les absorber tous et atteindre le stade intermédiaire de la Transformation de l'Âme le plus rapidement possible. Ainsi, il pourrait prétendre au titre de véritable disciple dans trois mois!
 
 La vitesse de Wang Lin était telle qu'il créait des détonations soniques, le rendant très voyant dans le calme de cette Montagne Zi Zong. À cet instant précis, juste en dessous de sa trajectoire, un élégant porche en bambou abritait trois vieillards. Ils étaient tous les trois des anciens disciplinaires de la Division Pourpre. L'un d'eux leva les yeux vers l'endroit où Wang Lin avait disparu avant de laisser échapper un grognement et de dire, d'un ton mécontent: « Ce Wang Lin est bien trop arrogant. Il ose user d'une telle vitesse au sein même du domaine de la secte! »
 

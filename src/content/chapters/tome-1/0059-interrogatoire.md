@@ -40,7 +40,7 @@ Wang Lin ouvrit les yeux. Auparavant, l'état de Wang Hao était critique, mais 
 
 Huang Long fronça les sourcils. D'un côté se trouvait le génie Wang Lin, et de l'autre, un disciple fidèle depuis 25 ans, Lu Yunjie. Cette décision lui était extrêmement difficile à prendre. Après avoir longuement réfléchi, il trancha et dit à Dao Xu: « Junior frère Dao Xu, tu es responsable de la discipline. Comment souhaites-tu traiter Lu Yunjie? »
 
-Dès qu'il entendit cela, Dao Xu comprit immédiatement la décision du Maître de secte et déclara: « Lu Yunjie sera placé en retraite spirituelle pour une durée de 20 ans. »
+Dès qu'il entendit cela, Dao Xu comprit immédiatement la décision du Maître de secte et déclara: « Lu Yunjie sera placé en isolement pour une durée de 20 ans. »
 
 Huang Long acquiesça et se tourna vers Wang Lin. Il dit d'un ton bienveillant: « Wang Lin, à partir de maintenant, ce Wang Hao deviendra un disciple interne. Considère cela comme une compensation. Désormais, tu ne chercheras plus le conflit avec Lu Yunjie. Après tout, vous appartenez tous à la même secte. »
 

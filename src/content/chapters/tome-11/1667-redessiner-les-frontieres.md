@@ -104,7 +104,7 @@ Le Souverain était certain que Lanmeng ne refuserait pas. Après avoir parlé, 
 
 Lorsqu'il réapparut, il se tenait près d'une faille du Système Stellaire Antique. Il n'y pénétra pas, mais ses yeux brillèrent et son puissant Sens Divin se déploya.
 
-« Septième concubine, vous êtes en retraite fermée depuis lors et vos blessures sont guéries depuis longtemps. Si vous n'agissez pas, notre accord sera caduc! »
+« Septième concubine, vous êtes en isolement depuis lors et vos blessures sont guéries depuis longtemps. Si vous n'agissez pas, notre accord sera caduc! »
 
 Après un long moment, une voix calme émana de la faille.
 

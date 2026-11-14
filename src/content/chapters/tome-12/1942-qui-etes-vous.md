@@ -62,7 +62,7 @@ Si Liu Jinbiao avait sorti le jeton immédiatement, le vieil homme aurait été 
 
 « Ouvrez la porte et laissez-le... partir! »
 
-Tous les disciples de la Secte Yun présents furent stupéfaits. La Secte Yun était la plus faible secte du Continent Da Sheng. Ils ne comptaient qu'un seul cultivateur du troisième niveau, un ancêtre Vide du Nirvana qui restait en retraite méditative toute l'année.
+Tous les disciples de la Secte Yun présents furent stupéfaits. La Secte Yun était la plus faible secte du Continent Da Sheng. Ils ne comptaient qu'un seul cultivateur du troisième niveau, un ancêtre Vide du Nirvana qui restait en isolement toute l'année.
 
 Quant au vieil homme, il n'était qu'au stade du Fléau Céleste. Il n'avait aucune intention de parier sur une chose aussi insignifiante.
 

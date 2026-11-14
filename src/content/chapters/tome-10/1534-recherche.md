@@ -18,7 +18,7 @@ Sous l'influence de cette rage, encore plus de clans du Royaume Extérieur récl
 
 Tout le Royaume Extérieur commença à se mobiliser. Ils attendaient, attendant la seconde bataille pour se venger!
 
-Certains vieux monstres qui étaient restés en cultivation recluse pendant des dizaines de milliers d'années, comme ceux dont Lanmeng Daozun avait parlé, sortirent de leur retraite. Ils fixaient le Royaume Intérieur avec une intention meurtrière!
+Certains vieux monstres qui étaient restés en isolement pendant des dizaines de milliers d'années, comme ceux dont Lanmeng Daozun avait parlé, sortirent de leur isolement. Ils fixaient le Royaume Intérieur avec une intention meurtrière!
 
 Le nom « Seigneur du Royaume Scellé Wang Lin » était désormais fermement gravé dans la mémoire du Royaume Extérieur. Ils serraient les dents de haine. C'était Wang Lin qui avait tué l'ancêtre du Clan Huo Que, qui avait tué Nanzhao Shangren, qui avait tué l'avatar du Grand Maître Yun Luo et qui avait détruit l'île où elle se trouvait, rendant son sort incertain entre la vie et la mort!
 

@@ -24,7 +24,7 @@ Wang Lin se tenait là, face à la fleur. Il l'observa calmement. Il possédait 
 
 « Ce doivent être les 300 mondes détruits... » murmura Wang Lin.
 
-Selon les souvenirs de la troisième âme, il s'agissait du cœur de la grotte, l'endroit où le Souverain Céleste aux Sept Couleurs se retirait pour sa culture en isolation. Une fois scellé, ce lieu activait des mesures de protection pour empêcher toute intrusion. Cependant, en raison de la mort du Souverain Céleste aux Sept Couleurs, de l'invasion de Lian Daofei et de la trahison de certains disciples de la Secte Qi Dao ainsi que des concubines, nombre de ces protections avaient été détruites ou modifiées.
+Selon les souvenirs de la troisième âme, il s'agissait du cœur de la grotte, l'endroit où le Souverain Céleste aux Sept Couleurs se retirait pour sa culture en isolement. Une fois scellé, ce lieu activait des mesures de protection pour empêcher toute intrusion. Cependant, en raison de la mort du Souverain Céleste aux Sept Couleurs, de l'invasion de Lian Daofei et de la trahison de certains disciples de la Secte Qi Dao ainsi que des concubines, nombre de ces protections avaient été détruites ou modifiées.
 
 Wang Lin s'inquiétait de ces changements potentiels, mais lorsqu'il vit la fleur jaune et les 300 gouttes de rosée, il se détendit.
 
@@ -42,7 +42,7 @@ Chaque goutte de rosée était un monde à part entière!
 
 Les yeux de Wang Lin s'illuminèrent. Un secret concernant la grotte était dissimulé au sein de la troisième âme. C'était un secret dont les étrangers ignoraient tout. Que l'on oublie le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan qui n'avaient aucun souvenir, même les quatre généraux et les concubines ne le savaient pas. C'était l'atout ultime que le Souverain Céleste aux Sept Couleurs avait laissé dans le monde de la grotte!
 
-Si Lian Daofei n'était pas apparu si soudainement, alors que le Souverain Céleste aux Sept Couleurs était grièvement blessé et en retraite, celui-ci aurait eu le temps d'activer cet atout et n'aurait jamais eu besoin d'invoquer le Dao Céleste pour dévorer Lian Daofei. Le résultat de cette guerre aurait été totalement différent.
+Si Lian Daofei n'était pas apparu si soudainement, alors que le Souverain Céleste aux Sept Couleurs était grièvement blessé et en isolement, celui-ci aurait eu le temps d'activer cet atout et n'aurait jamais eu besoin d'invoquer le Dao Céleste pour dévorer Lian Daofei. Le résultat de cette guerre aurait été totalement différent.
 
 C'est grâce à ce secret que Wang Lin avait l'assurance de commencer sa chasse ici! Et pour utiliser cet atout, il lui fallait éliminer suffisamment de cibles sur place!
 

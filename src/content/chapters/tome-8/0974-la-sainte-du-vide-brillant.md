@@ -120,4 +120,4 @@ Ling Tianhou agita ses manches, s'élança et atteignit la plus grande tour.
 
 « À partir d'aujourd'hui, Wang Lin sera un Ancien de ma Secte Da Luo Jian! » Ling Tianhou ne prononça que ces mots avant de disparaître dans la grande tour.
 
-« Ancien Wang, je vais entrer en culture de porte close pendant quelques mois. Vous serez en sécurité sur ma planète Da Luo! » Le Sens Divin de Ling Tianhou résonna dans les oreilles de Wang Lin.
+« Ancien Wang, je vais entrer en isolement pendant quelques mois. Vous serez en sécurité sur ma planète Da Luo! » Le Sens Divin de Ling Tianhou résonna dans les oreilles de Wang Lin.

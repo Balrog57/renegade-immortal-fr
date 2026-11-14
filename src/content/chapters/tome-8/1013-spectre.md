@@ -7,7 +7,7 @@ en: Chapter 1013 - Specter
 slug: spectre
 ---
 
-Nul ne savait à quoi ressemblait la cinquième grotte du Royaume Céleste des Esprits où se trouvait l'Empereur Céleste Qing Lin en culture de porte close, pas même sa dimension.
+Nul ne savait à quoi ressemblait la cinquième grotte du Royaume Céleste des Esprits où se trouvait l'Empereur Céleste Qing Lin en culture en isolement, pas même sa dimension.
 
 Seul Qing Lin avait eu le droit d'y pénétrer autrefois. Aucun étranger n'était autorisé, et tout contrevenant était exécuté! Même sa fille, Qing Shuang, n'avait jamais fait un seul pas à l'intérieur. Cette cinquième grotte était le secret absolu de Qing Lin!
 

@@ -24,7 +24,7 @@ Au sommet de la Montagne de l'Affinement de l'Âme, Wang Lin ouvrit les yeux. Ri
 
 « Ancêtre du Clan Ju Mo, vous ne pourrez pas échapper à cette calamité! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte Lian Hun.
 
-Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Dun Tian pratiquait sa culture en méditation fermée.
+Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Dun Tian pratiquait sa culture en isolement.
 
 Wang Lin apparut rapidement près de l'ancien réseau de transfert, l'ouvrit et disparut de Pilu.
 

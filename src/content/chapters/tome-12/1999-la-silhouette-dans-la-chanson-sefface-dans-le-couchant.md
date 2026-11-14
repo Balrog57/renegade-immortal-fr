@@ -106,7 +106,7 @@ L'expression de Wang Lin resta imperturbable alors qu'il se tournait vers elle. 
 
 « Merci... » Wang Lin joignit les mains et s'inclina devant le Grand Empyréen Shuangzi.
 
-« J'ai obtenu les yeux de l'Ancêtre Céleste, je vais donc retourner à la Secte Zi Yang pour entrer en retraite. Et vous? Partirez-vous, ou m'accompagnerez-vous à la Secte Zi Yang? »
+« J'ai obtenu les yeux de l'Ancêtre Céleste, je vais donc retourner à la Secte Zi Yang pour entrer en isolement. Et vous? Partirez-vous, ou m'accompagnerez-vous à la Secte Zi Yang? »
 
 Wang Lin tourna son regard vers le Continent de l'Est avant de déclarer: « Je veux retourner à la Secte Da Hun... Puis je quitterai le clan céleste... »
 

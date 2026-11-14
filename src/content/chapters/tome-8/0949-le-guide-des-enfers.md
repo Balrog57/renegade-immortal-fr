@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 949 - Nether Guide
 slug: le-guide-des-enfers
 ---
-« Autrefois, l'Ancêtre Zhan Xingye, après des années de compréhension, parvint enfin à ouvrir le troisième parchemin de bataille. Cependant, après l'avoir observé, son expression devint très étrange. Il s'est retiré en culture de porte close avec ce troisième parchemin pendant mille ans et n'en est jamais ressorti. Un jour, après ces mille ans, le clan ne trouva plus que le troisième parchemin et un jade à l'endroit même de sa retraite, mais l'Ancêtre avait disparu sans laisser de trace! »
+« Autrefois, l'Ancêtre Zhan Xingye, après des années de compréhension, parvint enfin à ouvrir le troisième parchemin de bataille. Cependant, après l'avoir observé, son expression devint très étrange. Il s'est retiré en isolement avec ce troisième parchemin pendant mille ans et n'en est jamais ressorti. Un jour, après ces mille ans, le clan ne trouva plus que le troisième parchemin et un jade à l'endroit même de son isolement, mais l'Ancêtre avait disparu sans laisser de trace! »
 
 « Si l'Ancêtre n'avait pas disparu, même le Temple Lei Xian n'oserait provoquer ma famille Zhan. Pas même cette ancienne famille de cultivateurs ne l'oserait. Lorsque l'Ancêtre était parmi nous, l'honneur de la famille Zhan rayonnait! »
 

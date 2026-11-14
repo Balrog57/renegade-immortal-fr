@@ -52,7 +52,7 @@ Wang Lin resta immobile et ne dit mot.
 
 Wang Lin regarda nonchalamment la boussole et dit: « Frère Chi Hu, n'avez-vous apporté qu'une seule boussole stellaire? »
 
-Chi Hu eut un sourire amer. « Frère Zeng, la boussole stellaire est un trésor très rare. Même dans tout le Suzaku, il y en a peu. Notre Clan Ju Mo n'en possédait qu'une depuis notre arrivée sur cette planète, mais je l'ai brisée par ma faute. Quand je rentrerai, je serai certainement puni par une retraite en isolement. »
+Chi Hu eut un sourire amer. « Frère Zeng, la boussole stellaire est un trésor très rare. Même dans tout le Suzaku, il y en a peu. Notre Clan Ju Mo n'en possédait qu'une depuis notre arrivée sur cette planète, mais je l'ai brisée par ma faute. Quand je rentrerai, je serai certainement puni par un isolement. »
 
 Wang Lin sourit calmement et dit: « Frère Chi Hu, bien que nous ne nous connaissions pas depuis longtemps, nous avons traversé la vie et la mort ensemble. Je ne vous mentirai pas: je peux réparer cette boussole stellaire. »
 

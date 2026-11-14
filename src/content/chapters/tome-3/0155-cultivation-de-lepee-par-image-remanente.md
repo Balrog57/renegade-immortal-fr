@@ -68,7 +68,7 @@ Shang Guanmo fut stupéfait. Il s'apprêtait à répliquer, mais face à la froi
 
 « Préparez-moi une chambre. Je vais entrer en culture de méditation intensive. » Wang Lin saisit Li Muwan et s'envola vers la Secte Dou Xie.
 
-La chambre fut rapidement préparée. Il s'agissait du lieu de retraite que Xie Donglai s'était fait construire, situé dans la tête du dragon. Wang Lin s'assit en tailleur et regarda Li Muwan, dont l'expression était complexe, puis dit: « Une fois ma méditation terminée, je te ramènerai chez toi. D'ici là, tu es libre de faire ce que tu souhaites. » Sur ces mots, il ferma les yeux pour se plonger dans sa culture.
+La chambre fut rapidement préparée. Il s'agissait du lieu d'isolement que Xie Donglai s'était fait construire, situé dans la tête du dragon. Wang Lin s'assit en tailleur et regarda Li Muwan, dont l'expression était complexe, puis dit: « Une fois ma méditation terminée, je te ramènerai chez toi. D'ici là, tu es libre de faire ce que tu souhaites. » Sur ces mots, il ferma les yeux pour se plonger dans sa culture.
 
 Li Muwan fixa Wang Lin. Après un long silence, elle murmura: « Merci... » Le cœur serré par l'émotion, elle se détourna et partit.
 

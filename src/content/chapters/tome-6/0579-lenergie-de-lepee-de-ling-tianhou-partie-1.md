@@ -48,7 +48,7 @@ Alors que les débris volaient, deux gémissements déchirants retentirent. Une 
 
 « L'un des Douze Épées de la Secte Da Luo Jian, Mo Yang, souhaite saluer le Seigneur Mo Lihai! »
 
-Une voix calme s'échappa de sa bouche. Il continua d'avancer sans s'arrêter, pénétrant dans la demeure de Mo et se dirigeant vers la chambre secrète où Mo Lihai était en pleine culture de porte close.
+Une voix calme s'échappa de sa bouche. Il continua d'avancer sans s'arrêter, pénétrant dans la demeure de Mo et se dirigeant vers la chambre secrète où Mo Lihai était en pleine culture en isolement.
 
 D'innombrables soldats et subordonnés de Mo Lihai accoururent. Cependant, quiconque s'approchait à moins de cent pieds de cet homme se transformait silencieusement en un brouillard sanglant.
 

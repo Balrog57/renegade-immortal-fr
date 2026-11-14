@@ -68,7 +68,7 @@ Portant le Cercueil d'Évitement Céleste contenant Li Muwan, Wang Lin, porté p
 
 À cet instant précis, au cœur du vide, il ignorait le troisième bouleversement titanesque qui venait de frapper le Continent Xian Gang au moment même où le Roi Moustique avait apporté le sang sur la plateforme et que celui-ci avait été absorbé.
 
-Ce changement colossal ébranla l'intégralité du Continent Xian Gang. D'innombrables cultivateurs puissants sortirent de leur culture de porte close. Les chefs et les Anciens de sectes infinies émergèrent, leurs Sens Divins jaillissant vers le ciel.
+Ce changement colossal ébranla l'intégralité du Continent Xian Gang. D'innombrables cultivateurs puissants sortirent de leur culture en isolement. Les chefs et les Anciens de sectes infinies émergèrent, leurs Sens Divins jaillissant vers le ciel.
 
 Cette agitation attira même l'attention des neuf soleils, créant une occurrence rare où les neuf soleils apparurent simultanément!
 
@@ -98,7 +98,7 @@ Au même moment, dans les 36 États du pays antique, un vortex colossal apparut 
 
 Une aura terrifiante et tyrannique jaillit de ce vortex, forçant tous les habitants des pays antiques à se prosterner au sol dans une exaltation mêlée de crainte.
 
-Simultanément, Xuan Luo, qui était en retraite, et les Grands Empyréens des deux autres lignées, quatre en tout, surgirent. Flottant dans les airs, ils contemplèrent le vortex céleste avec incrédulité.
+Simultanément, Xuan Luo, qui était en isolement, et les Grands Empyréens des deux autres lignées, quatre en tout, surgirent. Flottant dans les airs, ils contemplèrent le vortex céleste avec incrédulité.
 
 Il n'y avait pas d'ombre comme celle de l'Ancêtre Céleste, mais une paire d'yeux. Des yeux argentés qui fixaient le territoire des Célestes, libérant une lumière argentée monstrueuse!
 

@@ -18,11 +18,11 @@ Il y avait aussi Fan Shanmeng, qui luttait contre la marionnette Yi Si. Lorsqu'e
 
 Alors que la voix rauque de Wang Lin résonnait, la marionnette Yi Si se transforma à nouveau en brume et vola vers lui. Ses yeux féroces et sa langue écarlate complétaient l'apparence actuelle de Wang Lin, lui donnant les traits d'un redoutable cultivateur démoniaque!
 
-« Yan Luan, je suis en méditation de retraite. Pourquoi es-tu venue ici? » Wang Lin ressemblait à un mort après avoir perdu toute l'eau de son corps. Même ses yeux avaient perdu la capacité de bouger librement; il dut donc tourner la tête pour regarder Yan Luan.
+« Yan Luan, je suis en méditation en isolement. Pourquoi es-tu venue ici? » Wang Lin ressemblait à un mort après avoir perdu toute l'eau de son corps. Même ses yeux avaient perdu la capacité de bouger librement; il dut donc tourner la tête pour regarder Yan Luan.
 
 Cependant, ce mouvement n'affaiblit pas son aura; au contraire, il la rendit plus intense encore. Le cœur de Yan Luan trembla et elle recula de quelques pas supplémentaires.
 
-« Je n'avais pas l'intention de perturber la retraite de l'Ancien Wang. Cependant, Shanmeng était attaquée par votre étrange marionnette, alors je suis venue la sauver. »
+« Je n'avais pas l'intention de perturber l'isolement de l'Ancien Wang. Cependant, Shanmeng était attaquée par votre étrange marionnette, alors je suis venue la sauver. »
 
 « Cette femme est ma servante. L'Ancienne Yan Luan n'a nul besoin de se soucier d'elle pour moi. » Wang Lin sourit, mais son sourire était terrifiant sur ce visage desséché. Fan Shanmeng frissonna et se réfugia derrière son maître.
 

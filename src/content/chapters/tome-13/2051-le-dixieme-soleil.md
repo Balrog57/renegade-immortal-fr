@@ -12,7 +12,7 @@ Cependant, il ne s'agissait que de transformer l'illusion en réalité — ils n
 
 Song Tian en était incapable. Dans ses souvenirs, seul le Grand Empyréen Gu Dao en était capable: lorsqu'il était allé lui rendre visite, il avait personnellement observé une scène similaire.
 
-« C'est impossible! » Le démon ancien, qui contenait une parcelle du Sens Divin de Song Tian, afficha un regard d'incrédulité. Il ne pouvait croire ce qu'il voyait: que Wang Lin, qu'il ne jugeait pas digne d'inquiétude, puisse contrôler les lois du monde après être sorti de sa retraite de culture.
+« C'est impossible! » Le démon ancien, qui contenait une parcelle du Sens Divin de Song Tian, afficha un regard d'incrédulité. Il ne pouvait croire ce qu'il voyait: que Wang Lin, qu'il ne jugeait pas digne d'inquiétude, puisse contrôler les lois du monde après être sorti de son isolement.
 
 Au moment où le démon ancien sortit de la faille, il fut totalement stupéfait. Son esprit devint un vide absolu, et il ne put penser qu'à une seule chose: Wang Lin tendant la main vers le ciel tandis que toutes les lois convergeaient vers lui.
 
@@ -84,7 +84,7 @@ Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Bei, dans la Se
 
 Peu après, dans le palais impérial de la cité ancestrale, un soleil doré apparut, formant le cinquième soleil du Clan Céleste!
 
-Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du lieu où il était en retraite de culture. Dans le Ji Gu, l'extrêmement mystérieux Grand Empyréen vit également son propre soleil apparaître dans le ciel!
+Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du lieu où il cultivait en isolement. Dans le Ji Gu, l'extrêmement mystérieux Grand Empyréen vit également son propre soleil apparaître dans le ciel!
 
 Et le soleil de Song Tian apparut lui aussi, échappant à tout contrôle, pour s'envoler vers les cieux.
 

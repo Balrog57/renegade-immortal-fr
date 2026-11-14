@@ -58,7 +58,7 @@ C'était la sixième année depuis le début de la méditation de Wang Lin. Une 
 
 Quant à l'âme de l'Empereur Céleste, après six ans de combustion, la décomposition interne avait ralenti. Peut-être qu'un jour, une fois que la décomposition aurait totalement cessé de se propager, Wang Lin parviendrait à la raffiner lentement.
 
-Le temps ne laissait aucune trace et trois autres années s'écoulèrent. Lors de la neuvième année de sa retraite, une autre ombre se superposa à son corps. Cette masse n'était pas encore capable de se condenser en la forme d'un véritable corps. Une fois apparue, cette masse de lumière diffuse flotta au-dessus du corps de Wang Lin et s'arrêta à dix pieds derrière lui.
+Le temps ne laissait aucune trace et trois autres années s'écoulèrent. Lors de la neuvième année de son isolement, une autre ombre se superposa à son corps. Cette masse n'était pas encore capable de se condenser en la forme d'un véritable corps. Une fois apparue, cette masse de lumière diffuse flotta au-dessus du corps de Wang Lin et s'arrêta à dix pieds derrière lui.
 
 Wang Lin ouvrit les yeux et observa ses trois véritables corps d'essence. Durant ces neuf années, il avait poussé son pouvoir ancestral à son apogée, tout en portant ses trois véritables corps d'essence à leurs sommets respectifs.
 

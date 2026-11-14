@@ -122,7 +122,7 @@ Le fracas du tonnerre submergea tout. Cependant, à ce moment précis, un rugiss
 
 « Qui es-tu?! »
 
-Cette voix ne provenait pas du temple, mais des profondeurs mêmes du tonnerre éternel. C'était l'Ancien en chef du Clan Shan Lei, qui était en réclusion pour cultiver et avait atteint le cinquième niveau de Fléau Céleste!
+Cette voix ne provenait pas du temple, mais des profondeurs mêmes du tonnerre éternel. C'était l'Ancien en chef du Clan Shan Lei, qui était en isolement pour cultiver et avait atteint le cinquième niveau de Fléau Céleste!
 
 Un visage de mille pieds apparut au sein du tonnerre éternel. La marque de clan entre ses sourcils brillait comme un soleil, illuminant tout le ciel étoilé!
 

@@ -22,7 +22,7 @@ Les yeux de Wang Lin s'entrouvrirent légèrement. Après une courte réflexion,
 
 Wang Lin pénétra dans la formation et disparut.
 
-Sous la terre, au cœur de la formation, une vaste grotte s'ouvrait à environ 100 000 pieds sous la demeure en bois. Cette grotte était apparue récemment; Wang Lin l'avait créée au cinquième jour de sa culture en méditation fermée.
+Sous la terre, au cœur de la formation, une vaste grotte s'ouvrait à environ 100 000 pieds sous la demeure en bois. Cette grotte était apparue récemment; Wang Lin l'avait créée au cinquième jour de sa culture en isolement.
 
 Cette caverne de plusieurs milliers de pieds de large était dominée par un soleil noir et blanc. Au centre flottait un gigantesque astre bicolore!
 

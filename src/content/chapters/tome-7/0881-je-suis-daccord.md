@@ -80,7 +80,7 @@ Le vieil homme Xiang réfléchit en silence. Après un long moment, il finit par
 
 Le corps de Wang Lin trembla comme si des dizaines de milliers d'éclairs avaient explosé en lui. À cet instant, toute son énergie se concentra dans son regard alors qu'il fixait le vieil homme Xiang.
 
-« Cependant, le prix de cette méthode est exorbitant. La raison pour laquelle cette femme ne peut survivre est que sa longévité est épuisée. Si l'on peut compenser sa longévité, il y aurait peut-être une chance. Ce sort se nomme le Sort Qixi. Toutefois, je suis incapable de l'utiliser; seul l'Ancêtre, qui est en culture de porte close, peut le pratiquer. »
+« Cependant, le prix de cette méthode est exorbitant. La raison pour laquelle cette femme ne peut survivre est que sa longévité est épuisée. Si l'on peut compenser sa longévité, il y aurait peut-être une chance. Ce sort se nomme le Sort Qixi. Toutefois, je suis incapable de l'utiliser; seul l'Ancêtre, qui est en isolement, peut le pratiquer. »
 
 « Xu Mu, je dois t'avertir: utiliser le Sort Qixi requiert la force vitale de quelqu'un de très proche de cette femme. C'est la seule façon d'éviter tout rejet. Cependant, celui qui offre sa vie verra sa propre longévité diminuée. Et cette réduction n'est pas équivalente. Il est même fort probable que tu doives renoncer à 90 % de ta vie pour une infime chance qu'elle se rétablisse. »
 

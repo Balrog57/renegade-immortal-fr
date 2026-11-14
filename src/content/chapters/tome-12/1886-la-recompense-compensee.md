@@ -108,7 +108,7 @@ Par conséquent, sa progression était bien plus lente. Lorsqu'il dépassa la Pr
 
 Dans cette partie du Continent Tian Niu, l'hiver était arrivé. La neige tombait du ciel et, sur des dizaines de milliers de kilomètres, tout n'était que glace.
 
-Il lui faudrait encore plus de la moitié d'un mois avant de pouvoir utiliser à nouveau la Distorsion Spatiale. Durant ces mois de retraite, ses blessures s'étaient entièrement rétablies. Il marchait dans la neige, affrontant le vent glacial pour avancer.
+Il lui faudrait encore plus de la moitié d'un mois avant de pouvoir utiliser à nouveau la Distorsion Spatiale. Durant ces mois d'isolement, ses blessures s'étaient entièrement rétablies. Il marchait dans la neige, affrontant le vent glacial pour avancer.
 
 Non loin de lui, dans le crépuscule neigeux, une ville mortelle émettait des lueurs diffuses. La fumée s'élevait vers le ciel pour se fondre dans les flocons. C'était une scène empreinte de calme et de beauté.
 

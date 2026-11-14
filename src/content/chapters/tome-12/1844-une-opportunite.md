@@ -108,7 +108,7 @@ Puisqu'il allait mourir, il allait partir avec éclat!
 
 En entendant le nom de « Souverain Céleste aux Sept Couleurs », le Tigre Blanc et ses compagnons se turent. Des expressions complexes se dessinèrent sur leurs visages.
 
-« Bien que le chef de secte soit mort, il reste encore une personne! S'il sort de sa retraite, il deviendra immédiatement célèbre dans tout le Continent Xian Gang! » lança soudainement le Tigre Blanc.
+« Bien que le chef de secte soit mort, il reste encore une personne! S'il sort de son isolement, il deviendra immédiatement célèbre dans tout le Continent Xian Gang! » lança soudainement le Tigre Blanc.
 
 Le Suzaku et la Tortue Noire se regardèrent et acquiescèrent d'un signe de tête.
 

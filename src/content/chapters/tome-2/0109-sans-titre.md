@@ -12,7 +12,7 @@ Grâce à ce guide, les sectes qui avaient déjà perdu leurs jetons purent expl
 
 La Secte He Huan fut la dernière secte à détenir encore un jeton. La disciple féminine qui dirigeait le groupe ne remit pas l'objet, mais tourna son regard vers la seule autre secte restante: la Vallée Wu Feng.
 
-Le chef de la Vallée Wu Feng était un vieil homme approchant les soixante-dix ans, au regard perçant. Il se trouvait déjà au stade de pseudo-Formation du Noyau et n'aurait besoin que de quelques années de retraite pour avoir peut-être une chance d'atteindre la Formation du Noyau.
+Le chef de la Vallée Wu Feng était un vieil homme approchant les soixante-dix ans, au regard perçant. Il se trouvait déjà au stade de pseudo-Formation du Noyau et n'aurait besoin que de quelques années d'isolement pour avoir peut-être une chance d'atteindre la Formation du Noyau.
 
 Il fixa Wang Lin et ricana: « Petit morveux, ce vieux doit te remercier d'avoir rassemblé tous ces jetons pour moi. Laisse-les derrière toi et disparais d'ici. »
 

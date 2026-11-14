@@ -102,7 +102,7 @@ Wang Lin accéléra encore. Ce lieu n'était pas loin du manoir Mo. Après un de
 
 Il aperçut immédiatement Wang Lin et, remarquant comment celui-ci dissimulait sa présence, comprit instantanément la situation grâce à son intelligence. Il esquissa un sourire amer, conduisit Wang Lin vers une montagne artificielle et frappa dessus; aussitôt, une ouverture apparut dans le sol.
 
-« C'est ici que je pratique ma culture en isolation. Cache-toi là pour un moment! »
+« C'est ici que je pratique ma culture en isolement. Cache-toi là pour un moment! »
 
 Le sens divin de Wang Lin s'étendit avant qu'il ne s'engouffre sans dire un mot. Mo Lihai prit une profonde inspiration, s'assit et referma l'ouverture. Il commença à cultiver comme si de rien n'était.
 

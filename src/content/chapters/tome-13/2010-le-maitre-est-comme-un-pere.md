@@ -132,6 +132,6 @@ Il ne lui dit pas quel prix il avait dû payer pour obtenir l'accord des deux au
 
 « Enfin, je t'emmènerai voir l'ancêtre de notre clan Ancien, le Grand Empyréen Gu Dao! C'est précisément grâce à son existence que le clan céleste n'ose nous envahir! »
 
-« Le Grand Empyréen Gu Dao est en retraite méditative permanente. Je lui ai fait part de ta situation autrefois; lorsque je t'y emmènerai, il devrait te recevoir. »
+« Le Grand Empyréen Gu Dao est en isolement permanent. Je lui ai fait part de ta situation autrefois; lorsque je t'y emmènerai, il devrait te recevoir. »
 
 « Peut-être sera-ce une chance inouïe pour toi! » Xuan Luo regarda Wang Lin avec bienveillance. Il avait pavé la voie pour Wang Lin durant ces derniers siècles!

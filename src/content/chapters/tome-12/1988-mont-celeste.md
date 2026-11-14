@@ -42,7 +42,7 @@ L'expression du jeune homme était calme alors qu'il reculait, fixant la montagn
 
 « Ce sont les neuf montagnes célestes qui constituent le fondement du clan céleste. Elles protègent le clan et suppriment les esprits des 72 continents du clan. C'est aussi ce qui permet à chaque génération d'Empereur Céleste d'hériter, par la force du lignage, du titre de Huit Extrêmes! »
 
-« Cet endroit est le palais interdit situé sous le palais souterrain de la demeure impériale, le véritable lieu de culture en porte close de l'Ancêtre Céleste! » répondit l'Enseignant Impérial sans hésiter.
+« Cet endroit est le palais interdit situé sous le palais souterrain de la demeure impériale, le véritable lieu de culture en isolement de l'Ancêtre Céleste! » répondit l'Enseignant Impérial sans hésiter.
 
 « Wang Lin, attaque! » Les yeux de l'Enseignant Impérial s'illuminèrent et il fonça vers Ming Dao. Sa main droite s'étira, faisant apparaître une petite silhouette de lumière blanche qui prit immédiatement la taille d'un homme pour charger à ses côtés.
 

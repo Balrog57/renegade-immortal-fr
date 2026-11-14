@@ -44,7 +44,7 @@ Situ Nan dit d'un ton paresseux: « Tout ceci est de qualité inférieure. Inuti
 
 Wang Lin esquissa un sourire amer et pensa: « Vous êtes un senior issu d'un pays de culture de rang 6, il est bien évident qu'aucune de ces techniques n'est à la hauteur de votre rang. »
 
-Situ Nan insista: « Wang Lin, ne perds pas ton temps ici. Trouve rapidement un endroit pour t'isoler en culture de porte close et, une fois que tu auras atteint l'Établissement des Fondations, tu pourras quitter cette petite secte. »
+Situ Nan insista: « Wang Lin, ne perds pas ton temps ici. Trouve rapidement un endroit pour cultiver en isolement et, une fois que tu auras atteint l'Établissement des Fondations, tu pourras quitter cette petite secte. »
 
 L'élan d'anticipation de Wang Lin avait été totalement brisé par Situ Nan; il sortit donc de la bibliothèque des écritures, le front soucieux.
 

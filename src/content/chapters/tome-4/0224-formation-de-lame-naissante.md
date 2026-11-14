@@ -140,7 +140,7 @@ Sun Zhenwei portait une longue robe rouge. Sa stature haute et droite lui confé
 
 Il souriait, mais le coin de ses yeux tressautait sans cesse. En réalité, plus la cérémonie approchait, plus son cœur battait la chamade et sa chair frémissait, comme si un désastre était imminent.
 
-Il trouvait ce sentiment absurde. Aujourd'hui, presque tous les ancêtres au stade avancé de l'Âme Naissante étaient sortis de leur retraite pour assister à l'événement. Si quiconque osait troubler la cérémonie, sa seule issue serait la mort.
+Il trouvait ce sentiment absurde. Aujourd'hui, presque tous les ancêtres au stade avancé de l'Âme Naissante étaient sortis de leur isolement pour assister à l'événement. Si quiconque osait troubler la cérémonie, sa seule issue serait la mort.
 
 À moins que son niveau de culture ne soit celui de la Formation de l'Âme.
 

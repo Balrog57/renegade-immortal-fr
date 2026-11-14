@@ -14,7 +14,7 @@ Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système St
 
 La Secte Shi Yin se souciait peu du fait que les cultivateurs de Luotian fussent des envahisseurs! Ce qui importait à ses yeux, c'était l'immense commerce de vente et d'achat de corps que la guerre générait. La Secte Shi Yin espérait même que ce conflit ne s'interrompe jamais.
 
-Cependant, tout cela fut ruiné par un homme: l'Empereur Divin du Dragon Azure. Il s'était précipité au sein de la Secte Shi Yin, massacrant de ses propres mains de nombreux Anciens et blessant gravement les rois restants. Cela avait contraint le Maître de la Secte Shi Yin, c'est-à-dire le Premier Roi, à sortir de sa retraite. Les deux hommes s'étaient livrés à une bataille qui avait ébranlé tout le système stellaire!
+Cependant, tout cela fut ruiné par un homme: l'Empereur Divin du Dragon Azure. Il s'était précipité au sein de la Secte Shi Yin, massacrant de ses propres mains de nombreux Anciens et blessant gravement les rois restants. Cela avait contraint le Maître de la Secte Shi Yin, c'est-à-dire le Premier Roi, à sortir de son isolement. Les deux hommes s'étaient livrés à une bataille qui avait ébranlé tout le système stellaire!
 
 En fin de compte, le Premier Roi de la Secte Shi Yin fut totalement vaincu. Si ce n'était pas pour les autres motivations de l'Empereur Divin du Dragon Azure, il lui aurait été facile de l'exterminer!
 

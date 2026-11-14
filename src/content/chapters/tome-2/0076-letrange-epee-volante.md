@@ -74,7 +74,7 @@ La voix de Situ Nan résonna à l'oreille de Wang Lin: « Wang Lin, il y a quelq
 
 Au moment où l'épée volante pénétra le fourreau, elle émit un bourdonnement strident, comme si elle rencontrait une résistance phénoménale. Après avoir pénétré d'un cinquième de sa longueur, elle ne put plus avancer davantage. L'épée verte vira soudainement au bleu et se retira brusquement du fourreau pour taillader le fouet.
 
-Ce fouet était un objet qu'il avait obtenu de Sun Dazhu. Durant son entraînement en méditation fermée, il l'avait affiné pour qu'il lui appartienne, suivant les conseils de Situ Nan. Bien que le niveau de culture de Sun Dazhu fût peu élevé, il était après tout un aîné de la Secte Heng Yue, et son sac de rangement contenait pas mal de choses.
+Ce fouet était un objet qu'il avait obtenu de Sun Dazhu. Durant son entraînement en isolement, il l'avait affiné pour qu'il lui appartienne, suivant les conseils de Situ Nan. Bien que le niveau de culture de Sun Dazhu fût peu élevé, il était après tout un aîné de la Secte Heng Yue, et son sac de rangement contenait pas mal de choses.
 
 Wang Lin contrôla le fouet pour qu'il contourne l'épée volante et chargea directement l'homme d'âge moyen.
 

@@ -68,7 +68,7 @@ Parmi les disciples intérieurs qui l'avaient suivi, Wang Lin ne connaissait pas
 
 Liu Wenju prit une profonde inspiration et dit d'un ton sérieux: « Il ne sert à rien de ressasser le passé. Le plus important est de trouver un endroit où réinstaller notre secte. Il y a de nombreuses années, j'ai une demeure au mont Xiang She, à des milliers de kilomètres d'ici. Pour l'instant, allons nous y installer. »
 
-La vieille femme réfléchit un instant, hocha la tête et dit: « C'est une bonne idée. Une fois arrivés, nous devrons entrer en méditation de retraite pour atteindre le stade de l'Âme Naissante d'ici cent ans, avant la fin de notre longévité. »
+La vieille femme réfléchit un instant, hocha la tête et dit: « C'est une bonne idée. Une fois arrivés, nous devrons entrer en isolement pour atteindre le stade de l'Âme Naissante d'ici cent ans, avant la fin de notre longévité. »
 
 Le regard de Liu Wenju se tourna vers les deux anciens de l'Établissement des Fondations. Il leur dit: « Shang Guan et Song Yu, vous deux, assurez la garde pendant que l'Ancêtre Wang et moi récupérons l'énergie spirituelle utilisée pour maintenir la formation. Nous pourrons ensuite vous transporter tous ensemble afin d'avancer plus vite. »
 

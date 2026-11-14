@@ -1,6 +1,6 @@
 ---
 n: 332
-title: Retraite
+title: Isolement
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 332 - Seclusion

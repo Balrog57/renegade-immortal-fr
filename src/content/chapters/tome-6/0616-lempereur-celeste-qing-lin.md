@@ -58,7 +58,7 @@ Les yeux de Wang Lin se plissèrent davantage. « Le secret que ton père et les
 
 « L'Empereur Céleste Qing Lin était l'être le plus puissant du Royaume Céleste. La rumeur prétend que lorsque le Royaume Céleste s'est effondré, l'Empereur Céleste Qing Lin n'est pas mort. Après son combat, il s'est enfui, bien que blessé! »
 
-« Le secret découvert par mon père et les autres est que l'aura de l'Empereur Céleste Qing Lin est en retraite de culture à l'intérieur de la grotte finale. J'ignore comment ils l'ont appris, alors inutile de m'interroger à ce sujet. » Après avoir fini de parler, elle fixa Wang Lin. Lorsqu'elle avait entendu cela pour la première fois, son choc avait été presque inimaginable. Le simple fait d'y repenser faisait encore trembler son cœur sans fin.
+« Le secret découvert par mon père et les autres est que l'aura de l'Empereur Céleste Qing Lin cultive en isolement à l'intérieur de la grotte finale. J'ignore comment ils l'ont appris, alors inutile de m'interroger à ce sujet. » Après avoir fini de parler, elle fixa Wang Lin. Lorsqu'elle avait entendu cela pour la première fois, son choc avait été presque inimaginable. Le simple fait d'y repenser faisait encore trembler son cœur sans fin.
 
 Connaissant la ruse de Wang Lin, elle voulait voir quelle expression il prendrait en entendant cette nouvelle explosive. Malheureusement, elle ne vit que son visage immuable. L'expression de Wang Lin n'avait pas changé d'un iota, mais ses pupilles se rétractèrent imperceptiblement.
 

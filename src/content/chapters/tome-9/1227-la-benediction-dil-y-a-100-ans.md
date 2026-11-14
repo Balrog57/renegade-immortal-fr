@@ -116,7 +116,7 @@ L'esprit du vieil homme trembla et il n'osa plus rien dire. Bien qu'il fût un d
 
 « Si cet enfant n'avait aucun lien avec Yue Er, tout irait bien, mais comment pourrais-je blesser quelqu'un que notre fille a béni... Et qu'importe s'il possède la Perle Défiant le Ciel? J'ai obtenu ma culture par moi-même sans dépendre d'objets extérieurs. Que la cupidité du Souverain me regarde-t-elle? De plus, la Perle Défiant le Ciel appartenait autrefois au Seigneur du Royaume Scellé. Si je suis incapable de briser le sceau, cela pourrait ne pas être une bénédiction, mais une catastrophe. Le Seigneur du Royaume Scellé en est la preuve! Quant au sceau... c'est difficile, difficile, difficile!
 
-« C'est le Seigneur du Royaume Scellé qui a ouvert les neuf Royaumes aux Sept Couleurs, avant qu'ils ne soient repris par mon peuple. Je n'avais que la puissance de cette unique paume, et après cela, j'ai dû me retirer. Bien que le Souverain soit en culture de porte close depuis des dizaines de milliers d'années, ses complots sont trop profonds. Lorsqu'il m'a ordonné d'attaquer, je crains qu'il n'y ait eu un autre dessein!
+« C'est le Seigneur du Royaume Scellé qui a ouvert les neuf Royaumes aux Sept Couleurs, avant qu'ils ne soient repris par mon peuple. Je n'avais que la puissance de cette unique paume, et après cela, j'ai dû me retirer. Bien que le Souverain soit en isolement depuis des dizaines de milliers d'années, ses complots sont trop profonds. Lorsqu'il m'a ordonné d'attaquer, je crains qu'il n'y ait eu un autre dessein!
 
 « Lorsque le Souverain pénétra autrefois dans le Royaume Intérieur, il s'en échappa lourdement blessé. L'avertissement qui parcourut tout le Système Stellaire Antique inspire encore la crainte chaque fois qu'on y pense.
 

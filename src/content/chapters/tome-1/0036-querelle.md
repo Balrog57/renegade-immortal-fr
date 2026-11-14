@@ -6,11 +6,11 @@ bookTitle: The Mediocre Youth
 en: Chapter 36 - Quarrel
 slug: querelle
 ---
-Après réflexion, il sortit la perle mystérieuse et commença son premier entraînement à porte close.
+Après réflexion, il sortit la perle mystérieuse et commença son premier entraînement en isolement.
 
 Le temps s'écoula en un éclair, et en un clin d'œil, deux ans s'étaient écoulés. Durant ces deux années, Wang Lin passait son temps soit à cultiver, soit à pratiquer sa technique d'attraction, mais il ne ressentit aucune solitude.
 
-Bien que deux ans se soient écoulés dans le monde réel, il avait en réalité passé près de treize ans en entraînement à porte close.
+Bien que deux ans se soient écoulés dans le monde réel, il avait en réalité passé près de treize ans en entraînement en isolement.
 
 L'énergie spirituelle ici était extrêmement riche, ce qui l'impressionna grandement. Bien qu'elle ne puisse égaler l'eau de source spirituelle, il constata que chaque fois qu'il cultivait dans le monde réel, l'énergie spirituelle y était plusieurs fois plus dense qu'à l'extérieur.
 
@@ -30,7 +30,7 @@ Après une légère hésitation, Wang Lin ne sortit pas cette gourde. D'après s
 
 Il se leva et s'étira. Il marcha jusqu'au levier et le tira. Dans un rugissement, la porte de pierre s'ouvrit. La lumière du soleil inonda la grotte, éblouissant Wang Lin. Une fois ses yeux accoutumés à la clarté, il sortit de la cavité et prit une profonde inspiration.
 
-En regardant vers le bas, il vit un bon nombre de personnes assises en méditation ou en train de discuter dans la vallée. De toute évidence, elles étaient en retraite depuis longtemps et, ne supportant plus la monotonie, étaient sorties se détendre.
+En regardant vers le bas, il vit un bon nombre de personnes assises en méditation ou en train de discuter dans la vallée. De toute évidence, elles étaient en isolement depuis longtemps et, ne supportant plus la monotonie, étaient sorties se détendre.
 
 Après avoir réfléchi un instant, il activa une technique pour dissimuler son niveau de culture au premier niveau de Condensation de Qi. D'un revers de manches, une poussée monta sous ses pieds et, soulevant son corps, le fit redescendre lentement vers le sol.
 

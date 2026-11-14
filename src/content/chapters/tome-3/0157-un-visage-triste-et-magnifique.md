@@ -24,7 +24,7 @@ En émergeant de la gueule du dragon, il aperçut une silhouette charmante et d�
 
 Shang Guanmo se tenait à ses côtés avec un sourire obséquieux, une énorme perle lumineuse à la main pour l'éclairer.
 
-Wang Lin resta silencieux. Cette fois, sa culture en porte close n'avait pas duré longtemps, mais à en juger par l'apparence de Li Muwan, elle ne s'était pas absentée un instant. Il soupira intérieurement avant de descendre. Son corps glissa le long du dragon et atterrit derrière elle.
+Wang Lin resta silencieux. Cette fois, sa culture en isolement n'avait pas duré longtemps, mais à en juger par l'apparence de Li Muwan, elle ne s'était pas absentée un instant. Il soupira intérieurement avant de descendre. Son corps glissa le long du dragon et atterrit derrière elle.
 
 En voyant Wang Lin, Shang Guanmo augmenta immédiatement l'énergie spirituelle de la perle pour qu'elle brille plus intensément. Il força également des perles de sueur à apparaître sur son front pour simuler une profonde concentration.
 

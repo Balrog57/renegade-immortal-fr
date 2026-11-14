@@ -18,7 +18,7 @@ En entendant ces mots, le cœur de Situ Nan s'anima d'une pointe d'envie; il ne 
 
 « C'est bien dommage que le petit Lin soit un morceau de bois. Quel gaspillage pour mes centaines d'années d'enseignement! »
 
-Situ Nan s'amusait gaiement pour le moment. À cet instant précis, sur la lointaine planète Shuiling, l'œil droit de Wang Lin émit une lueur bleue. D'un revers de sa grande manche, il retourna aussitôt dans le palais où il résidait et se remit en retraite.
+Situ Nan s'amusait gaiement pour le moment. À cet instant précis, sur la lointaine planète Shuiling, l'œil droit de Wang Lin émit une lueur bleue. D'un revers de sa grande manche, il retourna aussitôt dans le palais où il résidait et se remit en isolement.
 
 Les passants se dispersèrent et le calme revint sur la planète Shuiling.
 

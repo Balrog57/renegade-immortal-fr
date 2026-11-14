@@ -64,7 +64,7 @@ Mais il n'abandonnait pas. La personnalité de Wang Lin avait toujours été ain
 
 Le temps passa lentement. En un clin d'œil, un mois s'écoula.
 
-Wang Lin était en méditation fermée durant tout ce mois, mais les mouvements de son Sens Divin étaient tels que les disciples de la Secte Cang Long n'osaient plus approcher de la montagne arrière.
+Wang Lin était en isolement durant tout ce mois, mais les mouvements de son Sens Divin étaient tels que les disciples de la Secte Cang Long n'osaient plus approcher de la montagne arrière.
 
 Du Qing était toujours présent au sein de la Secte Cang Long. Lorsqu'il avait senti le Sens Divin de Wang Lin se déployer pour la première fois, il en avait eu conscience. Toutefois, il ne parvenait pas à saisir l'intention du cultivateur.
 
@@ -90,7 +90,7 @@ Du Qing s'était habitué à l'omniprésence du Sens Divin de Wang Lin sur la Se
 
 En un éclair, trois mois de plus passèrent!
 
-Wang Lin avait passé sept mois en méditation fermée à étudier ce sortilège. Il restait assis là, les yeux injectés de sang, son Sens Divin vibrant d'irritation.
+Wang Lin avait passé sept mois en isolement à étudier ce sortilège. Il restait assis là, les yeux injectés de sang, son Sens Divin vibrant d'irritation.
 
 Du Qing, voyant cela, ricana:
 

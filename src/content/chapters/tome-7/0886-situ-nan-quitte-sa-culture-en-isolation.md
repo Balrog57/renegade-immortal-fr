@@ -1,6 +1,6 @@
 ---
 n: 886
-title: Situ Nan quitte sa culture en isolation
+title: Situ Nan quitte son isolement
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 886 - Situ Nan Leaves Closed Door Cultivation
@@ -104,10 +104,10 @@ Heureusement, personne ne vivait sur cette planète. Autrement, nul n'aurait sur
 
 Un rire exalté jaillit de la planète, accompagné de bruits de déchirement encore plus violents.
 
-« Je suis enfin dehors! Malédiction, petites filles de la planète Feng Luan, attendez-vous bien! Vous m'avez forcé à une culture en isolation pendant si longtemps que je n'ai eu d'autre choix que de me cacher sur cette maudite planète. Nous n'en avons pas fini! » Une voix extrêmement arrogante résonna à travers le monde. Au même instant, une silhouette jaillit des entrailles de la planète!
+« Je suis enfin dehors! Malédiction, petites filles de la planète Feng Luan, attendez-vous bien! Vous m'avez forcé à une culture en isolement pendant si longtemps que je n'ai eu d'autre choix que de me cacher sur cette maudite planète. Nous n'en avons pas fini! » Une voix extrêmement arrogante résonna à travers le monde. Au même instant, une silhouette jaillit des entrailles de la planète!
 
 Ses vêtements étaient en lambeaux et sa peau était sombre et très sale. Il avait l'air extrêmement négligé, mais ses yeux brillaient d'une lumière étrange qui coupait le souffle.
 
 Alors qu'il chargeait, des détonations soniques se produisaient. De vastes pans de la planète commençaient à s'effondrer, comme si elle ne pouvait plus supporter sa propre structure.
 
-« J'ai failli mourir d'asphyxie. Je ne me rappelle même plus depuis combien de temps j'étais en culture en isolation. C'est bien dommage que toutes mes princesses aient dû mourir durant ce temps. Planète Feng Luan, cette fois je suis vraiment furieux! En une seule fois, j'ai cultivé jusqu'au stade initial du Purificateur du Nirvana. Je vais aller régner sur la planète Feng Luan! » La silhouette jurait bruyamment dans les airs, comme s'il voulait déverser toute la colère accumulée au fil des années.
+« J'ai failli mourir d'asphyxie. Je ne me rappelle même plus depuis combien de temps j'étais en culture en isolement. C'est bien dommage que toutes mes princesses aient dû mourir durant ce temps. Planète Feng Luan, cette fois je suis vraiment furieux! En une seule fois, j'ai cultivé jusqu'au stade initial du Purificateur du Nirvana. Je vais aller régner sur la planète Feng Luan! » La silhouette jurait bruyamment dans les airs, comme s'il voulait déverser toute la colère accumulée au fil des années.

@@ -104,7 +104,7 @@ Wang Lin restait assis tranquillement dans sa chambre. Après une journée et un
 
 Le chemin ne fut pas aisé, entravé par la brume blanche. Cependant, après avoir annoncé son nom, quelqu'un alla informer Li Muwan et un passage s'ouvrit. Wang Lin avança lentement; bien que ses pas fussent lents, chaque mouvement était empreint d'une résolution inébranlable.
 
-Arrivé devant la demeure de Li Muwan, la voix de celle-ci résonna: « La retraite de porte fermée de votre maître touche à sa fin. Si vous avez des questions, vous pourrez les lui poser à sa sortie. Désormais, à moins que je ne vous appelle, ne revenez plus ici. »
+Arrivé devant la demeure de Li Muwan, la voix de celle-ci résonna: « L'isolement de votre maître touche à sa fin. Si vous avez des questions, vous pourrez les lui poser à sa sortie. Désormais, à moins que je ne vous appelle, ne revenez plus ici. »
 
 Wang Lin réfléchit un instant, puis dit d'une voix lente: « Je veux une pilule. Une pilule capable de porter mon niveau de culture au stade de l'Âme Naissante en deux mois. »
 

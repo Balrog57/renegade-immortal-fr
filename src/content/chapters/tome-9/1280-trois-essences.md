@@ -34,7 +34,7 @@ Le Shui Daozi était trempé de sueur. En cet instant, tout en endurant la doule
 
 « Maître, merci. Vous tenez encore à me protéger après votre mort, ce qui me rend quelque peu désolé de ce qui s'est passé, mais vous devez mourir, vous devez mourir! » Le Shui Daozi avait été enveloppé par la folie du clou aux sept couleurs, et il la réprimait de toutes ses forces grâce à sa puissante culture. Cependant, cette folie avait altéré sa personnalité; sans cela, compte tenu de son niveau de culture et de son âge, il n'aurait pas tenu de tels propos.
 
-« Tant qu'il n'a pas transpercé complètement, une fois que j'aurai tué cette fourmi, je pourrai entrer en culture de porte close pour forcer l'expulsion de ce clou! » Les yeux du Shui Daozi s'illuminèrent. Il n'hésita plus et chargea Wang Lin.
+« Tant qu'il n'a pas transpercé complètement, une fois que j'aurai tué cette fourmi, je pourrai entrer en isolement pour forcer l'expulsion de ce clou! » Les yeux du Shui Daozi s'illuminèrent. Il n'hésita plus et chargea Wang Lin.
 
 Les yeux de Wang Lin étaient toujours ouverts. Il se sentait lentement marcher vers la mort tout en observant tout ce qui se passait. Lorsqu'il vit le Shui Daozi charger, aucune panique ne brilla dans ses yeux. Au contraire, il y avait un calme absolu, comme si toute la folie précédente avait été libérée avec sa vitalité!
 

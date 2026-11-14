@@ -33,7 +33,7 @@ Wang Zhuo et Wang Hao apprirent également ce qui s'était passé près de la va
 
 Au retour de Pu Nanzi, il apprit la tragédie de la famille Wang. Sous les supplications de Liu Mei, il accepta de prendre Wang Hao comme disciple. Liu Mei savait que c'était la seule chose qu'elle pouvait faire pour aider Wang Lin, même s'il ne le saurait jamais.
 
-Teng Huayuan retourna à la Cité de la Famille Teng avec ce sentiment d'effroi et se lança dans une culture en méditation fermée. Il jura de ne pas ressortir avant d'avoir atteint le stade avancé de l'Âme Naissante.
+Teng Huayuan retourna à la Cité de la Famille Teng avec ce sentiment d'effroi et se lança dans une culture en isolement. Il jura de ne pas ressortir avant d'avoir atteint le stade avancé de l'Âme Naissante.
 
 Tout le pays de Zhao sembla soudainement s'apaiser.
 

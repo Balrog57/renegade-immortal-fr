@@ -8,7 +8,7 @@ slug: cette-bataille
 ---
 Dans la région de rang 9 de la Mer Yun, la Secte Gui!
 
-La Secte Gui était extrêmement mystérieuse au sein de la Mer Yun, et ses disciples sortaient rarement. À cet instant, un vieil homme était en pleine culture à porte close au sein de la Secte Gui.
+La Secte Gui était extrêmement mystérieuse au sein de la Mer Yun, et ses disciples sortaient rarement. À cet instant, un vieil homme était en pleine culture en isolement au sein de la Secte Gui.
 
 Ce vieil homme portait une robe verte, son expression était sombre, et il était entouré de flammes fantomatiques, ce qui lui donnait un air extrêmement sinistre.
 

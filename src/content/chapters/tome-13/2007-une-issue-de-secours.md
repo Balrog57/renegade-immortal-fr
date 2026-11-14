@@ -20,7 +20,7 @@ D'une voix lente, Wang Lin dit: « Puisque vous osez tenir ce discours devant mo
 
 En entendant cela, le prince Ji Du se détendit légèrement. Son geste précédent revenait à tourner autour de la mort, mais il était déterminé. Il ne laisserait pas passer cette chance après avoir rencontré Wang Lin, d'autant plus qu'elle déciderait de son destin!
 
-« L'unique disciple du Grand Empyréen Xuan Luo du Dao Gu se nomme Wang Lin. Bien que ce secret soit jalousement gardé, en tant que membre de la famille royale, nous avons fini par l'apprendre. Lorsque Xuan Luo est revenu du clan céleste, il est immédiatement entré en culture de porte close. Nous avons commencé à enquêter et, avec l'aide du Grand Empyréen Song Tian, nous avons déduit la majeure partie de la vérité.
+« L'unique disciple du Grand Empyréen Xuan Luo du Dao Gu se nomme Wang Lin. Bien que ce secret soit jalousement gardé, en tant que membre de la famille royale, nous avons fini par l'apprendre. Lorsque Xuan Luo est revenu du clan céleste, il est immédiatement entré en isolement. Nous avons commencé à enquêter et, avec l'aide du Grand Empyréen Song Tian, nous avons déduit la majeure partie de la vérité.
 
 « Cependant, même alors, mon père et le Grand Empyréen Song Tian n'étaient pas certains que l'Ascendant Empyréen aux cheveux blancs du clan céleste, Wang Lin, fût la même personne que le disciple du Grand Empyréen Xuan Luo.
 
@@ -60,7 +60,7 @@ Et cette personne devait être quelqu'un en qui le prince avait une confiance te
 
 Le visage du prince Ji Du devint livide. Bien que très rusé, il se sentait totalement mis à nu devant Wang Lin.
 
-« C'était... c'était l'enseignant impérial... Il est mon oncle maternel... Il y a dix ans, après être sorti de sa culture de porte close, il a pratiqué, au prix de sa vie, la divination sur mon avenir. Il m'a dit que lorsque les ambassadeurs du Dao Gu arriveraient, je devais les escorter. C'est là que je rencontrerais une chance de changer mon destin...
+« C'était... c'était l'enseignant impérial... Il est mon oncle maternel... Il y a dix ans, après être sorti de son isolement, il a pratiqué, au prix de sa vie, la divination sur mon avenir. Il m'a dit que lorsque les ambassadeurs du Dao Gu arriveraient, je devais les escorter. C'est là que je rencontrerais une chance de changer mon destin...
 
 « Si je parviens à saisir cette opportunité, ma destinée basculera et mon avenir sera sans limites... Mais si je la laisse passer, je ne vivrai pas plus de cent ans... Quant aux détails, il n'a pu voir clairement, il n'avait qu'un pressentiment vague. Après cela, il... il est mort. »
 

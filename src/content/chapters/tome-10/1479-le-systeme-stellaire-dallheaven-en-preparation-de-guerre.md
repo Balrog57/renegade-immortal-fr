@@ -98,7 +98,7 @@ Il y avait aussi Xiang Yundong, de la famille Xiang. Son visage était livide. I
 
 « Wang Lin!! » Les yeux de Xiang Yundong étaient emplis de panique. Il repensa aussitôt à la façon dont son ancêtre avait drainé la totalité de la force vitale de Wang Lin sous prétexte de soigner sa femme. Par conséquent, une rancune profonde les liait!
 
-À l'origine, la famille Xiang ne s'en souciait guère. Peu importe la puissance de Wang Lin, face à la famille Xiang, c'était comme frapper un rocher avec un œuf. De plus, l'ancêtre de la famille Xiang était en méditation fermée depuis des dizaines de milliers d'années; sa simple présence dissuadait quiconque de les provoquer.
+À l'origine, la famille Xiang ne s'en souciait guère. Peu importe la puissance de Wang Lin, face à la famille Xiang, c'était comme frapper un rocher avec un œuf. De plus, l'ancêtre de la famille Xiang était en isolement depuis des dizaines de milliers d'années; sa simple présence dissuadait quiconque de les provoquer.
 
 « Senior, la culture de cette personne... » Xiang Yundong réprima sa peur et s'adressa à Maître Lu Fu.
 

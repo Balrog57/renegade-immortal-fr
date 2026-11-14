@@ -28,7 +28,7 @@ Wang Lin ne prêta plus attention à Zhang Hu et poursuivit son travail. Le temp
 
 Acculé, Wang Lin dut demander conseil à Situ Nan.
 
-Situ Nan déclara d'une voix lente: « Gamin, tu as enfin compris qu'il fallait venir me voir? Humph, j'attendais cela. Si tu entrais en méditation fermée pendant dix ans en utilisant une grande quantité de liquide spirituel, tu aurais peut-être une chance de réussir cet affinage. Et je parle du monde réel, pas de l'espace dans la Perle Défiant le Ciel. »
+Situ Nan déclara d'une voix lente: « Gamin, tu as enfin compris qu'il fallait venir me voir? Humph, j'attendais cela. Si tu entrais en isolement pendant dix ans en utilisant une grande quantité de liquide spirituel, tu aurais peut-être une chance de réussir cet affinage. Et je parle du monde réel, pas de l'espace dans la Perle Défiant le Ciel. »
 
 Wang Lin fronça les sourcils: « Aussi longtemps? »
 

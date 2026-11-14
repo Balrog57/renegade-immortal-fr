@@ -18,7 +18,7 @@ Situ fut stupéfait. Il répondit précipitamment: « Qui a dit ça?! La premiè
 
 Après avoir lui-même fabriqué une marionnette, Wang Lin avait senti que quelque chose clochait. Il n'en dit pas davantage et demanda plutôt: « Pu Nanzi remarquera-t-il l'anomalie de Zhou Peng? »
 
-Situ hésita un instant avant de répondre: « Pour être honnête, lorsque tu fabriquais la marionnette, j'y ai injecté une partie de mon essence. Ainsi, si un cultivateur de l'Âme Naissante n'examine pas la chose avec une extrême attention, il ne devrait rien remarquer d'anormal. De plus, ce Pu Nanzi est sans doute en méditation de retraite toute l'année; les chances qu'il découvre la vérité sont donc minimes. »
+Situ hésita un instant avant de répondre: « Pour être honnête, lorsque tu fabriquais la marionnette, j'y ai injecté une partie de mon essence. Ainsi, si un cultivateur de l'Âme Naissante n'examine pas la chose avec une extrême attention, il ne devrait rien remarquer d'anormal. De plus, ce Pu Nanzi est sans doute en isolement toute l'année; les chances qu'il découvre la vérité sont donc minimes. »
 
 Wang Lin réfléchit un moment. Il mobilisa son corps, s'élança comme un arc-en-ciel vers le village et disparut en un clin d'œil. Sans marquer le moindre arrêt, il vola droit vers sa demeure.
 

@@ -38,7 +38,7 @@ L'atmosphère tendue était palpable à travers les expressions sombres de ces m
 
 Nul ne parlait; tous étaient occupés à déployer des formations, avant d'activer l'ensemble des sceaux posés sur ces dizaines de planètes.
 
-Au cœur des formations de chaque planète siégeaient trois vieillards. Ils étaient près de cent, et chacun dégageait une aura antique. C'étaient des êtres ayant vécu bien trop longtemps, qui ne sortaient pas de leur retraite sans raison majeure.
+Au cœur des formations de chaque planète siégeaient trois vieillards. Ils étaient près de cent, et chacun dégageait une aura antique. C'étaient des êtres ayant vécu bien trop longtemps, qui ne sortaient pas de leur isolement sans raison majeure.
 
 Pourtant, ils n'avaient plus le choix! Le représentant de la famille Xiang, Xiang Yundong, était revenu avec une nouvelle terrifiante!
 
@@ -94,7 +94,7 @@ Toute l'extrême ouest était imprégnée d'une aura de mort monstrueuse. Cette 
 
 D'innombrables âmes tourmentées poussaient des cris silencieux, chargés de ressentiment.
 
-Wang Lin était déjà venu ici une fois. C'était là que le seul Ancêtre survivant de la famille Xiang pratiquait sa culture en méditation fermée!
+Wang Lin était déjà venu ici une fois. C'était là que le seul Ancêtre survivant de la famille Xiang pratiquait sa culture en isolement!
 
 Plus on s'enfonçait sous terre, plus le sol devenait sombre. Aucune vie ne pouvait subsister ici. Même les membres de la famille Xiang n'osaient s'y aventurer sans une raison impérieuse.
 

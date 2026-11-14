@@ -112,6 +112,6 @@ Après réflexion, Wang Lin observa la branche dans sa main et la rangea. L'obte
 
 Lorsqu'il réapparut, il se trouvait sur le dos de Lei Ji. Le garçon à la grosse tête, encore inquiet, se détendit en voyant Wang Lin revenir et afficha un regard respectueux.
 
-Ta Shan, légèrement blessé lors du combat contre l'avatar de Yu Fei, était assis là pour récupérer. Wang Lin s'installa sur le dos de Lei Ji et dit calmement: « Lei Ji, trouve-moi une planète cachée et abandonnée. Je veux me consacrer à la culture en méditation fermée! »
+Ta Shan, légèrement blessé lors du combat contre l'avatar de Yu Fei, était assis là pour récupérer. Wang Lin s'installa sur le dos de Lei Ji et dit calmement: « Lei Ji, trouve-moi une planète cachée et abandonnée. Je veux me consacrer à la culture en isolement! »
 
 Lei Ji poussa un grondement sonore et s'envola au loin dans l'immensité.

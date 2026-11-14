@@ -12,7 +12,7 @@ Une hypothèse audacieuse traversa soudain l'esprit de Wang Lin. Un jour, alors 
 
 « À en juger par l'étendue de ces ruines, je crains que la population de cette ville n'ait atteint au moins dix millions d'âmes. Un lieu où dix millions de personnes sont mortes devrait être le meilleur lieu de Yin extrême de type souterrain parmi les quatre types : céleste, terrestre, mystique et souterrain. »
 
-Situ Nan avait expliqué en détail les lieux dotés d'une énergie Yin extrême pendant l'entraînement en isolation de Wang Lin. Il existait quatre types de lieux à l'énergie Yin extrême: le Yin céleste, le Yin terrestre, le Yin mystique et le Yin souterrain.
+Situ Nan avait expliqué en détail les lieux dotés d'une énergie Yin extrême pendant l'entraînement en isolement de Wang Lin. Il existait quatre types de lieux à l'énergie Yin extrême: le Yin céleste, le Yin terrestre, le Yin mystique et le Yin souterrain.
 
 Le Yin souterrain était le plus facile à trouver. Tout lieu où un grand nombre d'êtres vivants étaient morts en était un, et plus il y avait eu de morts, meilleur était ce Yin souterrain.
 

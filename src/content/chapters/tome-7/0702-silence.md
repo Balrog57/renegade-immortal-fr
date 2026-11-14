@@ -110,7 +110,7 @@ Wang Lin soupira intérieurement. Ce Lei Daozi était bel et bien un cultivateur
 
 L'énergie spirituelle céleste de l'adversaire était trop puissante, imprégnée de traces d'énergie originelle. Lorsque le tonnerre pénétrait dans le corps de Lei Daozi, il était constamment dissous par cette force.
 
-« Tu es très fort! Je suppose que tu étais en retraite sur la planète Ran Yun pour comprendre ton domaine. Si on te donnait cent ans de plus, tu serais peut-être devenu encore plus puissant que moi. Si ton niveau de culture était le même que le mien, je serais mort sans aucun doute, mais malheureusement, ta progression s'est arrêtée au premier stade! » Lei Daozi prit une profonde inspiration et ses blessures se rétablirent instantanément.
+« Tu es très fort! Je suppose que tu étais en isolement sur la planète Ran Yun pour comprendre ton domaine. Si on te donnait cent ans de plus, tu serais peut-être devenu encore plus puissant que moi. Si ton niveau de culture était le même que le mien, je serais mort sans aucun doute, mais malheureusement, ta progression s'est arrêtée au premier stade! » Lei Daozi prit une profonde inspiration et ses blessures se rétablirent instantanément.
 
 Cependant, Wang Lin sentait clairement qu'il y avait un peu moins d'énergie originelle du monde dans le corps de l'autre.
 

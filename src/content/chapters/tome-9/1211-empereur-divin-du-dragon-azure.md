@@ -10,7 +10,7 @@ Quatre anciens étaient assis à l'extérieur du Temple Qing Long, là où se tr
 
 Des rugissements continuaient d'émaner du temple, résonnant à travers le monde. Ces hurlements étaient empreints d'une douleur infinie, faisant trembler l'esprit de quiconque les entendait.
 
-« Le Souverain Divin est en retraite depuis plus d'un mois... » dit l'un des anciens, le regard inquiet, alors qu'il écoutait ces rugissements.
+« Le Souverain Divin est en isolement depuis plus d'un mois... » dit l'un des anciens, le regard inquiet, alors qu'il écoutait ces rugissements.
 
 L'homme à ses côtés s'apprêtait à répondre lorsque les hurlements provenant de l'intérieur du temple redoublèrent d'intensité. Un grondement assourdissant retentit, semblable au bruit de quelqu'un fracassant la paroi de sa tête.
 
@@ -38,7 +38,7 @@ Après un temps indéterminé, les rugissements de l'Empereur Divin du Dragon Az
 
 Alors que l'Empereur Divin du Dragon Azure riait, des pas résonnèrent dans le temple. Les quatre anciens entrèrent et leurs voix parvinrent de l'extérieur de la chambre.
 
-« Nous saluons le retour du Souverain Divin de sa retraite! »
+« Nous saluons le retour du Souverain Divin de son isolement! »
 
 Tandis qu'ils parlaient, l'Empereur Divin du Dragon Azure forma un sceau et pointa ses mains autour de lui. Les chaînes qui l'entouraient disparurent et les quatre Trésors Sacrés se transformèrent en rayons de lumière avant de pénétrer dans son corps.
 

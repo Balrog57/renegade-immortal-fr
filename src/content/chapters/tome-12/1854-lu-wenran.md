@@ -8,7 +8,7 @@ slug: lu-wenran
 ---
 Après le départ de Wang Lin du Pic Qing Tian, Qing Niu resta assis au sommet de la montagne, contemplant l'horizon. Après un long moment, il murmura des paroles que lui seul pouvait entendre.
 
-« L'Empereur Céleste n'est sorti de sa retraite depuis seulement quelques années. Le Continent Lu Mo ne pouvait effectivement plus se contenir... La divination de la première génération est très précise... Cependant, certains détails subtils sont déplacés, et la méthode de l'Ancêtre était trop indulgente. Elle n'est pas adaptée à la situation actuelle... »
+« L'Empereur Céleste n'est sorti de son isolement depuis seulement quelques années. Le Continent Lu Mo ne pouvait effectivement plus se contenir... La divination de la première génération est très précise... Cependant, certains détails subtils sont déplacés, et la méthode de l'Ancêtre était trop indulgente. Elle n'est pas adaptée à la situation actuelle... »
 
 « L'objectif du Continent Lu Mo est aussi celui de ma Secte Da Hun... C'est également l'objectif de la Secte Gui Yi... » Qing Niu sourit soudainement.
 

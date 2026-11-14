@@ -41,7 +41,7 @@ Cette petite fille poussa des cris comme tous les nouveau-nés, mais personne ne
 
 Le corps de la fillette était très faible. Heureusement, le vieux Zhou était respecté au village des Fleurs d'Abricot et possédait un commerce, ce qui lui permettait de vivre mieux que la plupart des gens.
 
-Une grotte se trouvait dans la montagne à cinquante kilomètres du village des Fleurs d'Abricot. Tie Yan s'y cultivait depuis plus de six mois. Six mois auparavant, Tie Yan et Lu Fei avaient reçu le message de Wang Lin ordonnant à l'un d'eux de venir garder Li Muwan jusqu'à sa sortie de retraite.
+Une grotte se trouvait dans la montagne à cinquante kilomètres du village des Fleurs d'Abricot. Tie Yan s'y cultivait depuis plus de six mois. Six mois auparavant, Tie Yan et Lu Fei avaient reçu le message de Wang Lin ordonnant à l'un d'eux de venir garder Li Muwan jusqu'à sa sortie d'isolement.
 
 Après en avoir discuté, Tie Yan était venu. Son Sens Divin restait verrouillé sur le village à chaque instant tandis qu'il assurait une garde silencieuse.
 

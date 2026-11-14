@@ -110,7 +110,7 @@ Song Qing lança avec ironie: « Si seulement Zeng Niu pouvait venir dans mon pa
 
 Liu Fei eut un sourire amer. « Zeng Niu est un Senior capable d'arracher un bras à Hongdie. Je crains qu'il n'ait même jamais entendu parler de Chu. »
 
-Li Muwan murmura: « Vous pouvez partir et transmettre mes dernières volontés aux deux Grands Anciens en méditation de porte close. Une fois que je vous aurai rendu vos essences de sang, fuyez cet endroit... »
+Li Muwan murmura: « Vous pouvez partir et transmettre mes dernières volontés aux deux Grands Anciens en isolement. Une fois que je vous aurai rendu vos essences de sang, fuyez cet endroit... »
 
 Liu Fei demanda: « Maître, et vous? Pourquoi ne pas venir avec nous? »
 

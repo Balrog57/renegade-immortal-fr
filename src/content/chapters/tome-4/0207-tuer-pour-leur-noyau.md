@@ -96,7 +96,7 @@ Le pilier rouge continua sa chute, bien que réduit à moins de la moitié de sa
 
 Le second démon s'était déjà retiré dès qu'il avait pressenti l'anomalie. Wang Lin observait cette scène apocalyptique à travers ses yeux.
 
-À ce stade, presque tous les cultivateurs de la Mer Xiu Mo étaient sortis de leurs demeures. Même ceux qui étaient en entraînement en porte close s'étaient interrompus pour scruter le ciel.
+À ce stade, presque tous les cultivateurs de la Mer Xiu Mo étaient sortis de leurs demeures. Même ceux qui étaient en entraînement en isolement s'étaient interrompus pour scruter le ciel.
 
 En voyant le pilier rouge via le second démon, une phrase surgit soudainement dans l'esprit de Wang Lin, issue de ses souvenirs hérités:
 

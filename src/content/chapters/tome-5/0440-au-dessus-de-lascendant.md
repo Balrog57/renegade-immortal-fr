@@ -38,7 +38,7 @@ Situ Nan eut un sourire amer et dit: « Comment cela pourrait-il être aussi fac
 
 Ces étapes impliquent un changement de domaine. Ce n'est pas une simple transition de l'immatériel vers le corporel, mais une compréhension plus profonde. Le Dao de chacun étant différent, je ne peux pas l'expliquer en détail, mais ce n'est qu'une fois que votre domaine aura traversé les étapes du Nettoyage Yin-Yang que vous pourrez devenir un Scruteur du Nirvana.
 
-Avant d'être contraint de me cacher dans la Perle Défiant le Ciel, j'avais touché la limite de l'étape du Nettoyage Yin. Bien que je n'aie pas pu cultiver pendant mon emprisonnement, ma compréhension de mon domaine s'était accrue, et j'ai donc achevé l'étape du Nettoyage Yin. Une fois que j'aurai franchi l'étape du Nettoyage Yang, il ne me restera plus qu'à trouver un endroit pour entrer en culture de porte close afin de devenir un Scruteur du Nirvana. »
+Avant d'être contraint de me cacher dans la Perle Défiant le Ciel, j'avais touché la limite de l'étape du Nettoyage Yin. Bien que je n'aie pas pu cultiver pendant mon emprisonnement, ma compréhension de mon domaine s'était accrue, et j'ai donc achevé l'étape du Nettoyage Yin. Une fois que j'aurai franchi l'étape du Nettoyage Yang, il ne me restera plus qu'à trouver un endroit pour entrer en culture en isolement afin de devenir un Scruteur du Nirvana. »
 
 Les yeux de Wang Lin s'illuminèrent et il demanda: « Quel est le niveau de culture de Zhu Quezi? Est-il lui aussi aux étapes du Nettoyage Yin-Yang avant de devenir un Scruteur du Nirvana? »
 

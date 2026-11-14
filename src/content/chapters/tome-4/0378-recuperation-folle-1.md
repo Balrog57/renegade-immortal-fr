@@ -28,7 +28,7 @@ Li Yuanfeng était plus puissant que les cultivateurs au sommet du dernier stade
 
 « Je ne sais pas si Zeng Niu est mort ou non. Même s'il est toujours en vie, mon domaine de thé n'est pas une chose que l'on peut briser aisément. » Li Yuanfeng ricana, le regard glacial.
 
-« Cette junior, Hongdie, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan Ju Mo voulait-il le corps de Zeng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
+« Cette junior, Hongdie, a annoncé qu'elle entrerait en isolement pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan Ju Mo voulait-il le corps de Zeng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
 
 À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples extérieurs de la Secte Lian Hun, Wang Lin s'éveilla de sa culture.
 
@@ -46,7 +46,7 @@ Le soleil brillait au-dehors. En regardant au loin, on devinait les prémices du
 
 Wang Lin prit une grande inspiration et s'apprêtait à partir quand son expression changea. Il se tourna pour regarder sur le côté.
 
-D'innombrables grottes se trouvaient près de la sienne. Comme il était resté en retraite depuis tout ce temps, il n'avait rencontré personne d'autre que l'homme d'âge mûr.
+D'innombrables grottes se trouvaient près de la sienne. Comme il était resté en isolement depuis tout ce temps, il n'avait rencontré personne d'autre que l'homme d'âge mûr.
 
 À cet instant, une autre personne sortit d'une grotte située à plus de cent pieds de là. Elle portait des vêtements bleu clair en fils fins et un voile blanc sur l'épaule, lui donnant un air éthéré, presque surnaturel.
 
@@ -54,7 +54,7 @@ Sa longue chevelure noire ondulait au gré du vent. Son beau visage, d'une douce
 
 Cette femme sembla remarquer que quelqu'un l'observait et tourna la tête. Ses yeux possédaient une beauté inexplicable. Après avoir aperçu Wang Lin, elle esquissa un sourire en guise de réponse avant de porter son regard vers l'horizon.
 
-Wang Lin détourna les yeux. Il reconnut immédiatement cette jeune femme comme celle qu'il avait vue au coucher du soleil avant sa retraite.
+Wang Lin détourna les yeux. Il reconnut immédiatement cette jeune femme comme celle qu'il avait vue au coucher du soleil avant son isolement.
 
 Wang Lin fronça les sourcils. « Cette fille me semble familière... Pourtant, je suis certain de ne jamais l'avoir rencontrée auparavant... »
 

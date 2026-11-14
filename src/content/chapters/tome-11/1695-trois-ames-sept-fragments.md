@@ -10,7 +10,7 @@ slug: trois-ames-sept-fragments
 
 « Avec une force écrasante, il les a tous gravement blessés. C'est à ce moment-là que ma petite sœur et plusieurs concubines se sont rebellées pour attaquer aux côtés de Lian Daofei.
 
-« Au plus fort du chaos, Lian Daofei a survolé tout le monde pour se diriger vers l'endroit où Sept Couleurs était en retraite méditative. Cela a forcé Sept Couleurs à sortir pour l'affronter.
+« Au plus fort du chaos, Lian Daofei a survolé tout le monde pour se diriger vers l'endroit où Sept Couleurs était en isolement. Cela a forcé Sept Couleurs à sortir pour l'affronter.
 
 Cette bataille fut d'une férocité extrême. Sept Couleurs étant déjà blessé, il ne faisait pas le poids. Il invoqua alors le Dao Céleste stocké dans le monde caverneux et utilisa sa capacité de dévoration pour faire face à Lian Daofei.
 

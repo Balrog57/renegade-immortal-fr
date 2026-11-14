@@ -39,7 +39,7 @@ Deux cultivateurs Ascendants se tenaient derrière Zhou Wutai. C'étaient deux v
 
 De l'autre côté de la planète Suzaku, Yun Quezi ouvrit les yeux après des centaines d'années de culture en ermitage. Il paraissait beaucoup plus âgé et la rune entre ses sourcils scintillait. Il se leva, fit un pas en avant, puis apparut dans les airs pour scruter l'horizon. Le Clan Xian Yi s'était rassemblé un à un derrière lui, les traits extrêmement graves.
 
-Simultanément, certains cultivateurs qui ne se souciaient guère des affaires mondaines sortirent de leurs retraites. Ils levèrent les yeux vers le ciel alors qu'une aura oppressante apparaissait. Cette pression était semblable à des montagnes s'effondrant du ciel; quiconque oserait résister serait écrasé!
+Simultanément, certains cultivateurs qui ne se souciaient guère des affaires mondaines sortirent de leur isolement. Ils levèrent les yeux vers le ciel alors qu'une aura oppressante apparaissait. Cette pression était semblable à des montagnes s'effondrant du ciel; quiconque oserait résister serait écrasé!
 
 Dans la Secte Yun Tian, Tie Yan était déjà vieux et ses yeux étaient voilés. Son corps était entouré d'une aura de mort, sa durée de vie atteignant bientôt son terme. Il lutta pour se tenir debout sur la place de la Secte Yun Tian et regarda silencieusement le ciel.
 

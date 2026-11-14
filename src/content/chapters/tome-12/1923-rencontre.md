@@ -24,7 +24,7 @@ En revanche, l'expression du Maître de la Secte Di Men changea radicalement. Il
 
 Il n'osait pas ne pas venir, il n'osait pas désobéir!
 
-L'Exalté Doré de la Secte Di Men était également présent. Il pratiquait une culture en isolation depuis des années et ne sortait que rarement. Alors qu'il était assis en méditation, son cœur tressaillit. Le sens divin de Wang Lin était impérieux, forçant le passage à travers tous les obstacles pour résonner jusque dans son âme.
+L'Exalté Doré de la Secte Di Men était également présent. Il pratiquait une culture en isolement depuis des années et ne sortait que rarement. Alors qu'il était assis en méditation, son cœur tressaillit. Le sens divin de Wang Lin était impérieux, forçant le passage à travers tous les obstacles pour résonner jusque dans son âme.
 
 L'Ancien Exalté Doré de la Secte Di Men ouvrit les yeux, le regard empreint de choc et de terreur.
 

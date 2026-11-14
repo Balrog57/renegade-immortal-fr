@@ -8,7 +8,7 @@ slug: attachement
 ---
 Les cinq planètes majeures du domaine nordique du Système Stellaire de Luotian possédaient chacune de nombreuses planètes de culture sous leur autorité, sur lesquelles résidaient de multiples familles de cultivateurs. Après avoir obtenu les Fruits d'Ascension Céleste de la famille Huan sur la planète Qianhuan, Wang Lin, monté sur le dos de la Bête du Tonnerre, se dirigea directement vers la famille Qian.
 
-Les cultivateurs du second niveau de la famille Qian étaient entrés en retraite de culture depuis longtemps; par conséquent, toute la gestion de la famille incombait à Qian Kuizi. Lorsque Wang Lin pénétra sur la planète Qianhuan, Qian Kuizi le remarqua instantanément.
+Les cultivateurs du second niveau de la famille Qian étaient entrés en isolement depuis longtemps; par conséquent, toute la gestion de la famille incombait à Qian Kuizi. Lorsque Wang Lin pénétra sur la planète Qianhuan, Qian Kuizi le remarqua instantanément.
 
 En voyant arriver Wang Lin sur la Bête du Tonnerre, il fut convaincu que les propos de l'ancêtre de la famille Huan étaient absurdes. Cet homme était, sans l'ombre d'un doute, un messager du Temple Lei Xian.
 
@@ -16,7 +16,7 @@ En songeant aux puissants trésors et sorts que cet individu avait démontrés s
 
 « Le messager du Temple Lei Xian sur lequel ma famille Qian comptait est tombé au combat dans le Royaume Céleste du Tonnerre il y a plusieurs milliers d'années. Dans le Système Stellaire de Luotian, à moins de faire partie des familles anciennes, chacun doit s'appuyer sur un messager du Temple Lei Xian pour survivre... » Qian Kuizi hésitait. Sa décision actuelle déterminerait l'avenir et le développement de la famille Qian.
 
-« Malheureusement, tous les cultivateurs du second niveau de la famille sont en retraite de culture. Je ne peux pas les déranger, sinon j'aurais quelqu'un avec qui discuter de cela. »
+« Malheureusement, tous les cultivateurs du second niveau de la famille sont en isolement. Je ne peux pas les déranger, sinon j'aurais quelqu'un avec qui discuter de cela. »
 
 Tandis que Qian Kuizi tergiversait, Wang Lin se dirigea vers la cité de la famille Qian sur la Bête du Tonnerre.
 

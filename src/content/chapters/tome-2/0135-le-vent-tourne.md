@@ -60,7 +60,7 @@ Wang Lin comprit que ce n'était pas une solution viable sur le long terme alors
 
 Il serra les dents et changea de trajectoire. Il ne se dirigea plus vers Xuan Wu, mais vers le Temple Zhan Shen. Il ne croyait pas que ce sanctuaire avait été anéanti par ces premières bêtes. S'il avait été lui-même l'ancêtre du Temple Zhan Shen, il aurait certainement choisi de migrer en bloc, et une telle chose ne se faisait pas sur un coup de tête : cela prendrait forcément du temps.
 
-Et même s'ils étaient déjà partis, ils ne pouvaient aller trop vite : une migration de toute la secte impliquait beaucoup trop de monde. Or il n'était resté en retraite dans la grotte que huit jours; même si les bêtes de feu étaient apparues dès le premier jour de sa retraite, le Temple Zhan Shen n'aurait pas pu déménager aussi vite.
+Et même s'ils étaient déjà partis, ils ne pouvaient aller trop vite : une migration de toute la secte impliquait beaucoup trop de monde. Or il n'était resté en isolement dans la grotte que huit jours; même si les bêtes de feu étaient apparues dès le premier jour de son isolement, le Temple Zhan Shen n'aurait pas pu déménager aussi vite.
 
 Ce n'étaient là que des suppositions. Ce qui l'avait poussé à cette décision, c'étaient les Essences de Sang de l'Âme qui lui indiquaient la position approximative de Yang Xiong et de Lin Tao.
 

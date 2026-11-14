@@ -105,7 +105,7 @@ La Secte Yun Tian se divisait en sectes intérieure et extérieure. La secte int
 
 « Sors me voir! » La voix de Zhou Lin résonna de l'extérieur. Wang Lin ouvrit les yeux et sortit. Bien qu'il fût tard, la lumière lunaire rendait tout aussi clair que le jour pour les cultivateurs.
 
-Zhou Lin se tenait dans le jardin. Lorsque Wang Lin apparut, il lui lança un morceau de jade en disant: « Ton maître doit entrer en retraite pour absorber la pilule d'élément eau. Si cela va vite, cela ne prendra que quelques mois, mais cela pourrait durer des années. Par conséquent, je n'aurai pas le temps de t'enseigner l'alchimie. »
+Zhou Lin se tenait dans le jardin. Lorsque Wang Lin apparut, il lui lança un morceau de jade en disant: « Ton maître doit entrer en isolement pour absorber la pilule d'élément eau. Si cela va vite, cela ne prendra que quelques mois, mais cela pourrait durer des années. Par conséquent, je n'aurai pas le temps de t'enseigner l'alchimie. »
 
 « À l'intérieur de ce jade se trouvent des décennies d'expérience et plusieurs recettes de pilules. Étudie-les par toi-même. Si tu as des problèmes, rends-toi à la cour sud. Dans la troisième cour, tu trouveras le maître de ton maître. Je l'ai déjà informée de mon intention de te prendre comme disciple. »
 
@@ -117,7 +117,7 @@ Zhou Lin ne remarqua pas ses pensées. Il poursuivit après un silence: « Le ma
 
 Wang Lin prit une profonde inspiration et hocha la tête.
 
-Zhou Lin soupira: « En réalité, je devais t'enseigner les bases avant ma retraite, mais si j'attends trop, l'efficacité de la pilule d'élément eau diminuera. À mon retour, je te préparerai quelques lots de pilules de solidification de fondation en compensation. » Il regarda Wang Lin: « Je serai en retraite dans la montagne arrière. Tu peux continuer à vivre ici. Ma chambre est protégée par une restriction, ne la touche pas. »
+Zhou Lin soupira: « En réalité, je devais t'enseigner les bases avant mon isolement, mais si j'attends trop, l'efficacité de la pilule d'élément eau diminuera. À mon retour, je te préparerai quelques lots de pilules de solidification de fondation en compensation. » Il regarda Wang Lin: « Je serai en isolement dans la montagne arrière. Tu peux continuer à vivre ici. Ma chambre est protégée par une restriction, ne la touche pas. »
 
 Après avoir parlé, Zhou Lin sortit un ensemble de vêtements, un badge et un sac de rangement qu'il posa de côté. Il prit ensuite une fiole blanche: « Voici les vêtements de disciple de la 10ème génération que ton maître a pris pour toi. Quant à cette fiole, elle contient trois pilules spirituelles de demi-rang. Prends-en deux; la dernière servira à l'analyse, selon la méthode décrite dans mon jade. »
 

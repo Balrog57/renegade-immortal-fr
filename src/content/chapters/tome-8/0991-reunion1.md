@@ -56,7 +56,7 @@ Les yeux de Situ Nan brillèrent d'une lueur étrange alors qu'il fondait sur la
 
 Un vortex apparut au bout du doigt de Situ Nan, et des sons d'explosion résonnèrent de l'intérieur de la spirale. Une énergie originelle infinie se condensa dans le tourbillon, le faisant pivoter de plus en plus vite. À la fin, il semblait immobile, tant sa vitesse de rotation avait atteint un degré inimaginable.
 
-« Lors de ma dernière retraite, j'ai affiné le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers. De plus, j'ai perfectionné trois autres techniques de doigt. Je peux briser cette simple formation de protection planétaire en quelques respirations à peine! » Les yeux de Situ Nan s'illuminèrent alors qu'il pointait impitoyablement vers l'avant.
+« Lors de mon dernier isolement, j'ai affiné le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers. De plus, j'ai perfectionné trois autres techniques de doigt. Je peux briser cette simple formation de protection planétaire en quelques respirations à peine! » Les yeux de Situ Nan s'illuminèrent alors qu'il pointait impitoyablement vers l'avant.
 
 Le vortex fonça vers la formation entourant la planète Shuiling. Il la rejoignit instantanément et percuta la première couche.
 

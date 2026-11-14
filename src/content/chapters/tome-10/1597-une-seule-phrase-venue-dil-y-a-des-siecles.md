@@ -106,7 +106,7 @@ Un rugissement retentit depuis la montagne principale et une silhouette apparut 
 
 « Senior Frère, qui est cette personne? » Alors qu'une voix ancienne résonnait, l'ombre noire se rapprocha. C'était également un homme d'âge moyen, dont le regard balaya Wang Lin.
 
-« Dun Tian, cet homme est un érudit que j'ai invité ici. Tu es en pleine fusion avec le drapeau, ne te laisse pas distraire. Retourne rapidement à ta culture en méditation fermée. » Une lueur de soulagement traversa les yeux de Nian Tian lorsqu'il parla.
+« Dun Tian, cet homme est un érudit que j'ai invité ici. Tu es en pleine fusion avec le drapeau, ne te laisse pas distraire. Retourne rapidement à ta culture en isolement. » Une lueur de soulagement traversa les yeux de Nian Tian lorsqu'il parla.
 
 Dun Tian sourit. Aux yeux de celui-ci, Wang Lin n'était qu'un simple mortel. Bien qu'il lui ait jeté un regard, il ne prit pas la peine de s'en souvenir. Il se retourna et disparut.
 

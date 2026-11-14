@@ -18,7 +18,7 @@ Au son de la cloche, la fumée qui flottait dans l'air se distordit et s'aggluti
 
 La silhouette en sortit et se tint debout dans le ciel!
 
-« Bienvenue de votre retraite, Maître! » Les cultivateurs environnants, au nombre de près de cent, joignirent les mains en signe de respect devant la silhouette.
+« Bienvenue à votre sortie d'isolement, Maître! » Les cultivateurs environnants, au nombre de près de cent, joignirent les mains en signe de respect devant la silhouette.
 
 Il s'agissait d'un homme d'âge moyen à la chevelure noire retombant sur ses épaules. Il n'était pas particulièrement beau, mais il dégageait un tempérament étrange et une aura surnaturelle.
 
@@ -28,7 +28,7 @@ Tandis qu'il surplombait les lieux, son regard balaya ses disciples en contrebas
 
 Le jeune homme en noir, chef du groupe qui voulait réprimander Wang Lin, hocha la tête avec sérieux. Il jeta un regard à Wang Lin avant de se diriger vers la salle.
 
-L'expression de Wang Lin restait calme. D'après les souvenirs qu'il avait extraits de la troisième âme, son maître avait été très bon envers lui. Si ce dernier n'avait pas été constamment en retraite, il n'aurait jamais subi de tels traitements injustes au sein de la secte.
+L'expression de Wang Lin restait calme. D'après les souvenirs qu'il avait extraits de la troisième âme, son maître avait été très bon envers lui. Si ce dernier n'avait pas été constamment en isolement, il n'aurait jamais subi de tels traitements injustes au sein de la secte.
 
 Dans ses premières années, la personnalité de Sept-Couleurs était lâche et il ne disait jamais rien.
 
@@ -36,7 +36,7 @@ Quant à Zhou Li, c'était le Grand Senior frère de Sept-Couleurs, également t
 
 S’avançant sous la pluie, Wang Lin entra dans la salle sous les regards envieux de l'assemblée. À l'intérieur, l'homme d'âge moyen était assis sur une chaise, tandis que Zhou Li se tenait respectueusement à ses côtés.
 
-« Le Maître ne restera pas longtemps hors de sa retraite. Une fois quelques affaires réglées, je retournerai en méditation », dit lentement l'homme d'âge moyen. Son regard balaya Zhou Li puis Wang Lin avant de plonger dans une réflexion silencieuse.
+« Le Maître ne restera pas longtemps hors de son isolement. Une fois quelques affaires réglées, je retournerai en méditation », dit lentement l'homme d'âge moyen. Son regard balaya Zhou Li puis Wang Lin avant de plonger dans une réflexion silencieuse.
 
 Wang Lin avait déjà vu cette scène dans les souvenirs de la troisième âme. Il savait qu'après avoir donné quelques instructions, le maître de Su Dao leur enseignerait un art.
 

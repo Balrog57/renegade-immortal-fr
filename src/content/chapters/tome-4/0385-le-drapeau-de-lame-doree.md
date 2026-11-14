@@ -86,7 +86,7 @@ Liu Wei murmura: « Senior sœur, je suis toujours un peu inquiète car nous avo
 
 « Junior frère Qing Mu, je suis Guo Dongjian. J'espère que tu sortiras pour que nous puissions discuter. »
 
-Xu Yun se leva et dit: « Senior frère Guo, je vous prie de repartir; le Senior frère Qing Mu est toujours en culture de méditation fermée. »
+Xu Yun se leva et dit: « Senior frère Guo, je vous prie de repartir; le Senior frère Qing Mu est toujours en isolement. »
 
 Guo Dongjian fronça les sourcils. Il se tourna vers Xu Yun et demanda: « Vous deux êtes les concubines de Qing Mu? »
 
@@ -116,7 +116,7 @@ Les fragments d'âmes autour de lui chargèrent soudainement Wang Lin. Certains 
 
 Wang Lin resta impassible. Il pointa sa main droite et dit: « Vortex! »
 
-Un immense tourbillon noir apparut devant lui. Guo Dongjian pâlit aussitôt et dit d'une voix amère: « Senior frère Qing Mu, ta retraite n'était donc qu'un entraînement aux arts de raffinement des âmes : en seulement trois mois, tu as réussi à créer un tourbillon d'âmes. Je suis admiratif. »
+Un immense tourbillon noir apparut devant lui. Guo Dongjian pâlit aussitôt et dit d'une voix amère: « Senior frère Qing Mu, ton isolement n'était donc qu'un entraînement aux arts de raffinement des âmes : en seulement trois mois, tu as réussi à créer un tourbillon d'âmes. Je suis admiratif. »
 
 À peine eut-il prononcé ce mot que les fragments d'âmes qui chargeaient vers lui poussèrent des cris déchirants et furent aspirés par le vortex. Rapidement, tous les fragments disparurent, à l'exception de celui dégageant l'aura de l'Âme Naissante.
 

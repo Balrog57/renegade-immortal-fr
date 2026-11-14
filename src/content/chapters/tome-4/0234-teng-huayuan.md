@@ -56,7 +56,7 @@ Wang Lin chevaucha la bête moustique vers la secte, le cœur chargé d'émotion
 
 Sans qu'il ait besoin d'agir, la bête moustique poussa un cri strident et planta son énorme trompe dans l'écran de lumière. Puis, elle aspira profondément: l'écran se mit à vaciller violemment avant de se dissiper dans des craquements.
 
-En conséquence, les expressions des quelques cultivateurs au stade de la Formation du Noyau qui étaient en retraite changèrent soudainement alors qu'ils sortaient précipitamment. Ils fixèrent avec stupeur Wang Lin et la bête moustique sous lui. Ils ordonnèrent rapidement aux disciples d'interrompre la cérémonie de recrutement et se précipitèrent pour attendre l'arrivée de Wang Lin devant la salle principale.
+En conséquence, les expressions des quelques cultivateurs au stade de la Formation du Noyau qui étaient en isolement changèrent soudainement alors qu'ils sortaient précipitamment. Ils fixèrent avec stupeur Wang Lin et la bête moustique sous lui. Ils ordonnèrent rapidement aux disciples d'interrompre la cérémonie de recrutement et se précipitèrent pour attendre l'arrivée de Wang Lin devant la salle principale.
 
 Dès que Wang Lin arriva, les trois cultivateurs de la Formation du Noyau s'approchèrent respectueusement et dirent: « Nous saluons le Senior d'un pays supérieur. » Les trois étaient horrifiés. Bien que Wang Lin n'émettait aucune énergie spirituelle, ils ressentaient une pression émanant de lui qui faisait trembler leurs cœurs.
 
@@ -122,7 +122,7 @@ Zhao se situait à l'extrême bord du continent Kong Meng. Ce n'était pas un gr
 
 Bien qu'il possédât des veines spirituelles, leur production était très faible, suffisant à peine à soutenir le pays; même lors des périodes d'exploitation minière, l'extraction restait limitée. En raison de la rareté des veines spirituelles, les herbes spirituelles étaient également devenues très rares. On pouvait dire que Zhao était un tout petit pays frontalier.
 
-De nos jours, la secte numéro un à Zhao était la Secte Xuan Dao, et son ancêtre, Pu Nanzi, avait atteint le stade avancé de l'Âme Naissante il y a 400 ans. Après 400 ans de retraite, bien qu'il n'ait pas atteint le stade de la Formation de l'Âme, sa culture avait encore progressé d'un cran, et les autres cultivateurs au stade avancé de l'Âme Naissante n'étaient absolument pas de taille face à lui.
+De nos jours, la secte numéro un à Zhao était la Secte Xuan Dao, et son ancêtre, Pu Nanzi, avait atteint le stade avancé de l'Âme Naissante il y a 400 ans. Après 400 ans d'isolement, bien qu'il n'ait pas atteint le stade de la Formation de l'Âme, sa culture avait encore progressé d'un cran, et les autres cultivateurs au stade avancé de l'Âme Naissante n'étaient absolument pas de taille face à lui.
 
 Outre la Secte Xuan Dao, les sectes orthodoxes de Zhao, comme la Secte Piao Miao, ne s'en sortaient plus aussi bien et étaient progressivement devenues des sectes de seconde zone. Parallèlement, la Secte Ji Mie et la Secte Yuan Kui avaient subi le même sort. En raison de l'ascension de Pu Nanzi, leurs sectes avaient été reléguées au second rang.
 

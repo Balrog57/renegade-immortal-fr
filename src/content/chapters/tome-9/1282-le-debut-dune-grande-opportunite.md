@@ -16,7 +16,7 @@ En cet instant, si ce clou aux sept couleurs ne s'était pas enfoncé complètem
 
 Cependant, l'avatar du vieil homme de pierre du Royaume Céleste du Vent était arrivé, et son doigt, venu sans prévenir, avait enfoncé le clou jusqu'à cinq pouces de profondeur. Cela rendit Shui Daozi presque fou, car il ne parvint pas à contenir la force en lui.
 
-Mobilisant sa puissante culture du troisième niveau, Shui Daozi parvint de justesse à réprimer l'attaque par la force. Il comptait tuer Wang Lin pour ensuite entrer en méditation de porte close afin de guérir.
+Mobilisant sa puissante culture du troisième niveau, Shui Daozi parvint de justesse à réprimer l'attaque par la force. Il comptait tuer Wang Lin pour ensuite entrer en isolement afin de guérir.
 
 Pourtant, il n'aurait jamais pu imaginer qu'au moment même où son sort s'abattait pour achever Wang Lin, le jade de son maître apparaîtrait!
 

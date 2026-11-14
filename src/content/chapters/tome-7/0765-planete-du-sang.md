@@ -9,13 +9,13 @@ slug: planete-du-sang
 
 La Planète du Sang était une planète baignée d'une lumière rouge sang. Elle ne se trouvait pas dans la sphère d'influence de la planète Tian Yun et en était assez éloignée.
 
-En vérité, aucun des puissants cultivateurs capables d'utiliser une planète entière comme retraite ne choisirait de s'installer trop près des autres. Même ceux qui étaient de grands amis agissaient ainsi.
+En vérité, aucun des puissants cultivateurs capables d'utiliser une planète entière comme demeure ne choisirait de s'installer trop près des autres. Même ceux qui étaient de grands amis agissaient ainsi.
 
 Après tout, ils ne pouvaient pas baisser leur garde face à autrui. Ces vieux monstres qui avaient cultivé pendant de nombreuses années en étaient particulièrement conscients.
 
-De même, un cultivateur suffisamment puissant pour utiliser une planète entière comme retraite n'aurait naturellement pas besoin de la protection de la planète Tian Yun. Il était donc logique qu'ils choisissent un endroit reculé pour s'établir.
+De même, un cultivateur suffisamment puissant pour utiliser une planète entière comme demeure n'aurait naturellement pas besoin de la protection de la planète Tian Yun. Il était donc logique qu'ils choisissent un endroit reculé pour s'établir.
 
-L'aspect le plus crucial dans le choix de l'emplacement d'une retraite était de se situer en dehors de la portée du Sens Divin d'autrui. Autrement, le moindre de vos mouvements serait perçu.
+L'aspect le plus crucial dans le choix de l'emplacement d'une demeure était de se situer en dehors de la portée du Sens Divin d'autrui. Autrement, le moindre de vos mouvements serait perçu.
 
 Xue Zu était un cultivateur porteur de secrets; il s'était donc montré encore plus prudent lors du choix de sa demeure.
 

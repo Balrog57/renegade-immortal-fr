@@ -76,6 +76,6 @@ Après avoir rangé le jeton, Wang Lin lança un regard glacial à Liu Mei. Il s
 
 Après un long moment, Liu Mei détourna les yeux et soupira. Son charme inégalable semblait n'avoir aucun effet sur Wang Lin.
 
-De retour dans sa grotte, Wang Lin sortit les cinq jetons. Après une courte réflexion, il écrasa quatre d'entre eux sans la moindre hésitation et rangea le dernier dans son sac de rangement. Il utilisa sa technique d'attraction pour déplacer des rochers afin de sceller l'entrée de la grotte. Après avoir disposé quelques formations d'alerte, il commença sa culture en méditation fermée.
+De retour dans sa grotte, Wang Lin sortit les cinq jetons. Après une courte réflexion, il écrasa quatre d'entre eux sans la moindre hésitation et rangea le dernier dans son sac de rangement. Il utilisa sa technique d'attraction pour déplacer des rochers afin de sceller l'entrée de la grotte. Après avoir disposé quelques formations d'alerte, il commença sa culture en isolement.
 
 Il devait être pleinement préparé pour la bataille qui l'attendait dans deux mois.

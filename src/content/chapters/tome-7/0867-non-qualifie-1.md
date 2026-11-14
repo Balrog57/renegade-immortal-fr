@@ -46,7 +46,7 @@ Cette main colossale fendit l'air avec la rapidité de la foudre et saisit le cu
 
 Le visage du cultivateur devint instantanément livide. Il n'était qu'au stade de l'Yin Illusoire et, après avoir été saisi par cette main démoniaque, il eut la sensation que de la glace s'insinuait dans son corps pour solidifier son énergie d'origine. Dès qu'il toucha le sol, il se précipita pour s'asseoir en position du lotus.
 
-Luo Su laissa paraître son impatience. Il ne considérait pas cette compétition pour le titre céleste comme digne de son temps. S'il n'avait pas été personnellement sollicité par le Seigneur du Temple — ce qui signifiait qu'il ne pouvait refuser — il ne serait jamais venu agir en tant que juge pour la première épreuve et aurait depuis longtemps poursuivi sa culture en retraite afin d'atteindre au plus tôt le stade tardif du Scruteur du Nirvana. En outre, il y avait une autre raison à sa présence ici.
+Luo Su laissa paraître son impatience. Il ne considérait pas cette compétition pour le titre céleste comme digne de son temps. S'il n'avait pas été personnellement sollicité par le Seigneur du Temple — ce qui signifiait qu'il ne pouvait refuser — il ne serait jamais venu agir en tant que juge pour la première épreuve et aurait depuis longtemps poursuivi sa culture en isolement afin d'atteindre au plus tôt le stade tardif du Scruteur du Nirvana. En outre, il y avait une autre raison à sa présence ici.
 
 Après avoir précipité le cultivateur au sol, son impatience s'accentua. Son sens divin se déploya et le monde parut changer de couleur. Le sens divin de Luo Su était extrêmement singulier et capable de changer de forme; lorsqu'il se manifesta, un géant doré apparut instantanément, faisant résonner un grondement sourd dans le vide.
 

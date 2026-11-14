@@ -10,7 +10,7 @@ slug: evasion-de-la-terre-raffinement-du-tonnerre
 
 À cet instant, non seulement Lanmeng Daozun, mais l'expression de presque tous les cultivateurs du troisième niveau changea. Ils levèrent les yeux vers le ciel avec des visages extrêmement sombres.
 
-Une partie du Royaume Céleste Antique existait au sein du Système Stellaire Antique, bien que peu de personnes le sachent. À l'intérieur se trouvaient quelques femmes qui, sorties de leur retraite, ouvrirent les yeux pour regarder vers le haut!
+Une partie du Royaume Céleste Antique existait au sein du Système Stellaire Antique, bien que peu de personnes le sachent. À l'intérieur se trouvaient quelques femmes qui, sorties de leur isolement, ouvrirent les yeux pour regarder vers le haut!
 
 Au sein du Système Stellaire Antique, dans une région stellaire sauvage, une silhouette gigantesque se déplaçait rapidement. C'était Tuo Sen! Ses yeux étaient injectés de sang, et sa main droite frappait sans cesse entre ses sourcils, créant des grondements tonitruants qui se propageaient au loin!
 

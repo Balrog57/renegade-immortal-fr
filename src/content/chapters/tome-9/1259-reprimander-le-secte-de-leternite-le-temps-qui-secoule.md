@@ -84,7 +84,7 @@ Deux mille ans de souvenirs furent inconsciemment parcourus. Le vieil homme aux 
 
 Sa culture fut progressivement réprimée et perdit de sa vigueur en s'évanouissant lentement. Le vieil homme vit son disciple préféré mourir dans la faille spatiale de la Secte Yao il y a trois mille ans. Aucun reste n'avait été retrouvé, seule une épée brisée avait été rapportée.
 
-En voyant cette épée brisée, la tristesse d'autrefois envahit de nouveau son cœur. Il se remémora l'époque d'il y a quatre mille ans, puis cinq mille ans, avant d'atteindre le sommet du premier Fléau Céleste. Il luttait en méditation fermée pour résister à la décomposition que le premier Fléau Céleste infligeait à son corps.
+En voyant cette épée brisée, la tristesse d'autrefois envahit de nouveau son cœur. Il se remémora l'époque d'il y a quatre mille ans, puis cinq mille ans, avant d'atteindre le sommet du premier Fléau Céleste. Il luttait en isolement pour résister à la décomposition que le premier Fléau Céleste infligeait à son corps.
 
 Tandis que ses souvenirs étaient remués, il sembla retourner dans son passé; la douleur envahit tout son être, le submergeant. Son niveau de culture retourna également à ce qu'il était cinq mille ans auparavant et se dissipa rapidement.
 

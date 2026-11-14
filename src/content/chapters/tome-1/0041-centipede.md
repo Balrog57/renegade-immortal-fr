@@ -20,7 +20,7 @@ C’étaient eux, les véritables adversaires sur lesquels ils devaient se conce
 
 Le chef de secte, Huang Long, scruta les disciples de la Secte Xuan Dao. Son regard s'arrêta sur le jeune homme et la jeune femme dotés d'une racine spirituelle d'eau unique. Il soupira intérieurement. Au cours des cinq cents dernières années, la Secte Heng Yue avait véritablement décliné, faute de successeurs de talent. Même la Secte Xuan Dao, qui n'était qu'une petite secte obscure il y a cinq siècles, était désormais capable de la surpasser, et la Secte Heng Yue avait enchaîné les défaites. Il pensait initialement qu'ils l'emporteraient cette fois-ci, mais l'apparition de deux disciples aux racines spirituelles d'un seul élément l'inquiétait profondément.
 
-« Faut-il vraiment faire sortir les disciples vêtus de pourpre? Mais ils sont en retraite de mort... » Soudain, le regard de Huang Long se posa sur le disciple resté tout au fond, son visage se crispa légèrement, et il prit enfin une décision.
+« Faut-il vraiment faire sortir les disciples vêtus de pourpre? Mais ils sont en isolement de mort... » Soudain, le regard de Huang Long se posa sur le disciple resté tout au fond, son visage se crispa légèrement, et il prit enfin une décision.
 
 « Très bien. Puisque l'autre camp possède un tel disciple, il est temps que nos disciples centraux sortent. »
 
@@ -46,7 +46,7 @@ Comme lui, de nombreux disciples fuyaient la cohue, dont une jeune femme nommée
 
 Wang Lin eut un petit rire. Il secoua la tête et répondit: « Ce n'est pas tout à fait vrai. Je vois bien que la plupart d'entre eux cultivent également avec acharnement. »
 
-La jeune femme Zhou regarda les nuages et soupira: « Ne te sous-estime pas, Junior frère Wang. Durant ces quatre années de retraite, presque tous les disciples intérieurs sortaient très souvent, mais je t'ai rarement vu. La culture est une activité bien ennuyeuse... Pour être honnête, je t'admire. Atteindre le 3ème niveau en quatre ans demande une immense persévérance! »
+La jeune femme Zhou regarda les nuages et soupira: « Ne te sous-estime pas, Junior frère Wang. Durant ces quatre années d'isolement, presque tous les disciples intérieurs sortaient très souvent, mais je t'ai rarement vu. La culture est une activité bien ennuyeuse... Pour être honnête, je t'admire. Atteindre le 3ème niveau en quatre ans demande une immense persévérance! »
 
 Wang Lin se frotta le nez en souriant: « Senior sœur Zhou, n'avez-vous pas vous aussi atteint le 3ème niveau? »
 

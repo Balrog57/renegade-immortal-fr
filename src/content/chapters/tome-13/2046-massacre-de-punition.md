@@ -12,7 +12,7 @@ Le corps sphérique de la boule de viande était illusoire; dès son apparition,
 
 Alors qu'il allait percuter sa cible, Wang Lin était toujours assis dans la chambre secrète, sa main droite levée. Dans sa paume reposait une petite silhouette qui cultivait elle aussi.
 
-Wang Lin ouvrit soudain les yeux. Après plus d'un siècle de retraite, il n'était plus le même homme. Son expression était d'un calme absolu et, à l'instant précis où il ouvrit les paupières, la petite personne dans sa paume fit de même. Ses yeux brillaient d'intelligence et d'une lueur de divination.
+Wang Lin ouvrit soudain les yeux. Après plus d'un siècle d'isolement, il n'était plus le même homme. Son expression était d'un calme absolu et, à l'instant précis où il ouvrit les paupières, la petite personne dans sa paume fit de même. Ses yeux brillaient d'intelligence et d'une lueur de divination.
 
 Dans la paume de Wang Lin, la petite silhouette s'agenouilla et effectua des prosternations. Après neuf révérences, Wang Lin referma sa main droite et la petite personne disparut sans laisser de trace.
 

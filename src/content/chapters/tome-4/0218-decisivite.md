@@ -16,9 +16,9 @@ Cheng Xian avait indiqué à Wang Lin où il logeait. La brume n'avait aucun eff
 
 Près du centre de la cour, le Sens Divin de Wang Lin perçut sous terre une fluctuation de l'énergie de l'Âme Naissante. Avec son expérience, il comprit au premier coup d'œil qu'un cultivateur au stade précoce de l'Âme Naissante se trouvait là.
 
-À l'instant où le Sens Divin de Wang Lin passa à proximité, le cultivateur nota lui aussi sa présence. Surpris, il allait sortir de sa retraite, mais il s'arrêta brusquement, regarda le chaudron à pilules qui répandait un parfum médicinal à ses côtés et hésita.
+À l'instant où le Sens Divin de Wang Lin passa à proximité, le cultivateur nota lui aussi sa présence. Surpris, il allait sortir de son isolement, mais il s'arrêta brusquement, regarda le chaudron à pilules qui répandait un parfum médicinal à ses côtés et hésita.
 
-Quant à Wang Lin, dès qu'il comprit qu'il s'agissait d'un cultivateur de l'Âme Naissante — et seulement au stade précoce —, il balaya aussitôt sa manche droite et un petit drapeau noir en jaillit à toute vitesse. Presque instantanément, le drapeau grandit au vent et enveloppa le lieu de retraite du cultivateur de l'Âme Naissante.
+Quant à Wang Lin, dès qu'il comprit qu'il s'agissait d'un cultivateur de l'Âme Naissante — et seulement au stade précoce —, il balaya aussitôt sa manche droite et un petit drapeau noir en jaillit à toute vitesse. Presque instantanément, le drapeau grandit au vent et enveloppa le lieu d'isolement du cultivateur de l'Âme Naissante.
 
 Wang Lin esquissa un sourire froid. Si ce dernier avait atteint le stade intermédiaire de l'Âme Naissante, il aurait renoncé sans hésiter à aider Cheng Xian et se serait aussitôt retiré dans le patio nord. Mais puisque le cultivateur n'était qu'au stade précoce, Wang Lin n'avait aucune crainte. Bien que le drapeau de restriction fût moins puissant sans son contrôle direct, il pouvait encore emprisonner un cultivateur du stade précoce de l'Âme Naissante pendant un quart d'heure.
 

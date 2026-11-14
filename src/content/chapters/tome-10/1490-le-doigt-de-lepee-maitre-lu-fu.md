@@ -60,7 +60,7 @@ Peu de gens savaient qu'il y a huit cents ans, alors qu'il était un ami de la f
 
 À cet instant, il portait des haillons et tenait un arrosoir. Il s'occupait de ses fleurs comme un simple mortel. Derrière lui se tenaient trois hommes d'âge mûr, empreints de respect.
 
-« La culture est semblable à l'élevage des fleurs. Il faut comprendre la nature et ressentir les changements du monde. Bien que ce vieil homme n'ait pas pratiqué de culture en porte close depuis trois cents ans et qu'il ait même oublié de surveiller ses propres progrès, c'est ainsi seulement que je peux véritablement appréhender le Dao céleste. »
+« La culture est semblable à l'élevage des fleurs. Il faut comprendre la nature et ressentir les changements du monde. Bien que ce vieil homme n'ait pas pratiqué de culture en isolement depuis trois cents ans et qu'il ait même oublié de surveiller ses propres progrès, c'est ainsi seulement que je peux véritablement appréhender le Dao céleste. »
 
 « Le Grand Ancien est plein de sagesse », répondirent respectueusement les trois hommes en inclinant la tête.
 

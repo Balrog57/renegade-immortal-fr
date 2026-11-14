@@ -90,7 +90,7 @@ Plus incroyable encore, les étoiles n'étaient pas statiques, mais se déplaça
 
 La femme en blanc réfléchit silencieusement en contemplant la statue. Après un long moment, elle dit doucement: « À son retour, il était déjà blessé. En chemin, il fut en outre harcelé par deux étrangers venus d'au-delà du monde, alors il ouvrit la grotte céleste pour s'y soigner. »
 
-« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes en même temps, une véritable porte apparaîtra dans la Terre Yao Ling, menant à l'endroit où il est en culture de porte close... »
+« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes en même temps, une véritable porte apparaîtra dans la Terre Yao Ling, menant à l'endroit où il est en culture en isolement... »
 
 « Vous possédez le sortilège d'Arrêt, vous avez la dépouille de Qing Shuang et vous portez le nom de Wang, alors je ne vous arrêterai pas... Une fois entré dans le réseau de transfert, vos compagnons apparaîtront eux aussi selon votre volonté. » La femme soupira en se détournant pour s'enfoncer dans les profondeurs du hall. Wang Lin observa sa silhouette empreinte de solitude et de mélancolie.
 

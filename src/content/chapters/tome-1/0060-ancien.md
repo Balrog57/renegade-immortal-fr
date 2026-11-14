@@ -18,7 +18,7 @@ Huang Long afficha une expression embarrassée. Cet homme était l'un des dix an
 
 La règle de la Secte Heng Yue était la suivante: celui qui atteignait le stade de l'Établissement des Fondations pouvait devenir un ancien et jouir de ses privilèges. Si l'on atteignait la Formation du Noyau, on devenait l'un des véritables anciens de la Secte Heng Yue, et si l'on atteignait l'Âme Naissante, on était considéré comme un ancêtre de la secte.
 
-Normalement, les dix anciens de l'Établissement des Fondations étaient en entraînement en méditation fermée, mais après avoir appris les nouvelles alarmantes de la Secte Xuan Dao, Huang Long s'était empressé de les réunir pour informer les deux véritables anciens de la Formation du Noyau.
+Normalement, les dix anciens de l'Établissement des Fondations étaient en entraînement en isolement, mais après avoir appris les nouvelles alarmantes de la Secte Xuan Dao, Huang Long s'était empressé de les réunir pour informer les deux véritables anciens de la Formation du Noyau.
 
 L'apparition de Wang Lin avait été totalement imprévue pour Huang Long; il avait donc profité de l'occasion pour le traîner ici afin qu'il puisse être interrogé par lui et par les anciens de l'Établissement des Fondations.
 

@@ -72,11 +72,11 @@ Wang Lin restait immobile devant les anneaux, attendant une réponse.
 
 Après un long moment, une voix rauque s'éleva de la planète, empreinte de choc, d'horreur et d'une terreur contenue.
 
-« L'Ancien Na Duo est en culture de méditation fermée depuis mille ans, il ne s'occupe plus des affaires du monde et ne sortira pas. Nous n'avons aucun moyen de l'interrompre. Pourquoi le cherchez-vous? »
+« L'Ancien Na Duo est en isolement depuis mille ans, il ne s'occupe plus des affaires du monde et ne sortira pas. Nous n'avons aucun moyen de l'interrompre. Pourquoi le cherchez-vous? »
 
 Wang Lin réfléchit un instant puis secoua la tête. Il demanda doucement: « Qui êtes-vous? »
 
-« Ce vieil homme est le vice-maître de la Secte Gui Yi, Yin Dongshen. Lorsque le maître de secte et les Anciens sont en méditation fermée, je suis responsable de toutes les affaires. Je sais qui vous êtes, mais l'Ancien Na Duo ne peut sortir, alors veuillez partir! » La voix était extrêmement prudente et ne s'était manifestée qu'après un long silence.
+« Ce vieil homme est le vice-maître de la Secte Gui Yi, Yin Dongshen. Lorsque le maître de secte et les Anciens sont en isolement, je suis responsable de toutes les affaires. Je sais qui vous êtes, mais l'Ancien Na Duo ne peut sortir, alors veuillez partir! » La voix était extrêmement prudente et ne s'était manifestée qu'après un long silence.
 
 Le regard de Wang Lin perçait les cinq anneaux pour entrevoir la planète. Après un moment, il dit calmement:
 

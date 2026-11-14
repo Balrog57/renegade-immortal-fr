@@ -122,4 +122,4 @@ Dès l'ouverture de ses paupières, des étoiles apparurent entre ses sourcils e
 
 Les deux cultivateurs en robes dorées pénétrèrent dans ce monde de glace et s'y précipitèrent. Ils flottèrent respectueusement au-dessus du continent où reposait la femme.
 
-Tout en réprimant leur excitation, ils s'exclamèrent à l'unisson: « Nous accueillons respectueusement votre sortie de retraite, Ancien Shen! »
+Tout en réprimant leur excitation, ils s'exclamèrent à l'unisson: « Nous accueillons respectueusement votre sortie d'isolement, Ancien Shen! »

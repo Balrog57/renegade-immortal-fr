@@ -96,9 +96,9 @@ Il y a des centaines d'années, elle était devenue disciple de la Secte Ri Yue.
 
 Cela était dû en grande partie au fait que la Secte Ri Yue l'avait formée de manière optimale, mais cela témoignait aussi de son importance cruciale pour l'organisation.
 
-L'Ancien de haut rang, l'Exalté Doré, restait en retraite perpétuelle. La rumeur disait qu'elle possédait la puissance d'un Exalté Empyréen, bien qu'elle n'ait jamais passé l'Épreuve Céleste.
+L'Ancien de haut rang, l'Exalté Doré, restait en isolement perpétuel. La rumeur disait qu'elle possédait la puissance d'un Exalté Empyréen, bien qu'elle n'ait jamais passé l'Épreuve Céleste.
 
-Cette dernière avait personnellement accepté cette femme comme disciple et, tous les quelques années, elle sortait pour lui prodiguer ses conseils. Parfois, elle l'emmenait même avec elle durant ses retraites.
+Cette dernière avait personnellement accepté cette femme comme disciple et, tous les quelques années, elle sortait pour lui prodiguer ses conseils. Parfois, elle l'emmenait même avec elle durant ses isolements.
 
 Cette femme était appelée la Sainte de la Secte Ri Yue. Beaucoup l'admiraient et, par sa beauté, elle était courtisée par de nombreux disciples.
 
@@ -106,7 +106,7 @@ Cependant, elle était bien trop exceptionnelle et son tempérament d'une froide
 
 En particulier, les enfants des Anciens et les disciples se croyant dignes ne cessaient de la courtiser.
 
-Ce jour-là, Qing Hong sortit de sa retraite. Les nuages étaient sombres à l'extérieur et le tonnerre grondait comme si la pluie allait tomber. Ce fracas la rendait agitée, comme si un événement imminent se préparait.
+Ce jour-là, Qing Hong sortit de son isolement. Les nuages étaient sombres à l'extérieur et le tonnerre grondait comme si la pluie allait tomber. Ce fracas la rendait agitée, comme si un événement imminent se préparait.
 
 Elle resta devant sa propre grotte, observant les cieux noirs et les fleurs pourpres et rouges éclatantes sous la pluie, au pied de la montagne. Une confusion régnait dans ses yeux.
 

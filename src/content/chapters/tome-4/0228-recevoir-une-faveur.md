@@ -90,7 +90,7 @@ Une fois sa tâche accomplie, son corps disparut pour réapparaître au-dessus d
 
 Peu après, le visage sur la paroi recommença à bouger. Ses yeux étaient fixés sur Wang Lin tandis qu'il émettait des grognements hostiles.
 
-Plus Wang Lin l'observait, plus il se sentait intrigué. La bête n'était pas très forte — une simple bête spirituelle de faible qualité, environ au niveau d'un cultivateur de la Formation du Noyau au stade avancé — mais sa capacité à se dissimuler était remarquable. Wang Lin pratiquait souvent la culture en isolation; s'il pouvait disposer d'une bête pareille pour le garder, cela lui épargnerait bien des ennuis. Hélas, le niveau de culture de cette créature était limité.
+Plus Wang Lin l'observait, plus il se sentait intrigué. La bête n'était pas très forte — une simple bête spirituelle de faible qualité, environ au niveau d'un cultivateur de la Formation du Noyau au stade avancé — mais sa capacité à se dissimuler était remarquable. Wang Lin pratiquait souvent la culture en isolement; s'il pouvait disposer d'une bête pareille pour le garder, cela lui épargnerait bien des ennuis. Hélas, le niveau de culture de cette créature était limité.
 
 Cependant, Wang Lin possédait de nombreux noyaux dans son sac de rangement. Grâce à eux, il pourrait faire progresser la culture de cette bête de manière significative. Il forma alors un sceau et commença ses incantations.
 

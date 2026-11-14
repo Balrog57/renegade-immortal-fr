@@ -127,7 +127,7 @@ Wang Lin tint la pierre de jade et demanda lentement: « Je me demande pourquoi 
 
 L'un des deux gardes répondit sans rien lui cacher: « Je rapporte au Seigneur Dieu: j'ai reçu l'ordre du seigneur de la ville de libérer les accès de Hei Shi en un bâton d'encens, afin de préparer l'arrivée du Prince Ji Du et des ambassadeurs du Dao Gu. »
 
-« Les ambassadeurs du Dao Gu? Je sors tout juste de ma retraite et j'ignore tout de cela. Donne-moi plus de détails. » Les yeux de Wang Lin s'illuminèrent imperceptiblement.
+« Les ambassadeurs du Dao Gu? Je sors tout juste de mon isolement et j'ignore tout de cela. Donne-moi plus de détails. » Les yeux de Wang Lin s'illuminèrent imperceptiblement.
 
 Le garde répondit avec respect et sans hésiter:
 

@@ -86,7 +86,7 @@ Wang Lin ne pouvait utiliser cette attaque qu'une seule fois, car elle exigeait 
 
 C'était splendide et prodigieux!
 
-Il n'y avait aucune hésitation dans les yeux du Shui Daozi. Son choc aurait pu soulever le monde, mais il devait attaquer pour tuer Wang Lin. Même si cela entraînait une blessure l'obligeant à une culture en méditation fermée pendant des milliers d'années. Même s'il devait sacrifier les 1,5 milliard de disciples du Dao de l'Eau qu'il avait rassemblés, il devait frapper!
+Il n'y avait aucune hésitation dans les yeux du Shui Daozi. Son choc aurait pu soulever le monde, mais il devait attaquer pour tuer Wang Lin. Même si cela entraînait une blessure l'obligeant à une culture en isolement pendant des milliers d'années. Même s'il devait sacrifier les 1,5 milliard de disciples du Dao de l'Eau qu'il avait rassemblés, il devait frapper!
 
 S'il reculait maintenant, il mourrait sans aucun doute dans le futur. Il valait mieux tuer Wang Lin ici et éliminer toute menace potentielle!
 

@@ -72,7 +72,7 @@ Des regards empreints de jalousie jaillirent des dizaines de milliers de membres
 
 Liu Mei, elle, n'avait mis que la moitié de la durée d'un bâton d'encens pour accomplir ce qui était l'objectif ultime de tant d'autres.
 
-Le bras de l'ancêtre de la famille Huan s'atrophia et il vieillit instantanément. Il recula de quelques pas, le regard même terni par l'âge. Il regarda Liu Mei et dit doucement: « À partir d'aujourd'hui, tu es un membre de la famille Huan. Le sang des Huan coule dans tes veines. Ton père doit maintenant se consacrer à une culture en méditation fermée. Durant cette période, tu devras t'efforcer d'atteindre le stade Yin et Yang le plus vite possible. »
+Le bras de l'ancêtre de la famille Huan s'atrophia et il vieillit instantanément. Il recula de quelques pas, le regard même terni par l'âge. Il regarda Liu Mei et dit doucement: « À partir d'aujourd'hui, tu es un membre de la famille Huan. Le sang des Huan coule dans tes veines. Ton père doit maintenant se consacrer à une culture en isolement. Durant cette période, tu devras t'efforcer d'atteindre le stade Yin et Yang le plus vite possible. »
 
 Liu Mei se retourna et regarda silencieusement l'ancêtre. Elle ne dit mot et se contenta de hocher la tête.
 

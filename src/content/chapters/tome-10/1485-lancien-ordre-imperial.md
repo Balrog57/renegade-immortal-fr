@@ -28,7 +28,7 @@ Dans la partie ouest de la planète Dong Lin, les membres de la famille Xiang en
 
 Xiang Yundong était plongé dans l'amertume; il contemplait ce spectacle, hébété, incapable de prononcer le moindre mot. La scène qui venait de se produire était trop terrifiante, elle dépassait toute imagination. Face à une telle puissance, comment pouvaient-ils lutter? Comment pouvaient-ils résister?
 
-Le chef de la famille Liu, les Anciens et près de dix mille cultivateurs tournaient tous leurs regards vers l'ouest. La famille Xu dans le sud en faisait autant, leurs yeux fixés sur l'ouest... Et même à l'ouest, les membres de la famille Xiang étaient identiques. On ignorait qui avait le premier détourné les yeux de l'ancêtre en retraite pour regarder vers l'horizon, mais bientôt, toute la famille Xiang fut tournée vers l'ouest!
+Le chef de la famille Liu, les Anciens et près de dix mille cultivateurs tournaient tous leurs regards vers l'ouest. La famille Xu dans le sud en faisait autant, leurs yeux fixés sur l'ouest... Et même à l'ouest, les membres de la famille Xiang étaient identiques. On ignorait qui avait le premier détourné les yeux de l'ancêtre en isolement pour regarder vers l'horizon, mais bientôt, toute la famille Xiang fut tournée vers l'ouest!
 
 Ils attendaient un mot de leur ancêtre... Pour combattre ou pour se rendre... Mais avant même qu'ils ne puissent entendre sa voix, une silhouette d'un blanc immaculé apparut sous la pluie.
 
@@ -36,7 +36,7 @@ La planète Dong Lin avait perdu toutes ses défenses face à Wang Lin. Il étai
 
 « Toujours pas sorti du cercueil? » La voix de Wang Lin était calme, dépourvue de toute foudre, mais elle atteignit distinctement les oreilles de chaque cultivateur présent. Elle exerçait une pression invisible sur tous les êtres.
 
-« Combattre jusqu'à la mort! » Un rugissement rauque jaillit de l'ouest, là où l'ancêtre de la famille Xiang était en retraite! Ce cri était empreint d'une terreur et d'une folie infinies.
+« Combattre jusqu'à la mort! » Un rugissement rauque jaillit de l'ouest, là où l'ancêtre de la famille Xiang était en isolement! Ce cri était empreint d'une terreur et d'une folie infinies.
 
 Aussitôt qu'il eut parlé, les yeux des membres de la famille Xiang devinrent injectés de sang et ils chargèrent Wang Lin! Ils semblaient dément, comme si leur conscience avait été effacée pour être remplacée par une intention meurtrière sans fin!
 

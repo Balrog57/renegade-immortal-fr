@@ -68,7 +68,7 @@ Li Muwan refusait de prendre de tels risques. Elle pressentait que cette pilule 
 
 Sun Zhenwei surveillait les agissements de Li Muwan. Il avait déjà soupçonné que son séjour prolongé à la bibliothèque cachait quelque chose d'anormal.
 
-Mais malgré ses analyses, il ne parvenait pas à en saisir la nature. Quant au disciple nommé Wang Lin, il était en retraite de porte fermée depuis un mois et n'était pas allé voir Li Muwan une seule fois.
+Mais malgré ses analyses, il ne parvenait pas à en saisir la nature. Quant au disciple nommé Wang Lin, il était en isolement depuis un mois et n'était pas allé voir Li Muwan une seule fois.
 
 L'épée volante que Sun Zhenwei avait offerte à Wang Lin n'avait toujours donné aucun signe de vie. Bien que cela fût normal, Sun Zhenwei sentait que quelque chose clochait.
 
@@ -160,13 +160,13 @@ Wang Lin lança calmement l'épée qui se planta dans le sol. Il ouvrit la porte
 
 Mais soudain, ses pas s'arrêtèrent: la porte de la cour s'ouvrit silencieusement et Zhou Lin entra.
 
-En voyant Wang Lin, les yeux du jeune homme se fixèrent sur lui. Il détecta immédiatement le changement. Avant sa retraite de porte fermée, Wang Lin n'était qu'au troisième niveau de Condensation de Qi; il ne pouvait même pas sonder sa culture actuelle. Même si Wang Lin n'était pas encore au stade avancé de la Formation du Noyau, Zhou Lin estimait qu'il se situait au moins au stade intermédiaire. Il esquissa un sourire amer et dit: « Ma maîtresse est surveillée et ne peut venir en personne. Elle m'a chargé de vous conduire quelque part. Hélas. »
+En voyant Wang Lin, les yeux du jeune homme se fixèrent sur lui. Il détecta immédiatement le changement. Avant son isolement, Wang Lin n'était qu'au troisième niveau de Condensation de Qi; il ne pouvait même pas sonder sa culture actuelle. Même si Wang Lin n'était pas encore au stade avancé de la Formation du Noyau, Zhou Lin estimait qu'il se situait au moins au stade intermédiaire. Il esquissa un sourire amer et dit: « Ma maîtresse est surveillée et ne peut venir en personne. Elle m'a chargé de vous conduire quelque part. Hélas. »
 
 Wang Lin le regarda calmement et acquiesça.
 
 Zhou Lin entra dans le jardin et referma la grille. Il observa Wang Lin d'un air complexe: « Cela... devrais-je vous appeler oncle... enfin, peu importe. Puisque vous êtes l'ami de ma maîtresse, vous êtes mon oncle. Oncle, par ici, je vous prie. »
 
-Zhou Lin secoua la tête. Il était censé être en retraite, mais Li Muwan lui avait envoyé un message pour qu'il sorte prématurément. Orphelin sauvé par Li Muwan, il lui vouait un respect et une gratitude infinis.
+Zhou Lin secoua la tête. Il était censé être en isolement, mais Li Muwan lui avait envoyé un message pour qu'il sorte prématurément. Orphelin sauvé par Li Muwan, il lui vouait un respect et une gratitude infinis.
 
 D'après les paroles de sa maîtresse, il comprit que le disciple qu'il avait lui-même recueilli était l'ami de sa maîtresse. Il lui fallut un long moment pour assimiler l'information. C'est pourquoi, face au niveau de culture de Wang Lin, il fut seulement stupéfait et non surpris; il préféra supposer que la culture de Wang Lin avait toujours été aussi élevée et qu'il l'avait simplement dissimulée jusqu'ici.
 

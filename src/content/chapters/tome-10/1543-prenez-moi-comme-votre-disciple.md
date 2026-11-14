@@ -78,7 +78,7 @@ L'expression de Wang Lin resta imperturbable, mais son rythme cardiaque s'accél
 
 Plus il vérifiait, plus il devenait sérieux. Ce chant était d'une précision extrême. C'était un sort du Grand Dao que même le Maître de Suzaku n'avait pu qu'apprendre en secret, sans jamais le maîtriser pleinement.
 
-Toutefois, ce sort du Dao n'était pas une chose que l'on apprenait instantanément; il exigerait de nombreuses années de culture en porte close et une profonde compréhension.
+Toutefois, ce sort du Dao n'était pas une chose que l'on apprenait instantanément; il exigerait de nombreuses années de culture en isolement et une profonde compréhension.
 
 La main gauche de Wang Lin forma un sceau et des millions de restrictions apparurent. La version volée de l'Ombrelle Brûlante du Royaume se manifesta.
 

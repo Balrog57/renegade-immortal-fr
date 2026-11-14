@@ -72,7 +72,7 @@ Il prit une profonde inspiration pour se calmer. Il enfouit ses spéculations au
 
 « Qu'elles soient vraies ou fausses, je ne cultiverai pas les Flammes d'Encens à la légère! » Les yeux de Wang Lin s'illuminèrent d'une détermination farouche.
 
-Quelques jours plus tard, Dahong revint avant Xu Liguo. Dès son retour au sein de la secte, il changea instantanément d'expression pour afficher une joie et un respect feints. Après avoir appris que Wang Lin était en retraite méditative, il se posta devant la salle et ordonna à tout le monde de s'éloigner. Il resta seul en sentinelle, d'une vigilance extrême, tel un serviteur royal protégeant son maître.
+Quelques jours plus tard, Dahong revint avant Xu Liguo. Dès son retour au sein de la secte, il changea instantanément d'expression pour afficher une joie et un respect feints. Après avoir appris que Wang Lin était en isolement, il se posta devant la salle et ordonna à tout le monde de s'éloigner. Il resta seul en sentinelle, d'une vigilance extrême, tel un serviteur royal protégeant son maître.
 
 C'était comme si, même un cultivateur Ascendant, devait passer sur son corps pour entrer dans la salle.
 

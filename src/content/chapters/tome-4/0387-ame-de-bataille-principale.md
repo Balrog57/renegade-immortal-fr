@@ -88,7 +88,7 @@ Il ne pouvait s'empêcher de penser qu'après le troisième, viendraient un quat
 
 Mais soudain, un Sens Divin puissant descendit de toutes parts. L'expression du vieil homme changea radicalement. Il était incapable de résister à cette pression; il n'avait ressenti cela que face à un ancêtre de la Formation de l'Âme. Cependant, comparé à cette époque, le sentiment était plusieurs fois plus intense.
 
-« Cela doit être un ancêtre de la Formation de l'Âme qui sort d'une culture en méditation fermée. » Le vieil homme tremblait et s'exclama précipitamment: « Le disciple Wu Daoqi salue l'Ancêtre... »
+« Cela doit être un ancêtre de la Formation de l'Âme qui sort d'un isolement. » Le vieil homme tremblait et s'exclama précipitamment: « Le disciple Wu Daoqi salue l'Ancêtre... »
 
 Alors que le puissant Sens Divin balayait les lieux, le troisième Qilin poussa un cri de douleur et fut enserré par des volutes de gaz noir. Il rugissait en se débattant pour s'en libérer.
 

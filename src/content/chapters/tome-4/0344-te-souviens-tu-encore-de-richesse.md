@@ -118,7 +118,7 @@ Les sanglots cessèrent bientôt, mais la petite fille continuait de regarder ve
 
 ***
 
-Tie Yan était assis en tailleur dans la grotte, montant la garde auprès du bébé. Il s'était habitué à une culture en semi-retraite depuis un an. Il y a six mois, Lu Fei lui avait proposé de prendre la relève, mais il avait refusé.
+Tie Yan était assis en tailleur dans la grotte, montant la garde auprès du bébé. Il s'était habitué à une culture en semi-isolement depuis un an. Il y a six mois, Lu Fei lui avait proposé de prendre la relève, mais il avait refusé.
 
 Depuis qu'il était entré dans le monde de la culture, Tie Yan n'avait jamais rien vécu de semblable à cette dernière année. Chaque jour, il étendait son Sens Divin sur tout le village; il connaissait désormais chaque foyer et chaque habitant.
 

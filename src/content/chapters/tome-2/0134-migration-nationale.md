@@ -166,7 +166,7 @@ Wang Lin fronça les sourcils en testant l'arme. L'épée était bien plus rapid
 
 Le démon n'attendit pas d'ordre et pénétra docilement dans l'épée volante. Wang Lin rangea son arme. Après quelques calculs pour estimer le temps nécessaire, il prit une pause pour cultiver. Une fois son énergie spirituelle récupérée, il disparut d'un pas décidé.
 
-Wang Lin ignorait que durant ses quelques jours de retraite, des changements sismiques s'étaient produits à Huo Fen.
+Wang Lin ignorait que durant ses quelques jours d'isolement, des changements sismiques s'étaient produits à Huo Fen.
 
 L'origine de ce bouleversement fut un volcan qu'un cultivateur de l'Âme Naissante de la Secte Luo He tentait de sceller. Un volcan qu'il venait tout juste de sceller entra soudainement en éruption, projetant de la lave jusqu'à près de mille pieds de hauteur.
 

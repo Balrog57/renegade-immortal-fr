@@ -62,7 +62,7 @@ Une fois la Secte Xuan Dao partie, le silence retomba sur le Pic Cang Song. Le r
 
 Les disciples intérieurs, un à un, se réjouirent et fixèrent Wang Lin. Désormais, plus personne n'osait le traiter de déchet.
 
-Le cœur de Wang Zhuo était en plein chaos. Il dit à Dao Xu: « Maître, le disciple souhaite entrer en retraite de vie ou de mort. Je ne me soucierai plus d'aucune autre affaire. »
+Le cœur de Wang Zhuo était en plein chaos. Il dit à Dao Xu: « Maître, le disciple souhaite entrer en isolement de vie ou de mort. Je ne me soucierai plus d'aucune autre affaire. »
 
 Dao Xu soupira. Wang Zhuo était son disciple préféré, et il n'ignorait rien des tensions entre lui et Wang Lin. Après avoir réfléchi, il hocha la tête: « Très bien. Profite de cette occasion pour te tenir à l'écart de Wang Lin également. »
 

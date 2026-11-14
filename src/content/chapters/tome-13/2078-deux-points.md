@@ -116,7 +116,7 @@ Avant son départ, Liu Jinbiao avait confié avec sérieux à Xu Liguo qu'il sou
 
 Xu Liguo avait accepté. Après en avoir discuté, ils avaient porté leur attention sur Zhong Dahong avec une pointe de nostalgie. Ils décidèrent que leur première étape serait de retrouver Zhong Dahong.
 
-Treize, fidèle à lui-même, restait sur la planète Suzaku, en retraite. Il avait décidé de demeurer ici pour protéger son maître jusqu'à son réveil.
+Treize, fidèle à lui-même, restait sur la planète Suzaku, en isolement. Il avait décidé de demeurer ici pour protéger son maître jusqu'à son réveil.
 
 Son niveau de culture avait progressé au cours des dix dernières années. Plus important encore, il avait hérité du Dao de Wang Lin et de la quasi-totalité de ses sorts.
 

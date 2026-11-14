@@ -72,7 +72,7 @@ De plus, après la mort de l'homme d'âge moyen, la fréquence des chocs de l'é
 
 Wang Lin agita la main. Les trois symboles tremblèrent; deux d'entre eux se dissipèrent, tandis que le dernier, répondant à l'appel de Wang Lin, retourna dans le jade.
 
-Wang Lin rangea soigneusement le morceau de jade dans son sac de rangement. À l'origine, ce jade ne possédait qu'une seule attaque, mais pendant ces quatre années de méditation fermée, grâce à l'aide de Situ Nan, il avait réussi à la diviser en neuf charges. Bien que chaque attaque fût moins puissante, cela lui permettait de s'en servir plus fréquemment.
+Wang Lin rangea soigneusement le morceau de jade dans son sac de rangement. À l'origine, ce jade ne possédait qu'une seule attaque, mais pendant ces quatre années d'isolement, grâce à l'aide de Situ Nan, il avait réussi à la diviser en neuf charges. Bien que chaque attaque fût moins puissante, cela lui permettait de s'en servir plus fréquemment.
 
 Une fois terminé, il prit une grande inspiration. Son front était couvert de sueur. Ce fut le combat le plus acharné qu'il ait eu à mener depuis le début de sa culture. Il activa alors la technique d'attraction pour récupérer l'épée volante et son fourreau afin de les examiner.
 

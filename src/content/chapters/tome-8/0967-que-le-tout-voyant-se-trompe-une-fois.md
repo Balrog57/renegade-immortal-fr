@@ -18,7 +18,7 @@ Bai Wei laissa échapper un soupir et afficha un sourire amer. Après un moment 
 
 Wang Lin fronça les sourcils mais resta silencieux.
 
-« Frère Wang, à l'origine, je ne pensais pas que vous me trouveriez si vite et j'étais prêt à vous donner un indice demain, mais cela n'est plus nécessaire. Nous sommes à l'heure du Lapin et Maître est en culture de porte close. Dès que l'heure du Lapin sera passée, il remarquera l'anomalie et viendra ici. »
+« Frère Wang, à l'origine, je ne pensais pas que vous me trouveriez si vite et j'étais prêt à vous donner un indice demain, mais cela n'est plus nécessaire. Nous sommes à l'heure du Lapin et Maître est en isolement. Dès que l'heure du Lapin sera passée, il remarquera l'anomalie et viendra ici. »
 
 « Avant que Maître n'arrive, le frère Wang serait-il prêt à écouter une histoire... » Bai Wei esquissa un sourire amer, tandis que la confusion et la nostalgie emplissaient ses yeux.
 

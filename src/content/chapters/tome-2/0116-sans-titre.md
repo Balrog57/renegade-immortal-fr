@@ -40,7 +40,7 @@ Celle-ci fondit à vue d'œil, tel de la neige sous l'effet d'une eau bouillante
 
 Le regard de Wang Lin devint glacial alors qu'il insufflait son énergie spirituelle dans le trésor qu'Adai lui avait confié et se dit en silence: « Attaque! »
 
-Wang Lin avait étudié avec soin ce trésor magique durant ses deux mois de culture en porte close, et avait découvert que l'apparence de la personne qu'il faisait apparaître pouvait être modifiée selon ses désirs. Après avoir absorbé sa puissance spirituelle, le trésor parvint même à capturer un fragment de la malédiction.
+Wang Lin avait étudié avec soin ce trésor magique durant ses deux mois de culture en isolement, et avait découvert que l'apparence de la personne qu'il faisait apparaître pouvait être modifiée selon ses désirs. Après avoir absorbé sa puissance spirituelle, le trésor parvint même à capturer un fragment de la malédiction.
 
 Le jeune homme dans les airs agita rapidement la main et un dragon violet jaillit de son corps. C'était comme si son propre corps s'était métamorphosé en un dragon violet colossal. Le dragon poussa un rugissement qui projeta d'immenses ondes sonores.
 

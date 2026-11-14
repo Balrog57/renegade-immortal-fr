@@ -68,7 +68,7 @@ Wang Lin se redressa en regardant au loin, ses yeux brillant d'une lueur fantast
 
 Wang Lin prit une profonde inspiration. Son corps s'élança et il sauta du précipice. Il atteignit la caverne de pierre où il avait jadis obtenu la Perle Défiant le Ciel, puis disparut soudainement.
 
-Secte Piao Miao. Gao Qiming était assis en tailleur dans sa chambre secrète de retraite, face à un miroir de bronze. Son expression était très sombre. Deux cents ans auparavant, il avait pressenti qu'il allait subir une grande catastrophe. Cependant, ce désastre était si incertain qu'il ne pouvait en obtenir les détails précis avec son seul niveau de culture.
+Secte Piao Miao. Gao Qiming était assis en tailleur dans sa chambre secrète d'isolement, face à un miroir de bronze. Son expression était très sombre. Deux cents ans auparavant, il avait pressenti qu'il allait subir une grande catastrophe. Cependant, ce désastre était si incertain qu'il ne pouvait en obtenir les détails précis avec son seul niveau de culture.
 
 Au fil du temps, le sentiment imminent de fin devint plus oppressant. Lorsque les membres de la famille Teng commencèrent à mourir, il fut soudainement capable de calculer sa durée de vie restante: il ne lui restait que dix jours. S'il ne mourait pas dans ce délai, la catastrophe frapperait l'ensemble de la Secte Piao Miao.
 

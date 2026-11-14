@@ -62,7 +62,7 @@ Le regard froid de Wang Lin balaya l'assemblée. D'un pas, il s'élança parmi l
 
 Une lumière douce apparut au loin et se transforma en une pilule qui flotta devant le vieil homme.
 
-« Prends cette pilule et entre en culture de méditation isolée. Comprends l'âme de la bête qu'elle contient, et ton niveau de culture pourra progresser! »
+« Prends cette pilule et entre en culture en isolement. Comprends l'âme de la bête qu'elle contient, et ton niveau de culture pourra progresser! »
 
 La pilule dégageait de puissantes fluctuations d'énergie originelle. Sa simple odeur apaisa l'esprit du vieil homme, lui donnant l'impression d'avoir cultivé pendant plusieurs mois.
 

@@ -96,7 +96,7 @@ Kunpeng Zi s'agenouilla dans les airs et se prosterna devant Tian Yunzi. « Disc
 
 Tian Yunzi hocha la tête, puis pointa l'espace entre ses sourcils. Une lumière jaune jaillit, faisant briller intensément les yeux de Tian Yunzi. Bientôt, un cristal jaune apparut dans sa main.
 
-« Je présume que cet objet ne t'est pas inconnu. C'est le symbole des Sept Disciples du Destin Céleste. Entre en culture de porte close pendant plusieurs années pour l'étudier. À ta sortie, je te remettrai un autre trésor de protection! »
+« Je présume que cet objet ne t'est pas inconnu. C'est le symbole des Sept Disciples du Destin Céleste. Entre en culture en isolement pendant plusieurs années pour l'étudier. À ta sortie, je te remettrai un autre trésor de protection! »
 
 Kunpeng Zi prit une profonde inspiration, s'efforçant de réprimer son excitation. Bien qu'il sache depuis un moment qu'il obtiendrait le titre, il avait encore l'impression de rêver.
 

@@ -66,13 +66,13 @@ Sur ces mots, le regard de Qiu Siping se posa sur Wang Lin.
 
 Wang Lin fixa la coupe un instant de plus avant de la reposer. Il dit d'un ton neutre: « Tuer votre maître? Ce n'est pas un problème. Je l'ai déjà fait par le passé. »
 
-Qiu Siping laissa échapper un rire et déclara: « Pour ne rien vous cacher, Cher Daoïste, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon Senior frère sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en retraite de culture, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en avalant une chacun, vous et moi, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
+Qiu Siping laissa échapper un rire et déclara: « Pour ne rien vous cacher, Cher Daoïste, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon Senior frère sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en isolement de culture, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en avalant une chacun, vous et moi, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
 
 Wang Lin arqua les sourcils. Il réfléchit un moment, puis dit lentement: « Quel rapport cela a-t-il avec les anciennes restrictions? »
 
 Qiu Siping esquissa un sourire amer. Il but le reste de son vin et dit: « L'endroit où mon maître cultive est une ancienne grotte de culture. Il l'a découverte par hasard et en a fait sa demeure. »
 
-« J'ai pu les saboter pendant leur retraite parce que je m'y préparais depuis des années. J'ai passé de longues années à étudier les anciennes restrictions de cette grotte. »
+« J'ai pu les saboter pendant leur isolement parce que je m'y préparais depuis des années. J'ai passé de longues années à étudier les anciennes restrictions de cette grotte. »
 
 « Mais une fois la grotte refermée, la rouvrir est très laborieux: elle contient trop de restrictions. Je ne m'attendais pas à ce que le simple déclenchement d'une restriction attirant les démons extérieurs provoque toute une réaction en chaîne. Au final, je n'ai rien obtenu, et la perte dépasse largement le gain. »
 

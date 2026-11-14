@@ -24,7 +24,7 @@ Li Muwan sortit plusieurs flacons de pilules et les tendit à Wang Lin. Après l
 
 Il quitta la cour sud sous le regard réticent de Li Muwan. Après tout, la culture de Wang Lin était encore trop faible; s'il restait trop longtemps auprès d'elle, cela finirait par attirer l'attention.
 
-Wang Lin décida donc de regagner sa chambre pour entrer en retraite de porte fermée. Lui et Li Muwan avaient déjà pris des dispositions en se laissant un jade de transmission: dès qu'elle briserait le sceau, elle lui enverrait la pilule.
+Wang Lin décida donc de regagner sa chambre pour entrer en isolement. Lui et Li Muwan avaient déjà pris des dispositions en se laissant un jade de transmission: dès qu'elle briserait le sceau, elle lui enverrait la pilule.
 
 Parallèlement, pour garantir la sécurité de Li Muwan, Wang Lin avait laissé le démon Xu Liguo et un second démon pour la protéger. Avec leur coopération, ils devraient être capables de tenir tête, ne serait-ce qu'un temps, à un cultivateur de l'Âme Naissante.
 

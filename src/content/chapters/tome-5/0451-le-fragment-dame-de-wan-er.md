@@ -36,7 +36,7 @@ La Secte Tian Yun enseignait que tout dans la vie dépendait du destin. Tout ét
 
 L'auteur de ce précepte était un homme respecté par la majorité de la population de la planète Tian Yun: Tian Yunzi.
 
-À cet instant, Tian Yunzi ouvrit les yeux après sa méditation en porte close. Une expression de douceur régnait sur son visage et, bien qu'il fût aux cheveux blancs, il ne paraissait pas vieux, ce qui renforçait son aspect transcendant. Ses yeux brillants dégageaient plus d'énergie que ceux de nombreux hommes dans la force de l'âge.
+À cet instant, Tian Yunzi ouvrit les yeux après sa méditation en isolement. Une expression de douceur régnait sur son visage et, bien qu'il fût aux cheveux blancs, il ne paraissait pas vieux, ce qui renforçait son aspect transcendant. Ses yeux brillants dégageaient plus d'énergie que ceux de nombreux hommes dans la force de l'âge.
 
 Aucune trace de mort ne l'habitait; il était empreint d'une vitalité infinie.
 

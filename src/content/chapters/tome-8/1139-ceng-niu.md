@@ -20,7 +20,7 @@ Au fil de sa progression, son corps rétrécit graduellement et ses cheveux devi
 
 La saison des pluies sur le continent de Mo Luo durait plusieurs mois. Ce n'est que lorsque la terre serait totalement saturée d'humidité, que les os des gens commenceraient à souffrir et que l'odeur de rouille imprégnerait l'air, que la pluie s'arrêterait enfin.
 
-Qu'il s'agisse de cultivateurs ou de mortels, tous sur le continent de Mo Luo étaient accoutumés à cela. Les cultivateurs se consacraient soit à une culture en méditation fermée durant cette saison, soit quittaient le continent pour chasser les bêtes féroces. Cependant, pendant ces mois pluvieux, presque tous les membres de l'unique secte du continent, la Secte Gui Yuan, sortaient sous l'averse pour se diriger vers la zone septentrionale.
+Qu'il s'agisse de cultivateurs ou de mortels, tous sur le continent de Mo Luo étaient accoutumés à cela. Les cultivateurs se consacraient soit à une culture en isolement durant cette saison, soit quittaient le continent pour chasser les bêtes féroces. Cependant, pendant ces mois pluvieux, presque tous les membres de l'unique secte du continent, la Secte Gui Yuan, sortaient sous l'averse pour se diriger vers la zone septentrionale.
 
 Des rayons de lumière emplissaient le ciel, semblant tracer un chemin à travers la pluie. Pour quiconque regardait depuis le sol, la scène ressemblait à une pluie de météores.
 

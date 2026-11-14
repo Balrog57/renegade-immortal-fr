@@ -18,7 +18,7 @@ Wang Lin cultivait, les yeux fermés, assis sur la bête moustique. Après un lo
 
 « Mes blessures physiques vont bien, mais celles de mon âme sont problématiques. De plus, je ressens un sentiment de danger ici à Suzaku. Ce pressentiment est certainement fondé. »
 
-« Les blessures de Hongdie étaient similaires aux miennes, mais elle semble avoir compris quelque chose et percera certainement après sa culture en isolation. Si je ne parviens pas au stade avancé de la Formation de l'Âme avant notre prochaine rencontre, je crains de ne pas pouvoir me défendre contre elle. »
+« Les blessures de Hongdie étaient similaires aux miennes, mais elle semble avoir compris quelque chose et percera certainement après sa culture en isolement. Si je ne parviens pas au stade avancé de la Formation de l'Âme avant notre prochaine rencontre, je crains de ne pas pouvoir me défendre contre elle. »
 
 Wang Lin était plongé dans ses pensées lorsque son expression changea soudainement. La moustique cessa de voler et regarda autour d'elle avec confusion.
 
