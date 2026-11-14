@@ -46,7 +46,7 @@ Le jeune homme nommé Zhou déglutit difficilement en fixant la vigne sur l'épa
 
 Si l'on prélève trop de fruits, la racine meurt. Et si la racine meurt, plus aucun Fruit de l'Or Brûlant n'apparaîtra dans ce volcan.
 
-Mais cet individu venait d'arracher la racine entière! Ignorait-il que la racine mourrait quatre heures après avoir été déterrée? Zhou Gang, furieux de voir que Wang Lin n'était qu'au stade intermédiaire de l'Établissement des Fondations et qu'il osait les ignorer pour emporter la racine, hurla: « Arrête! Peu importe ta secte, tu vas payer le prix pour avoir détruit la racine du Fruit de l'Or Brûlant! »
+Mais cet individu venait d'arracher la racine entière! Ignorait-il que la racine mourrait deux heures après avoir été déterrée? Zhou Gang, furieux de voir que Wang Lin n'était qu'au stade intermédiaire de l'Établissement des Fondations et qu'il osait les ignorer pour emporter la racine, hurla: « Arrête! Peu importe ta secte, tu vas payer le prix pour avoir détruit la racine du Fruit de l'Or Brûlant! »
 
 Sur ce, il frappa le cercueil derrière lui. Celui-ci s'éleva et se dressa à côté de lui dans un grondement. Le couvercle grinça en s'entrouvrant d'un coin vers la droite, et une main noire et desséchée en sortit. Des volutes de gaz noir s'échappèrent de ses doigts et une odeur de décomposition commença immédiatement à se propager.
 

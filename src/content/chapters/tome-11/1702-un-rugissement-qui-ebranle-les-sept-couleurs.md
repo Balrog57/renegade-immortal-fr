@@ -94,11 +94,11 @@ Enfin, l'essence de Massacre apparut. Dès qu'elle pénétra dans le vortex, cel
 
 Wang Lin avait utilisé ses six essences pour façonner cette corne capable d'amplifier sa voix. Les essences tournoyant à l'intérieur pourraient multiplier le son produit par un nombre incalculable de fois!
 
-Après avoir préparé cela, Wang Lin activa la puissance des trois clans anciens pour manifester une puissance antique. L'ombre d'un être ancien apparut derrière lui.
+Après avoir préparé cela, Wang Lin activa la puissance des trois clans anciens pour les fusionner en Dao Gu. L'ombre de Dao Gu apparut derrière lui.
 
 Les veines du visage de Wang Lin se gonflèrent alors qu'il inspirait profondément. Puis, il lâcha un rugissement dans la corne formée par ses six essences!
 
-C'était le rugissement d'un Dieu Ancien, d'un être primordial! C'était le rugissement que Wang Lin avait appris dans la tombe ancienne, celui-là même qu'il avait utilisé contre le Souverain!
+C'était le rugissement d'un Dieu Ancien, de Dao Gu! C'était le rugissement que Wang Lin avait appris dans la tombe ancienne, celui-là même qu'il avait utilisé contre le Souverain!
 
 Le ciel s'effondra et la terre trembla. Des failles se déchirèrent et le monde changea de couleur. D'innombrables déchirures spatiales se formèrent entre Wang Lin et le Daoïste aux Sept Couleurs.
 

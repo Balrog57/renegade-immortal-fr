@@ -10,7 +10,7 @@ Un éclair fendait les étoiles. À l'intérieur de cette foudre voyageait une B
 
 Wang Lin était assis en position de lotus sur le dos de la Bête du Tonnerre. Ses longs cheveux flottaient vers l'arrière et ses yeux brillaient d'un éclat singulier. Bien que son apparence fût ordinaire, il dégageait une aura extraordinaire.
 
-Si quelqu'un l'apercevait en cet instant, il penserait sans aucun doute qu'il s'agissait d'un messager du Temple Céleste du Tonnerre. Il ressemblait trop étrangement au Daoïste du Tonnerre.
+Si quelqu'un l'apercevait en cet instant, il penserait sans aucun doute qu'il s'agissait d'un messager du Temple Céleste du Tonnerre. Il ressemblait trop étrangement à Lei Daozi.
 
 Si un véritable messager du Temple Céleste du Tonnerre rencontrait Wang Lin, il en serait stupéfait.
 
@@ -58,7 +58,7 @@ La Bête du Tonnerre se rapprocha et traversa directement la couche de vents vio
 
 Le grondement fit s'agiter tous les nuages de tonnerre créés par l'arrivée de la Bête. Des éclairs descendirent du ciel, provoquant une série d'explosions.
 
-Tout comme lors de l'arrivée du Daoïste du Tonnerre sur la planète Ran Yun, chaque cultivateur de la planète Qianhuan trembla. Leurs corps et leurs âmes furent secoués par la puissance de la foudre.
+Tout comme lors de l'arrivée de Lei Daozi sur la planète Ran Yun, chaque cultivateur de la planète Qianhuan trembla. Leurs corps et leurs âmes furent secoués par la puissance de la foudre.
 
 Après avoir libéré le troisième sceau, la force et l'héritage acquis par la Bête du Tonnerre la rendaient non moins puissante qu'un cultivateur de l'Yin Illusoire!
 

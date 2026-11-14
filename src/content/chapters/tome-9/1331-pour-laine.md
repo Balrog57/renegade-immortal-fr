@@ -90,7 +90,7 @@ Le visage de Qiu Dehai était livide de peur. Il voulut parler, mais la voix qui
 
 L'homme d'âge mûr sortit un jade et le brisa pour demander de l'aide, avant même Qiu Dehai. Il détestait ce dernier jusqu'à la moelle et s'il ne pouvait pas entraîner d'autres personnes dans sa chute, il ne pourrait apaiser sa rage.
 
-Deux heures plus tard, une scène extrêmement étrange se déroulait sur cette planète. Quatre cultivateurs de l'Âme Naissante fuyaient en panique. Trois d'entre eux affichaient une haine et une terreur indescriptibles!
+Une heure plus tard, une scène extrêmement étrange se déroulait sur cette planète. Quatre cultivateurs de l'Âme Naissante fuyaient en panique. Trois d'entre eux affichaient une haine et une terreur indescriptibles!
 
 Wang Lin marchait calmement derrière eux. En chemin, les appels à l'aide de Qiu Dehai et ses compagnons avaient attiré deux autres Anciens. Les quatre s'enfuirent ensemble, contraints par la demande de Wang Lin de se diriger vers la Secte Tian Lei.
 

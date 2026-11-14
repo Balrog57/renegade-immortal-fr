@@ -60,7 +60,7 @@ Au fil du temps, d'immenses quantités de tonnerre convergèrent de toutes les d
 
 Une sensation de bien-être profond émana peu à peu du corps de Wang Lin.
 
-Lorsqu'il avait atteint le stade d'Ascendant grâce au cristal d'Ascendant de Zhou Yi, Wang Lin possédait plus d'énergie originelle que la plupart des cultivateurs. Cela rendait sa progression très fluide, mais l'usage du Coup Céleste et son combat contre le Daoïste du Tonnerre avaient épuisé ses réserves. En conséquence, il se trouvait à la limite d'une chute de son niveau de culture.
+Lorsqu'il avait atteint le stade d'Ascendant grâce au cristal d'Ascendant de Zhou Yi, Wang Lin possédait plus d'énergie originelle que la plupart des cultivateurs. Cela rendait sa progression très fluide, mais l'usage du Coup Céleste et son combat contre Lei Daozi avaient épuisé ses réserves. En conséquence, il se trouvait à la limite d'une chute de son niveau de culture.
 
 L'énergie originelle est une ressource extrêmement difficile à récupérer pour les cultivateurs de la première étape. Si Wang Lin n'avait pas possédé une âme originelle du tonnerre, il l'aurait regretté toute sa vie.
 

@@ -83,7 +83,7 @@ L'Empereur Divin de Suzaku secoua la tête et déclara calmement: « Observez. L
 
 Ses paroles s'adressaient naturellement à Wang Lin. Bien que le corps de ce dernier soit extrêmement affaibli, il leva la tête pour contempler la scène.
 
-« Le Dragon Azure de l'est, bois Jia Yi; le Tigre Blanc de l'ouest, métal Geng Xin; Suzaku du sud, feu Bing Ding; et la Tortue Noire du nord, eau Ren Kui! Les trois styles de sceaux de ma Secte Zhu Que, Ciel, Terre et Esprit, relèvent du feu Bing Ding! »
+« Le Dragon Azure de l'est, bois Jia Yi; le Tigre Blanc de l'ouest, métal Geng Xin; Suzaku du sud, feu Bing Ding; et la Tortue Noire du nord, eau Ren Kui! Les trois styles de sceaux de ma Secte Suzaku, Ciel, Terre et Esprit, relèvent du feu Bing Ding! »
 
 L'Empereur Divin de Suzaku forma un sceau de la main droite, l'agita vers l'avant et dit calmement: « Esprit Bing! »
 

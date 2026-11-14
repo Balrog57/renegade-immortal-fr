@@ -54,9 +54,9 @@ Dans le Système Stellaire de Luotian, le Temple Céleste du Tonnerre disposait 
 
 Ces quatre-vingt-dix-neuf messagers avaient chacun un grand nombre de familles sous leur tutelle, leur permettant ainsi de développer leurs propres forces. C'était là la particularité unique du Système Stellaire de Luotian.
 
-Les forces du Daoïste du Tonnerre n'étaient pas dans le domaine nordique; il n'était venu ici que sur ordre pour enquêter. C'est par excès de confiance qu'il était venu seul, ce qui avait causé sa perte.
+Les forces de Lei Daozi n'étaient pas dans le domaine nordique; il n'était venu ici que sur ordre pour enquêter. C'est par excès de confiance qu'il était venu seul, ce qui avait causé sa perte.
 
-Si Wang Lin et le Daoïste du Tonnerre s'étaient affrontés dans la sphère d'influence de ce dernier, Wang Lin serait sans aucun doute mort!
+Si Wang Lin et Lei Daozi s'étaient affrontés dans la sphère d'influence de ce dernier, Wang Lin serait sans aucun doute mort!
 
 Qian Kuizi médita longuement, mais Wang Lin ne le pressa pas et attendit patiemment. Il ignorait ce qui occupait l'esprit de Qian Kuizi. En réalité, les pensées de ce dernier n'avaient rien à voir avec les Fruits d'Ascension Céleste.
 
@@ -66,7 +66,7 @@ Le regard de Wang Lin resta serein alors qu'il répondit lentement: « Parlez. �
 
 Qian Kuizi fixa Wang Lin et dit: « Je souhaiterais voir le jeton du Temple Céleste du Tonnerre du Seigneur Messager! » Son regard se fit étroit. Si cet homme ne pouvait produire de jeton, il était un imposteur; mais s'il en possédait un... Qian Kuizi prendrait alors sa décision.
 
-Wang Lin lança un regard froid à Qian Kuizi. Sans perdre un instant, il frappa son sac de rangement et le jade du Daoïste du Tonnerre en sortit. Des éclats de foudre jaillirent immédiatement du jade, et une puissance tonnante se propagea dans l'air.
+Wang Lin lança un regard froid à Qian Kuizi. Sans perdre un instant, il frappa son sac de rangement et le jade de Lei Daozi en sortit. Des éclats de foudre jaillirent immédiatement du jade, et une puissance tonnante se propagea dans l'air.
 
 Qian Kuizi avait déjà aperçu une fois le jeton d'un messager du Temple Céleste du Tonnerre. À l'instant où il vit l'objet et ressentit la puissance de la foudre, son expression devint instantanément respectueuse et le doute qui l'habitait s'évanouit.
 

@@ -12,7 +12,7 @@ Lorsque son Sens Divin revint du neuvième soleil, il ouvrit les yeux. L'éclat 
 
 « Pourquoi le destin de Situ Nan et de Qing Shui n'existe-t-il pas ici... Se pourrait-il qu'ils n'appartiennent pas à cette grotte... » La confusion dans les yeux de Wang Lin s'intensifia.
 
-Il se souvint du Royaume aux Sept Couleurs, dans le Vide Brillant, où il avait vu Qing Shui et le Daoïste aux Sept Couleurs. Il avait vu que toute la vie de Qing Shui était observée par le regard du Daoïste aux Sept Couleurs, et ce regard étrange lui semblait encore d'une vivacité frappante.
+Il se souvint du Royaume aux Sept Couleurs, dans Zhao He, où il avait vu Qing Shui et le Daoïste aux Sept Couleurs. Il avait vu que toute la vie de Qing Shui était observée par le regard du Daoïste aux Sept Couleurs, et ce regard étrange lui semblait encore d'une vivacité frappante.
 
 « Ce regard pourrait expliquer vaguement pourquoi le destin de Qing Shui ne se trouve pas dans le neuvième soleil... Quant à Situ... Je sais beaucoup de choses sur lui... Son talent est prodigieux, et chaque fois que je le vois, son niveau de culture a considérablement augmenté... Serait-ce la raison pour laquelle son destin n'est pas dans le neuvième soleil? » Wang Lin méditait silencieusement en contemplant la terre en contrebas. Il pressentait quelque chose, mais ces pensées restaient voilées par une brume qu'il ne parvenait pas à percer.
 

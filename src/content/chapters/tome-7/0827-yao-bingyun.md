@@ -90,7 +90,7 @@ Tout en cultivant, Wang Lin leva sa main droite vers la brume noire. Une âme or
 
 Un instant plus tard, ses yeux brillèrent alors qu'il saisissait une autre âme pour la dévorer à son tour.
 
-Il fit circuler l'énergie dans son corps et poursuivit son absorption. Après douze heures et quatre âmes originelles, une puissante vague d'énergie originelle déferla en lui. Il ouvrit les yeux, empreints d'une intention meurtrière, puis sa main droite fit apparaître de nombreuses sacoches de rangement.
+Il fit circuler l'énergie dans son corps et poursuivit son absorption. Après six heures et quatre âmes originelles, une puissante vague d'énergie originelle déferla en lui. Il ouvrit les yeux, empreints d'une intention meurtrière, puis sa main droite fit apparaître de nombreuses sacoches de rangement.
 
 Ces sacs appartenaient aux personnes qu'il avait éliminées. Sans perdre un instant, Wang Lin effaça le Sens Divin de chacun d'eux et en extraya tous les trésors. Il les broya tous pour fusionner le liquide obtenu et l'injecter en Ta Shan.
 

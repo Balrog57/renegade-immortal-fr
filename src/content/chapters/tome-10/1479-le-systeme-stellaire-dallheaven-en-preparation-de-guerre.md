@@ -88,7 +88,7 @@ Maître Yan Leizi cracha du sang et se retira précipitamment. Ses yeux étaient
 
 « Wang Lin!!! C'est Wang Lin!!! » Il avait clairement vu ses cheveux blancs et sa robe blanche. Il ne pourrait jamais oublier la silhouette de Wang Lin!
 
-Lie Yunzi cracha également du sang en reculant, terrifié. Il était celui qui avait le plus interagi avec Wang Lin, notamment lors de leur dernière rencontre à la Secte Zhu Que, où il avait été acculé par ce dernier. Ce souvenir était gravé dans son esprit!
+Lie Yunzi cracha également du sang en reculant, terrifié. Il était celui qui avait le plus interagi avec Wang Lin, notamment lors de leur dernière rencontre à la Secte Suzaku, où il avait été acculé par ce dernier. Ce souvenir était gravé dans son esprit!
 
 Il réalisa immédiatement que l'homme en blanc était Wang Lin. Il resta abasourdi, incapable de prononcer un seul mot!
 

@@ -13,7 +13,7 @@ Wang Lin fronça les sourcils et émergea de ce nuage de poussière.
 
 Derrière lui suivait une marionnette décharnée. D'innombrables éclairs crépitaient sur le poing de la poupée.
 
-Le Daoïste du Tonnerre avait finalement choisi de faire des compromis, mais Wang Lin avait sous-estimé le taux d'échec de la création de gardiens célestes. Même en utilisant la Bête du Tonnerre issue du Temple Céleste du Tonnerre, l'opération avait tout de même échoué.
+Lei Daozi avait finalement choisi de faire des compromis, mais Wang Lin avait sous-estimé le taux d'échec de la création de gardiens célestes. Même en utilisant la Bête du Tonnerre issue du Temple Céleste du Tonnerre, l'opération avait tout de même échoué.
 
 « Les gardiens célestes de bas grade possèdent une force équivalente à celle des cultivateurs au sommet du premier pas. C’est parce que j'ai ajouté le fantôme céleste que des changements se sont produits, lui permettant d'atteindre la puissance de cultivateurs de l'Yin Illusoire.
 
@@ -25,15 +25,15 @@ Wang Lin soupira intérieurement. Bien des choses donnent l'illusion de la maît
 
 Wang Lin marmonna: « Ce n'est pas comme si je n'avais rien gagné pour autant! »
 
-Après l'échec du raffinage du second gardien céleste, l'âme originelle du Daoïste du Tonnerre avait perdu conscience pour se transformer en une lumière mystérieuse qui fusionna avec le corps. La Bête du Tonnerre avait également été écrasée et fusionnée avec lui.
+Après l'échec du raffinage du second gardien céleste, l'âme originelle de Lei Daozi avait perdu conscience pour se transformer en une lumière mystérieuse qui fusionna avec le corps. La Bête du Tonnerre avait également été écrasée et fusionnée avec lui.
 
-« Sommet du grade argent! » Wang Lin détourna le regard. Bien qu'il ait échoué, au moment critique, il avait résolument coupé un fil le reliant à l'âme originelle du Daoïste du Tonnerre pour abandonner le processus de raffinage. Cela avait forcé le gardien céleste, qui en était à la troisième étape de raffinage, à régresser à la première.
+« Sommet du grade argent! » Wang Lin détourna le regard. Bien qu'il ait échoué, au moment critique, il avait résolument coupé un fil le reliant à l'âme originelle de Lei Daozi pour abandonner le processus de raffinage. Cela avait forcé le gardien céleste, qui en était à la troisième étape de raffinage, à régresser à la première.
 
 Il avait obtenu un corps de grade argent au sommet de ce qui pouvait être considéré comme un gardien céleste incomplet. Bien qu'il fût incapable d'utiliser des sorts, son corps était extrêmement robuste.
 
 Si l'âme originelle de Wang Lin pouvait quitter son propre corps, il serait tout juste capable de le manipuler. Cependant, comme son âme ne pouvait actuellement pas s'en extraire, il ne pouvait utiliser son sens divin que pour lui faire exécuter quelques actions simples, comme ce coup de poing à l'instant.
 
-Ce type de contrôle était inutilisable au combat. En réalité, même si l'âme originelle de Wang Lin parvenait à en prendre le contrôle, il ne pourrait pas l'utiliser comme son propre corps, car les restes de l'âme originelle du Daoïste du Tonnerre rejetteraient sa volonté.
+Ce type de contrôle était inutilisable au combat. En réalité, même si l'âme originelle de Wang Lin parvenait à en prendre le contrôle, il ne pourrait pas l'utiliser comme son propre corps, car les restes de l'âme originelle de Lei Daozi rejetteraient sa volonté.
 
 Une fois la première étape du raffinage atteinte, seule l'âme originelle d'origine pouvait contrôler librement le corps. Dès lors que la troisième étape — celle du raffinage de l'âme originelle — échouait, plus personne ne pouvait le maîtriser, à moins qu'un être doté d'une culture de plusieurs rangs supérieure ne s'en emparât pour en faire son propre corps.
 
@@ -51,7 +51,7 @@ Les deux rayons d'énergie d'épée de Ling Tianhou flottaient dans les airs, é
 
 Le regard de Wang Lin se posa sur la Bête du Tonnerre.
 
-S'il n'avait pas été confronté à une situation de vie ou de mort, Wang Lin n'aurait jamais ouvert le troisième sceau du Char de destruction des dieux sans préparation. Après tout, ce char était extrêmement difficile à contrôler; la moindre erreur aurait provoqué un contrecoup dévastateur.
+S'il n'avait pas été confronté à une situation de vie ou de mort, Wang Lin n'aurait jamais ouvert le troisième sceau du Char de Guerre Divin sans préparation. Après tout, ce char était extrêmement difficile à contrôler; la moindre erreur aurait provoqué un contrecoup dévastateur.
 
 Pourtant, durant ces six mois, la réaction de la Bête du Tonnerre avait été inattendue. Non seulement elle n'avait montré aucun signe de contrecoup, mais elle avait suivi toutes ses commandes.
 
@@ -75,7 +75,7 @@ Après une courte réflexion, le regard de Wang Lin devint résolu.
 
 « Puisque cette bête refuse de retourner dans le sac, je la laisserai faire! » Ses yeux s'illuminèrent et les deux rayons d'énergie d'épée de Ling Tianhou retournèrent dans son corps. Quant au gardien céleste, il resta à l'entrée de la grotte pour assurer sa protection.
 
-Wang Lin sortit un sac de rangement. Ce sac appartenait au Daoïste du Tonnerre. Lorsque la conscience de ce dernier s'était dissipée lors de la troisième étape du raffinage, son sens divin avait disparu, rendant le sac sans maître.
+Wang Lin sortit un sac de rangement. Ce sac appartenait à Lei Daozi. Lorsque la conscience de ce dernier s'était dissipée lors de la troisième étape du raffinage, son sens divin avait disparu, rendant le sac sans maître.
 
 Le contenu était hétéroclite. Outre quelques objets du quotidien, quatre éléments captèrent l'attention de Wang Lin. Le premier était un jade.
 
@@ -97,7 +97,7 @@ Malgré sa grande force mentale, les yeux de Wang Lin s'écarquillèrent de surp
 
 L'idée consistait à faire de son propre Dao un fourneau capable d'affiner le monde. Ce fourneau fusionnait avec l'énergie originelle pour créer un sort d'une puissance phénoménale!
 
-Il était clair que c'était ce sort que le Daoïste du Tonnerre utilisait. Wang Lin en avait été profondément frappé.
+Il était clair que c'était ce sort que Lei Daozi utilisait. Wang Lin en avait été profondément frappé.
 
 « Malheureusement, ce sort exige trop d'énergie originelle. Il est impossible de l'utiliser avant d'atteindre le stade de l'Yin Illusoire. »
 
@@ -121,7 +121,7 @@ Les yeux de Wang Lin brillèrent d'un éclat malicieux.
 
 Après avoir mémorisé les informations du jade, Wang Lin le rangea avec soin et passa à l'objet suivant.
 
-C'était une épée. Elle n'avait pas de corps physique, elle était entièrement faite d'éclairs. Wang Lin avait vu le Daoïste du Tonnerre l'utiliser contre le gardien céleste; même les coups de poing de ce dernier ne pouvaient la briser.
+C'était une épée. Elle n'avait pas de corps physique, elle était entièrement faite d'éclairs. Wang Lin avait vu Lei Daozi l'utiliser contre le gardien céleste; même les coups de poing de ce dernier ne pouvaient la briser.
 
 Après avoir observé l'épée un instant, Wang Lin la rangea.
 

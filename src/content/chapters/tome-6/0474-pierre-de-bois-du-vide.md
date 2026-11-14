@@ -13,7 +13,7 @@ Quant à ceux qui entraient par la porte est, il s'agissait soit de leur premiè
 
 Le jeune homme dit rapidement: « Senior, Junior se nomme Li Dannan. J'ai grandi dans la ville de Ming Mei. Si le Senior le souhaite, Junior peut vous servir de guide afin de vous éviter bien des ennuis. Cela ne vous coûtera que dix pierres d'esprit de haute qualité... »
 
-Wang Lin regarda le jeune homme, réfléchit un instant, puis hocha la tête. Dix pierres d'esprit de haute qualité, c'était un peu onéreux; avec une telle somme, on pouvait acquérir certains trésors ou pilules de faible qualité. Cependant, juste avant de se rendre au Tombeau Zhu Que, Wang Lin avait dérobé de nombreuses pierres d'esprit au Clan Xian Yi, il était donc extrêmement riche en ce moment.
+Wang Lin regarda le jeune homme, réfléchit un instant, puis hocha la tête. Dix pierres d'esprit de haute qualité, c'était un peu onéreux; avec une telle somme, on pouvait acquérir certains trésors ou pilules de faible qualité. Cependant, juste avant de se rendre au Tombeau Suzaku, Wang Lin avait dérobé de nombreuses pierres d'esprit au Clan Xian Yi, il était donc extrêmement riche en ce moment.
 
 Li Dannan afficha immédiatement une expression respectueuse et demanda: « Senior, recherchez-vous des trésors magiques, des jades célestes, des pilules ou des matériaux? Ou peut-être des runes ou des sorts? »
 

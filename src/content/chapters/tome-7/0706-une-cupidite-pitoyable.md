@@ -6,23 +6,23 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 706 - Pitiful Greed
 slug: une-cupidite-pitoyable
 ---
-Le Daoïste du Tonnerre hurla: « Xu Mu, tu n'as pas tenu ta promesse! »
+Lei Daozi hurla: « Xu Mu, tu n'as pas tenu ta promesse! »
 
-Le regard de Wang Lin était calme. Le Daoïste du Tonnerre était gravement blessé et son corps était presque dépourvu d'énergie. Pour survivre, il avait dû accepter les conditions de Wang Lin, ce qui avait offert à ce dernier une opportunité idéale pour raffiner un gardien céleste.
+Le regard de Wang Lin était calme. Lei Daozi était gravement blessé et son corps était presque dépourvu d'énergie. Pour survivre, il avait dû accepter les conditions de Wang Lin, ce qui avait offert à ce dernier une opportunité idéale pour raffiner un gardien céleste.
 
 La première condition pour raffiner une marionnette était que la personne raffinée soit consentante!
 
-Wang Lin dit calmement: « Je n'ai pas manqué à ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû prier ton âme originelle de sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre d'encercler immédiatement l'âme originelle du Daoïste du Tonnerre. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
+Wang Lin dit calmement: « Je n'ai pas manqué à ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû prier ton âme originelle de sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre d'encercler immédiatement l'âme originelle de Lei Daozi. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
 
-Sans accorder un regard à l'âme originelle du Daoïste du Tonnerre, Wang Lin saisit cette âme et la plaça devant lui. Après avoir récupéré le sac de rangement, il cracha une nouvelle bouffée d'énergie originelle qui enveloppa le corps du Daoïste du Tonnerre.
+Sans accorder un regard à l'âme originelle de Lei Daozi, Wang Lin saisit cette âme et la plaça devant lui. Après avoir récupéré le sac de rangement, il cracha une nouvelle bouffée d'énergie originelle qui enveloppa le corps de Lei Daozi.
 
-L'âme originelle du Daoïste du Tonnerre affichait une humeur extrêmement sombre alors qu'il fixait froidement Wang Lin. Il voulait voir quelle sorte d'empreinte ce Xu Mu allait laisser!
+L'âme originelle de Lei Daozi affichait une humeur extrêmement sombre alors qu'il fixait froidement Wang Lin. Il voulait voir quelle sorte d'empreinte ce Xu Mu allait laisser!
 
-Le temps passa lentement tandis que Wang Lin continuait de déverser son énergie originelle. Cette énergie pénétrait le corps du Daoïste du Tonnerre comme des éclairs de foudre.
+Le temps passa lentement tandis que Wang Lin continuait de déverser son énergie originelle. Cette énergie pénétrait le corps de Lei Daozi comme des éclairs de foudre.
 
-En un éclair, plusieurs jours s'écoulèrent. Le corps du Daoïste du Tonnerre continua de se dessécher jusqu'à n'être presque plus que peau et os. Pourtant, le tonnerre bougeait à l'intérieur de lui, accompagné de flashs d'une lumière cuivrée au caractère extrêmement bizarre.
+En un éclair, plusieurs jours s'écoulèrent. Le corps de Lei Daozi continua de se dessécher jusqu'à n'être presque plus que peau et os. Pourtant, le tonnerre bougeait à l'intérieur de lui, accompagné de flashs d'une lumière cuivrée au caractère extrêmement bizarre.
 
-L'âme originelle du Daoïste du Tonnerre observait la scène avec attention chaque jour, ses yeux empreints de choc constant. Au début, il ne comprenait pas les intentions de Wang Lin, mais après quelques jours, il comprit soudainement: ce Xu Mu allait le raffiner pour en faire une marionnette!
+L'âme originelle de Lei Daozi observait la scène avec attention chaque jour, ses yeux empreints de choc constant. Au début, il ne comprenait pas les intentions de Wang Lin, mais après quelques jours, il comprit soudainement: ce Xu Mu allait le raffiner pour en faire une marionnette!
 
 Le choc dans son regard se mua en horreur, d'autant plus lorsqu'il observa la marionnette du gardien céleste à ses côtés. Bien qu'il ne soit actuellement qu'une âme originelle, il sentit un froid glacial l'envahir.
 
@@ -32,15 +32,15 @@ Wang Lin ouvrit les yeux et contempla le corps momifié qui émettait une lueur 
 
 « C'est véritablement le corps d'un cultivateur de l'Yin Illusoire. Il a déjà atteint le rang cuivre sans aucun matériau métallique. Si j'y ajoute quelques trésors célestes, je suis convaincu qu'il pourra monter encore plus haut! »
 
-Voyant Wang Lin ouvrir les yeux, l'âme originelle du Daoïste du Tonnerre s'écria immédiatement: « Xu Mu, que fais-tu?! Ce vieil homme a promis d'être ton esclave, pas ta marionnette! » Il avait déjà hurlé à maintes reprises, mais Wang Lin l'ignorait simplement et poursuivait son raffinage. Voir son propre corps ainsi transformé fit monter sa haine envers Wang Lin jusqu'à son paroxysme.
+Voyant Wang Lin ouvrir les yeux, l'âme originelle de Lei Daozi s'écria immédiatement: « Xu Mu, que fais-tu?! Ce vieil homme a promis d'être ton esclave, pas ta marionnette! » Il avait déjà hurlé à maintes reprises, mais Wang Lin l'ignorait simplement et poursuivait son raffinage. Voir son propre corps ainsi transformé fit monter sa haine envers Wang Lin jusqu'à son paroxysme.
 
 Cependant, il n'osait pas agir avec imprudence. Le sceau posé sur son âme originelle, conjugué à la présence du gardien céleste, de la Bête du Tonnerre et des trois âmes primaires ultimes, signifiait qu'il mourrait au moindre mouvement de travers.
 
-« Trop bruyant! » Wang Lin fronça les sourcils et fit un geste de la main. Deux rayons de l'énergie d'épée de Ling Tianhou jaillirent, remplissant instantanément la grotte. Cette énergie était imprégnée du domaine tyrannique de Ling Tianhou. Sous la pression de ces deux rayons, le Daoïste du Tonnerre se tut immédiatement. L'horreur dans ses yeux redoubla lorsqu'il vit l'éclat de cette énergie d'épée.
+« Trop bruyant! » Wang Lin fronça les sourcils et fit un geste de la main. Deux rayons de l'énergie d'épée de Ling Tianhou jaillirent, remplissant instantanément la grotte. Cette énergie était imprégnée du domaine tyrannique de Ling Tianhou. Sous la pression de ces deux rayons, Lei Daozi se tut immédiatement. L'horreur dans ses yeux redoubla lorsqu'il vit l'éclat de cette énergie d'épée.
 
 Son regard amer balaya les dangers qui l'entouraient. Sans parler de son état actuel, privé d'énergie originelle: même au sommet de sa puissance, il n'aurait pas osé affirmer pouvoir briser cet encerclement avec une entière certitude. Ce qu'il craignait par-dessus tout, c'étaient ces deux rayons d'énergie d'épée!
 
-Une fois le Daoïste du Tonnerre réduit au silence, le Sens Divin de Wang Lin se déploya pour couvrir la planète entière. Après un long moment, ses yeux se plissèrent et il leva sa main droite. Les environs tremblèrent et la rivière des enfers apparut dans le ciel, à l'extérieur de la grotte.
+Une fois Lei Daozi réduit au silence, le Sens Divin de Wang Lin se déploya pour couvrir la planète entière. Après un long moment, ses yeux se plissèrent et il leva sa main droite. Les environs tremblèrent et la rivière des enfers apparut dans le ciel, à l'extérieur de la grotte.
 
 Wang Lin cria: « Rivière des enfers, aspire! »
 
@@ -50,21 +50,21 @@ Peu de temps après, des minerais contenant des éléments métalliques furent e
 
 Après une longue attente, la terre cessa lentement de trembler et la force d'aspiration disparut. La masse de minerais métalliques fut fondue pour former trois sphères de liquide doré, de la taille d'un poing, qui flottèrent lentement vers l'intérieur de la grotte.
 
-Wang Lin saisit l'une des sphères dorées, la pressa contre le front du Daoïste du Tonnerre et la suivit d'une bouffée d'énergie originelle.
+Wang Lin saisit l'une des sphères dorées, la pressa contre le front de Lei Daozi et la suivit d'une bouffée d'énergie originelle.
 
-Lorsque la troisième sphère disparut dans le corps du Daoïste du Tonnerre, la lumière cuivrée s'estompa pour laisser place à une lueur argentée.
+Lorsque la troisième sphère disparut dans le corps de Lei Daozi, la lumière cuivrée s'estompa pour laisser place à une lueur argentée.
 
-« Rang argenté! » Un sentiment de soulagement passa dans les yeux de Wang Lin, avant qu'il ne se pose sur l'âme originelle toujours sombre du Daoïste du Tonnerre.
+« Rang argenté! » Un sentiment de soulagement passa dans les yeux de Wang Lin, avant qu'il ne se pose sur l'âme originelle toujours sombre de Lei Daozi.
 
 « Sois ma marionnette pendant trois mille ans et je te rendrai ta liberté. Qu'en dis-tu? »
 
-Le Daoïste du Tonnerre réfléchit en silence.
+Lei Daozi réfléchit en silence.
 
 Wang Lin ajouta calmement: « Même si tu possèdes un sort de sauvetage, il ne sera pas plus rapide que mon énergie d'épée! »
 
-Deux voies s'offraient au Daoïste du Tonnerre. La première consistait à prendre des risques et à résister, mais il savait que malgré la puissance de son sort de sauvetage, celui-ci ne pouvait rivaliser avec les deux rayons d'énergie d'épée. Si les deux attaquaient simultanément, il n'aurait aucune issue!
+Deux voies s'offraient à Lei Daozi. La première consistait à prendre des risques et à résister, mais il savait que malgré la puissance de son sort de sauvetage, celui-ci ne pouvait rivaliser avec les deux rayons d'énergie d'épée. Si les deux attaquaient simultanément, il n'aurait aucune issue!
 
-La seconde était d'accepter et de devenir une marionnette... Il échangerait trois mille ans de sa vie contre sa liberté, et cela à la condition que Wang Lin tienne sa promesse et que lui-même ne meure pas au combat durant cette période... Le Daoïste du Tonnerre observa la marionnette qui n'avait pas prononcé un mot depuis le début.
+La seconde était d'accepter et de devenir une marionnette... Il échangerait trois mille ans de sa vie contre sa liberté, et cela à la condition que Wang Lin tienne sa promesse et que lui-même ne meure pas au combat durant cette période... Lei Daozi observa la marionnette qui n'avait pas prononcé un mot depuis le début.
 
 « Le corps de cette marionnette est extrêmement robuste; il peut même combattre des trésors magiques à mains nues... Il ne devrait donc pas mourir au combat... »
 

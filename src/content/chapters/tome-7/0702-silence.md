@@ -10,13 +10,13 @@ Le cœur de Wang Lin se serra davantage. À côté de Wang Ping, Qing Yi lui pri
 
 Wang Ping réfléchit en silence et hocha la tête.
 
-L'expression du Daoïste du Tonnerre était sombre alors qu'il fixait Wang Lin: « Ce vieil homme va te montrer ce qu'est un véritable messager du Temple Céleste du Tonnerre! » Il leva la main vers le ciel et hurla: « Bête de Tonnerre Céleste! »
+L'expression de Lei Daozi était sombre alors qu'il fixait Wang Lin: « Ce vieil homme va te montrer ce qu'est un véritable messager du Temple Céleste du Tonnerre! » Il leva la main vers le ciel et hurla: « Bête de Tonnerre Céleste! »
 
-D’immenses quantités de tonnerre surgirent de toutes les directions, semblant saturer l'intégralité de la voûte céleste. La foudre se condensa frénétiquement en une sphère gigantesque au-dessus du Daoïste du Tonnerre.
+D’immenses quantités de tonnerre surgirent de toutes les directions, semblant saturer l'intégralité de la voûte céleste. La foudre se condensa frénétiquement en une sphère gigantesque au-dessus de Lei Daozi.
 
 Soudain, un grondement assourdissant résonna à travers la planète. Ce son était empreint d'une majesté capable de terrasser quiconque l'entendrait.
 
-À cet instant, les cultivateurs qui luttaient sous le poids du sens divin du Daoïste du Tonnerre furent tous frappés par ce fracas. L'énergie spirituelle au sein de leurs corps devint incontrôlable, les plongeant dans un chaos imminent.
+À cet instant, les cultivateurs qui luttaient sous le poids du sens divin de Lei Daozi furent tous frappés par ce fracas. L'énergie spirituelle au sein de leurs corps devint incontrôlable, les plongeant dans un chaos imminent.
 
 La sphère de tonnerre trembla avant de se rétracter brusquement pour se transformer en une Bête de Tonnerre noble et extraordinaire!
 
@@ -24,7 +24,7 @@ Cette Bête de Tonnerre était d'une splendeur éblouissante, dégageant deux é
 
 Pourtant, au moment où son regard croisa celui de Wang Lin, elle fut saisie d'effroi et laissa paraître une trace de confusion.
 
-Le Daoïste du Tonnerre fixa Wang Lin et déclara calmement: « C’est grâce à la Bête de Tonnerre que l’on peut être nommé messager du Temple Céleste du Tonnerre. Le crime de prétendre l'être est l'extermination de toute ta lignée! »
+Lei Daozi fixa Wang Lin et déclara calmement: « C’est grâce à la Bête de Tonnerre que l’on peut être nommé messager du Temple Céleste du Tonnerre. Le crime de prétendre l'être est l'extermination de toute ta lignée! »
 
 Wang Lin jeta un coup d'œil à la créature et dit lentement: « On ne peut appeler cela une Bête de Tonnerre sans corne de tonnerre! » Il frappa son sac de contenance, et le char de guerre en surgit avant de se transformer en une immense masse de foudre!
 
@@ -32,7 +32,7 @@ Une aura destructrice capable de dévaster le monde commença à se propager. Pu
 
 Elle ressemblait à un Qilin, sans en être un. Une corne argentée trônait sur son front, émettant les crépitements stridents de la foudre!
 
-À l'instant où elle apparut, le visage du Daoïste du Tonnerre changea radicalement. Ce fut le choc le plus violent que son cœur ait ressenti depuis son arrivée sur la planète Ran Yun. La stupeur était telle qu'il ne put que fixer la bête, incapable de prononcer un mot.
+À l'instant où elle apparut, le visage de Lei Daozi changea radicalement. Ce fut le choc le plus violent que son cœur ait ressenti depuis son arrivée sur la planète Ran Yun. La stupeur était telle qu'il ne put que fixer la bête, incapable de prononcer un mot.
 
 La Bête de Tonnerre du Temple Céleste au-dessus d'eux libéra également des décharges électriques sur tout son corps, et ses quatre sabots martelèrent le sol dans une posture d'une agressivité extrême.
 
@@ -52,21 +52,21 @@ Des éclats de tonnerre résonnèrent sur toute la terre alors que les deux bêt
 
 À cet instant, le monde semblait trembler et l'obscurité s'abattit sur tout.
 
-« C’est… c’est… une Bête de Tonnerre à Corne d'Argent!!! » Le regard du Daoïste du Tonnerre se posa sur la corne argentée de la créature de Wang Lin, ses yeux émanant un choc profond.
+« C’est… c’est… une Bête de Tonnerre à Corne d'Argent!!! » Le regard de Lei Daozi se posa sur la corne argentée de la créature de Wang Lin, ses yeux émanant un choc profond.
 
-« Posséder une Bête de Tonnerre et maîtriser si parfaitement les sorts de foudre… » Le visage du Daoïste du Tonnerre était empreint d'amertume. S’il n’avait pas reçu l’ordre de vérifier la présence d’un messager du Temple Céleste il y a soixante-dix ans, il aurait lui aussi cru que Wang Lin était un émissaire du Temple!
+« Posséder une Bête de Tonnerre et maîtriser si parfaitement les sorts de foudre… » Le visage de Lei Daozi était empreint d'amertume. S’il n’avait pas reçu l’ordre de vérifier la présence d’un messager du Temple Céleste il y a soixante-dix ans, il aurait lui aussi cru que Wang Lin était un émissaire du Temple!
 
 Le Temple Céleste possédait certes des Bêtes de Tonnerre à Corne d'Argent, mais elles étaient extrêmement rares et réservées à quelques messagers de rang céleste. S’il parvenait à obtenir une telle créature, son statut au sein du Temple s'en trouverait considérablement rehaussé.
 
 Une lueur d'avidité brilla dans ses yeux alors qu'il contemplait la corne. Il fixa ensuite Wang Lin et n'hésita plus. Ses mains tracèrent un sceau avant de se rejoindre brusquement. Lorsqu’il les écarta, une lumière intense jaillit et une épée de foudre argentée prit forme.
 
-Alors que l'électricité parcourait la lame, le Daoïste du Tonnerre forma un nouveau sceau de la main droite et pointa vers l'avant. L'épée longue argentée s'élança vers la marionnette du Gardien Céleste.
+Alors que l'électricité parcourait la lame, Lei Daozi forma un nouveau sceau de la main droite et pointa vers l'avant. L'épée longue argentée s'élança vers la marionnette du Gardien Céleste.
 
-« Tant que je tue cet homme, cette Bête de Tonnerre sans maître sera mienne! » Après avoir lancé l'épée volante, le Daoïste du Tonnerre chargea. Ses mains s'ouvrirent et il hurla: « Tribulation Céleste du Tonnerre! »
+« Tant que je tue cet homme, cette Bête de Tonnerre sans maître sera mienne! » Après avoir lancé l'épée volante, Lei Daozi chargea. Ses mains s'ouvrirent et il hurla: « Tribulation Céleste du Tonnerre! »
 
 Un rayon de foudre pourpre apparut soudainement dans sa paume et se mua en un filet. Dans un grondement fracassant, le filet vola vers Wang Lin.
 
-L'expression de Wang Lin resta neutre, mais ses pupilles se contractèrent légèrement. Ce Daoïste du Tonnerre était digne d'un cultivateur Illusoire-Yin. Non seulement son corps regorgeait d'énergie spirituelle céleste, mais sa maîtrise du tonnerre était stupéfiante!
+L'expression de Wang Lin resta neutre, mais ses pupilles se contractèrent légèrement. Ce Lei Daozi était digne d'un cultivateur Illusoire-Yin. Non seulement son corps regorgeait d'énergie spirituelle céleste, mais sa maîtrise du tonnerre était stupéfiante!
 
 « Je crains que le domaine de cet homme ne soit lui aussi lié au tonnerre! » Les yeux de Wang Lin devinrent froids tandis que sa main droite effleurait son sac de contenance; le pinceau céleste doré apparut immédiatement dans sa main.
 
@@ -84,46 +84,46 @@ Cette pression était la véritable puissance du tonnerre céleste; rien de ce q
 
 Ce tonnerre antique provenait de l'ancien dragon de tonnerre. Ce dernier avait autrefois régné sur les foudres des cieux et possédait le pouvoir de commander au tonnerre céleste. En dévorant la moitié du dragon, Wang Lin avait fusionné cette puissance avec son âme originelle.
 
-On pouvait affirmer que le tonnerre issu de l'âme originelle de Wang Lin surpassait tout autre tonnerre au monde. Si le Daoïste du Tonnerre utilisait d'autres sorts, il s'en sortirait, mais face aux sorts de foudre de Wang Lin, il n'avait aucune chance!
+On pouvait affirmer que le tonnerre issu de l'âme originelle de Wang Lin surpassait tout autre tonnerre au monde. Si Lei Daozi utilisait d'autres sorts, il s'en sortirait, mais face aux sorts de foudre de Wang Lin, il n'avait aucune chance!
 
 Bien que son niveau de culture fût plus élevé, cela ne suffisait pas. Il aurait fallu qu'il soit véritablement au second stade pour espérer vaincre!
 
 Wang Lin possédait une suprématie absolue en matière de tonnerre; aucun sort de foudre au monde ne pouvait l'atteindre. En d'autres termes, Wang Lin était un dragon de tonnerre vivant!
 
-Une fois le symbole à sept traits tracé, le pinceau pointa la figure vers l'avant, et celle-ci fonça, telle la foudre, vers le Daoïste du Tonnerre.
+Une fois le symbole à sept traits tracé, le pinceau pointa la figure vers l'avant, et celle-ci fonça, telle la foudre, vers Lei Daozi.
 
-Le visage du Daoïste du Tonnerre s'assombrit. Il serra les dents et projeta l'énergie de sa paume pour contrer le symbole.
+Le visage de Lei Daozi s'assombrit. Il serra les dents et projeta l'énergie de sa paume pour contrer le symbole.
 
 Boum!
 
-Le symbole se brisa, libérant une force infinie chargée des sept fragments de l'âme originelle de Wang Lin qui frappèrent de plein fouet le Daoïste du Tonnerre. La foudre pourpre dans sa main se désintégra instantanément et il cracha un large flot de sang avant de reculer frénétiquement.
+Le symbole se brisa, libérant une force infinie chargée des sept fragments de l'âme originelle de Wang Lin qui frappèrent de plein fouet Lei Daozi. La foudre pourpre dans sa main se désintégra instantanément et il cracha un large flot de sang avant de reculer frénétiquement.
 
-Boum, boum, boum, boum! Chaque explosion correspondait à une portion de l'âme originelle résonnant à l'intérieur du corps du Daoïste du Tonnerre. Il continuait de cracher du sang tout en reculant sans relâche.
+Boum, boum, boum, boum! Chaque explosion correspondait à une portion de l'âme originelle résonnant à l'intérieur du corps de Lei Daozi. Il continuait de cracher du sang tout en reculant sans relâche.
 
-Lorsque la dernière portion de l'âme finit de résonner, le visage du Daoïste du Tonnerre était livide et il avait déjà reculé de mille pieds. L'effroi dans ses yeux était monstrueux.
+Lorsque la dernière portion de l'âme finit de résonner, le visage de Lei Daozi était livide et il avait déjà reculé de mille pieds. L'effroi dans ses yeux était monstrueux.
 
 C'était la première fois de sa vie qu'il se faisait vaincre par un sort de tonnerre. Il en venait même à se demander si, comparé à son ennemi, ce Xu Mu n'était pas le véritable messager du Temple Céleste du Tonnerre et lui l'imposteur.
 
 Ce sentiment de confusion le fit reprendre une profonde inspiration, ses yeux devenant plus sombres encore.
 
-Wang Lin soupira intérieurement. Ce Daoïste du Tonnerre était bel et bien un cultivateur Illusoire-Yin. Après avoir été frappé par le symbole, il n'était que blessé et son noyau n'en avait pas été affecté.
+Wang Lin soupira intérieurement. Ce Lei Daozi était bel et bien un cultivateur Illusoire-Yin. Après avoir été frappé par le symbole, il n'était que blessé et son noyau n'en avait pas été affecté.
 
-L'énergie spirituelle céleste de l'adversaire était trop puissante, imprégnée de traces d'énergie originelle. Lorsque le tonnerre pénétrait dans le corps du Daoïste du Tonnerre, il était constamment dissous par cette force.
+L'énergie spirituelle céleste de l'adversaire était trop puissante, imprégnée de traces d'énergie originelle. Lorsque le tonnerre pénétrait dans le corps de Lei Daozi, il était constamment dissous par cette force.
 
-« Tu es très fort! Je suppose que tu étais en retraite sur la planète Ran Yun pour comprendre ton domaine. Si on te donnait cent ans de plus, tu serais peut-être devenu encore plus puissant que moi. Si ton niveau de culture était le même que le mien, je serais mort sans aucun doute, mais malheureusement, ta progression s'est arrêtée au premier stade! » Le Daoïste du Tonnerre prit une profonde inspiration et ses blessures se rétablirent instantanément.
+« Tu es très fort! Je suppose que tu étais en retraite sur la planète Ran Yun pour comprendre ton domaine. Si on te donnait cent ans de plus, tu serais peut-être devenu encore plus puissant que moi. Si ton niveau de culture était le même que le mien, je serais mort sans aucun doute, mais malheureusement, ta progression s'est arrêtée au premier stade! » Lei Daozi prit une profonde inspiration et ses blessures se rétablirent instantanément.
 
 Cependant, Wang Lin sentait clairement qu'il y avait un peu moins d'énergie originelle du monde dans le corps de l'autre.
 
-Le Daoïste du Tonnerre déclara d'un ton pesant: « Je te pose la question une dernière fois: remets-moi la Bête de Tonnerre à Corne d'Argent et la marionnette, et je te laisserai partir! Sinon, tu mourras aujourd'hui même! Le sort que j'ai utilisé n'était qu'un sort ordinaire; si tu persistes dans ton obstination, j'utiliserai un sort d'énergie originelle exclusif aux cultivateurs du second stade. Tu ne pourras pas y résister! »
+Lei Daozi déclara d'un ton pesant: « Je te pose la question une dernière fois: remets-moi la Bête de Tonnerre à Corne d'Argent et la marionnette, et je te laisserai partir! Sinon, tu mourras aujourd'hui même! Le sort que j'ai utilisé n'était qu'un sort ordinaire; si tu persistes dans ton obstination, j'utiliserai un sort d'énergie originelle exclusif aux cultivateurs du second stade. Tu ne pourras pas y résister! »
 
 L'expression de Wang Lin resta calme. Sa main droite effleura son sac de contenance et une grande épée apparut dans sa poigne. Il dit tranquillement: « Attaque, et laisse-moi expérimenter le sort d'énergie originelle d'un cultivateur Illusoire-Yin! »
 
-Qu'il s'agisse de l'ancêtre de la famille Huan, de Qian Kuizi ou du Daoïste du Tonnerre, Wang Lin avait trouvé un point commun entre ces trois hommes: l'énergie originelle!
+Qu'il s'agisse de l'ancêtre de la famille Huan, de Qian Kuizi ou de Lei Daozi, Wang Lin avait trouvé un point commun entre ces trois hommes: l'énergie originelle!
 
 Il était évident que cette énergie était la clé des cultivateurs du second stade!
 
 Cette bataille marquait la première fois que Wang Lin affrontait personnellement un cultivateur Illusoire-Yin. La capacité de récupération phénoménale de ce type de cultivateur assombrissait le cœur de Wang Lin.
 
-Le regard du Daoïste du Tonnerre dépassa Wang Lin pour se poser sur Wang Ping et Qing Yi. Ses yeux brillèrent d'une lueur mystérieuse lorsqu'il dit lentement: « Tu as abandonné la compréhension de ton domaine pour une personne morte. Cela a grandement dérouté ce vieil homme! »
+Le regard de Lei Daozi dépassa Wang Lin pour se poser sur Wang Ping et Qing Yi. Ses yeux brillèrent d'une lueur mystérieuse lorsqu'il dit lentement: « Tu as abandonné la compréhension de ton domaine pour une personne morte. Cela a grandement dérouté ce vieil homme! »
 
 Wang Lin leva soudain les yeux, le regard injecté de sang. Il brandit l'épée qu'il tenait et lâcha froidement: « Tais-toi! »

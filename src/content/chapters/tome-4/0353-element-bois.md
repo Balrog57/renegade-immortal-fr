@@ -35,7 +35,7 @@ Le regard de Wang Lin s'anima et il contrôla la boussole stellaire pour poursui
 
 Le vieil homme poursuivait sa traque. Plus il avançait, plus il était stupéfait de voir que ce junior pouvait maintenir une telle vitesse pendant si longtemps. Bien que Wang Lin utilisât un trésor, celui-ci consommait tout de même de l'énergie spirituelle. Un junior capable de maîtriser un tel objet aussi longtemps, tout en portant la graine du tatouage en lui, était d'une rareté absolue.
 
-« Ce garçon doit être le disciple d'une grande secte là-haut, peut-être même un disciple du Pays de Zhu Que! Je dois le raffiner pour en faire ma marionnette de tatouage; une fois renvoyé là-haut, son utilité sera immense! »
+« Ce garçon doit être le disciple d'une grande secte là-haut, peut-être même un disciple du Pays Suzaku! Je dois le raffiner pour en faire ma marionnette de tatouage; une fois renvoyé là-haut, son utilité sera immense! »
 
 Le Clan Xian Yi ne pouvait franchir le premier étage en raison d'un sceau imposé par Suzaku. Les seuls capables de sortir étaient les marionnettes de tatouage. Celui que Wang Lin avait rencontré auparavant n'était qu'une marionnette de rang inférieur. C'était la raison pour laquelle le Clan Xian Yi s'emparait des corps de cultivateurs décédés. Autrement, la Mer Xiu Mo et tous les pays environnants auraient été anéantis par eux, et les membres du clan n'auraient pas eu à se battre entre eux pour l'obtention de bêtes.
 

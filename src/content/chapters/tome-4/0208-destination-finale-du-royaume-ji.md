@@ -262,7 +262,7 @@ Cinq jours plus tard, il arriva dans cette étendue désolée. Peu importait la 
 
 Il s'enfonça dans la terre pour atteindre la grotte. Les restrictions n'étaient aucunement un problème pour lui. Après les avoir toutes brisées, il pénétra à l'intérieur.
 
-Wang Lin sonda l'endroit avec son Sens Divin et constata que Qiu Siping était absent. Il se dirigea vers la salle des livres. Il lui fallut six heures pour briser la restriction de cette pièce.
+Wang Lin sonda l'endroit avec son Sens Divin et constata que Qiu Siping était absent. Il se dirigea vers la salle des livres. Il lui fallut trois heures pour briser la restriction de cette pièce.
 
 Une fois entré, il prit une profonde inspiration pour calmer son cœur avant de commencer ses recherches. La plupart des écrits en bambou traitaient des restrictions, mais aucun ne mentionnait le terme « Royaume Ji ».
 

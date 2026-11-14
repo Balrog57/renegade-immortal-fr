@@ -20,7 +20,7 @@ Alors que le fantôme démoniaque approchait, le jeune homme au sommet baissa le
 
 Le jeune homme se trouvait au stade Yin Illusoire, et il était évident qu'il n'était pas novice en matière de culture. Bien qu'il ne fût pas au sommet, il atteignait déjà le stade intermédiaire.
 
-Sa culture pouvait rivaliser avec celle du Daoïste du Tonnerre, et ses sorts démoniaques le rendaient encore plus redoutable. Même le Daoïste du Tonnerre n'aurait pas nécessairement l'avantage contre lui.
+Sa culture pouvait rivaliser avec celle de Lei Daozi, et ses sorts démoniaques le rendaient encore plus redoutable. Même Lei Daozi n'aurait pas nécessairement l'avantage contre lui.
 
 La flèche de pluie était imprégnée d'une intention meurtrière féroce. Le regard de Wang Lin se fit glacial et il recula de quelques pas. Sa main s'élança et des éclats de tonnerre explosèrent. Simultanément, des sphères de foudre apparurent, chacune reliée aux autres par des arcs électriques.
 

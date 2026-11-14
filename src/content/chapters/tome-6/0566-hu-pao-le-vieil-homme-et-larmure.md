@@ -106,7 +106,7 @@ Après un long moment, la lueur se posa sur les yeux du vieil homme, comme pour 
 
 Le corps du vieillard était trempé de sueur lorsqu'il dit simplement: « Oui! » Il se leva ensuite et quitta respectueusement le sommet de la tour. Il redescendit au premier étage et s'assit en position du lotus, paraissant nettement plus détendu cette fois-ci.
 
-« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique d'affinement de l'âme et mes compétences en alchimie, sa culture pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en deux heures de puissance, pour qu'il devienne l'un des Gardiens Démoniaques! »
+« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique d'affinement de l'âme et mes compétences en alchimie, sa culture pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en une heure de puissance, pour qu'il devienne l'un des Gardiens Démoniaques! »
 
 « Ce sort d'affinement de l'âme est très mystérieux, mais j'ai le sentiment qu'un défaut s'y cache. Cependant, le Maître ne s'est éveillé que depuis peu, je ne peux donc pas le déranger avec une si petite affaire... »
 

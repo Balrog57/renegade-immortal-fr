@@ -104,7 +104,7 @@ Après avoir répété cela maintes fois, cette douleur devint une véritable to
 
 Jour après jour, ce supplice était plus cruel que n'importe quelle agonie!
 
-Chaque fois qu'elle couvrait la statue de sang, celle-ci l'absorbait. Elle se mettait à briller comme si elle recouvrait une part de vitalité, et semblait même paraître moins âgée! Au début, l'absorption prenait une journée entière, mais avec le temps, la vitesse s'accéléra; le sang ne mettait plus que vingt heures à disparaître, obligeant la femme à recommencer.
+Chaque fois qu'elle couvrait la statue de sang, celle-ci l'absorbait. Elle se mettait à briller comme si elle recouvrait une part de vitalité, et semblait même paraître moins âgée! Au début, l'absorption prenait une journée entière, mais avec le temps, la vitesse s'accéléra; le sang ne mettait plus que dix heures à disparaître, obligeant la femme à recommencer.
 
 Un mois, deux mois... quatre mois... sept mois... un an!
 

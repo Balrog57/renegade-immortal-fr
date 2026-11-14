@@ -16,7 +16,7 @@ Si Wang Lin n'avait pas été certain qu'aucune restriction ne figurait ici aupa
 
 Wang Lin fronça légèrement les sourcils avant de déployer son sens divin, mais ne trouva aucune trace à des kilomètres à la ronde. Il réfléchit un instant et murmura: « Étrange, je perçois clairement l'aura d'une restriction, mais je n'en vois aucune. Serais-je en train d'halluciner... » Son regard scintilla de façon imperceptible, puis son corps vacilla et, transformé en arc-en-ciel, il disparut sur place en filant vers l'horizon, jusqu'à s'évanouir complètement au loin.
 
-Le temps passa lentement. Deux heures plus tard, une ondulation apparut sur un rocher situé à cent pieds à droite de la restriction, et deux personnes en sortirent.
+Le temps passa lentement. Une heure plus tard, une ondulation apparut sur un rocher situé à cent pieds à droite de la restriction, et deux personnes en sortirent.
 
 Il s'agissait de l'homme et de la femme, tous deux au sommet du stade avancé de l'Ascendant, que Wang Lin avait rencontrés un mois auparavant.
 

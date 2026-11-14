@@ -54,7 +54,7 @@ Il devait donc agir vite durant le court laps de temps dont il disposait. Les ma
 
 Ces restrictions disparurent instantanément en touchant la surface. Wang Lin ne s'arrêta pas; il continua de faire le tour de la planète pour y déposer ses sceaux.
 
-Deux heures plus tard, son visage était blême. D'un pas, il atteignit la surface de la planète. Elle n'était que ruines, la terre était craquelée et les mers s'étaient évaporées.
+Une heure plus tard, son visage était blême. D'un pas, il atteignit la surface de la planète. Elle n'était que ruines, la terre était craquelée et les mers s'étaient évaporées.
 
 Une fois au sol, Wang Lin frappa son sac de stockage et le drapeau de l'âme apparut. D'un revers de main, le drapeau se transforma en une brume noire qui enveloppa la planète. À l'intérieur de cette brume se trouvait Xue Zu, les yeux clos. D'innombrables sceaux l'entouraient, ainsi que les âmes sans nombre contenues dans le drapeau.
 

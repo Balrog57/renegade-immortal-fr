@@ -13,7 +13,7 @@ Au centre de ce nuage, d'innombrables membres du clan chantaient à l'unisson. L
 
 Cette énergie montait rapidement vers la voûte céleste.
 
-Toutes les quatre heures, ces membres du clan épuisaient toute la puissance des tatouages contenus dans leur corps, puis un autre groupe prenait leur relève pour poursuivre le chant.
+Toutes les deux heures, ces membres du clan épuisaient toute la puissance des tatouages contenus dans leur corps, puis un autre groupe prenait leur relève pour poursuivre le chant.
 
 Ce processus durait depuis plusieurs mois. Ce jour-là, un homme d'âge moyen vêtu d'une robe grise apparut. Il ne portait aucun tatouage sur son corps, à l'exception d'une feuille violette sur sa joue gauche qui émettait une lueur violette.
 

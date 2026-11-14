@@ -34,7 +34,7 @@ Boum! L'orage de foudre recouvrit l'intégralité du fourneau; d'innombrables fi
 
 Boum! Le coup de poing du gardien céleste s'abattit sur le fourneau, provoquant de nouvelles fractures.
 
-La force colossale se propageait partout, tandis que l'énergie originelle du Daoïste du Tonnerre affluait dans le fourneau comme une marée déchaînée. Il n'avait pas le temps de ressentir la douleur causée par l'épuisement de son énergie, car c'était la bataille la plus acharnée qu'il ait connue depuis qu'il était devenu un messager du Temple Céleste du Tonnerre. C'était une lutte entre la vie et la mort!
+La force colossale se propageait partout, tandis que l'énergie originelle de Lei Daozi affluait dans le fourneau comme une marée déchaînée. Il n'avait pas le temps de ressentir la douleur causée par l'épuisement de son énergie, car c'était la bataille la plus acharnée qu'il ait connue depuis qu'il était devenu un messager du Temple Céleste du Tonnerre. C'était une lutte entre la vie et la mort!
 
 Cependant, la vitesse à laquelle son énergie originelle pénétrait le fourneau ne pouvait rivaliser avec la puissance combinée de la Bête du Tonnerre sous le troisième sceau et de la marionnette du gardien céleste. Face à cette crise, le regard de Wang Lin devint glacial. Il ne saisit pas sa grande épée, mais leva la main droite, deux doigts joints en forme d'épée, et frappa impitoyablement!
 
@@ -48,13 +48,13 @@ Le visage de Wang Lin était d'une pâleur mortelle. Après avoir utilisé deux 
 
 Son corps vacilla et le monde autour de lui retrouva son calme. Wang Lin prit une profonde inspiration. Bien que son visage fût livide, ses yeux étaient plus froids que jamais.
 
-Le corps du Daoïste du Tonnerre apparut dans les airs. Il cracha une large bouchée de sang et fit immédiatement demi-tour pour fuir. La terreur l'habitait. Il avait mené d'innombrables batailles, mais n'avait jamais rencontré une telle étrangeté. Bien que l'ennemi ne fût qu'un cultivateur Ascendant, les pouvoirs et sortilèges qu'il possédait lui glaçaient le sang; ces deux rayons d'énergie d'épée le faisaient regretter de ne pas pouvoir fuir plus vite!
+Le corps de Lei Daozi apparut dans les airs. Il cracha une large bouchée de sang et fit immédiatement demi-tour pour fuir. La terreur l'habitait. Il avait mené d'innombrables batailles, mais n'avait jamais rencontré une telle étrangeté. Bien que l'ennemi ne fût qu'un cultivateur Ascendant, les pouvoirs et sortilèges qu'il possédait lui glaçaient le sang; ces deux rayons d'énergie d'épée le faisaient regretter de ne pas pouvoir fuir plus vite!
 
-La marionnette du gardien céleste poursuivit rapidement le Daoïste du Tonnerre. La Bête du Tonnerre poussa un rugissement et suivit également de près le gardien. Ils disparurent progressivement à l'horizon...
+La marionnette du gardien céleste poursuivit rapidement Lei Daozi. La Bête du Tonnerre poussa un rugissement et suivit également de près le gardien. Ils disparurent progressivement à l'horizon...
 
 Wang Ping demanda doucement: « Papa... Est-ce que ce qu'il a dit est vrai...? »
 
-Au cours du combat, le Daoïste du Tonnerre n'avait pas inclus Wang Ping et Qing Yi dans son sort, car il n'osait pas provoquer les deux rayons d'énergie d'épée qui résidaient en Wang Ping.
+Au cours du combat, Lei Daozi n'avait pas inclus Wang Ping et Qing Yi dans son sort, car il n'osait pas provoquer les deux rayons d'énergie d'épée qui résidaient en Wang Ping.
 
 L'expression de Wang Lin était extrêmement pâle. Il se retourna lentement et fixa Wang Ping. Après un long silence, il hocha la tête.
 

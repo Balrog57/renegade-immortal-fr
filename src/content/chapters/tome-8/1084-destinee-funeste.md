@@ -100,7 +100,7 @@ L'Empereur Divin de Suzaku fut surpris. Son regard balaya Wang Lin, mais il gard
 
 Le visage de Wang Lin était d'une pâleur mortelle; ses blessures atteignaient les limites de sa résistance. Son âme originelle montrait des signes de dissipation, et les paroles de Mu Bingmei le firent trembler de douleur. Cette souffrance transparaissait dans ses yeux.
 
-Wang Lin ne se retourna pas et ne répondit pas à Mu Bingmei. Au lieu de cela, il fixa l'Empereur Divin de Suzaku et demanda: « Me ramenez-vous à la Secte Zhu Que? »
+Wang Lin ne se retourna pas et ne répondit pas à Mu Bingmei. Au lieu de cela, il fixa l'Empereur Divin de Suzaku et demanda: « Me ramenez-vous à la Secte Suzaku? »
 
 L'Empereur Divin de Suzaku acquiesça.
 
@@ -117,7 +117,7 @@ Sur ces mots, les disciples des Quatre Sectes Divines se dispersèrent pour seco
 « Mon bienfaiteur, Zhou Yi, a besoin de Qing Lin pour ressusciter! »
 « Je vous donnerai le corps de Qing Lin! Si vous avez besoin de l'aide des Quatre Sectes Divines, nous vous apporterons tout notre soutien! »
 « Dans la Terre Yao Ling, j'ai une branche de disciples directs... »
-« J'enverrai quelqu'un pour les escorter jusqu'à la Secte Zhu Que! »
+« J'enverrai quelqu'un pour les escorter jusqu'à la Secte Suzaku! »
 
 « Ces célestes de l'Alliance veulent ma mort. Je veux leurs âmes originelles! » Une lueur de froideur passa dans les yeux de Wang Lin. Il n'avait jamais fait preuve de clémence envers ceux qui cherchaient à lui nuire; il s'était toujours comporté comme un démon face à eux!
 

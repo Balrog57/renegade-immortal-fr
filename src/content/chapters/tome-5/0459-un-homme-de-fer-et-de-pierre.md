@@ -128,10 +128,10 @@ Pourtant, fort de son expérience actuelle, Wang Lin devina qu'ils n'avaient pas
 
 Toutefois, ils détenaient des techniques inconnues des générations futures. Une fois utilisées, leur puissance augmenterait de façon fulgurante.
 
-« Tuo Sen... Il ne devrait pas être totalement libre pour le moment, sinon il n'aurait pas besoin de posséder quelqu'un comme celui-ci; il serait venu me chercher personnellement. Pourtant, après avoir possédé quelqu'un, pourquoi ne m'a-t-il pas attaqué aussitôt en me voyant, et est-il entré dans ce Tombeau Zhu Que? Serait-il lui aussi en quête du Cristal de la Planète de Culture? » Le cœur de Wang Lin trembla.
+« Tuo Sen... Il ne devrait pas être totalement libre pour le moment, sinon il n'aurait pas besoin de posséder quelqu'un comme celui-ci; il serait venu me chercher personnellement. Pourtant, après avoir possédé quelqu'un, pourquoi ne m'a-t-il pas attaqué aussitôt en me voyant, et est-il entré dans ce Tombeau Suzaku? Serait-il lui aussi en quête du Cristal de la Planète de Culture? » Le cœur de Wang Lin trembla.
 
 « Se pourrait-il que le Cristal de la Planète de Culture puisse libérer Tuo Sen de toutes les entraves de la Terre Gu Shen? » Les yeux de Wang Lin s'illuminèrent.
 
 À cet instant, la montagne spirituelle se remit à trembler et une série de rugissements tonitruants résonna dans le ciel. L'effondrement se produisit pour la troisième fois.
 
-Une grande partie des entrailles du Tombeau Zhu Que s'effondra en d'innombrables failles. Les cultivateurs et les membres du Clan Xian Yi qui n'avaient pas réussi à trouver la montagne spirituelle périrent tous.
+Une grande partie des entrailles du Tombeau Suzaku s'effondra en d'innombrables failles. Les cultivateurs et les membres du Clan Xian Yi qui n'avaient pas réussi à trouver la montagne spirituelle périrent tous.

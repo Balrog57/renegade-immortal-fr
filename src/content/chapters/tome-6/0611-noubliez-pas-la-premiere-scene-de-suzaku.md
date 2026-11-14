@@ -71,7 +71,7 @@ Le jeune garçon parut surpris avant de cligner des yeux et de sourire: « C'est
 
 Le vieil homme soupira: « Bien que l'homme qui a servi de modèle à cette statue n'ait cultivé ici que pendant une courte période, il a déclenché, durant ces quelques centaines d'années, une tempête sans précédent sur la planète Suzaku! Certains récits ne se sont propagés qu'après son départ. La rumeur prétend que lorsqu'il n'avait que 200 ans de culture, il parvint à semer un chaos total dans la Mer Xiu Mo. Il sauva une femme magnifique au sein de la Secte Yun Tian et terrifia tous les puissants. Il se fraya un chemin à travers Zhao, semant un massacre effroyable et teignant la terre de sang. Toute la famille Teng fut massacrée, et le pays entier devint un cimetière! »
 
-« On raconte qu'il s'est rendu dans le Royaume Céleste et qu'il y a abattit Hongdie. Il vainquit Liu Mei, affronta Qian Feng et accepta Dun Tian de la Secte Lian Hun comme maître. Il chassa Xue Yu, tua l'ancêtre du Clan Ju Mo et acquit sa renommée lors de la bataille contre le Clan Xian Yi. Il obtint le Cristal de Suzaku au cœur du Tombeau Zhu Que. Après avoir terrassé de nombreux adversaires, il fut le premier à s'emparer du Cristal! »
+« On raconte qu'il s'est rendu dans le Royaume Céleste et qu'il y a abattit Hongdie. Il vainquit Liu Mei, affronta Qian Feng et accepta Dun Tian de la Secte Lian Hun comme maître. Il chassa Xue Yu, tua l'ancêtre du Clan Ju Mo et acquit sa renommée lors de la bataille contre le Clan Xian Yi. Il obtint le Cristal de Suzaku au cœur du Tombeau Suzaku. Après avoir terrassé de nombreux adversaires, il fut le premier à s'emparer du Cristal! »
 
 « Il aurait pu revendiquer le titre de Suzaku, mais il le refusa pour le céder à l'actuel Suzaku, Zhou Wutai! »
 

@@ -70,7 +70,7 @@ En regardant plus attentivement, il aperçut un homme d'âge moyen assis en tail
 
 L'homme avait les yeux clos et son corps était enveloppé par ces reflets colorés. Il dégageait une pression monstrueuse, capable de faire trembler tous les êtres vivants et de les clouer sur place.
 
-Cet homme aux sept couleurs n'était pas l'entité rencontrée dans le Royaume aux Sept Couleurs du Vide Brillant, mais le corps véritable de la statue aux sept couleurs de son espace de stockage!
+Cet homme aux sept couleurs n'était pas l'entité rencontrée dans le Royaume aux Sept Couleurs de Zhao He, mais le corps véritable de la statue aux sept couleurs de son espace de stockage!
 
 C'était la deuxième fois que Wang Lin voyait cet homme. Après une brève réflexion, un éclat de froideur passa dans ses yeux et il s'avança sans hésiter. Sa main droite traça un sceau, faisant trembler l'esprit du vieil homme. Une immense empreinte palmaire apparut devant Wang Lin, perça le brouillard et fonça vers l'homme d'âge moyen.
 

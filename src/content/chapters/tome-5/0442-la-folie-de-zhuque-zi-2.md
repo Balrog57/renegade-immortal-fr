@@ -65,19 +65,19 @@ La folie dans les yeux de Zhu Quezi s'atténua légèrement pour laisser place �
 
 Sur ces mots, il agita la main et tout le Mont Suzaku se mit à gronder. Sous l'effet de ce tumulte violent, la poussière s'éleva partout et la terre trembla. Dans ce fracas qui ébranla les cieux, le Mont Suzaku se fendit en deux. Un passage sombre apparut soudainement devant tous.
 
-« J'ai ouvert le Tombeau Zhu Que. Yun Quezi, le jeu commence! Vous connaissez les règles du Tombeau Zhu Que: tout cultivateur n'ayant pas atteint le stade d'Ascendant peut y entrer, mais les Ascendants ne le peuvent pas! » Les yeux de Zhu Quezi étaient embrasés par la folie.
+« J'ai ouvert le Tombeau Suzaku. Yun Quezi, le jeu commence! Vous connaissez les règles du Tombeau Suzaku: tout cultivateur n'ayant pas atteint le stade d'Ascendant peut y entrer, mais les Ascendants ne le peuvent pas! » Les yeux de Zhu Quezi étaient embrasés par la folie.
 
 Le premier ancêtre observait le Cœur de la Planète de Culture qui se brisait lentement. Il s'apprêtait à attaquer quand Yun Quezi secoua la tête et murmura: « C'est inutile. Le Cœur de la Planète de Culture et Zhu Quezi ont fusionné depuis longtemps. Il n'a même pas besoin de le sortir pour qu'il se brise; il a tout orchestré pour nous mettre sous pression et nous forcer à contempler notre mort. Même si vous l'emportiez, nous ne pourrions empêcher sa destruction. Je suis certain qu'avec la folie qui l'habite, il fera exploser le Cristal de la Planète de Culture immédiatement! »
 
 « S'il y a trois mois, il n'aurait probablement même pas proposé ce jeu et aurait fait exploser le Cristal directement. Mais puisqu'il a eu le temps d'y réfléchir, il nous offre cette chance inespérée. Hélas, si vous m'aviez écouté, nous ne serions pas dans un tel dilemme! »
 
-Dès que le Mont Suzaku se fendit en deux, Qian Feng fut le premier à charger dans le Tombeau Zhu Que. Liu Mei réfléchit un instant avant de pousser un soupir et fut la seconde à entrer. Les yeux d'Yun Quezi s'illuminèrent; il regarda autour de lui, puis le jeune maître du Clan Xian Yi entra également après une courte hésitation.
+Dès que le Mont Suzaku se fendit en deux, Qian Feng fut le premier à charger dans le Tombeau Suzaku. Liu Mei réfléchit un instant avant de pousser un soupir et fut la seconde à entrer. Les yeux d'Yun Quezi s'illuminèrent; il regarda autour de lui, puis le jeune maître du Clan Xian Yi entra également après une courte hésitation.
 
-À cet instant, les nuages se mirent à bouillonner et un grand nombre de membres du Clan Xian Yi apparurent au sein des masses sombres. Plusieurs individus s'envolèrent des nuages; ils semblaient déjà informés de la situation. Sans un mot, ils pénétrèrent dans le Tombeau Zhu Que. Parmi eux se trouvait le vieil homme bossu aux huit feuilles qui avait autrefois traqué Wang Lin.
+À cet instant, les nuages se mirent à bouillonner et un grand nombre de membres du Clan Xian Yi apparurent au sein des masses sombres. Plusieurs individus s'envolèrent des nuages; ils semblaient déjà informés de la situation. Sans un mot, ils pénétrèrent dans le Tombeau Suzaku. Parmi eux se trouvait le vieil homme bossu aux huit feuilles qui avait autrefois traqué Wang Lin.
 
-En trois jours, la nouvelle de l'ouverture du Tombeau Zhu Que s'était répandue sur toute la planète, tout comme celle du Cristal de la Planète de Culture, qui se propagea comme une traînée de poudre. À cet instant, la priorité absolue pour tous les cultivateurs était de se rendre au Tombeau Zhu Que afin de récupérer leur propre fragment d'âme.
+En trois jours, la nouvelle de l'ouverture du Tombeau Suzaku s'était répandue sur toute la planète, tout comme celle du Cristal de la Planète de Culture, qui se propagea comme une traînée de poudre. À cet instant, la priorité absolue pour tous les cultivateurs était de se rendre au Tombeau Suzaku afin de récupérer leur propre fragment d'âme.
 
-Tous les cultivateurs de la planète accoururent vers le pays de Suzaku pour pénétrer dans le tombeau. Cependant, le Tombeau Zhu Que était soumis à une restriction spéciale imposée par le Cristal de la Planète de Culture: une fois qu'un certain nombre de personnes avait été atteint, plus personne ne pouvait entrer. Bien que beaucoup aient tenté l'aventure, ceux qui réussirent réellement à y pénétrer furent très peu nombreux.
+Tous les cultivateurs de la planète accoururent vers le pays de Suzaku pour pénétrer dans le tombeau. Cependant, le Tombeau Suzaku était soumis à une restriction spéciale imposée par le Cristal de la Planète de Culture: une fois qu'un certain nombre de personnes avait été atteint, plus personne ne pouvait entrer. Bien que beaucoup aient tenté l'aventure, ceux qui réussirent réellement à y pénétrer furent très peu nombreux.
 
 Zhou Wutai fut l'un d'entre eux, accompagné de la femme toujours voilée, Zi Xin.
 

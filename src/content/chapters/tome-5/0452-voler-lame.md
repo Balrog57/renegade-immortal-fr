@@ -94,21 +94,21 @@ Wang Lin attendait ce moment, car ce n'est qu'en divisant son corps en gouttelet
 
 Cependant, au moment même où Wang Lin et les six âmes primaires passaient à l'action, toute la gorge trembla. Ce séisme émanait du sol même.
 
-Non seulement ici, mais tout le Tombeau Zhu Que était en train de vaciller.
+Non seulement ici, mais tout le Tombeau Suzaku était en train de vaciller.
 
 Alors que les secousses s'intensifiaient, des bruits de déchirure retentirent dans le ciel, comme si d'immenses mains déchiraient la voûte céleste.
 
 D'innombrables failles spatiales apparurent dans le ciel. Le vent glacial qui s'en échappait pouvait geler n'importe quel être. Ces failles n'étaient pas comme celles de l'extérieur, où l'on peut entrer en toute sécurité si l'on possède un certain niveau de culture.
 
-Ici, c'était différent. Ces failles spatiales n'étaient pas réelles; elles n'en avaient que l'apparence. Dans le Tombeau Zhu Que, il s'agissait de fissures dimensionnelles générées par la puissance spéciale du Cristal de la Planète de Culture.
+Ici, c'était différent. Ces failles spatiales n'étaient pas réelles; elles n'en avaient que l'apparence. Dans le Tombeau Suzaku, il s'agissait de fissures dimensionnelles générées par la puissance spéciale du Cristal de la Planète de Culture.
 
 Même un cultivateur au stade de la Transformation de l'Âme qui y pénétrait verrait son âme instantanément anéantie.
 
 Alors que le Cœur de la Planète de Culture continuait de se briser, l'effondrement du Cristal de la Planète de Culture commença enfin.
 
-La terre du Tombeau Zhu Que se fissura et de nombreux cultivateurs qui s'y trouvaient périrent sous cette catastrophe naturelle. Même de nombreuses formes de vie, face à ce désastre, n'eurent d'autre issue que la mort.
+La terre du Tombeau Suzaku se fissura et de nombreux cultivateurs qui s'y trouvaient périrent sous cette catastrophe naturelle. Même de nombreuses formes de vie, face à ce désastre, n'eurent d'autre issue que la mort.
 
-Tout le Tombeau Zhu Que fut enveloppé d'une aura de mort.
+Tout le Tombeau Suzaku fut enveloppé d'une aura de mort.
 
 La gorge où se trouvait Wang Lin ne faisait pas exception. Le sol vola en éclats, réduit au néant, et une multitude de fissures dimensionnelles apparurent pour tout dévorer.
 

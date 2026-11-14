@@ -38,7 +38,7 @@ Après avoir assisté à cette scène, Yao Xixue s'apprêta à parler, mais Wang
 
 Le beau front de Yao Xixue se plissa tandis qu'elle laissait échapper un reniflement de mépris avant de s'éloigner à son tour.
 
-Wang Lin marcha tranquillement vers l'horizon et, au fur et à mesure de sa progression, l'aura démoniaque qui l'entourait se dissipa lentement. Il se trouvait déjà dans le centre de la Cité Gu Yao; après une heure de marche, de larges avenues et des édifices imposants apparurent devant lui.
+Wang Lin marcha tranquillement vers l'horizon et, au fur et à mesure de sa progression, l'aura démoniaque qui l'entourait se dissipa lentement. Il se trouvait déjà dans le centre de la Cité Gu Yao; après une demi-heure de marche, de larges avenues et des édifices imposants apparurent devant lui.
 
 Wang Lin s'installa silencieusement dans une auberge pour cultiver.
 
@@ -78,7 +78,7 @@ Wang Lin secoua la tête avec un sourire amer. Il se dit qu'il réfléchissait t
 
 Treize et Hu Pao suivaient Wang Lin. L'expression de Treize restait glaciale, son regard scrutant constamment les environs pour déceler toute menace. Quant à Hu Pao, il ne se posait pas de questions existentielles; ses yeux parcouraient les bâtiments et les étals, s'illuminant parfois lorsqu'un objet de curiosité attirait son attention.
 
-Wang Lin n'éprouvait aucun intérêt pour la Cité Gu Yao. Après quatre heures de marche, il arriva devant un restaurant bondé de clients.
+Wang Lin n'éprouvait aucun intérêt pour la Cité Gu Yao. Après deux heures de marche, il arriva devant un restaurant bondé de clients.
 
 Depuis qu'il était devenu cultivateur, Wang Lin avait perdu tout intérêt pour la nourriture mortelle; désormais, il était parvenu au stade où la seule respiration suffisait à combler les besoins de son corps.
 

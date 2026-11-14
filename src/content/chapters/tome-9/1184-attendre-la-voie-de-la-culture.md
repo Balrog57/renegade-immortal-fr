@@ -106,7 +106,7 @@ Cang Songzi reprit: « Daoïste Lu, je peux vous emmener dans quelques lieux sû
 
 « Très bien! » Cang Songzi ne discuta pas et observa les environs. Au lieu de poursuivre dans le passage étroit, il changea de direction et emmena les trois autres au loin.
 
-Cang Songzi connaissait parfaitement les lieux. Après deux heures, ils arrivèrent dans un autre endroit saturé de brouillard: un abîme enveloppé de brume.
+Cang Songzi connaissait parfaitement les lieux. Après une heure, ils arrivèrent dans un autre endroit saturé de brouillard: un abîme enveloppé de brume.
 
 En pénétrant dans cette zone, Cang Songzi se montra extrêmement prudent et avança avec lenteur. Lorsqu'il fut à mille pieds de la brume, il s'arrêta. Sa main droite s'étendit et une quantité massive de jades célestes s'en échappa pour tournoyer autour de lui. Puis, en refermant sa main, tous les jades se transformèrent en poussière.
 

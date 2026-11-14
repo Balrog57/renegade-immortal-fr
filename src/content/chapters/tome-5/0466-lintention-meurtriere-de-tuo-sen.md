@@ -68,7 +68,7 @@ Qian Feng, bien que gravement blessé par sa chute, réussit à stabiliser son c
 
 Les yeux de Wang Lin brillèrent. Il agita le drapeau dans sa main et se laissa envelopper par celui-ci pour charger vers Qian Feng.
 
-Wang Lin pensa: « Je dois utiliser la vie de Qian Feng pour échanger mon fragment d'âme, puis quitter le Tombeau Zhu Que à toute vitesse! » Sa vitesse atteignit son paroxysme alors qu'il se précipitait sur sa proie. Qian Feng fut capturé par les innombrables fragments d'âme et entraîné par Wang Lin.
+Wang Lin pensa: « Je dois utiliser la vie de Qian Feng pour échanger mon fragment d'âme, puis quitter le Tombeau Suzaku à toute vitesse! » Sa vitesse atteignit son paroxysme alors qu'il se précipitait sur sa proie. Qian Feng fut capturé par les innombrables fragments d'âme et entraîné par Wang Lin.
 
 Le corps de Wang Lin apparut devant Qian Feng et il pointa son doigt entre les sourcils de ce dernier.
 

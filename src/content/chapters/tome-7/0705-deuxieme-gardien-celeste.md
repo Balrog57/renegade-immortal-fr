@@ -32,23 +32,23 @@ La Bête du Tonnerre derrière lui fut surprise, puis se transforma en un éclai
 
 Wang Lin savait déjà que la bête le suivait. Il voyagea à pleine vitesse vers l'endroit où se trouvait le gardien céleste. La lumière argentée s'étirait dans l'espace, traversant les étoiles tel un arc-en-ciel.
 
-Peu de temps après, le regard de Wang Lin se glaça alors qu'il entendait des bruits d'explosions. Non loin de là, le Daoïste du Tonnerre était dans un état lamentable. Il tenait un éclair à la main pour combattre la marionnette céleste, mais il était constamment repoussé.
+Peu de temps après, le regard de Wang Lin se glaça alors qu'il entendait des bruits d'explosions. Non loin de là, Lei Daozi était dans un état lamentable. Il tenait un éclair à la main pour combattre la marionnette céleste, mais il était constamment repoussé.
 
-À ses côtés se trouvait la Bête du Tonnerre dont le troisième sceau avait été levé. Elle poussait des rugissements et chargeait avec frénésie, sa corne dégageant de puissants éclairs. Cela forçait le Daoïste du Tonnerre à esquiver sans relâche, rendant son visage pâle et empreint de désespoir.
+À ses côtés se trouvait la Bête du Tonnerre dont le troisième sceau avait été levé. Elle poussait des rugissements et chargeait avec frénésie, sa corne dégageant de puissants éclairs. Cela forçait Lei Daozi à esquiver sans relâche, rendant son visage pâle et empreint de désespoir.
 
-Le Daoïste du Tonnerre vit la lumière argentée approcher au loin; lorsqu'il réalisa qu'il s'agissait de Wang Lin, le désespoir dans ses yeux redoubla. Il avait déjà épuisé la majeure partie de l'énergie originelle de son corps, et s'il en utilisait davantage, son niveau de culture chuterait et il ne pourrait jamais atteindre le stade du Yang Corporel! De plus, il était terrifié, particulièrement par ces deux rayons d'énergie d'épée!
+Lei Daozi vit la lumière argentée approcher au loin; lorsqu'il réalisa qu'il s'agissait de Wang Lin, le désespoir dans ses yeux redoubla. Il avait déjà épuisé la majeure partie de l'énergie originelle de son corps, et s'il en utilisait davantage, son niveau de culture chuterait et il ne pourrait jamais atteindre le stade du Yang Corporel! De plus, il était terrifié, particulièrement par ces deux rayons d'énergie d'épée!
 
-Le regard de Wang Lin était glacial. Il devait tuer ce Daoïste du Tonnerre! Cet homme était un messager du Temple Céleste du Tonnerre. S'il n'était pas tué et qu'on le laissait s'échapper, des ennuis sans fin l'attendraient à l'avenir.
+Le regard de Wang Lin était glacial. Il devait tuer ce Lei Daozi! Cet homme était un messager du Temple Céleste du Tonnerre. S'il n'était pas tué et qu'on le laissait s'échapper, des ennuis sans fin l'attendraient à l'avenir.
 
-Wang Lin frappa son sac de rangement et sept épées précieuses en sortirent, formant la Formation d'Épée aux Sept Étoiles. Ces lames sifflèrent dans les airs vers le Daoïste du Tonnerre.
+Wang Lin frappa son sac de rangement et sept épées précieuses en sortirent, formant la Formation d'Épée aux Sept Étoiles. Ces lames sifflèrent dans les airs vers Lei Daozi.
 
-La marionnette du gardien céleste émit une lueur orange et lança un coup de poing au Daoïste du Tonnerre, le repoussant. La corne de la Bête du Tonnerre derrière lui produisit un grésillement, puis un éclair violet, épais comme un bras, fonça directement sur le dos du Daoïste.
+La marionnette du gardien céleste émit une lueur orange et lança un coup de poing à Lei Daozi, le repoussant. La corne de la Bête du Tonnerre derrière lui produisit un grésillement, puis un éclair violet, épais comme un bras, fonça directement sur le dos du Daoïste.
 
-L'expression du Daoïste du Tonnerre devint sombre. Tout au long de son trajet, cette bête et cette marionnette l'avaient attaqué sans relâche, rendant toute fuite à pleine vitesse impossible. De plus, bien qu'il puisse voyager dans l'espace sans la Bête du Tonnerre, sa vitesse était manifestement plus lente.
+L'expression de Lei Daozi devint sombre. Tout au long de son trajet, cette bête et cette marionnette l'avaient attaqué sans relâche, rendant toute fuite à pleine vitesse impossible. De plus, bien qu'il puisse voyager dans l'espace sans la Bête du Tonnerre, sa vitesse était manifestement plus lente.
 
-À cet instant, la formation d'épée aux sept étoiles arriva et encercla le Daoïste du Tonnerre. Alors que l'énergie d'épée se précipitait sur lui, le Daoïste sortit un jade et le broya. Une explosion de tonnerre et d'éclairs jaillit alors tout autour de lui, formant une barrière. La formation d'épée aux sept étoiles transperça la barrière, provoquant une série d'explosions.
+À cet instant, la formation d'épée aux sept étoiles arriva et encercla Lei Daozi. Alors que l'énergie d'épée se précipitait sur lui, le Daoïste sortit un jade et le broya. Une explosion de tonnerre et d'éclairs jaillit alors tout autour de lui, formant une barrière. La formation d'épée aux sept étoiles transperça la barrière, provoquant une série d'explosions.
 
-La barrière de foudre trembla violemment. À l'intérieur, le Daoïste du Tonnerre fixa Wang Lin et s'exclama avec urgence: « Daoïste Xu, j'ai été imprudent dans cette affaire, mais pourquoi aller si loin?! Je suis un membre du Temple Céleste du Tonnerre; si vous me tuez, il vous sera difficile de circuler dans le Système Stellaire de Luotian! »
+La barrière de foudre trembla violemment. À l'intérieur, Lei Daozi fixa Wang Lin et s'exclama avec urgence: « Daoïste Xu, j'ai été imprudent dans cette affaire, mais pourquoi aller si loin?! Je suis un membre du Temple Céleste du Tonnerre; si vous me tuez, il vous sera difficile de circuler dans le Système Stellaire de Luotian! »
 
 « Si je ne vous tue pas, il me sera tout de même difficile de circuler dans le Système Stellaire de Luotian! » rétorqua Wang Lin d'une voix froide. Puis il frappa son sac, faisant apparaître l'Étendard de l'Âme. L'étendard de trente pieds de large émettait des gémissements fantomatiques capables de secouer l'âme originelle.
 
@@ -70,9 +70,9 @@ Wang Lin hurla: « Tuez! »
 
 Les trois âmes primaires ultimes s'élancèrent immédiatement pour attaquer la barrière de tonnerre, aux côtés de la marionnette du gardien céleste, de la Bête du Tonnerre et de la formation d'épée aux sept étoiles.
 
-Les pupilles du Daoïste du Tonnerre se contractèrent; son visage pâlit et son désespoir s'intensifia. La marionnette et la bête étaient déjà difficiles à gérer, et maintenant trois âmes puissantes faisaient leur apparition. Le Daoïste était convaincu qu'il serait tué en quelques respirations dès que la barrière céderait.
+Les pupilles de Lei Daozi se contractèrent; son visage pâlit et son désespoir s'intensifia. La marionnette et la bête étaient déjà difficiles à gérer, et maintenant trois âmes puissantes faisaient leur apparition. Le Daoïste était convaincu qu'il serait tué en quelques respirations dès que la barrière céderait.
 
-« Xu Mu!!! Ne me force pas! Tous les messagers du Temple Céleste du Tonnerre possèdent un sort de préservation de la vie. Au pire, je sacrifierai ma propre durée de vie! » Les yeux du Daoïste du Tonnerre étaient injectés de sang alors qu'il fixait Wang Lin.
+« Xu Mu!!! Ne me force pas! Tous les messagers du Temple Céleste du Tonnerre possèdent un sort de préservation de la vie. Au pire, je sacrifierai ma propre durée de vie! » Les yeux de Lei Daozi étaient injectés de sang alors qu'il fixait Wang Lin.
 
 Il ressentait une amertume profonde. Utiliser ce sort ne serait pas un problème s'il disposait de suffisamment d'énergie originelle, mais sans elle, cela consumerait sa longévité. Dans ce cas, non seulement sa vie serait raccourcie, mais sa culture chuterait au stade de la Transformation de l'Âme du premier niveau à cause de l'épuisement de son énergie originelle.
 
@@ -80,23 +80,23 @@ Surtout, il n'avait aucune certitude pouvoir blesser Wang Lin avec ce trésor de
 
 Le regard de Wang Lin restait calme tandis qu'il disait lentement: « C'est vous qui m'avez forcé, et non l'inverse! »
 
-Le Daoïste du Tonnerre répondit amèrement: « Il n'y a pas de haine irrémédiable entre nous. Que dois-je faire pour que vous me laissiez partir?! »
+Lei Daozi répondit amèrement: « Il n'y a pas de haine irrémédiable entre nous. Que dois-je faire pour que vous me laissiez partir?! »
 
 Wang Lin fixa le Daoïste à travers la barrière. Il réfléchit un instant avant de déclarer: « Reconnais-moi comme ton maître et laisse-moi imprégner ton être! »
 
-Le Daoïste du Tonnerre hésita. À cet instant, la barrière autour de lui tremblait violemment sous les assauts extérieurs et était sur le point de s'effondrer. Il serra les dents et finit par dire: « D'accord, ce vieil homme accepte! »
+Lei Daozi hésita. À cet instant, la barrière autour de lui tremblait violemment sous les assauts extérieurs et était sur le point de s'effondrer. Il serra les dents et finit par dire: « D'accord, ce vieil homme accepte! »
 
 Son cœur devint machiavélique: *La culture de cet homme n'est pas supérieure à la mienne. Même s'il marque ce vieil homme comme son esclave, cela ne durera pas longtemps. Une fois ma culture rétablie, je m'enfuirai et le dénoncerai au Temple Céleste du Tonnerre. Ils enverront alors des gens pour l'éliminer afin de venger mon affront!*
 
 Wang Lin dit lentement: « Ouvre la barrière! »
 
-Le Daoïste du Tonnerre hésita un instant, mais la barrière était sur le point de se rompre. Ses yeux brillèrent alors qu'il agit de la main droite pour faire disparaître instantanément la protection.
+Lei Daozi hésita un instant, mais la barrière était sur le point de se rompre. Ses yeux brillèrent alors qu'il agit de la main droite pour faire disparaître instantanément la protection.
 
 Au moment où elle disparut, le cœur du Daoïste manqua un battement. La formation d'épée aux sept étoiles se trouvait juste à ses côtés et le poing de la marionnette s'arrêta à peine à trois pouces de lui. Les yeux de la Bête du Tonnerre crépitaient d'éclairs menaçants, et son regard n'était nullement bienveillant. Les trois âmes primaires ultimes tournaient autour de lui, lançant par intermittence des regards glacials.
 
-Alors que Wang Lin fixait le Daoïste du Tonnerre, ses yeux brillaient d'une lueur mystérieuse. Il frappa son sac et le drapeau de restriction en sortit. Wang Lin agita l'étendard et toutes les restrictions s'envolèrent, formant devant lui une formation de restrictions dorées.
+Alors que Wang Lin fixait Lei Daozi, ses yeux brillaient d'une lueur mystérieuse. Il frappa son sac et le drapeau de restriction en sortit. Wang Lin agita l'étendard et toutes les restrictions s'envolèrent, formant devant lui une formation de restrictions dorées.
 
-Sa main gauche forma un sceau et pointa la formation. Celle-ci émit un éclat doré intense avant de foncer droit sur le Daoïste du Tonnerre.
+Sa main gauche forma un sceau et pointa la formation. Celle-ci émit un éclat doré intense avant de foncer droit sur Lei Daozi.
 
 Le Daoïste ne chercha pas à esquiver; il serra les dents et laissa la formation pénétrer entre ses sourcils. Elle traversa son corps pour atteindre directement son âme originelle. Dès qu'elle entra en contact avec elle, la formation de restriction fondit et enveloppa complètement l'âme originelle.
 
@@ -104,42 +104,42 @@ En voyant cela, il pensa: *Cette restriction est étrange, mais aucune ne peut r
 
 « Ce n'est que la première étape de la restriction, il y en a une seconde! » Après avoir lancé cela, Wang Lin monta sur sa boussole stellaire et s'éloigna.
 
-Le Daoïste du Tonnerre fut contraint de le suivre; face à tant de dangers, il n'avait pas le choix. Au loin, la Bête du Tonnerre du Temple Céleste du Tonnerre observa la scène. Elle hésita un instant, puis fit volte-face pour s'enfuir.
+Lei Daozi fut contraint de le suivre; face à tant de dangers, il n'avait pas le choix. Au loin, la Bête du Tonnerre du Temple Céleste du Tonnerre observa la scène. Elle hésita un instant, puis fit volte-face pour s'enfuir.
 
 Mais le grognement glacial de Wang Lin retentit dans le vide, faisant trembler la bête. Trop terrifiée pour fuir, elle finit par suivre Wang Lin.
 
-En poursuivant le Daoïste du Tonnerre, Wang Lin remarqua une planète grise non loin de là. C'était une planète abandonnée, dénuée de toute énergie spirituelle et semblant dépourvue de vie.
+En poursuivant Lei Daozi, Wang Lin remarqua une planète grise non loin de là. C'était une planète abandonnée, dénuée de toute énergie spirituelle et semblant dépourvue de vie.
 
 Wang Lin accéléra pour charger directement vers cette planète. Peu après, il arriva au-dessus de l'astre gris. La terre y était cendrée et des tempêtes y faisaient rage. Elle était également recouverte d'un gaz mortel qui aurait instantanément tué n'importe quel mortel.
 
 Après avoir atterri, Wang Lin frappa le sol de son pied droit; dans un fracas assourdissant, une ravine apparut. Son doigt traça un mouvement d'épée et projeta un rayon d'énergie tranchante qui s'engouffra dans la faille. Rapidement, une nouvelle grotte fut sculptée par l'énergie d'épée!
 
-Wang Lin pénétra dans la cavité et le Daoïste du Tonnerre fut forcé de le suivre. La grotte était vaste, composée de quatre pièces et d'une grande salle centrale. L'énergie d'épée flottait encore contre les parois et des cendres tombaient du plafond. Wang Lin agita ses manches, créant une bourrasque qui expulsa tous les débris à l'extérieur.
+Wang Lin pénétra dans la cavité et Lei Daozi fut forcé de le suivre. La grotte était vaste, composée de quatre pièces et d'une grande salle centrale. L'énergie d'épée flottait encore contre les parois et des cendres tombaient du plafond. Wang Lin agita ses manches, créant une bourrasque qui expulsa tous les débris à l'extérieur.
 
-Se retournant vers le Daoïste du Tonnerre, le regard de Wang Lin devint indéchiffrable et mystérieux: « Après la seconde restriction, je ne vous tuerai pas! »
+Se retournant vers Lei Daozi, le regard de Wang Lin devint indéchiffrable et mystérieux: « Après la seconde restriction, je ne vous tuerai pas! »
 
-Le Daoïste du Tonnerre réfléchit en silence, observant la marionnette et les autres objets qui l'entouraient, que Wang Lin n'avait pas rappelés. Après un long moment, il hocha la tête: « D'accord. »
+Lei Daozi réfléchit en silence, observant la marionnette et les autres objets qui l'entouraient, que Wang Lin n'avait pas rappelés. Après un long moment, il hocha la tête: « D'accord. »
 
 Wang Lin s'assit en position de lotus et ses mains formèrent une succession de sceaux. Un à un, des restrictions jaillirent pour se poser sur le corps du Daoïste. Simultanément, Wang Lin avertit: « Lorsque je placerai mon empreinte, ne résistez pas. Sinon, ne me reprochez pas de ne pas avoir tenu ma promesse! »
 
 Le Daoïste resta silencieux et ferma les yeux, ricanant intérieurement: *J'aimerais bien voir quel genre de restrictions tu peux poser. Attends que ce vieil homme retrouve son énergie originelle, et je briserai tes sceaux sans peine!*
 
-L'expression de Wang Lin trahissait une pointe d'ombre. Il ne se sentirait totalement en sécurité qu'en raffinant cet homme en gardien céleste. À ses yeux, le Daoïste du Tonnerre remplissait tous les critères. De plus, avec la Bête du Tonnerre à l'extérieur, la combinaison des deux augmenterait considérablement ses chances de réussite. Même en cas d'échec, Wang Lin n'y perdrait rien.
+L'expression de Wang Lin trahissait une pointe d'ombre. Il ne se sentirait totalement en sécurité qu'en raffinant cet homme en gardien céleste. À ses yeux, Lei Daozi remplissait tous les critères. De plus, avec la Bête du Tonnerre à l'extérieur, la combinaison des deux augmenterait considérablement ses chances de réussite. Même en cas d'échec, Wang Lin n'y perdrait rien.
 
 Wang Lin cracha une bouffée d'âme originelle qui se mua en d'innombrables symboles. Chaque symbole tomba sur le corps du Daoïste l'un après l'autre.
 
-Le Daoïste du Tonnerre ouvrit soudainement les yeux et fixa Wang Lin. Après un long moment, il laissa échapper un ricanement intérieur froid et referma les yeux. Il permit au souffle d'âme originelle de Wang Lin de pénétrer librement dans son corps.
+Lei Daozi ouvrit soudainement les yeux et fixa Wang Lin. Après un long moment, il laissa échapper un ricanement intérieur froid et referma les yeux. Il permit au souffle d'âme originelle de Wang Lin de pénétrer librement dans son corps.
 
-À l'instant précis où ses yeux se fermèrent, le regard de Wang Lin s'illumina. Il frappa son sac de rangement et le Fouet Kunji apparut dans sa main; il abattit alors violemment le fouet sur le Daoïste du Tonnerre.
+À l'instant précis où ses yeux se fermèrent, le regard de Wang Lin s'illumina. Il frappa son sac de rangement et le Fouet Kunji apparut dans sa main; il abattit alors violemment le fouet sur Lei Daozi.
 
 Le Daoïste ouvrit brusquement les yeux en criant: « Que faites-vous?! »
 
-La vitesse de Wang Lin était fulgurante, et celle du fouet l'était plus encore. Avant même qu'il ne puisse achever sa phrase, le coup le percuta. Et ce ne fut pas une seule fois: au moment de l'impact, le Fouet Kunji fut agité six fois de suite. En un instant, le Daoïste du Tonnerre reçut six coups!
+La vitesse de Wang Lin était fulgurante, et celle du fouet l'était plus encore. Avant même qu'il ne puisse achever sa phrase, le coup le percuta. Et ce ne fut pas une seule fois: au moment de l'impact, le Fouet Kunji fut agité six fois de suite. En un instant, Lei Daozi reçut six coups!
 
 Alors que les claquements du fouet résonnaient, le corps du Daoïste trembla. Son visage devint livide et son regard s'obscurcit. Derrière lui, son âme originelle fut projetée à sept pieds de son corps.
 
 Il était sur le point de riposter quand le gardien céleste fit un pas en avant et que la Bête du Tonnerre poussa un rugissement. Les gémissements fantomatiques des trois âmes primaires ultimes résonnèrent également dans la grotte.
 
-À cet instant, la formation d'épée aux sept étoiles dégagea une puissance colossale; les sept épées fusionnèrent pour ne former qu'une seule lame qui s'abattit avec force. Le rugissement unifié des sept bêtes maléfiques contenues dans les épées empêcha le Daoïste du Tonnerre de tenter de regagner son corps.
+À cet instant, la formation d'épée aux sept étoiles dégagea une puissance colossale; les sept épées fusionnèrent pour ne former qu'une seule lame qui s'abattit avec force. Le rugissement unifié des sept bêtes maléfiques contenues dans les épées empêcha Lei Daozi de tenter de regagner son corps.
 
 Au-dessus de l'âme originelle du Daoïste, la restriction que Wang Lin avait placée précédemment prit la forme d'un filet de foudre, piégeant irrémédiablement son âme.

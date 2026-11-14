@@ -66,7 +66,7 @@ Wang Lin la remplit promptement. Il fixa la perle et retourna dans le rêve.
 
 Cette fois, il ne pratiqua pas de sauts, mais s'assit en tailleur sur le sol pour compter les heures.
 
-Une heure, deux heures, dix heures, vingt heures, cinquante heures!
+Une heure, cinq heures, dix heures, vingt heures, cinquante heures!
 
 La sensation que son corps soit déchiré revint. Lorsque Wang Lin ouvrit les yeux, la lampe était sur le point de s'éteindre.
 

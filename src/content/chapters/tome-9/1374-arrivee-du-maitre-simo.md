@@ -12,7 +12,7 @@ Dans le Système Stellaire de l'Alliance, au plus profond de l'espace ardent de 
 
 Le Cristal de Mutation de Feu Déchaîné des Terres Déchues était exactement le même que cette pierre blanche!
 
-« Se pourrait-il que le Grand Empereur soit lié à la Secte Zhu Que... » Wang Lin n'éprouvait pas beaucoup d'affection pour la Secte Zhu Que. Cependant, il devait énormément à l'ancien Empereur Divin de Suzaku, et c'était une dette de gratitude que Wang Lin ne pouvait tout simplement pas oublier.
+« Se pourrait-il que le Grand Empereur soit lié à la Secte Suzaku... » Wang Lin n'éprouvait pas beaucoup d'affection pour la Secte Suzaku. Cependant, il devait énormément à l'ancien Empereur Divin de Suzaku, et c'était une dette de gratitude que Wang Lin ne pouvait tout simplement pas oublier.
 
 L'esprit du vieil Empereur Divin et ses dizaines de milliers d'années de dévouement silencieux remplissaient le cœur de Wang Lin de respect. Aux yeux de ce dernier, le vieil Empereur Divin était du même genre que le Seigneur du Domaine Scellé. La seule différence était que l'un gardait les Quatre Sectes Divines, tandis que l'autre gardait tout le Royaume Intérieur.
 

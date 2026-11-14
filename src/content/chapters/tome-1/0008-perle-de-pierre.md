@@ -16,9 +16,9 @@ Une force d'aspiration inimaginable jaillit soudain du petit trou. Tous les os s
 
 Malgré cela, l'aspiration restait violente. À cet instant, un oiseau fut aspiré depuis l'entrée de la grotte. Il s'écrasa à toute vitesse contre la paroi dans un claquement, le sang giclant de toutes parts.
 
-Environ deux heures plus tard, l'aspiration cessa. Wang Lin fixa avec horreur le cadavre de l'oiseau fraîchement mort. Il ne bougea pas d'un iota, restant immobile pour calculer le temps qui passait.
+Environ une heure plus tard, l'aspiration cessa. Wang Lin fixa avec horreur le cadavre de l'oiseau fraîchement mort. Il ne bougea pas d'un iota, restant immobile pour calculer le temps qui passait.
 
-Une heure plus tard, l'aspiration reprit. Le phénomène se répéta plusieurs fois. Wang Lin avait désormais saisi le rythme de ce trou étrange: chaque aspiration durait deux heures, puis elle reprenait une heure après avoir cessé.
+Une demi-heure plus tard, l'aspiration reprit. Le phénomène se répéta plusieurs fois. Wang Lin avait désormais saisi le rythme de ce trou étrange: chaque aspiration durait une heure, puis elle reprenait une demi-heure après avoir cessé.
 
 Profitant des intervalles entre deux aspirations, Wang Lin rampa péniblement vers l'entrée de la grotte. En regardant en bas, il ne put s'empêcher d'esquisser un sourire amer. Sous lui s'étendait une jungle, et le sol, à peine visible, était parsemé de rochers. La falaise était si abrupte qu'il n'avait aucune chance de descendre avec son bras blessé. La distance entre la paroi et le fond atteignait plusieurs centaines de pieds; s'il tentait de sauter, ce serait assurément sa fin.
 

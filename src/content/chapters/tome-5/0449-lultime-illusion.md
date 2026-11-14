@@ -117,8 +117,8 @@ Yun Quezi observa l'objet avec respect et déclara d'un ton grave: « L'Ancêtre
 
 Le premier ancêtre demanda lentement: « Qui s'y rendra alors? »
 
-La troisième ancêtre, cette femme belle et charmante, n'avait plus le cœur à rire et soupira: « L'idéal serait que le premier ancêtre y aille, mais votre corps est enfoui au plus profond du Clan Xian Yi. Si vous tentez d'y pénétrer avec votre esprit de rune, nous ignorons si le Tombeau Zhu Que aura un impact sur vous. Que diriez-vous de... »
+La troisième ancêtre, cette femme belle et charmante, n'avait plus le cœur à rire et soupira: « L'idéal serait que le premier ancêtre y aille, mais votre corps est enfoui au plus profond du Clan Xian Yi. Si vous tentez d'y pénétrer avec votre esprit de rune, nous ignorons si le Tombeau Suzaku aura un impact sur vous. Que diriez-vous de... »
 
-Elle s'interrompit brusquement en se levant pour regarder vers le Tombeau Zhu Que, affichant une expression étrange.
+Elle s'interrompit brusquement en se levant pour regarder vers le Tombeau Suzaku, affichant une expression étrange.
 
 « Ce fragment de mon domaine d'autrefois tente de posséder un corps... Humph, comment pourrais-je la laisser faire à sa guise?! »

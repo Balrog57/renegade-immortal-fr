@@ -80,7 +80,7 @@ Les parents de Zhou Ru discutaient avec elle dans la cour, les traits empreints 
 
 Planète Suzaku, domaine du Clan Xian Yi.
 
-Yun Quezi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans le Tombeau Zhu Que et, malgré un an de convalescence, il n'en avait que peu récupéré, et son énergie vitale était entamée. Il sentait également sa fin approcher, une fatigue immense l'accablant.
+Yun Quezi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans le Tombeau Suzaku et, malgré un an de convalescence, il n'en avait que peu récupéré, et son énergie vitale était entamée. Il sentait également sa fin approcher, une fatigue immense l'accablant.
 
 L'espérance de vie des membres du Clan Xian Yi était légèrement supérieure à celle des cultivateurs; sans cela, avec le niveau de culture de Yun Quezi, il serait mort depuis longtemps.
 
@@ -88,7 +88,7 @@ L'espérance de vie des membres du Clan Xian Yi était légèrement supérieure 
 
 Dans les terres du Clan Xian Yi, à plus de dix mille kilomètres de là, un jeune homme couvert de tatouages dorés scintillants contemplait le ciel avec mélancolie.
 
-« Frère Wang, vous souvenez-vous encore de moi...? » Cet homme était le jeune maître du Clan Xian Yi. Son histoire était singulière: lors de la bataille pour le Cristal de la Planète de Culture dans le Tombeau Zhu Que, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
+« Frère Wang, vous souvenez-vous encore de moi...? » Cet homme était le jeune maître du Clan Xian Yi. Son histoire était singulière: lors de la bataille pour le Cristal de la Planète de Culture dans le Tombeau Suzaku, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
 
 « Frère Wang, je quitte également la planète Suzaku. J'espère que nous aurons l'occasion de nous revoir un jour! »
 

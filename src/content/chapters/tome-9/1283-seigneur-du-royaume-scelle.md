@@ -116,7 +116,7 @@ Après avoir retiré une croûte qui ne s'était pas encore cicatrisée, les yeu
 
 Quatre ans s'étaient écoulés. Durant ces quatre années, Li Qianmei n'avait pas quitté cet endroit. Elle accompagnait silencieusement la statue de pierre en la nourrissant de son propre sang.
 
-Il y a quatre ans, elle n'avait besoin que de recouvrir la statue de sang, puis disposait de vingt heures de repos. Quatre ans plus tard, la statue était devenue encore plus brillante et exigeait davantage de sang. Elle devait désormais la couvrir de sang quatre fois par jour, et son temps de repos ne dépassait plus huit heures...
+Il y a quatre ans, elle n'avait besoin que de recouvrir la statue de sang, puis disposait de dix heures de repos. Quatre ans plus tard, la statue était devenue encore plus brillante et exigeait davantage de sang. Elle devait désormais la couvrir de sang quatre fois par jour, et son temps de repos ne dépassait plus quatre heures...
 
 « Je vais vous réveiller... » Li Qianmei regarda la statue de pierre. Aucune larme ne coulait de ses yeux, si ce n'est une fissure tracée par un flux de pleurs constants. Au cours de ces quatre années, elle s'était demandé maintes fois: tout cela... en valait-il la peine?
 

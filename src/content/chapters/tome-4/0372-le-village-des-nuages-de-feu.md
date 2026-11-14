@@ -58,7 +58,7 @@ L'homme renifla, appliqua une poudre médicinale sur les blessures de Wang Lin, 
 
 Allongé là, une intention meurtrière bouillonnait en lui. Il n'avait jamais été traité ainsi de toute sa vie, mais son corps était si faible qu'il finit par perdre connaissance.
 
-Le temps passa lentement. Deux heures plus tard, le bruit des chariots se fit entendre au loin, se rapprochant progressivement.
+Le temps passa lentement. Une heure plus tard, le bruit des chariots se fit entendre au loin, se rapprochant progressivement.
 
 Soudain, les convois s'arrêtèrent et un homme bondit d'une monture. Il arriva rapidement auprès de Wang Lin et s'écria: « Chef, c'est un cadavre! »
 

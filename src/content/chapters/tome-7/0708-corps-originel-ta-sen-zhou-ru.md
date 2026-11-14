@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 708 - Original Body, Ta Sen, Zhou Ru
 slug: corps-originel-ta-sen-zhou-ru
 ---
-La quantité de jade céleste dans la sacoche du Daoïste du Tonnerre fit haleter Wang Lin. Cette abondance était tout simplement stupéfiante; même une famille de cultivateurs ne pourrait s'en comparer.
+La quantité de jade céleste dans la sacoche de Lei Daozi fit haleter Wang Lin. Cette abondance était tout simplement stupéfiante; même une famille de cultivateurs ne pourrait s'en comparer.
 
 « Un simple messager du Temple Céleste du Tonnerre possède autant de jade céleste. Cela montre à quel point ce temple est puissant! » Aucune joie n'apparut dans l'esprit de Wang Lin face à cette richesse, seule la stupéfaction l'habitait.
 

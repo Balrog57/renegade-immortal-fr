@@ -32,15 +32,15 @@ Fixant les trois sacs de rangement, Wang Lin prit une profonde inspiration. Il a
 
 Après avoir hésité un instant, il ne fit pas appel à la marionnette. Celle-ci avait subi des dommages lors de l'affrontement contre Teng Yi et n'était plus apte à servir de garde.
 
-Une fois ces préparatifs terminés, Wang Lin prit un air sérieux et saisit un sac de rangement. Ce sac appartenait à l'Empereur Ancien.
+Une fois ces préparatifs terminés, Wang Lin prit un air sérieux et saisit un sac de rangement. Ce sac appartenait à l'Empereur Antique.
 
 Le mot « Lan » y était brodé.
 
 Wang Lin réfléchit un instant, puis l'énergie spirituelle dans son corps déferla. L'avatar qui faisait office d'Âme Naissante ouvrit les yeux; des éclats de pression spirituelle émanèrent de son corps tandis que sa main droite se dirigeait lentement vers le sac.
 
-Au moment où sa main toucha le sac, une force puissante lui opposa une résistance. Son cœur sombra lorsqu'il réalisa que l'Empereur Ancien n'était pas mort.
+Au moment où sa main toucha le sac, une force puissante lui opposa une résistance. Son cœur sombra lorsqu'il réalisa que l'Empereur Antique n'était pas mort.
 
-Il prit une profonde inspiration et pressa sa main sur le sac. À chaque pression, un fragment du sens divin de l'Empereur Ancien était extrait, mais la progression était extrêmement lente et, parallèlement, la contre-attaque que Wang Lin ressentait augmentait.
+Il prit une profonde inspiration et pressa sa main sur le sac. À chaque pression, un fragment du sens divin de l'Empereur Antique était extrait, mais la progression était extrêmement lente et, parallèlement, la contre-attaque que Wang Lin ressentait augmentait.
 
 Après un demi-bâton d'encens, le front de Wang Lin était couvert de sueur. Il prit une profonde inspiration et consomma quelques pilules pour stabiliser son corps. Serrant les dents, il activa son Royaume Ji dans sa main droite et pressa le sac avec toute son énergie spirituelle.
 
@@ -48,7 +48,7 @@ Cette fois, la vitesse augmenta considérablement, mais la consommation d'énerg
 
 Wang Lin se détendit, affichant un visage excité. Il scanna rapidement le sac avec son sens divin, mais son expression devint bientôt étrange.
 
-Le contenu du sac de l'Empereur Ancien était très dérisoire. Hormis deux pierres spirituelles de qualité supérieure, il n'y avait qu'une ancienne gaine d'épée.
+Le contenu du sac de l'Empereur Antique était très dérisoire. Hormis deux pierres spirituelles de qualité supérieure, il n'y avait qu'une ancienne gaine d'épée.
 
 Wang Lin sortit la gaine. Il la contempla longuement, les sourcils froncés. Cette gaine ressemblait exactement à la sienne, seul le symbole différait.
 
@@ -56,7 +56,7 @@ Après avoir hésité, Wang Lin sortit sa propre gaine. Au moment même où il a
 
 Longtemps après, la lumière disparut lentement. Wang Lin fixa les deux gaines; au fond de son cœur, il sentait qu'elles renfermaient un secret.
 
-Il les observa encore un moment avant de les ranger. Il frappa ensuite le sac de l'Empereur Ancien, qui se changea en poussière.
+Il les observa encore un moment avant de les ranger. Il frappa ensuite le sac de l'Empereur Antique, qui se changea en poussière.
 
 Wang Lin soupira. Après avoir déployé tant d'efforts pour ouvrir ce sac, n'y trouver qu'une telle chose le laissait perplexe: il ne savait s'il devait s'en réjouir ou se sentir impuissant.
 

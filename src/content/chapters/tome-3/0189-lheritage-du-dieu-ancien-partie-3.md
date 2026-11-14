@@ -80,7 +80,7 @@ Une pensée traversa l'esprit de Wang Lin. Il serra les dents et, sans hésiter,
 
 Une fois le cristal saisi, il ne s'arrêta pas et s'envola prestement. En chemin, il ne chercha pas à économiser ses forces, utilisant la quasi-totalité de son énergie spirituelle pour voler le plus vite possible.
 
-Après près de deux heures de vol, il finit par ralentir légèrement. Il jeta un regard derrière lui avant de fixer le cristal dans sa main, l'air hésitant. Il ignorait ce que c'était. En volant, il avait tenté de le ranger dans son sac de rangement, mais l'objet était si étrange qu'il refusait d'y entrer.
+Après près d'une heure de vol, il finit par ralentir légèrement. Il jeta un regard derrière lui avant de fixer le cristal dans sa main, l'air hésitant. Il ignorait ce que c'était. En volant, il avait tenté de le ranger dans son sac de rangement, mais l'objet était si étrange qu'il refusait d'y entrer.
 
 Le visage de Wang Lin s'anima d'une résolution audacieuse. Si le Magicien Démon Céleste y accordait une telle importance, c'est que ce n'était pas un objet ordinaire. Se remémorant le geste du Magicien, il pressa brusquement le cristal contre son front.
 

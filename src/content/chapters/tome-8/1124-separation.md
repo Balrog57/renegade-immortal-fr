@@ -68,17 +68,17 @@ De retour dans la région orientale, Wang Lin réalisa que l'atmosphère était 
 
 Peu de temps après, un champ d'étoiles rouge apparut devant lui: c'était là le domaine de la Secte Divine de Suzaku. Pourtant, alors qu'il s'apprêtait à y entrer, il s'arrêta et fit volte-face.
 
-Il vit sept rayons de lumière converger pour se transformer en sept individus. Parmi eux se trouvaient deux membres de la Secte Zhu Que, un de la Secte Bai Hu et quatre de la Secte Qing Long. Tous étaient des anciens dont le niveau de culture n'était guère négligeable.
+Il vit sept rayons de lumière converger pour se transformer en sept individus. Parmi eux se trouvaient deux membres de la Secte Suzaku, un de la Secte Bai Hu et quatre de la Secte Qing Long. Tous étaient des anciens dont le niveau de culture n'était guère négligeable.
 
 Le regard de Wang Lin restait serein. Il connaissait bien ces sept personnes, car ils avaient tous participé au sauvetage de l'Empereur Divin du Dragon Azure. Lorsque les deux anciens de Suzaku aperçurent Wang Lin, ils furent saisis de honte et détournèrent les yeux.
 
 « Wang Lin, le Souverain Divin du Dragon Azure vous invite! » L'homme qui prit la parole appartenait à la Secte Divine du Dragon Azure. Il regarda Wang Lin d'un air désolé. Il ignorait les raisons des changements opérés par l'Empereur Divin, mais il n'était pas qualifié pour s'y opposer.
 
-Wang Lin demanda lentement: « Les personnes que j'ai laissées à la Secte Zhu Que sont-elles en sécurité? » En entendant les paroles du vieil homme, il spécula immédiatement sur la situation.
+Wang Lin demanda lentement: « Les personnes que j'ai laissées à la Secte Suzaku sont-elles en sécurité? » En entendant les paroles du vieil homme, il spécula immédiatement sur la situation.
 
 Cet homme ne l'avait pas appelé « Empereur Divin ». Cela devait être dû aux décrets de l'Empereur Divin du Dragon Azure et à ce titre étrange de « Souverain Divin ». Conjugué à toutes les anomalies observées, Wang Lin devint prudent.
 
-« Elles sont toutes en sécurité. » L'homme qui répondit était un ancien de la Secte Zhu Que.
+« Elles sont toutes en sécurité. » L'homme qui répondit était un ancien de la Secte Suzaku.
 
 Wang Lin regarda l'ancien et se souvint que c'était lui qui lui avait demandé ce qu'il comptait faire après être devenu Empereur Divin. Il hocha la tête sans parler, puis s'avança dans le champ d'étoiles ardent.
 

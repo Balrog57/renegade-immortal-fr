@@ -70,7 +70,7 @@ L'ancêtre du Clan Ju Mo esquiva l'attaque et continua sa fuite. Bientôt, il at
 
 « Wang Lin, cet endroit sera ta tombe! Ton corps servira à ma prochaine possession! » hurla l'ancêtre du Clan Ju Mo avant de brandir la torche.
 
-Dans un fracas assourdissant, les 3,3 kilomètres environnants se transformèrent soudainement en une mer de feu.
+Dans un fracas assourdissant, les dix mille pieds environnants se transformèrent soudainement en une mer de feu.
 
 « Bête de flammes noires! » cria-t-il tout en enfonçant la torche dans le sol. Il activa ensuite l'énergie céleste de son corps et commença à tracer des sceaux qu'il projeta tous sur la torche.
 

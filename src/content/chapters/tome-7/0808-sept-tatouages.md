@@ -88,13 +88,13 @@ Wang Lin mit moins de temps qu'il n'en faut pour brûler la moitié d'un bâton 
 
 Celle-ci était bien plus puissante, mais grâce à la force de son âme originelle, il parvint à la raffiner complètement, bien que cela lui ait pris le temps de brûler un bâton d'encens entier.
 
-Il ne s'arrêta pas là. Le regard brillant, il engloutit les troisième et quatrième runes simultanément. Deux heures plus tard, le pouvoir mystérieux des quatre runes résidait désormais dans son âme originelle.
+Il ne s'arrêta pas là. Le regard brillant, il engloutit les troisième et quatrième runes simultanément. Une heure plus tard, le pouvoir mystérieux des quatre runes résidait désormais dans son âme originelle.
 
 La cinquième rune fut ensuite dévorée par l'âme du dragon de tonnerre antique. Dès son ingestion, elle libéra une force violente qui se propagea à travers toute l'âme originelle de Wang Lin.
 
 Le regard de Wang Lin devint glacial et son corps se contracta. Le tonnerre emplit son âme alors qu'il générait sans relâche des décharges pour submerger la rune.
 
-Des éclairs de tonnerre bombardèrent la rune au cœur de son âme originelle. Il fallut quatre heures avant que cette force mystérieuse ne fusionne totalement avec lui.
+Des éclairs de tonnerre bombardèrent la rune au cœur de son âme originelle. Il fallut deux heures avant que cette force mystérieuse ne fusionne totalement avec lui.
 
 L'âme originelle de Wang Lin étant quelque peu affaiblie, il réintégra son corps pour entamer sa récupération.
 

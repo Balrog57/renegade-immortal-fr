@@ -66,7 +66,7 @@ La scène changea une fois de plus. Cette fois, c'était une grotte dans la for�
 
 Les scènes s'enchaînèrent, du pays de Zhao à la Secte Shi Yin, puis à la Vallée Jue Ming, au Champ de Bataille Extérieur, à Huo Fen, et enfin à la Mer Xiu Mo avec le tendon de dragon qui enchaînait mille cadavres et l'Ordre des Dix Mille Démons de cent jours.
 
-Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yu, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yu et de l'ancêtre du Clan Ju Mo. Ensuite vinrent la bataille entre le Clan Xian Yi et le pays Suzaku, ainsi que les événements survenus dans le Tombeau Zhu Que. Tout défilait comme si Wang Lin revivait sa propre existence.
+Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yu, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yu et de l'ancêtre du Clan Ju Mo. Ensuite vinrent la bataille entre le Clan Xian Yi et le pays Suzaku, ainsi que les événements survenus dans le Tombeau Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
 
 La Secte Tian Yun, la Terre Yao Ling, l'Art du Massacre Céleste, le Système Stellaire de Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de Xue Zu, l'intérieur de la Bête des Limbes, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la bataille pour le Titre Céleste au Temple Céleste du Tonnerre, sur la ligne menant au ciel.
 
