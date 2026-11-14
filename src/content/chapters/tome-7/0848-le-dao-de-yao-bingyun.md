@@ -12,7 +12,7 @@ Puis, elle s'élança vers le ciel!
 
 L'intégralité du firmament changea de couleur, comme si une force invisible s'en retirait rapidement. Un instant plus tard, le ciel semblait être redevenu le même, mais aux yeux de Wang Lin, tout était devenu bien plus calme.
 
-Pendant ce temps, dans un lieu lointain où les quatre domaines se rejoignaient, Qing Shui cultivait à l'intérieur d'un pavillon tranquille au Temple Céleste du Tonnerre. À cet instant, il ouvrit les yeux.
+Pendant ce temps, dans un lieu lointain où les quatre domaines se rejoignaient, Qing Shui cultivait à l'intérieur d'un pavillon tranquille au Temple Lei Xian. À cet instant, il ouvrit les yeux.
 
 Son regard était serein, sans la moindre perturbation. En ouvrant les paupières, il scruta l'horizon comme si son regard pouvait percer les étoiles.
 

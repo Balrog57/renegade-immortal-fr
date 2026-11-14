@@ -30,7 +30,7 @@ C'était une guerre, et il n'y avait aucune moralité dans cette guerre!
 
 Il aurait pu partir à l'instant, mais il ne le pouvait pas!
 
-C'était une invasion, l'invasion de sa patrie. Pour son foyer, pour sa terre natale, pour la gloire des cultivateurs du Royaume Intérieur. Les yeux de Wang Lin étaient injectés de sang. Il avait tué toute sa vie pour lui-même, et ce n'est que devant la Secte Divine qu'il avait enfin ressenti la gloire d'être un cultivateur du Royaume Intérieur!
+C'était une invasion, l'invasion de sa patrie. Pour son foyer, pour sa terre natale, pour la gloire des cultivateurs du Royaume Intérieur. Les yeux de Wang Lin étaient injectés de sang. Il avait tué toute sa vie pour lui-même, et ce n'est que devant la Secte Shen qu'il avait enfin ressenti la gloire d'être un cultivateur du Royaume Intérieur!
 
 Cette guerre durerait un temps indéterminé. Peut-être mourrait-il, peut-être perdrait-il la chance de faire revivre Wan Er, mais en cet instant, il ne se battait pas pour lui-même, mais pour son foyer!
 

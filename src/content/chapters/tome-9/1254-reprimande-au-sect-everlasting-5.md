@@ -1,6 +1,6 @@
 ---
 n: 1254
-title: Réprimande à la Secte Éternelle (5)
+title: Réprimande à la Secte Wu Ji (5)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1254 - Rebuking the Everlasting Secte (5)
@@ -12,13 +12,13 @@ Ce qu'il consommait, c'était l'âme de Tian Yunzi et, plus encore, l'énergie o
 
 Cependant, la puissance de ce Doigt du Destin Céleste était bien inférieure à celle utilisée par Tian Yunzi. Après tout, un gouffre immense les séparait en termes de culture, et la méthode d'exécution du sortilège était radicalement différente.
 
-Wang Lin avait utilisé le Doigt Céleste immédiatement car il voulait choquer l'assistance. Bien qu'encore blessé, il devait démontrer que ses sorts étaient puissants et imprévisibles. Ce n'était qu'à ce prix qu'il pourrait atteindre ses objectifs au sein de la Secte Éternelle.
+Wang Lin avait utilisé le Doigt Céleste immédiatement car il voulait choquer l'assistance. Bien qu'encore blessé, il devait démontrer que ses sorts étaient puissants et imprévisibles. Ce n'était qu'à ce prix qu'il pourrait atteindre ses objectifs au sein de la Secte Wu Ji.
 
 À moins d'une nécessité absolue, il n'invoquait pas les bêtes moustiques à la légère. Elles étaient son atout caché!
 
 La terre tremblait encore et l'onde de choc résonnait. Le sifflement du vent hurlait toujours aux oreilles des spectateurs. L'odeur du sang rappelait aux dizaines de milliers de spectateurs cette scène terrifiante.
 
-Wang Lin avait détruit le corps du maître de la Secte Xian Yin, tué le Grand Ancien de cette branche et son disciple principal. Tout cela s'était produit au sein même de la Secte Éternelle, et lorsque l'Ancien Feng Hai tenta de prendre la parole, Wang Lin trancha d'une voix sans détour:
+Wang Lin avait détruit le corps du maître de la Secte Xian Yin, tué le Grand Ancien de cette branche et son disciple principal. Tout cela s'était produit au sein même de la Secte Wu Ji, et lorsque l'Ancien Feng Hai tenta de prendre la parole, Wang Lin trancha d'une voix sans détour:
 
 « Quiconque tentera de les sauver subira le même sort! »
 
@@ -36,9 +36,9 @@ Li Qianmei gardait un visage serein tout en observant Wang Lin en silence. Un so
 
 Wang Shanshan fronça les sourcils en pensant au doigt qu'il venait de lancer, semblant plongée dans une profonde réflexion.
 
-Les vieux monstres de la Secte Éternelle possédaient des niveaux de culture élevés et étaient tous extrêmement rusés. À cet instant, il était impossible de déceler leurs émotions, mais leurs regards vers Wang Lin semblaient glacials.
+Les vieux monstres de la Secte Wu Ji possédaient des niveaux de culture élevés et étaient tous extrêmement rusés. À cet instant, il était impossible de déceler leurs émotions, mais leurs regards vers Wang Lin semblaient glacials.
 
-Seul le Maître de la Secte Éternelle se distinguait, car il était le seul capable de percer la culture de Wang Lin. Il ne manifesta aucune émotion face au massacre des membres de la Secte Xian Yin, comme s'il n'avait rien vu.
+Seul le Maître de la Secte Wu Ji se distinguait, car il était le seul capable de percer la culture de Wang Lin. Il ne manifesta aucune émotion face au massacre des membres de la Secte Xian Yin, comme s'il n'avait rien vu.
 
 Wang Lin se retourna. Son expression était sereine, mais son intention de tuer se propageait. Il fixa la Secte Xun Luan au loin et marcha lentement vers lui.
 
@@ -68,15 +68,15 @@ Zhao Long chargea comme un possédé, une aura de tristesse enveloppant la zone.
 
 « Si tu veux ma mort, tu vas en payer le prix! » Au dernier instant de son existence, Zhao Long lâcha un rugissement qui ébranla le ciel et la terre. Même l'esprit des cultivateurs alentour en fut ébranlé.
 
-Même les membres de la Secte Éternelle furent saisis par l'émotion!
+Même les membres de la Secte Wu Ji furent saisis par l'émotion!
 
 Il était rare qu'un être puisse forcer un cultivateur au stade de Briseur du Nirvana à consumer son âme originelle pour choisir l'autodestruction! Pourtant, cela se produisait sous leurs yeux.
 
 L'âme originelle en combustion, sur le point d'exploser, allait libérer une puissance destructrice colossale. Même les cultivateurs de niveaux supérieurs choisiraient instinctivement de s'en écarter, mais Wang Lin ne bougea pas; au contraire, ses yeux brillèrent d'un éclat vif.
 
-L'expression de Feng Hai était sombre. En tant qu'Ancien de la Secte Éternelle, il était responsable de la compétition. Wang Lin venait de massacrer la Secte Xian Yin en faisant fi de ses avertissements! Si cela s'était arrêté là, ce n'aurait pas été grave, mais maintenant, cet homme allait tuer des membres d'une secte du rang 7!
+L'expression de Feng Hai était sombre. En tant qu'Ancien de la Secte Wu Ji, il était responsable de la compétition. Wang Lin venait de massacrer la Secte Xian Yin en faisant fi de ses avertissements! Si cela s'était arrêté là, ce n'aurait pas été grave, mais maintenant, cet homme allait tuer des membres d'une secte du rang 7!
 
-Pour la Secte Éternelle, chaque membre des sectes de la région de rang 7 était précieux. Les autres se moquaient éperdument de savoir si Zhao Long vivait ou mourait; ils n'avaient pas à se soucier de sa réputation déchue. Mais lui, Feng Hai, s'en souciait, car il était issu de la Secte Xun Luan avant de devenir un Ancien de la Secte Éternelle.
+Pour la Secte Wu Ji, chaque membre des sectes de la région de rang 7 était précieux. Les autres se moquaient éperdument de savoir si Zhao Long vivait ou mourait; ils n'avaient pas à se soucier de sa réputation déchue. Mais lui, Feng Hai, s'en souciait, car il était issu de la Secte Xun Luan avant de devenir un Ancien de la Secte Wu Ji.
 
 Si Li Qianmei avait tué quelqu'un, cela aurait été toléré car elle bénéficiait du soutien de la Secte Po Tian, et il n'aurait pu rien dire. Mais en ce moment, la situation était tout autre!
 
@@ -98,7 +98,7 @@ Le fracas continua tandis que la météorite se désintégrait en poussière de 
 
 « Daoïste, vos paroles sont arrivées trop tard. »
 
-Le visage de Feng Hai resta sombre alors qu'il fixait Wang Lin. Il garda le silence un long moment avant de retourner vers la tribune de la Secte Éternelle.
+Le visage de Feng Hai resta sombre alors qu'il fixait Wang Lin. Il garda le silence un long moment avant de retourner vers la tribune de la Secte Wu Ji.
 
 Un silence de mort régnait, mais après ce bref instant, un tumulte se propagea sur les plateformes. En l'espace de quelques instants seulement, Wang Lin avait tué des membres de la Secte Xian Yin et Zhao Long de la Secte Xun Luan. Tout cela rendait le choc encore plus intense.
 

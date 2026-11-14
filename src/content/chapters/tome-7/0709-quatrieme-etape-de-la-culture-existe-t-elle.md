@@ -10,9 +10,9 @@ Un éclair fendait les étoiles. À l'intérieur de cette foudre voyageait une B
 
 Wang Lin était assis en position de lotus sur le dos de la Bête du Tonnerre. Ses longs cheveux flottaient vers l'arrière et ses yeux brillaient d'un éclat singulier. Bien que son apparence fût ordinaire, il dégageait une aura extraordinaire.
 
-Si quelqu'un l'apercevait en cet instant, il penserait sans aucun doute qu'il s'agissait d'un messager du Temple Céleste du Tonnerre. Il ressemblait trop étrangement à Lei Daozi.
+Si quelqu'un l'apercevait en cet instant, il penserait sans aucun doute qu'il s'agissait d'un messager du Temple Lei Xian. Il ressemblait trop étrangement à Lei Daozi.
 
-Si un véritable messager du Temple Céleste du Tonnerre rencontrait Wang Lin, il en serait stupéfait.
+Si un véritable messager du Temple Lei Xian rencontrait Wang Lin, il en serait stupéfait.
 
 Plus de 900 ans de culture avaient permis à Wang Lin d'atteindre le stade avancé de l'Ascendant, atteignant ainsi le même niveau que Zhu Quezi à l'époque.
 
@@ -74,7 +74,7 @@ Les membres de la famille Huan n'auraient jamais pu oublier Wang Lin.
 
 Assis sur la Bête du Tonnerre, les yeux de Wang Lin étincelant de lueurs électriques, il déclara calmement: « Chef de la famille Huan, avancez! »
 
-Huan Feng Shen prit une profonde inspiration. Il s'avança et dit respectueusement: « Huan Feng Shen, chef de la famille Huan, salue le messager du Temple Céleste du Tonnerre. Je n'avais pas reconnu Seigneur Messager auparavant; j'espère que cela ne vous offusque pas. »
+Huan Feng Shen prit une profonde inspiration. Il s'avança et dit respectueusement: « Huan Feng Shen, chef de la famille Huan, salue le messager du Temple Lei Xian. Je n'avais pas reconnu Seigneur Messager auparavant; j'espère que cela ne vous offusque pas. »
 
 Wang Lin ne s'expliqua naturellement pas et répondit: « Il est inutile de parler du passé. Je veux savoir si vous avez un moyen d'obtenir en peu de temps une grande quantité de Fruits d'Ascension Céleste! »
 
@@ -92,4 +92,4 @@ L'expression de Wang Lin ne changea pas tandis qu'il hochait silencieusement la 
 
 La famille Huan possédait une grande quantité de Fruits d'Ascension Céleste, mais cela ne suffirait toujours pas aux besoins de Wang Lin.
 
-« Il semble que je doive emprunter le nom du Temple Céleste du Tonnerre et parcourir ce domaine nordique du Système Stellaire de Luotian pour en obtenir davantage! » Wang Lin caressa la tête de la Bête du Tonnerre.
+« Il semble que je doive emprunter le nom du Temple Lei Xian et parcourir ce domaine nordique du Système Stellaire de Luotian pour en obtenir davantage! » Wang Lin caressa la tête de la Bête du Tonnerre.

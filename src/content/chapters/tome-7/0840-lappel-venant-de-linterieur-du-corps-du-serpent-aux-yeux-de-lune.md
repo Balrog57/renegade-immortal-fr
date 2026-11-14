@@ -58,7 +58,7 @@ Xue Shenzi détourna son regard pour balayer l'assemblée d'un œil impitoyable.
 
 Une lueur de froideur passa dans les yeux du Maître Yan Leizi, qui sourit: « Ce sera un honneur de vous accompagner! »
 
-À cet instant, des éclairs de tonnerre déchirèrent le Domaine du Nord. Presque tous les messagers du Temple Céleste du Tonnerre étaient sortis. Ils encerclèrent le Serpent aux yeux de lune, formant un blocus circulaire à 50 000 kilomètres de la créature.
+À cet instant, des éclairs de tonnerre déchirèrent le Domaine du Nord. Presque tous les messagers du Temple Lei Xian étaient sortis. Ils encerclèrent le Serpent aux yeux de lune, formant un blocus circulaire à 50 000 kilomètres de la créature.
 
 Chaque messager traça un sceau lui permettant de communiquer par une méthode secrète. Rapidement, des éclairs denses apparurent entre eux, érigeant une barrière de foudre autour du Serpent aux yeux de lune.
 

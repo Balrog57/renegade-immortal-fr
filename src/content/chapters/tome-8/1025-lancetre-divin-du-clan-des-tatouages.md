@@ -134,7 +134,7 @@ Face à cette question soudaine, personne n'osa parler. Après un long silence, 
 
 La femme resta pensive et poussa un soupir. Elle avait lutté pour sortir des profondeurs du Bassin Funéraire Céleste pour rien d'autre que poser cette question et voir une seule personne. Ses orbites vides semblèrent libérer un regard invisible qui se posa sur Wang Lin.
 
-« Invoquez le Gardien Céleste fondu dans votre ombre. »
+« Invoquez le Garde Céleste fondu dans votre ombre. »
 
 Wang Lin réfléchit un instant, puis Ta Shan apparut de son ombre par la force de la pensée. Il fixa froidement la femme.
 

@@ -32,7 +32,7 @@ Bien que la cloche fût fragile, la puissance qu'elle renfermait était inimagin
 
 Cependant, en cet instant, le Shui Daozi utilisait toute cette puissance pour attaquer Wang Lin!
 
-Si cette force explosait, oubliez Wang Lin: même le vieil homme en noir, Zhou De; l'homme d'âge moyen, Yun Fengzi; l'Estimé Ling Dong; Zhou Jin; toute la Secte Divine et l'intégralité du Système Stellaire de la Mer Yun seraient détruits!
+Si cette force explosait, oubliez Wang Lin: même le vieil homme en noir, Zhou De; l'homme d'âge moyen, Yun Fengzi; l'Estimé Ling Dong; Zhou Jin; toute la Secte Shen et l'intégralité du Système Stellaire de la Mer Yun seraient détruits!
 
 Personne ne survivrait. Seul le propriétaire de la cloche dorée, le Shui Daozi, pourrait rester indemne!
 
@@ -54,7 +54,7 @@ Des fissures de plusieurs dizaines de millions de pieds de long apparurent parto
 
 Tout cela se produisit en un instant!
 
-Sur la planète de culture, dans la Secte Divine, l'homme en rouge apparut derrière Wang Lin. Il fit un pas en avant et sa main s'abattit sur la tempête monstrueuse.
+Sur la planète de culture, dans la Secte Shen, l'homme en rouge apparut derrière Wang Lin. Il fit un pas en avant et sa main s'abattit sur la tempête monstrueuse.
 
 Peu après, à l'opposé de lui, le vieil homme de la Secte Shi Yin de l'Alliance apparut également. L'expression sérieuse, il forma des sceaux de ses deux mains et les pressa vers l'avant!
 
@@ -68,7 +68,7 @@ Ling Dong et Zhou Jin arrivèrent également sous les ordres de Wang Lin. Six cu
 
 Des dizaines de cultivateurs de la Tribulation Céleste de la Secte Yao apparurent. Leurs visages étaient pâles alors qu'ils s'apprêtaient à engager toute leur force!
 
-Au sein même de la Secte Divine, les Anciens qui étaient du côté du Shui Daozi se précipitèrent pour tenter désespérément d'empêcher l'explosion de la tempête dorée!
+Au sein même de la Secte Shen, les Anciens qui étaient du côté du Shui Daozi se précipitèrent pour tenter désespérément d'empêcher l'explosion de la tempête dorée!
 
 Il y avait aussi Tai Aluo, flottant là, dont l'expression changea radicalement. Sa longue chevelure s'agitant, il pressa ses deux mains vers l'avant pour résister à la tempête!
 

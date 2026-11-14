@@ -12,15 +12,15 @@ Wang Lin continuait de reculer tandis que des bruits de chocs résonnaient à se
 
 « Tant de filaments de massacre, et pourtant cet Tian Yunzi à la Robe Grise ne se donne manifestement pas à fond! » Les yeux de Wang Lin s'illuminèrent. Il cherchait désespérément comment briser ce piège!
 
-« Quand j'ai absorbé cette parcelle d'Yang extrême, la perle défiant le ciel a tremblé... » Le regard de Wang Lin brilla tandis que des milliers d'idées traversaient son esprit.
+« Quand j'ai absorbé cette parcelle d'Yang extrême, la Perle Défiant le Ciel a tremblé... » Le regard de Wang Lin brilla tandis que des milliers d'idées traversaient son esprit.
 
-« Une fois que la perle défiant le ciel a complété les cinq éléments, les symboles du métal, du bois, de l'eau, du feu et de la terre ont disparu pour être remplacés par un soleil et une lune, représentant le Yin et le Yang! » À cet instant, ce fut comme une illumination pour Wang Lin.
+« Une fois que la Perle Défiant le Ciel a complété les cinq éléments, les symboles du métal, du bois, de l'eau, du feu et de la terre ont disparu pour être remplacés par un soleil et une lune, représentant le Yin et le Yang! » À cet instant, ce fut comme une illumination pour Wang Lin.
 
-« C'est exact. Ce dont la perle défiant le ciel a besoin, c'est du Yin et du Yang! Cet Yang extrême répond parfaitement à ses besoins! » Wang Lin avait réfléchi à la manière de satisfaire les exigences de Yin et de Yang de la perle après l'achèvement des cinq éléments.
+« C'est exact. Ce dont la Perle Défiant le Ciel a besoin, c'est du Yin et du Yang! Cet Yang extrême répond parfaitement à ses besoins! » Wang Lin avait réfléchi à la manière de satisfaire les exigences de Yin et de Yang de la perle après l'achèvement des cinq éléments.
 
-Cependant, malgré tous ses efforts, aucune modification n'était apparue sur les marques du soleil et de la lune de la perle défiant le ciel.
+Cependant, malgré tous ses efforts, aucune modification n'était apparue sur les marques du soleil et de la lune de la Perle Défiant le Ciel.
 
-« Quelles que soient les intentions de Tian Yunzi, il ne peut pas prévoir que je possède la perle défiant le ciel! Et encore moins que je puisse l'utiliser pour absorber cet Yang extrême! »
+« Quelles que soient les intentions de Tian Yunzi, il ne peut pas prévoir que je possède la Perle Défiant le Ciel! Et encore moins que je puisse l'utiliser pour absorber cet Yang extrême! »
 
 « Par conséquent, ses calculs seront erronés et je pourrai briser son stratagème! » Les yeux de Wang Lin étaient froids alors qu'il fixait Tian Yunzi à la Robe Grise. Plus il y réfléchissait, plus cela semblait réalisable.
 

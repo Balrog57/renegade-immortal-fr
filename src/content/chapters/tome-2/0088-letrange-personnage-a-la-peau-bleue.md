@@ -16,7 +16,7 @@ La raison pour laquelle elle est jugée si étrange tient au nombre de ses chang
 
 Wang Lin commença à vivre dans les ruines. Chaque nuit, il pratiquait et absorbait l'énergie Yin. Un mois s'était écoulé.
 
-Durant ce mois, en plus de pratiquer la Méthode d'Ascension des Enfers, Wang Lin remarqua que la perle défiant le ciel pouvait produire du liquide spirituel ici. Cependant, la puissance contenue dans ce liquide n'était pas une puissance spirituelle, mais une puissance Yin.
+Durant ce mois, en plus de pratiquer la Méthode d'Ascension des Enfers, Wang Lin remarqua que la Perle Défiant le Ciel pouvait produire du liquide spirituel ici. Cependant, la puissance contenue dans ce liquide n'était pas une puissance spirituelle, mais une puissance Yin.
 
 Par conséquent, Wang Lin acquit une meilleure compréhension de la perle.
 
@@ -26,7 +26,7 @@ Après avoir consommé ce liquide, il nota que bien qu'il contienne une grande q
 
 Si l'on comparait l'efficacité du liquide spirituel Yin à celle des liquides spirituels ordinaires, il n'atteignait que le niveau de l'eau de neige. Il était loin d'égaler le liquide spirituel.
 
-Wang Lin savait que, pour parler franchement, la Méthode d'Ascension des Enfers reposait entièrement sur la quantité d'énergie Yin que l'on pouvait absorber. Plus on en absorbait, plus on devenait puissant. En conséquence, Wang Lin pénétrait dans l'espace de la perle défiant le ciel pour pratiquer avec le liquide spirituel Yin durant la journée, tandis que la nuit, il respirait dans sa pièce.
+Wang Lin savait que, pour parler franchement, la Méthode d'Ascension des Enfers reposait entièrement sur la quantité d'énergie Yin que l'on pouvait absorber. Plus on en absorbait, plus on devenait puissant. En conséquence, Wang Lin pénétrait dans l'espace de la Perle Défiant le Ciel pour pratiquer avec le liquide spirituel Yin durant la journée, tandis que la nuit, il respirait dans sa pièce.
 
 Au fil du temps, l'énergie froide dans le corps de Wang Lin augmenta peu à peu. Chaque fois qu'il pratiquait, il se fondait lentement dans l'énergie Yin environnante. À chaque séance, son rythme cardiaque ralentissait jusqu'à devenir si faible qu'il semblait que son cœur s'était arrêté.
 

@@ -82,7 +82,7 @@ L'autre rayon de lumière révéla un homme d'âge mûr vêtu de noir. Il se tin
 
 Le visage de Ma Liang se décomposa: « Xu Hao, Ge Yang! » s'exclama-t-il malgré lui, se lamentant intérieurement. Il les avait déjà aperçus de loin; ces deux-là avaient une réputation sinistre, car ils aimaient tuer pour voler les trésors d'autrui.
 
-Décidé, Ma Liang arracha son sac de rangement et le lança à Xu Hao. « Camarades cultivateurs, voici tout ce que j'ai trouvé durant mon séjour ici. Prenez tout. Je ne demande qu'une chose: ma vie! » implora-t-il.
+Décidé, Ma Liang arracha son sac de rangement et le lança à Xu Hao. « Daoïstes, voici tout ce que j'ai trouvé durant mon séjour ici. Prenez tout. Je ne demande qu'une chose: ma vie! » implora-t-il.
 
 Xu Hao fut surpris. Il saisit le sac et le scruta avec son sens divin. Il sourit et dit: « Tu es l'individu le plus lâche que j'aie jamais rencontré, mais aussi le plus pragmatique. Très bien, je te laisse passer cette fois. File! »
 

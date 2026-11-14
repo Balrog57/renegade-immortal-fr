@@ -66,7 +66,7 @@ Sur ces mots, le regard de Qiu Siping se posa sur Wang Lin.
 
 Wang Lin fixa la coupe un instant de plus avant de la reposer. Il dit d'un ton neutre: « Tuer votre maître? Ce n'est pas un problème. Je l'ai déjà fait par le passé. »
 
-Qiu Siping laissa échapper un rire et déclara: « Pour ne rien vous cacher, cher compagnon, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon Senior frère sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en retraite de culture, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en avalant une chacun, vous et moi, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
+Qiu Siping laissa échapper un rire et déclara: « Pour ne rien vous cacher, Cher Daoïste, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon Senior frère sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en retraite de culture, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en avalant une chacun, vous et moi, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
 
 Wang Lin arqua les sourcils. Il réfléchit un moment, puis dit lentement: « Quel rapport cela a-t-il avec les anciennes restrictions? »
 

@@ -52,7 +52,7 @@ Mais Wang Lin n'était pas impatient; il s'assit simplement. Le brouillard noir 
 
 Il guettait l'instant où il pourrait achever un cultivateur du stade initial de la Tribulation du Vide d'un seul coup.
 
-« Yi Si peut porter un coup dévastateur, l'épée de sang peut blesser, l'Empreinte de l'Esprit Guerrier peut empêcher la fuite... L'illusion multicouche peut créer l'instant opportun... Et le coup de grâce devra être l'Origine de la Fantaisie de l'Âme! Cependant, tout cela ne pourra que gravement blesser un cultivateur du stade initial, pas l'achever... » Les yeux de Wang Lin brillaient tandis qu'il fixait l'horizon à des dizaines de milliers de pieds.
+« Yi Si peut porter un coup dévastateur, l'épée de sang peut blesser, l'Empreinte de l'Esprit Guerrier peut empêcher la fuite... L'illusion multicouche peut créer l'instant opportun... Et le coup de grâce devra être le Retour de l'Âme Guidée! Cependant, tout cela ne pourra que gravement blesser un cultivateur du stade initial, pas l'achever... » Les yeux de Wang Lin brillaient tandis qu'il fixait l'horizon à des dizaines de milliers de pieds.
 
 En un éclair, plusieurs heures passèrent. Le fracas des combats ne faiblissait pas, il devenait même plus intense. Le nombre de morts s'alourdissait de chaque côté. Pourtant, Wang Lin restait assis là. Il attendait.
 

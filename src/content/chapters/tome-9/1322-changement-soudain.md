@@ -90,7 +90,7 @@ Il n'y avait aucune énergie originelle dans cette zone de 10 000 pieds, seuleme
 
 « Puisque je ne peux pas la fusionner par la force, j'essaierai une méthode différente! » À l'intérieur de ce monde de 10 000 pieds, Wang Lin ouvrit la bouche et le Sceau Céleste en sortit.
 
-Dès que le sceau apparut, une puissante force de rejet surgit, très semblable à la résistance ressentie sur le Mont Bleu. Sous cette poussée dévastatrice, des craquements retentirent, comme si le Sceau Céleste ne pouvait plus tenir... et une fissure inattendue apparut sur sa surface!
+Dès que le sceau apparut, une puissante force de rejet surgit, très semblable à la résistance ressentie sur le Mont Lan. Sous cette poussée dévastatrice, des craquements retentirent, comme si le Sceau Céleste ne pouvait plus tenir... et une fissure inattendue apparut sur sa surface!
 
 Une pointe d'hésitation traversa le regard de Wang Lin. Alors qu'il hésitait, d'autres fissures se formèrent et les innombrables âmes à l'intérieur poussèrent des cris lugubres, comme si elles précipitaient la fin du monde!
 

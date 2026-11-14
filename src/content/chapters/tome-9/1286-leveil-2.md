@@ -70,11 +70,11 @@ Wang Lin la regarda et répondit lentement: « Je suis resté dans le coma penda
 
 La vieille femme ricana. Après un long silence, elle reprit: « Tu veux savoir? Très bien, je vais tout te dire! Connais-tu une femme nommée Li Qianmei? Pas besoin de répondre, tu la connais forcément!
 
-« Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Yao et à l'estime que celle-ci lui portait? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternelle!
+« Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Yao et à l'estime que celle-ci lui portait? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Wu Ji!
 
 « La Secte Yao ne voulait évidemment pas de cela, et même sa propre Secte Po Tian n'était pas satisfaite. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
 
-Wang Lin était bouleversé. Il ignorait tout de cela. Lorsqu'il avait rencontré Li Qianmei à la Secte Éternelle, elle n'avait jamais mentionné ces faits.
+Wang Lin était bouleversé. Il ignorait tout de cela. Lorsqu'il avait rencontré Li Qianmei à la Secte Wu Ji, elle n'avait jamais mentionné ces faits.
 
 « Savais-tu qu'il y a dix ans, Li Qianmei est retournée dans sa secte sur ordre de son maître? Tu devrais le savoir. Savais-tu qu'après son retour, elle fut immédiatement retenue par son maître et n'eut pas le droit de sortir pendant trois mois? Pourquoi l'avoir enfermée ainsi? Parce qu'une certaine personne traversait une crise de vie ou de mort! Cette vieille femme n'en sait pas beaucoup, mais je présume que tu comprends! »
 

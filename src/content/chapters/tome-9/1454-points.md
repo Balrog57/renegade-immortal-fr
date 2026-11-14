@@ -104,9 +104,9 @@ Voyant les cinq ongles s'approcher, il concentra la plus grande partie de son at
 
 « Junior Wang Lin, dégage de mon chemin! Quand j'en aurai le temps, je te tuerai! » Tout en reculant, il agita la main gauche et une illusion surgit de l'océan violet. Cette figure mesurait mille pieds de haut, vêtue d'une armure violette. Brandissant un trident, elle s'élança avec des yeux brillants vers Wang Lin et l'épée de sang.
 
-Miaoyin Daozun n'avait pas assisté au combat entre Wang Lin et le Maître Simo. Pressé de rejoindre la Tombe de l'Ordre Antique, il n'avait même pas cherché à savoir ce qui s'était passé sur la Planète du Grand Empereur.
+Miaoyin Daozun n'avait pas assisté au combat entre Wang Lin et le Maître Si Mo. Pressé de rejoindre la Tombe de l'Ordre Antique, il n'avait même pas cherché à savoir ce qui s'était passé sur la Planète du Grand Empereur.
 
-S'il avait été informé, il n'aurait jamais méprisé Wang Lin de la sorte, et n'aurait pas concentré toute son attention sur l'ennemi devant lui, car derrière ce dernier se trouvait un tueur d'immortels! Un dieu ancien qui avait raffiné l'estimé Ling Dong et dont la puissance avait prodigieusement augmenté!
+S'il avait été informé, il n'aurait jamais méprisé Wang Lin de la sorte, et n'aurait pas concentré toute son attention sur l'ennemi devant lui, car derrière ce dernier se trouvait un tueur d'immortels! Un dieu ancien qui avait raffiné l'Estimé Ling Dong et dont la puissance avait prodigieusement augmenté!
 
 L'épée de sang hurla et percuta le trident dans un fracas violent. Presque rien au monde ne pouvait arrêter l'épée de sang. Elle transperça le trident ainsi que la figure, puis fonça droit sur Miaoyin Daozun!
 

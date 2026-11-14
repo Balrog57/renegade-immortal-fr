@@ -14,9 +14,9 @@ Ce sort défiait déjà les cieux et avait vaguement l'esprit d'agir au nom du C
 
 Une fois projetée, son âme entra en combat contre l'être sans tête. D'innombrables autres âmes vinrent prêter main-forte, renversant instantanément la situation.
 
-Cependant, Wang Lin paya aussi un prix lourd. Le sort de l'Empereur Céleste Bai Fan avait consommé le peu d'énergie d'origine céleste qu'il restait à Wang Lin. Sans l'âme d'origine de l'Illustre Xuan Bao pour fournir davantage d'énergie, Wang Lin en serait déjà dépourvu depuis longtemps.
+Cependant, Wang Lin paya aussi un prix lourd. Le sort de l'Empereur Céleste Bai Fan avait consommé le peu d'énergie d'origine céleste qu'il restait à Wang Lin. Sans l'âme d'origine de l'Estimé Xuan Bao pour fournir davantage d'énergie, Wang Lin en serait déjà dépourvu depuis longtemps.
 
-Même avec l'aide de l'âme d'origine de l'Illustre Xuan Bao, les réserves de Wang Lin s'amenuisaient pour continuer à utiliser ces sorts. S'il ne trouvait pas d'autres âmes d'origine céleste, il ne pourrait plus employer les techniques de Bai Fan une fois ses ressources épuisées. Il pourrait peut-être encore utiliser « Invoquer le Vent », mais celui-ci serait bien moins puissant qu'avec l'énergie d'origine céleste.
+Même avec l'aide de l'âme d'origine de l'Estimé Xuan Bao, les réserves de Wang Lin s'amenuisaient pour continuer à utiliser ces sorts. S'il ne trouvait pas d'autres âmes d'origine céleste, il ne pourrait plus employer les techniques de Bai Fan une fois ses ressources épuisées. Il pourrait peut-être encore utiliser « Invoquer le Vent », mais celui-ci serait bien moins puissant qu'avec l'énergie d'origine céleste.
 
 Au loin, Tian Yunzi fronça les sourcils. Il ne pensait pas que Wang Lin posséderait encore un tel atout à ce stade! Le regard de Tian Yunzi devint glacial; sa main droite traça un sceau, puis il pointa le ciel.
 

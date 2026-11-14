@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1630 - Fate Sealing Ring
 slug: lanneau-de-scellement-du-destin
 ---
-La tête du Dao Ancien apparut derrière Wang Lin. Elle n'était pas floue, mais presque tangible. Flottant derrière lui, elle laissa échapper un rugissement qui fit trembler les cieux.
+La tête du Dao Gu apparut derrière Wang Lin. Elle n'était pas floue, mais presque tangible. Flottant derrière lui, elle laissa échapper un rugissement qui fit trembler les cieux.
 
 Ce rugissement secoua les environs, comme si Wang Lin était investi d'une puissance infinie. Atteignant le sommet de la pagode, Wang Lin lança un coup de poing.
 
-L'impact fit rugir la tête du Dao Ancien avec encore plus de violence, et l'espace se déforma. Ce rugissement fusionna avec le coup de poing de Wang Lin, créant un coup de poing du Dao Ancien qui ébranle ciel et terre.
+L'impact fit rugir la tête du Dao Gu avec encore plus de violence, et l'espace se déforma. Ce rugissement fusionna avec le coup de poing de Wang Lin, créant un coup de poing du Dao Gu qui ébranle ciel et terre.
 
 Le grondement s'intensifia. En un instant, le poing de Wang Lin percuta le sommet de la pagode. Des fracas tonitruants résonnèrent et l'édifice trembla.
 

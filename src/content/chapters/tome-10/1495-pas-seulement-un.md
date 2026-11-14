@@ -32,7 +32,7 @@ Cependant, le raisonnement de Xue Shenzi fut interrompu par une autre spéculati
 
 Les trois étaient déjà stupéfaits par l'apparition de l'Estimé Ling Dong. Un tollé s'éleva parmi les dizaines de milliers de cultivateurs qui avaient été repoussés par le Royaume Céleste du Vent.
 
-Le fait d'être membres du Temple Céleste du Tonnerre et de pouvoir rester ici prouvait qu'aucun d'entre eux n'était faible. Ils ressentaient clairement la pression écrasante émanant de l'Estimé Ling Dong.
+Le fait d'être membres du Temple Lei Xian et de pouvoir rester ici prouvait qu'aucun d'entre eux n'était faible. Ils ressentaient clairement la pression écrasante émanant de l'Estimé Ling Dong.
 
 Sous cette pression, ils ne parvenaient plus à tenir debout. La peur les submergeait et la terreur emplissait leurs cœurs!
 

@@ -18,11 +18,11 @@ Dans l'intégralité du monde caverneux, seul Wang Lin osait un tel mouvement. L
 
 Même les démons anciens et les diables antiques auraient eu du mal à résister à une telle tempête dévastatrice. Un Dieu Ancien pourrait survivre quelques fois, mais il ne tiendrait pas longtemps.
 
-Seul un Corps Dao Antique, d'innombrables fois plus puissant qu'un corps de Dieu Ancien, pouvait accomplir cela! Seul Wang Lin, détenteur de la lignée du Dao Antique, pouvait pénétrer calmement dans ces failles spatiales et avancer d'une manière aussi incroyable sans se soucier des turbulences internes!
+Seul un Corps Dao Gu, d'innombrables fois plus puissant qu'un corps de Dieu Ancien, pouvait accomplir cela! Seul Wang Lin, détenteur de la lignée du Dao Gu, pouvait pénétrer calmement dans ces failles spatiales et avancer d'une manière aussi incroyable sans se soucier des turbulences internes!
 
 La tempête destructrice s'abattait sur le corps de Wang Lin, mais ne lui infligeait aucun dommage. Au contraire, la tempête elle-même semblait pousser un gémissement de défaite avant de s'effondrer.
 
-Dans le Kun Xu, une immense faille surgit de nulle part. Le puissant corps de Wang Lin en émergea. À cet instant, les yeux clos, il balaya les environs de son Sens Divin du Dao Antique.
+Dans le Kun Xu, une immense faille surgit de nulle part. Le puissant corps de Wang Lin en émergea. À cet instant, les yeux clos, il balaya les environs de son Sens Divin du Dao Gu.
 
 Peu après, Wang Lin ouvrit soudainement les yeux et s'élança vers l'horizon.
 

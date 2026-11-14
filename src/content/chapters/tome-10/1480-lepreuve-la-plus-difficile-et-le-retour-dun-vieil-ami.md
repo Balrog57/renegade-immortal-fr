@@ -18,7 +18,7 @@ Au loin, devant lui, un groupe de près d'une centaine de cultivateurs survolait
 
 Parmi ces cultivateurs se trouvait un homme d'âge mûr. Ses yeux brillaient comme des éclairs et il possédait une culture au sommet du Purificateur du Nirvana. Il dégageait une aura de majesté, particulièrement à travers son regard étincelant. Des arcs électriques crépitaient autour de lui, renforçant sa dignité.
 
-« Soyez tous attentifs et appliquez votre force simultanément pour ne pas endommager la planète de culture. Sinon, les reproches du Temple Céleste du Tonnerre seront le cadet de nos soucis. Si les préparatifs de bataille sont compromis, nous pourrons tous rentrer chez nous en culture isolée! »
+« Soyez tous attentifs et appliquez votre force simultanément pour ne pas endommager la planète de culture. Sinon, les reproches du Temple Lei Xian seront le cadet de nos soucis. Si les préparatifs de bataille sont compromis, nous pourrons tous rentrer chez nous en culture isolée! »
 
 La voix de cet homme d'âge mûr tonna comme le tonnerre, résonnant dans l'esprit des cultivateurs. À ces mots, ils sourirent tous.
 
@@ -114,7 +114,7 @@ Le vieil homme ouvrit lentement les yeux. Il ne regarda pas les trois cultivateu
 
 « Vous pouvez partir... Cet endroit appartient au Maître... Jusqu'à ce que le Maître revienne, nul ne peut prélever un seul brin d'herbe, un morceau de bois ou une seule goutte d'eau de cette planète. »
 
-« Cependant, en raison des préparatifs de guerre, le Temple Céleste du Tonnerre a envoyé un ordre. Ils viendront réclamer la planète dans trois jours. Nous... » L'un des Anciens de la Transformation de l'Âme s'exprima avec anxiété, et le vieil homme tourna la tête vers lui.
+« Cependant, en raison des préparatifs de guerre, le Temple Lei Xian a envoyé un ordre. Ils viendront réclamer la planète dans trois jours. Nous... » L'un des Anciens de la Transformation de l'Âme s'exprima avec anxiété, et le vieil homme tourna la tête vers lui.
 
 Un seul regard suffit à faire trembler le cultivateur, qui n'osa plus prononcer un mot. Tous trois se retirèrent respectueusement.
 

@@ -10,11 +10,11 @@ Le vieil homme affichait une expression de tristesse alors qu'il tenait le Filet
 
 Ce n'était qu'une question de temps avant qu'il ne soit capturé.
 
-Il décida donc de tenter sa chance cette fois-ci. Si l'humeur du Filet de Capture Céleste était clémente, il emprisonnerait Wang Lin pendant trois jours. Avec une telle avance, s'il voulait s'enfuir, Wang Lin ne pourrait jamais le rattraper, quoi qu'il arrive. S'il décidait de ne pas fuir et de capturer Wang Lin, il pourrait alors utiliser certaines drogues pour raffiner ce dernier en un véritable gardien céleste de faible qualité, comme l'indiquaient les inscriptions sur la pierre de jade.
+Il décida donc de tenter sa chance cette fois-ci. Si l'humeur du Filet de Capture Céleste était clémente, il emprisonnerait Wang Lin pendant trois jours. Avec une telle avance, s'il voulait s'enfuir, Wang Lin ne pourrait jamais le rattraper, quoi qu'il arrive. S'il décidait de ne pas fuir et de capturer Wang Lin, il pourrait alors utiliser certaines drogues pour raffiner ce dernier en un véritable garde céleste de faible qualité, comme l'indiquaient les inscriptions sur la pierre de jade.
 
-En songeant au pouvoir des gardiens célestes de faible qualité mentionné dans la pierre de jade, le cœur du petit vieil homme fut agité par l'envie.
+En songeant au pouvoir des gardes célestes de faible qualité mentionné dans la pierre de jade, le cœur du petit vieil homme fut agité par l'envie.
 
-Les gardiens célestes qu'il avait raffinés jusqu'ici avaient tous été défectueux et ne répondaient tout simplement pas aux exigences prescrites sur la mystérieuse pierre de jade. Celle-ci indiquait que les chances de raffiner des gardiens célestes à partir de cultivateurs de la Transformation de l'Âme étaient infimes.
+Les gardes célestes qu'il avait raffinés jusqu'ici avaient tous été défectueux et ne répondaient tout simplement pas aux exigences prescrites sur la mystérieuse pierre de jade. Celle-ci indiquait que les chances de raffiner des gardes célestes à partir de cultivateurs de la Transformation de l'Âme étaient infimes.
 
 S'il s'agissait d'un cultivateur Ascendant, le taux de réussite augmenterait légèrement, mais resterait extrêmement bas. Seuls les cultivateurs Ascendants au sommet du stade tardif pouvaient espérer un taux de réussite d'une chance sur dix mille.
 

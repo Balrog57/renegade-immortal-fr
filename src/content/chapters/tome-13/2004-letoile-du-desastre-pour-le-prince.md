@@ -6,11 +6,11 @@ bookTitle: Light of the coming end
 en: Chapter 2004 - Star of Disaster for the Prince
 slug: letoile-du-desastre-pour-le-prince
 ---
-« Quant à savoir si cette affaire est vraie, ce petit ne le sait pas. Cependant, avec la présence du prince à leurs côtés, cela signifie que l'empereur de l'Ancien Shi a dû donner son accord, sinon le seigneur de la ville n'aurait pas ordonné le confinement de la cité », expliqua l'homme corpulent.
+« Quant à savoir si cette affaire est vraie, ce petit ne le sait pas. Cependant, avec la présence du prince à leurs côtés, cela signifie que l'empereur du Shi Gu a dû donner son accord, sinon le seigneur de la ville n'aurait pas ordonné le confinement de la cité », expliqua l'homme corpulent.
 
-« Choisir une concubine? » Wang Lin fut surpris et ne s'attarda pas sur la question. Il pensa simplement qu'il était absurde que l'Empereur de l'Ancien Dao, le lieu même qu'il devait protéger, envoie des émissaires jusque dans les deux autres pays pour choisir une concubine.
+« Choisir une concubine? » Wang Lin fut surpris et ne s'attarda pas sur la question. Il pensa simplement qu'il était absurde que l'Empereur du Dao Gu, le lieu même qu'il devait protéger, envoie des émissaires jusque dans les deux autres pays pour choisir une concubine.
 
-« Cependant, puisque je peux rencontrer les gens de l'Ancien Dao ici, ils doivent posséder une carte détaillée pour se rendre dans les douze pays de l'Ancien Dao. Cela m'épargnera du temps dans ma quête d'une carte. » Après avoir réfléchi un instant, Wang Lin s'apprêtait à poser d'autres questions lorsqu'il tourna le regard vers la ville. Des bruits de pas résonnèrent depuis la cité, puis deux escouades de soldats en armure verte surgirent précipitamment par la porte.
+« Cependant, puisque je peux rencontrer les gens du Dao Gu ici, ils doivent posséder une carte détaillée pour se rendre dans les douze pays du Dao Gu. Cela m'épargnera du temps dans ma quête d'une carte. » Après avoir réfléchi un instant, Wang Lin s'apprêtait à poser d'autres questions lorsqu'il tourna le regard vers la ville. Des bruits de pas résonnèrent depuis la cité, puis deux escouades de soldats en armure verte surgirent précipitamment par la porte.
 
 Les deux groupes comptaient près de mille hommes. Ils sortirent rapidement de la ville, dégageant une aura meurtrière. Simultanément, trois individus émergèrent également de la cité.
 
@@ -36,7 +36,7 @@ Cependant, l'homme en armure dorée les ignora. Il observa Wang Lin avec confusi
 
 Seul le jeune homme en noir fixa Wang Lin en gardant le silence.
 
-Wang Lin sourit et rendit leur salut. « Je m'appelle Wang Lin. Par hasard, j'ai entendu dire que le prince et les ambassadeurs de l'Ancien Dao approchaient. J'aimerais rester les observer, si cela est possible, mais si c'est inconvenant, je m'en irai. »
+Wang Lin sourit et rendit leur salut. « Je m'appelle Wang Lin. Par hasard, j'ai entendu dire que le prince et les ambassadeurs du Dao Gu approchaient. J'aimerais rester les observer, si cela est possible, mais si c'est inconvenant, je m'en irai. »
 
 Il ne faisait preuve d'aucune arrogance malgré son niveau de culture et son rang élevé. La personnalité de Wang Lin avait toujours été ainsi: si les autres lui témoignaient du respect, il leur en rendait naturellement.
 

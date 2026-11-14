@@ -110,7 +110,7 @@ Le temps s'écoulait lentement. Plusieurs heures plus tard, alors que l'aube poi
 
 « La troisième Veine Magique est sur le point d'apparaître! » Wang Lin agita sa manche et sélectionna sept âmes originelles supérieures à cinq Tribulations Arcaniques parmi les dizaines d'âmes disponibles. Faute d'âmes originelles suffisantes au stade des Tribulations Arcaniques, il dévora une âme originelle de stade précoce des Tribulations du Vide. Son corps gronda et la troisième Veine Magique se manifesta!
 
-Une fois la troisième Veine Magique apparue, il pouvait instantanément projeter une multitude de sorts dès leur activation. Même la vitesse de son corps du Dao Antique changea radicalement.
+Une fois la troisième Veine Magique apparue, il pouvait instantanément projeter une multitude de sorts dès leur activation. Même la vitesse de son corps du Dao Gu changea radicalement.
 
 Cela différait du cultivateur auprès duquel Wang Lin avait appris cette technique: ce dernier ne pouvait qu'augmenter sa vitesse d'incantation sans affecter son corps. La différence venait du fait que la première âme dévorée par le cultivateur appartenait à un expert du Vide du Nirvana, tandis que Wang Lin avait dévoré une âme originelle du Vide Arcanique!
 

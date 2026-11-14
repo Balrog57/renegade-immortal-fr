@@ -22,7 +22,7 @@ C'était comme si elle était souillée par des impuretés. Ce n'était pas que 
 
 Cette énergie est inoffensive pour les cultivateurs en dessous du stade de la Formation de l'Âme, car ils sont incapables d'en percevoir les impuretés.
 
-Mais une fois que l'on atteint la Formation de l'Âme et que l'on aspire à progresser davantage, cette énergie devient primordiale. Quant à l'eau spirituelle provenant de la perle défiant le ciel, c’était peut-être parce que les cinq éléments n'étaient pas complets, mais sa pureté manquait encore de perfection.
+Mais une fois que l'on atteint la Formation de l'Âme et que l'on aspire à progresser davantage, cette énergie devient primordiale. Quant à l'eau spirituelle provenant de la Perle Défiant le Ciel, c’était peut-être parce que les cinq éléments n'étaient pas complets, mais sa pureté manquait encore de perfection.
 
 Cependant, les cinq éléments sont bien trop difficiles à obtenir. En dehors de l'élément eau, il lui faudrait une bête désolée, semblable à celle qu'il avait obtenue pour l'élément feu, pour le combler entièrement.
 
@@ -102,12 +102,12 @@ Dès que ces mots furent prononcés, tous les cultivateurs de Xue Yu poussèrent
 
 Cette lumière prit la forme de cinq jeunes filles qui lui ressemblaient trait pour trait, mais ce n'étaient pas ses avatars.
 
-À cet instant, Wang Lin se cachait sous une montagne de neige au sein de l'Alliance des Quatre Sectes. Son sens divin couvrait déjà toute la zone. Lorsqu'il vit apparaître les cinq filles, la perle défiant le ciel, située dans son sens divin, trembla soudainement.
+À cet instant, Wang Lin se cachait sous une montagne de neige au sein de l'Alliance des Quatre Sectes. Son sens divin couvrait déjà toute la zone. Lorsqu'il vit apparaître les cinq filles, la Perle Défiant le Ciel, située dans son sens divin, trembla soudainement.
 
 À ce moment précis, de nombreux sens divins saturaient le ciel; personne ne prêta attention au sien.
 
 Wang Lin ouvrit brusquement les yeux sous la montagne de neige. Une lumière étrange émana de ses pupilles. Il murmura pour lui-même: « Esprits des Cinq Éléments. »
 
-Autrefois, après que la perle défiant le ciel n'eut dévoré un seul esprit de feu, l'élément feu avait été pleinement chargé. En voyant ces esprits des cinq éléments, son cœur fut troublé. Mais il écarta rapidement cette idée, ne sachant pas si elle était le génie de Xue Yu dont Zhou Wutai avait parlé.
+Autrefois, après que la Perle Défiant le Ciel n'eut dévoré un seul esprit de feu, l'élément feu avait été pleinement chargé. En voyant ces esprits des cinq éléments, son cœur fut troublé. Mais il écarta rapidement cette idée, ne sachant pas si elle était le génie de Xue Yu dont Zhou Wutai avait parlé.
 
 Mais même si ce n'était pas le cas, elle se trouvait déjà au moins au milieu du stade de la Formation de l'Âme. Elle était loin d'être une adversaire qu'il pouvait affronter pour le moment.

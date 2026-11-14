@@ -62,7 +62,7 @@ En entendant cela, les yeux des spectateurs s'illuminèrent. Ils fixèrent l'hom
 
 « La Lame Céleste aux Neuf Accords de la famille Nangong, du Domaine Sud du Système Stellaire de Luotian. Ainsi, cet homme appartient à la famille Nangong. »
 
-« Autrefois, les quatre grandes familles du Domaine Sud étaient les Nangong, les Tang, les Zhan et les Shengong. La famille Nangong occupait la première place, mais elle a mystérieusement disparu il y a mille ans. Il ne restait même pas la moitié d'un membre de cette lignée sur leur planète de culture. Cela avait même attiré l'attention du Temple Céleste du Tonnerre, sans qu'ils ne parviennent jamais à trouver la moindre raison à cette disparition! »
+« Autrefois, les quatre grandes familles du Domaine Sud étaient les Nangong, les Tang, les Zhan et les Shengong. La famille Nangong occupait la première place, mais elle a mystérieusement disparu il y a mille ans. Il ne restait même pas la moitié d'un membre de cette lignée sur leur planète de culture. Cela avait même attiré l'attention du Temple Lei Xian, sans qu'ils ne parviennent jamais à trouver la moindre raison à cette disparition! »
 
 « Pas étonnant que je n'aie jamais vu cet homme auparavant. Il s'avère qu'il est un membre de la famille Nangong! »
 
@@ -100,7 +100,7 @@ Au centre de l'arène, Wang Lin se tenait debout dans sa robe blanche, entouré 
 
 « Le sort de la Tempête de Tonnerre de la famille Yao lui ressemble, mais sa puissance semble légèrement inférieure! »
 
-Les yeux du vieil homme en robe violette du Temple Céleste du Tonnerre s'illuminèrent. Un sourire apparut sur son visage, et il se dit intérieurement: « J'ai entendu le Maître du Temple dire que ce Xu Mu était le petit-frère de disciple d'une génération inférieure du Seigneur Qing Shui. Cela semble plausible! Cependant, entre la Lame Céleste aux Neuf Accords, presque maîtrisée, et ce sort de l'Empereur Céleste qui ne peut former que deux dragons noirs, lequel est le plus fort? »
+Les yeux du vieil homme en robe violette du Temple Lei Xian s'illuminèrent. Un sourire apparut sur son visage, et il se dit intérieurement: « J'ai entendu le Maître du Temple dire que ce Xu Mu était le petit-frère de disciple d'une génération inférieure du Seigneur Qing Shui. Cela semble plausible! Cependant, entre la Lame Céleste aux Neuf Accords, presque maîtrisée, et ce sort de l'Empereur Céleste qui ne peut former que deux dragons noirs, lequel est le plus fort? »
 
 Les dragons noirs rugissaient et continuaient de projeter un vent glacial tandis que Wang Lin avançait. Le souffle froid se dirigeait vers la pierre rouge où l'homme en noir était assis. Les yeux de ce dernier devinrent encore plus brillants, bien qu'il ne bougât point. Sa main droite traça un sceau, faisant s'élancer quatre des neuf lames dans les airs. Elles s'entrecroisèrent et se mirent à pivoter, engendrant une tempête. Dès que cette tempête de lames apparut, l'espace environnant commença à se fissurer, comme s'il ne pouvait plus supporter la pression.
 

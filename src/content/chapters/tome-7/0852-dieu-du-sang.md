@@ -74,4 +74,4 @@ Cependant, à ce moment précis, le visage de Wang Lin changea radicalement. Une
 
 « Xue Shenzi! » Les pupilles de Wang Lin se rétractèrent brusquement!
 
-À cet instant, à l'intérieur du Temple Céleste du Tonnerre, dans le Système Stellaire de Luotian, le Seigneur Qing Shui ouvrit soudainement les yeux. Après un moment de réflexion silencieuse, il laissa échapper un reniflement froid et disparut.
+À cet instant, à l'intérieur du Temple Lei Xian, dans le Système Stellaire de Luotian, le Seigneur Qing Shui ouvrit soudainement les yeux. Après un moment de réflexion silencieuse, il laissa échapper un reniflement froid et disparut.

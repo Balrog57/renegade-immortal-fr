@@ -36,7 +36,7 @@ Ce cri jaillit de sa propre bouche, mais aussi de celle du Daoïste aux Sept Cou
 
 La corne formée par les six essences vola en éclats instantanément. Wang Lin cracha du sang, sentant son corps tout entier sur le point de se briser, et fut violemment projeté. Simultanément, les neuf soleils se dispersèrent et un impact puissant fut projeté vers lui.
 
-Face à ce danger imminent, Wang Lin utilisa son Dao Ancien Impérissable pour se rétablir. D'un revers de main, il fit surgir la voile fantomatique qui l'enveloppa. Au moment où l'impact allait le frapper, Wang Lin disparut.
+Face à ce danger imminent, Wang Lin utilisa son Dao Gu Impérissable pour se rétablir. D'un revers de main, il fit surgir la voile fantomatique qui l'enveloppa. Au moment où l'impact allait le frapper, Wang Lin disparut.
 
 À mille pieds de là, à l'extérieur de l'espace mystérieux rempli de bêtes féroces où se trouvait le Daoïste aux Sept Couleurs, Wang Lin ouvrit les yeux. Il cracha du sang et son regard était terne, mais il recula sans la moindre hésitation.
 

@@ -26,7 +26,7 @@ Le jeune homme sortit de la sphère d'éclairs avec une sérénité absolue. Il 
 
 Ce jeune homme en blanc n'était autre que Wang Lin!
 
-« Planète Suzaku, je suis de retour! » murmura Wang Lin pour lui-même. Il tourna ensuite son regard vers l'homme et la jeune femme, comme s'ils l'avaient attendu pour l'accueillir. Un sourire éthéré étira ses lèvres tandis qu'il demandait: « Camarade cultivateur, des événements majeurs ont-ils eu lieu à Suzaku récemment? »
+« Planète Suzaku, je suis de retour! » murmura Wang Lin pour lui-même. Il tourna ensuite son regard vers l'homme et la jeune femme, comme s'ils l'avaient attendu pour l'accueillir. Un sourire éthéré étira ses lèvres tandis qu'il demandait: « Daoïste, des événements majeurs ont-ils eu lieu à Suzaku récemment? »
 
 Wang Lin avait calculé que le retour de Hongdie, qui avait perdu un bras, provoquerait inévitablement des remous à Suzaku.
 

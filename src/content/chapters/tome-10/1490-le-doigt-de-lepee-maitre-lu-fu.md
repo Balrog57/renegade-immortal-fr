@@ -98,7 +98,7 @@ Des scènes identiques se produisirent partout dans Luotian!
 
 Quiconque avait offensé Xi Zifeng fut foudroyé par un rayon d'énergie d'épée!
 
-Une multitude de cultivateurs du Temple Céleste du Tonnerre s'affairaient au sein de la gigantesque formation stellaire, installant et reliant diverses formations entre elles.
+Une multitude de cultivateurs du Temple Lei Xian s'affairaient au sein de la gigantesque formation stellaire, installant et reliant diverses formations entre elles.
 
 Soudain, onze rayons d'énergie d'épée apparurent et se dispersèrent dans onze directions différentes. Un homme d'âge moyen à l'allure sombre, occupé à poser une formation, fut transpercé. Sans comprendre ce qui lui arrivait, il mourut instantanément.
 
@@ -106,16 +106,16 @@ En un éclair, dix personnes périrent à différents points de cette immense st
 
 Le dernier rayon d'énergie chargea profondément dans le vortex et frappa un vieil homme qui renforçait la formation. Ce dernier trembla avant que son corps n'explose.
 
-Cette scène soudaine terrifia tous les présents, plongeant les membres du Temple Céleste du Tonnerre dans l'effroi.
+Cette scène soudaine terrifia tous les présents, plongeant les membres du Temple Lei Xian dans l'effroi.
 
 Wang Lin n'avait tué personne de trop, et n'en avait épargné aucun. Il avait utilisé son Sens Divin pour libérer près de cent rayons d'énergie d'épée afin de balayer Luotian! C'était la dernière chose qu'il accomplirait pour Xi Zifeng!
 
-Tout en avançant, Wang Lin apparut à l'extérieur de la gigantesque formation bâtie par le Temple Céleste du Tonnerre!
+Tout en avançant, Wang Lin apparut à l'extérieur de la gigantesque formation bâtie par le Temple Lei Xian!
 
-Il scruta les profondeurs de cette structure composée de centaines de planètes. Les innombrables cultivateurs du Temple Céleste du Tonnerre restèrent silencieux tandis qu'il progressait lentement.
+Il scruta les profondeurs de cette structure composée de centaines de planètes. Les innombrables cultivateurs du Temple Lei Xian restèrent silencieux tandis qu'il progressait lentement.
 
 Sa marche n'était pas rapide, mais chaque pas faisait gronder le domaine stellaire comme un coup de tonnerre. Les pas de Wang Lin produisaient des sons monstrueux qui se propageaient dans toutes les directions.
 
-D'innombrables cultivateurs du Temple Céleste du Tonnerre pâlirent et battirent en retraite. Contrairement aux membres de la famille de la planète Dong Lin, dont les esprits étaient contrôlés et qui étaient prêts à mourir, ceux-ci fuyaient promptement. De loin, leur mouvement ressemblait à une marée descendante!
+D'innombrables cultivateurs du Temple Lei Xian pâlirent et battirent en retraite. Contrairement aux membres de la famille de la planète Dong Lin, dont les esprits étaient contrôlés et qui étaient prêts à mourir, ceux-ci fuyaient promptement. De loin, leur mouvement ressemblait à une marée descendante!
 
 Alors que Wang Lin avançait, un cri strident retentit de la bouche de Maître Lu Fu, qui se trouvait au centre du vortex!

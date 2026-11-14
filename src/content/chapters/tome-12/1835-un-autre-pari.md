@@ -68,7 +68,7 @@ Wang Lin ne répondit pas immédiatement et prit un instant pour réfléchir.
 
 « C'est un trésor que le neuvième Ancêtre, Luo Yunhai, possédait de son vivant, et que j'ai trouvé par inadvertance. Il y avait condensé un milliard d'âmes Dao; il est désormais brisé, mais il contient encore 30 millions d'âmes Dao. Bien qu'il ne puisse être utilisé qu'une seule fois, il peut déclencher une attaque équivalente à celle d'un cultivateur du milieu de la Tribulation du Vide! »
 
-« Cet objet est la raison pour laquelle je peux invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme. Avec cela, tu pourras également invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme! »
+« Cet objet est la raison pour laquelle je peux invoquer le neuvième Ancêtre avec le Retour de l'Âme Guidée. Avec cela, tu pourras également invoquer le neuvième Ancêtre avec le Retour de l'Âme Guidée! »
 
 « Tant que tu parviens à entrer au huitième étage, tu peux le prendre! Es-tu prêt à parier?! » La voix de Yan Luan était perçante et résonna dans tout le Pavillon Cang Hun.
 
@@ -78,7 +78,7 @@ Les pas de Wang Lin s'arrêtèrent alors qu'il ressentait les fluctuations d'âm
 
 La poussière sur les marches était particulièrement épaisse; il était évident que personne n'y avait foulé le sol depuis longtemps.
 
-Le Sens Divin de Wang Lin avait balayé les corps d'âmes du septième étage. L'Origine de la Fantaisie de l'Âme et l'illusion multicouche étaient présentes, mais celles du huitième étage seraient bien plus complètes.
+Le Sens Divin de Wang Lin avait balayé les corps d'âmes du septième étage. Le Retour de l'Âme Guidée et l'illusion multicouche étaient présentes, mais celles du huitième étage seraient bien plus complètes.
 
 « Si je n'utilise pas le pouvoir de mon avatar dans le vide, il sera très difficile d'atteindre le huitième étage... » Wang Lin fronça les sourcils et commença à évaluer les risques et les bénéfices tout en percevant lentement son avatar dans le vide.
 

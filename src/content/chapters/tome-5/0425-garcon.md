@@ -36,7 +36,7 @@ D'un seul cri, les nuages se dissipèrent sans laisser de trace; même la pluie 
 
 Le corps de Dun Tian trembla violemment tandis qu'il contemplait la scène, hébété. Il était incapable de prononcer le moindre mot.
 
-Wang Lin eut un sourire amer et toussa. Lorsque la Flamme Sainte Suzaku arriva, l'âme originelle de Wang Lin était déjà revenue dans son corps et il avait atteint le stade de la Transformation de l'Âme. Cependant, n'ayant aucun moyen d'intervenir dans le combat entre Dun Tian et Zhu Quezi, il s'était caché à l'intérieur de la perle défiant le ciel lors de l'apparition de la Flamme Sainte Suzaku.
+Wang Lin eut un sourire amer et toussa. Lorsque la Flamme Sainte Suzaku arriva, l'âme originelle de Wang Lin était déjà revenue dans son corps et il avait atteint le stade de la Transformation de l'Âme. Cependant, n'ayant aucun moyen d'intervenir dans le combat entre Dun Tian et Zhu Quezi, il s'était caché à l'intérieur de la Perle Défiant le Ciel lors de l'apparition de la Flamme Sainte Suzaku.
 
 En y pénétrant, il avait réveillé Situ Nan!
 
@@ -68,7 +68,7 @@ La renommée de la deuxième génération de Suzaku était immense; à certains 
 
 Peu après, Dun Tian prit une profonde inspiration. Il s'inclina respectueusement devant Situ Nan et dit: « Le junior Dun Tian, de la Secte Lian Hun, salue le Senior. »
 
-Situ Nan hocha la tête et répondit: « Étant donné que tu as protégé Wang Lin et que tu lui remets le drapeau des âmes d'un milliard, ce vieil homme te promet que, si l'occasion se présente, j'aiderai à ressusciter la Secte Lian Hun! » Situ Nan se remémora le passé. Si ce n'avait été pour son ami de la Secte Lian Hun, il n'aurait même pas eu le temps de s'échapper dans la perle défiant le ciel lors de la bataille contre les cultivateurs étrangers.
+Situ Nan hocha la tête et répondit: « Étant donné que tu as protégé Wang Lin et que tu lui remets le drapeau des âmes d'un milliard, ce vieil homme te promet que, si l'occasion se présente, j'aiderai à ressusciter la Secte Lian Hun! » Situ Nan se remémora le passé. Si ce n'avait été pour son ami de la Secte Lian Hun, il n'aurait même pas eu le temps de s'échapper dans la Perle Défiant le Ciel lors de la bataille contre les cultivateurs étrangers.
 
 Un sourire apparut sur le visage de Dun Tian. Il avait sacrifié toute sa vie pour la Secte Lian Hun, et c'était son souci le plus constant. C'est pour cette raison qu'il était prêt à utiliser ses derniers instants pour se lier d'amitié avec Wang Lin; tout cela afin de trouver un moyen de maintenir sa Secte en vie.
 
@@ -118,7 +118,7 @@ Les yeux de Situ Nan s'illuminèrent et l'arrogance réapparut. Il déclara: « 
 
 La personnalité de Situ Nan avait toujours été ainsi. Autrefois, il n'avait cessé d'enseigner à Wang Lin ce chemin de culture presque démoniaque. Si Wang Lin avait tué autant de personnes, c'était en grande partie sous l'influence de Situ Nan.
 
-Wang Lin hocha la tête et dit: « La perle défiant le ciel est déjà fusionnée avec mon sens divin et ne peut plus être retirée… »
+Wang Lin hocha la tête et dit: « La Perle Défiant le Ciel est déjà fusionnée avec mon sens divin et ne peut plus être retirée… »
 
 Avant que Wang Lin ne puisse finir, Situ Nan l'interrompit: « N'importe quoi! C'est à cause de cette maudite perle que je me retrouve dans un tel état. Même si tu me la donnais, je n'en voudrais pas! »
 
@@ -128,13 +128,13 @@ Wang Lin regarda Situ Nan et murmura: « Situ. »
 
 « Merci… »
 
-Situ Nan réfléchit. En vérité, il avait déjà deviné que la perle défiant le ciel était un trésor extrêmement rare, probablement au-delà d'un trésor céleste.
+Situ Nan réfléchit. En vérité, il avait déjà deviné que la Perle Défiant le Ciel était un trésor extrêmement rare, probablement au-delà d'un trésor céleste.
 
 Mais bien qu'il fût un homme tyrannique et arrogant, il accordait une immense valeur à la gratitude. Le premier Suzaku lui avait témoigné de la bonté, et c'est pour cela qu'il avait renoncé à quitter la planète pour protéger la planète Suzaku.
 
 Sa relation avec Wang Lin était complexe, mais cela n'avait fait que les rapprocher. Il avait pratiquement vu Wang Lin grandir en tant que cultivateur; pour lui, Wang Lin était comme son propre disciple!
 
-C'est pourquoi il ne pouvait pas réclamer la perle défiant le ciel!
+C'est pourquoi il ne pouvait pas réclamer la Perle Défiant le Ciel!
 
 Situ Nan renifla et tourna la tête: « Si tu veux me remercier, trouve-moi un corps. Attends un peu, je vais vérifier s'il existe un réceptacle approprié sur cette planète en ce moment. Bien que ce vieil homme ne puisse plus combattre d'ennemis, j'ai toujours mes sorts; trouver un corps devrait être facile. » Sur ces mots, les yeux de Situ Nan brillèrent et son sens divin se propagea.
 

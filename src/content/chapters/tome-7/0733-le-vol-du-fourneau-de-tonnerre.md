@@ -66,7 +66,7 @@ Tandis que l'éclair fendait l'espace, Wang Lin ouvrit les yeux et commença à 
 
 S'il voulait se rendre au Royaume Céleste du Tonnerre, il lui fallait un fourneau de tonnerre. Sans cela, aucun moyen n'était possible pour y pénétrer. Wang Lin le savait parfaitement.
 
-Cependant, le Système Stellaire de Luotian différait du Système Stellaire de l'Alliance. Les fourneaux n'étaient pas dispersés au hasard. Pour une raison inconnue, ils apparaissaient tous ensemble à l'intérieur du Temple Céleste du Tonnerre. Le temple attribuait ensuite à chaque famille de culture un ou plusieurs fourneaux, selon sa puissance.
+Cependant, le Système Stellaire de Luotian différait du Système Stellaire de l'Alliance. Les fourneaux n'étaient pas dispersés au hasard. Pour une raison inconnue, ils apparaissaient tous ensemble à l'intérieur du Temple Lei Xian. Le temple attribuait ensuite à chaque famille de culture un ou plusieurs fourneaux, selon sa puissance.
 
 Il ne restait plus que trois mois avant l'ouverture du Royaume Céleste du Tonnerre. C'était le moment où toutes les familles recevraient leurs fourneaux. Les yeux de Wang Lin s'illuminèrent et il prit une décision.
 
@@ -94,15 +94,15 @@ L'expression du vieil homme changea: « C'est exact. Que souhaite le Seigneur Me
 
 Wang Lin déclara calmement: « J'ai besoin d'un fourneau de tonnerre! »
 
-Le vieil homme fixa Wang Lin un long moment avant d'éclater de rire. Son rire était teinté d'arrogance. Ses yeux brillèrent et il s'écria: « Lors de ce voyage au Temple Céleste du Tonnerre, j'ai entendu des rumeurs sur quelqu'un se faisant passer pour un messager du Temple. Au début, je pensais que c'était absurde, mais après vous avoir vu, ce vieil homme est certain que vous êtes un imposteur! »
+Le vieil homme fixa Wang Lin un long moment avant d'éclater de rire. Son rire était teinté d'arrogance. Ses yeux brillèrent et il s'écria: « Lors de ce voyage au Temple Lei Xian, j'ai entendu des rumeurs sur quelqu'un se faisant passer pour un messager du Temple. Au début, je pensais que c'était absurde, mais après vous avoir vu, ce vieil homme est certain que vous êtes un imposteur! »
 
 « Oh? » L'expression de Wang Lin resta neutre tandis qu'il observait calmement le vieil homme.
 
-Le vieil homme ricana: « Quel messager du Temple Céleste du Tonnerre n'a pas de nombreuses familles subordonnées? Obtenir un fourneau de tonnerre serait d'une simplicité extrême. De plus, j'ai rencontré tous les messagers du domaine sud, et votre visage m'est totalement inconnu! »
+Le vieil homme ricana: « Quel messager du Temple Lei Xian n'a pas de nombreuses familles subordonnées? Obtenir un fourneau de tonnerre serait d'une simplicité extrême. De plus, j'ai rencontré tous les messagers du domaine sud, et votre visage m'est totalement inconnu! »
 
-« Plus important encore, tous les messagers sont rassemblés au Temple Céleste du Tonnerre. Ils ne sortiront pas avant l'ouverture du Royaume Céleste! »
+« Plus important encore, tous les messagers sont rassemblés au Temple Lei Xian. Ils ne sortiront pas avant l'ouverture du Royaume Céleste! »
 
-Wang Lin hocha la tête et cessa de perdre son temps en futilités. L'ombre derrière lui s'agita et le Gardien Céleste apparut. D'un pas, il chargea immédiatement pour asséner un coup de poing.
+Wang Lin hocha la tête et cessa de perdre son temps en futilités. L'ombre derrière lui s'agita et le Garde Céleste apparut. D'un pas, il chargea immédiatement pour asséner un coup de poing.
 
 Ce coup dégageait une puissance sonore phénoménale alors qu'il fonçait vers le vieil homme.
 
@@ -114,11 +114,11 @@ Les membres de sa famille s'étaient déjà repliés pour observer la scène à 
 
 La marionnette céleste ne fut nullement perturbée par les étincelles qui frappaient son corps. Loin de ralentir, elle accéléra encore. Le coup de poing siffla à travers la distance et, d'un pas, la marionnette se retrouva devant le vieil homme; en s'abattant, le poing forma un dragon d'énergie qui fendit l'espace.
 
-L'expression du vieil homme changea légèrement et il recula précipitamment. Simultanément, sa main traça un sceau et un bouclier de flammes apparut devant lui. Le coup de poing du Gardien Céleste percuta le bouclier dans une explosion fracassante.
+L'expression du vieil homme changea légèrement et il recula précipitamment. Simultanément, sa main traça un sceau et un bouclier de flammes apparut devant lui. Le coup de poing du Garde Céleste percuta le bouclier dans une explosion fracassante.
 
 Des fissures apparurent aussitôt sur le bouclier de flammes avant que celui-ci ne s'effondre.
 
-Alors que le son résonnait encore, le vieil homme recula, le visage blême. Le Gardien Céleste fut lui aussi repoussé de plusieurs pas, une flamme noire brûlant son bras et se propageant lentement sur son corps.
+Alors que le son résonnait encore, le vieil homme recula, le visage blême. Le Garde Céleste fut lui aussi repoussé de plusieurs pas, une flamme noire brûlant son bras et se propageant lentement sur son corps.
 
 « Je veux seulement un fourneau de tonnerre! » lança Wang Lin d'un ton imperturbable.
 

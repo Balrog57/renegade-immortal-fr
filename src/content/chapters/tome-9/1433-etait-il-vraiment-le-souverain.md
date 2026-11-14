@@ -10,7 +10,7 @@ Une force inexplicable poussa Wang Lin à choisir, tout en l'empêchant de le fa
 
 Lanmeng Daozun l'avait déjà poussé à choisir une première fois, et Suzaku de la première génération l'avait fait une seconde fois. Ces épreuves avaient permis à son cœur dao d'atteindre celui d'un maître d'une génération.
 
-Plus important encore, s'il n'était pas entré dans la mémoire du Maître Simo pour y découvrir un homme ayant vécu une vie similaire mais ayant choisi un chemin différent, Wang Lin aurait peut-être choisi de rester... pour devenir l'esclave du Souverain... Les paroles du Souverain avaient touché le point faible de Wang Lin!
+Plus important encore, s'il n'était pas entré dans la mémoire du Maître Si Mo pour y découvrir un homme ayant vécu une vie similaire mais ayant choisi un chemin différent, Wang Lin aurait peut-être choisi de rester... pour devenir l'esclave du Souverain... Les paroles du Souverain avaient touché le point faible de Wang Lin!
 
 Après avoir quitté le Clan Huo Que, l'effondrement de la terre sainte avait déclenché un incendie dévastateur qui se propageait dans toutes les directions. Le brasier détruisit près de la moitié des tribus du Clan Huo Que, et une flamme monstrueuse brillait derrière Wang Lin alors qu'il s'éloignait.
 
@@ -62,7 +62,7 @@ Après avoir réfléchi un instant, Wang Lin leva les yeux vers le ciel bleu et 
 
 Après avoir gravement blessé l'homme d'âge moyen au sein de la flamme aux sept couleurs, celui-ci avait admis être le Souverain. Cependant, une fois calmé, Wang Lin ne pouvait s'empêcher de douter.
 
-La culture de cet homme fluctuait, tantôt haute, tantôt basse. Il avait pu s'opposer à l'esprit originel de Suzaku, utiliser la technique « Pêcher la Lune dans le Puits » et celle des Quatre Éléments, il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
+La culture de cet homme fluctuait, tantôt haute, tantôt basse. Il avait pu s'opposer à l'esprit originel de Suzaku, utiliser la technique « Pêcher la Lune dans le Puits » et celle des Quatre Éléments, il connaissait le Maître Si Mo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
 
 « Sa culture est liée au feu et il possède Suzaku aux sept couleurs. Il devrait être le Nie Que de troisième génération... Mais est-il vraiment le Souverain...? » La raison pour laquelle Wang Lin avait supposé que le Nie Que de troisième génération était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Antique. Personne ne savait à quel clan il appartenait!
 

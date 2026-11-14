@@ -22,7 +22,7 @@ Tout cela rendait impossible pour Du Qing de juger l'identité et l'origine de W
 
 « Mais si c'est le second cas... » Les pupilles de Du Qing se rétractèrent.
 
-« Si c'est le second cas, cet homme est intouchable! Le fait que la Secte Dong Lin et la Secte Mondiale lui aient cédé ces sorts est déjà prodigieux. Mais faire en sorte que Song Yun Dao de la Secte San Dao, nommé par l'Empereur Céleste, transmette l'Ombrelle Brûlante du Royaume... C'est... C'est tout simplement terrifiant... »
+« Si c'est le second cas, cet homme est intouchable! Le fait que la Secte Dong Lin et la Secte Shi Jie lui aient cédé ces sorts est déjà prodigieux. Mais faire en sorte que Song Yun Dao de la Secte San Dao, nommé par l'Empereur Céleste, transmette l'Ombrelle Brûlante du Royaume... C'est... C'est tout simplement terrifiant... »
 
 « Quel genre de lignée peut permettre cela... » Du Qing songea à quelque chose, et son visage devint encore plus pâle.
 

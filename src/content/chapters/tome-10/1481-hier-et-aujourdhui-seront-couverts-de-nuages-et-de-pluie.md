@@ -94,7 +94,7 @@ Il devait se rendre en quatre lieux pour accomplir quatre tâches à Luotian! Il
 
 Quelques heures après le départ de Wang Lin, une équipe de plusieurs dizaines de cultivateurs volait vers la planète Qing Ling, menée par un homme d'âge moyen vêtu d'une robe de tonnerre.
 
-Ils appartenaient au Temple Céleste du Tonnerre. Ils avaient reçu l'ordre de trouver des planètes répondant aux critères de leur Ancêtre afin de former la légendaire Formation des Sept Calamités Stellaires!
+Ils appartenaient au Temple Lei Xian. Ils avaient reçu l'ordre de trouver des planètes répondant aux critères de leur Ancêtre afin de former la légendaire Formation des Sept Calamités Stellaires!
 
 Qing Ling remplissait les conditions. Après avoir reçu l'ordre de déplacer la planète par la force, ils étaient prêts à agir. Cependant, lorsqu'ils se trouvèrent à 30 millions de kilomètres de Qing Ling, ils ressentirent une énergie d'épée monstrueuse, qui se répandait comme la pluie.
 

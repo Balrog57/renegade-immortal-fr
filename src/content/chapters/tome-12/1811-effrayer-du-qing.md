@@ -104,7 +104,7 @@ Dès l'apparition de cette empreinte, le monde changea de couleur et elle fondit
 
 En voyant cette paume, l'expression de Du Qing se décomposa!
 
-« La grande empreinte de la Secte Mondiale, l'Empreinte de l'Esprit Guerrier!! Vous êtes un membre de la Secte Mondiale du Continent Hun Yun! »
+« La grande empreinte de la Secte Shi Jie, l'Empreinte de l'Esprit Guerrier!! Vous êtes un membre de la Secte Shi Jie du Continent Hun Yun! »
 
 À ces mots, Wang Lin eut soudain une idée. Tandis que l'Empreinte de l'Esprit Guerrier descendait, il forma un autre sceau et pointa à nouveau vers les cieux.
 
@@ -112,7 +112,7 @@ Une lumière aux sept couleurs se rassembla instantanément devant lui, envelopp
 
 À l'apparition de la lance, les pupilles de Du Qing se contractèrent, remplies d'horreur. Il cessa sa charge et recula précipitamment de plusieurs pas.
 
-« Le sort aux Sept Couleurs de la Secte Dong Lin, vous... vous êtes... Êtes-vous un membre de la Secte Mondiale ou un disciple de la Secte Dong Lin?! »
+« Le sort aux Sept Couleurs de la Secte Dong Lin, vous... vous êtes... Êtes-vous un membre de la Secte Shi Jie ou un disciple de la Secte Dong Lin?! »
 
 « Qu'en pensez-vous... » Après avoir utilisé deux sorts différents, Wang Lin leva la main droite et des millions de restrictions s'envolèrent vers le ciel. Le monde changea de teinte alors qu'un immense parapluie antique apparut soudainement sous les yeux de Du Qing.
 

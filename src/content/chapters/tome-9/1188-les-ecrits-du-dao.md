@@ -62,7 +62,7 @@ En regardant devant lui, Wang Lin sentait distinctement que Cang Songzi se trouv
 
 Cang Songzi portait l'armure démoniaque et faisait preuve d'une prudence extrême. Il devait surveiller chacun de ses pas au sein du brouillard. La vieille femme en vert l'accompagnait, entourée d'un gaz noir. Le silence régnait, seul le bruit de leurs pas venait troubler le calme.
 
-« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes; il doit avoir fait une belle récolte, surtout avec cette Sceau d'Asservissement des Esprits. C'est l'un des grands sorts de la Secte Divine. » Cang Songzi avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
+« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes; il doit avoir fait une belle récolte, surtout avec cette Sceau d'Asservissement des Esprits. C'est l'un des grands sorts de la Secte Shen. » Cang Songzi avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
 
 « Pang Decai doit être en route... » Les yeux de Cang Songzi brillèrent d'une lueur indéchiffrable.
 

@@ -92,7 +92,7 @@ Des grondements tonitruants retentirent alors que la mouche, ivre de rage, se fr
 
 Tenant cette âme, Wang Lin ferma les yeux et son niveau de culture continua de s'élever. Alors que sa culture atteignait la Grande Perfection de la Tribulation du Vide, elle continua de progresser! Il injecta toute sa puissance dans l'âme, forçant les yeux de l'Empereur Céleste à s'ouvrir pour libérer une lumière dorée éblouissante. Toutefois, ces yeux étaient dépourvus de conscience et n'exprimaient que la confusion. Wang Lin agita la main et projeta l'âme dans le soleil de Grand Empyréen derrière lui.
 
-Une tête floue était dissimulée à l'intérieur de ce soleil gigantesque: c'était la tête de l'Ancêtre Céleste, que Wang Lin avait récupérée au Palais Dao Antique pour l'intégrer au soleil.
+Une tête floue était dissimulée à l'intérieur de ce soleil gigantesque: c'était la tête de l'Ancêtre Céleste, que Wang Lin avait récupérée au Palais Dao Gu pour l'intégrer au soleil.
 
 Au moment où l'âme de l'Empereur Céleste rejoignit le soleil et la tête de l'Ancêtre Céleste, le soleil s'étendit à nouveau, atteignant cent fois sa taille originale!
 

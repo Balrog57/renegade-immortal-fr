@@ -44,7 +44,7 @@ Ce n'était pas qu'il ne souhaitait pas partir, mais durant ces trois années, l
 
 Il y a plus de deux ans, alors que Wang Lin examinait Richesse, l'aspiration du gouffre s'était soudainement intensifiée violemment. Désormais, la moitié de la fissure était affectée par cette force.
 
-Le sort du gardien céleste lui offrait initialement soixante pour cent de chances de s'échapper, mais avec l'augmentation brutale de l'aspiration, cette probabilité était tombée immédiatement à vingt pour cent...
+Le sort du garde céleste lui offrait initialement soixante pour cent de chances de s'échapper, mais avec l'augmentation brutale de l'aspiration, cette probabilité était tombée immédiatement à vingt pour cent...
 
 Wang Lin ne perdit pas espoir et attendit calmement les deux années suivantes.
 

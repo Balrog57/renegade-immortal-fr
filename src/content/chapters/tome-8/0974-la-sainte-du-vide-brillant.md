@@ -36,7 +36,7 @@ Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de Suza
 
 L'expression de Wang Lin resta calme: « Le Saint de l'Épée est trop aimable. Puisqu'il en est ainsi, je suivrai les conseils du Saint de l'Épée. »
 
-Ling Tianhou rit et tendit la main. « Camarade cultivateur Wang, suis ce vieil homme vers la planète Da Luo. Une fois que l'Abîme Chao Xi s'ouvrira, nous irons à la grotte céleste! »
+Ling Tianhou rit et tendit la main. « Daoïste Wang, suis ce vieil homme vers la planète Da Luo. Une fois que l'Abîme Chao Xi s'ouvrira, nous irons à la grotte céleste! »
 
 Wang Lin sourit et hocha la tête. « Je vous prie de me guider! »
 
@@ -64,7 +64,7 @@ C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin réalisa que 
 
 « Cette planète provient d'une planète illusoire qui brûle éternellement dans le domaine du Kun Xu. Cette planète illusoire était immense, plus de mille fois plus grande que la planète Tian Yun! » La voix de Ling Tianhou était calme, mais empreinte d'une pointe de fierté.
 
-« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par le Vénérable Xu Ling de la Secte Kun Xu. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
+« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par le Estimé Xu Ling de la Secte Kun Xu. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
 
 « Kun Xu! » L'expression de Wang Lin changea. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Qing Shui. Il semblait que le Système Stellaire de l'Alliance s'appelait autrefois le Système Stellaire du Kun Xu.
 

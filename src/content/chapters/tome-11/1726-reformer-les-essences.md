@@ -14,7 +14,7 @@ Il semblait que rien n'eût d'importance aux yeux de la Bête des Limbes. Elle �
 
 De même, cette pression provenait de Wang Lin, assis sur le dos de la Bête des Limbes. Bien qu'il restât immobile et silencieux, l'aura qu'il dégageait était celle d'un dieu céleste!
 
-Wang Lin possédait la lignée du Dao Ancien. Cette lignée était assez noble pour rivaliser avec celle du Fou. Bien qu'il fût encore un habitant du monde des grottes, sa lignée lui permettait de regarder de haut la plupart des êtres, même sur le Continent Xian Gang!
+Wang Lin possédait la lignée du Dao Gu. Cette lignée était assez noble pour rivaliser avec celle du Fou. Bien qu'il fût encore un habitant du monde des grottes, sa lignée lui permettait de regarder de haut la plupart des êtres, même sur le Continent Xian Gang!
 
 La Bête des Limbes se déplaçait en silence. Plus précisément, elle ne bougeait pas du tout; c'était le monde qui se mouvait. Elle pouvait atteindre n'importe quel lieu en un instant, car tout ici lui appartenait!
 
@@ -42,11 +42,11 @@ Cette bouchée de sang était d'un rouge vif et flottait devant lui, suivant le 
 
 Sous ce geste, le sang s'anima avec encore plus de rapidité. Il se dilata promptement pour prendre la forme d'un être humain, bien qu'il conservât l'apparence d'une silhouette faite de sang.
 
-« Mon sang contient la puissance du Dao Ancien, et pour créer cet avatar, je dois en extraire cette puissance. Ce n'est pas difficile! » Les yeux de Wang Lin s'illuminèrent, et les étoiles des trois clans apparurent entre ses sourcils ainsi que dans son regard. Elles se mirent à pivoter, créant une force d'aspiration. Le corps de sang commença à se distordre alors que des volutes de fumée étaient arrachées et absorbées par les étoiles de Wang Lin.
+« Mon sang contient la puissance du Dao Gu, et pour créer cet avatar, je dois en extraire cette puissance. Ce n'est pas difficile! » Les yeux de Wang Lin s'illuminèrent, et les étoiles des trois clans apparurent entre ses sourcils ainsi que dans son regard. Elles se mirent à pivoter, créant une force d'aspiration. Le corps de sang commença à se distordre alors que des volutes de fumée étaient arrachées et absorbées par les étoiles de Wang Lin.
 
-Le processus fut extrêmement rapide. En environ le temps de brûler un bâton d'encens, toute l'aura du Dao Ancien fut extraite. Le corps de sang ne possédait plus aucune trace de cette aura.
+Le processus fut extrêmement rapide. En environ le temps de brûler un bâton d'encens, toute l'aura du Dao Gu fut extraite. Le corps de sang ne possédait plus aucune trace de cette aura.
 
-À mesure que la puissance du Dao Ancien s'échappait, le corps de sang brilla intensément. Lentement, la teinte rouge changea et bientôt, un avatar ressemblant trait pour trait à Wang Lin apparut!
+À mesure que la puissance du Dao Gu s'échappait, le corps de sang brilla intensément. Lentement, la teinte rouge changea et bientôt, un avatar ressemblant trait pour trait à Wang Lin apparut!
 
 Cet avatar était tel un nouveau-né. Bien qu'il ait l'apparence d'un adulte, il n'avait pas d'âme; ce n'était qu'un corps.
 

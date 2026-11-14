@@ -122,7 +122,7 @@ Mu Bingmei répondit doucement: « Je vous en prie, entrez. »
 
 Une femme vêtue d'une robe jaune pénétra dans la grotte. Elle avait une apparence très délicate et, bien qu'elle ne fût pas aussi belle que Mu Bingmei, elle n'en serait pas moins gracieuse si elles se tenaient côte à côte.
 
-La femme regarda Mu Bingmei et s'excusa: « Après avoir reçu le jade, Maître comptait venir personnellement, mais un imprévu est survenu, c'est pourquoi la Jeune Sœur est venue chercher la Grande Sœur pour la ramener à la Secte Divine. Je ne me suis pas présentée, je m'appelle Wang Shanshan. »
+La femme regarda Mu Bingmei et s'excusa: « Après avoir reçu le jade, Maître comptait venir personnellement, mais un imprévu est survenu, c'est pourquoi la Jeune Sœur est venue chercher la Grande Sœur pour la ramener à la Secte Shen. Je ne me suis pas présentée, je m'appelle Wang Shanshan. »
 
 « Un nom en Wang... » Une lueur de solitude passa dans les yeux de Mu Bingmei lorsqu'elle hocha la tête et répondit doucement: « Je vous remercie de votre aide, Petite Sœur Shanshan. »
 
@@ -130,6 +130,6 @@ Cette femme nommée Wang Shanshan était très féminine. Après avoir sorti que
 
 Un soupçon d'amertume marqua le sourire de Mu Bingmei, qui resta silencieuse.
 
-« Grande Sœur Mu, la grande compétition des sectes de rang 8 de mon Système Stellaire de la Mer Yun approchera bientôt. Puisque cela se situe sur la route de la Secte Divine, nous devrions y aller ensemble. La Jeune Sœur sort rarement, et je n'ai pas envie de rentrer si tôt. »
+« Grande Sœur Mu, la grande compétition des sectes de rang 8 de mon Système Stellaire de la Mer Yun approchera bientôt. Puisque cela se situe sur la route de la Secte Shen, nous devrions y aller ensemble. La Jeune Sœur sort rarement, et je n'ai pas envie de rentrer si tôt. »
 
 Mu Bingmei regarda la femme devant elle et acquiesça d'un signe de tête.

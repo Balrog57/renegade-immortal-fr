@@ -38,7 +38,7 @@ Maître Lu Fu n'était pas le seul au sein de ce vortex planétaire. Quatre Anci
 
 Si Wang Lin avait été là, il les aurait tous reconnus!
 
-Maître Yan Leizi du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao, Xue Shenzi, qui avait traqué Wang Lin avant d'être arrêté par Qing Shui, puis s'était remis de ses graves blessures dans l'Alliance!
+Maître Yan Leizi du Temple Lei Xian; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao, Xue Shenzi, qui avait traqué Wang Lin avant d'être arrêté par Qing Shui, puis s'était remis de ses graves blessures dans l'Alliance!
 
 Outre ces trois-là, le dernier était Xiang Yundong!
 

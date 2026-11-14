@@ -8,7 +8,7 @@ slug: xi-zifeng
 ---
 Wang Lin observa attentivement la place du lac de tonnerre avant de détourner le regard.
 
-Sous la conduite du vieil homme, ils se dirigèrent droit vers le flanc est du Temple Céleste du Tonnerre. De loin, Wang Lin aperçut un palais bien plus vaste que les autres. Il ressemblait à une bête géante immobile, et une pression écrasante en émanait avant même qu'il ne s'en approche.
+Sous la conduite du vieil homme, ils se dirigèrent droit vers le flanc est du Temple Lei Xian. De loin, Wang Lin aperçut un palais bien plus vaste que les autres. Il ressemblait à une bête géante immobile, et une pression écrasante en émanait avant même qu'il ne s'en approche.
 
 À quelques kilomètres de la salle, le vieil homme s'arrêta et sourit. « Cher cultivateur Xu, le Seigneur du Temple n'a convoqué que vous; je ne peux donc pas vous accompagner. Vous pourrez entrer sans difficulté par vous-même! »
 
@@ -52,19 +52,19 @@ Il n'y avait plus personne. Il était évident que tous avaient été conduits v
 
 Wang Lin hocha la tête.
 
-« Je suis Chen Shan et, sur ordre du Messager, je devais attendre le Senior. Voici votre jeton pour cette compétition céleste. Quant à votre résidence, toutes les informations s'y trouvent. » L'expression de Chen Shan était empreinte de respect lorsqu'elle tendit à Wang Lin un jeton de la taille d'une paume. Elle hésita alors, le visage empourpré, et ajouta doucement: « Si le Senior a besoin d'un fourneau de culture pour cultiver à deux, il peut appeler le Junior à l'aide du jeton. Le Temple Céleste du Tonnerre est disposé à offrir tout le soutien nécessaire aux participants de ce concours. »
+« Je suis Chen Shan et, sur ordre du Messager, je devais attendre le Senior. Voici votre jeton pour cette compétition céleste. Quant à votre résidence, toutes les informations s'y trouvent. » L'expression de Chen Shan était empreinte de respect lorsqu'elle tendit à Wang Lin un jeton de la taille d'une paume. Elle hésita alors, le visage empourpré, et ajouta doucement: « Si le Senior a besoin d'un fourneau de culture pour cultiver à deux, il peut appeler le Junior à l'aide du jeton. Le Temple Lei Xian est disposé à offrir tout le soutien nécessaire aux participants de ce concours. »
 
 Une fois sa phrase achevée, son visage devint encore plus rouge; elle s'inclina et se retira. Sa silhouette était des plus séduisantes et, en partant, elle laissa entrevoir avec subtilité le charme qui émanait de ses formes sous sa robe.
 
-Wang Lin prit le jeton et l'examina avec son sens divin. L'objet ressemblait à une pièce de jade contenant une carte simplifiée du Temple Céleste du Tonnerre ainsi qu'un réseau de transfert inactif. Après avoir localisé sa demeure, Wang Lin s'y rendit sans tarder.
+Wang Lin prit le jeton et l'examina avec son sens divin. L'objet ressemblait à une pièce de jade contenant une carte simplifiée du Temple Lei Xian ainsi qu'un réseau de transfert inactif. Après avoir localisé sa demeure, Wang Lin s'y rendit sans tarder.
 
 Trois jours passèrent en un clin d'œil. Durant cette période, Wang Lin cultiva les yeux fermés afin de maintenir son état au sommet de sa forme.
 
-Le Temple Céleste du Tonnerre devint extrêmement animé à l'approche de midi le troisième jour. Les réseaux de transfert clignotaient sans interruption tandis que des groupes de cultivateurs arrivaient par vagues. Le public pour ce concours de titres célestes était immense. En premier lieu, il y avait les membres des familles de culture issues des planètes principales de chaque domaine; ils n'avaient le droit d'observer la scène que depuis la périphérie extérieure.
+Le Temple Lei Xian devint extrêmement animé à l'approche de midi le troisième jour. Les réseaux de transfert clignotaient sans interruption tandis que des groupes de cultivateurs arrivaient par vagues. Le public pour ce concours de titres célestes était immense. En premier lieu, il y avait les membres des familles de culture issues des planètes principales de chaque domaine; ils n'avaient le droit d'observer la scène que depuis la périphérie extérieure.
 
 Venaient ensuite les familles de culture situées au-dessus de celles des planètes principales, mais en dessous de lignées comme la famille Yao — des clans tels que les Shengong ou les Zhan. Après eux arrivèrent les quatre grandes familles détentrices d'héritages du Royaume Céleste.
 
-Enfin, apparurent les membres des deux familles ancestrales qui organisaient cette compétition aux côtés du Temple Céleste du Tonnerre. Bien que le nombre de spectateurs fût relativement restreint par rapport à l'importance de l'événement, ils s'élevaient tout de même à des dizaines de milliers. Le Temple Céleste du Tonnerre avait disposé de nombreuses plateformes flottantes pour permettre aux cultivateurs de s'installer.
+Enfin, apparurent les membres des deux familles ancestrales qui organisaient cette compétition aux côtés du Temple Lei Xian. Bien que le nombre de spectateurs fût relativement restreint par rapport à l'importance de l'événement, ils s'élevaient tout de même à des dizaines de milliers. Le Temple Lei Xian avait disposé de nombreuses plateformes flottantes pour permettre aux cultivateurs de s'installer.
 
 Le champ de bataille pour le titre céleste fut fixé sur la place du lac de tonnerre, une étendue de dix mille pieds de large!
 
@@ -78,7 +78,7 @@ Peu après, la famille Yao et les trois autres familles dotées d'héritages cé
 
 Lorsque les familles Shengong et Zhan arrivèrent, l'ancêtre des Shengong et Lie Yunzi s'installèrent successivement sur leurs tapis respectifs. Bientôt, divers ancêtres de différentes familles de culture arrivèrent et prirent place.
 
-À midi pile, les yeux de Maître Yan Leizi s'illuminèrent. Il déclara d'une voix calme: « Que la bataille pour les 108 titres célestes du Système Stellaire de Luotian commence! » Sa voix se mua en d'innombrables coups de tonnerre qui résonnèrent à travers tout le Temple Céleste du Tonnerre. Une multitude de réseaux de transfert apparurent dans le ciel; ils étaient tous de taille identique et, un à un, des cultivateurs en émergèrent.
+À midi pile, les yeux de Maître Yan Leizi s'illuminèrent. Il déclara d'une voix calme: « Que la bataille pour les 108 titres célestes du Système Stellaire de Luotian commence! » Sa voix se mua en d'innombrables coups de tonnerre qui résonnèrent à travers tout le Temple Lei Xian. Une multitude de réseaux de transfert apparurent dans le ciel; ils étaient tous de taille identique et, un à un, des cultivateurs en émergèrent.
 
 Wang Lin faisait partie des participants!
 
@@ -92,7 +92,7 @@ Depuis son retour du Royaume Céleste du Tonnerre, l'image de Wang Lin était re
 
 Xi Zifeng était d'une beauté remarquable et en avait pleine conscience. De nombreux élites de diverses familles lui avaient déclaré leur flamme. Même au sein de son propre clan, son cousin exceptionnel, Xi Zimo, lui avait témoigné son admiration. Pourtant, elle restait totalement indifférente à tout cela et n'avait jamais envisagé la culture en couple. Son seul rêve était d'imiter son ancêtre et de devenir une cultivatrice dont la puissance pourrait percer les cieux!
 
-Cependant, tout cela avait basculé lors de sa rencontre avec Wang Lin. Elle-même en était confuse. Le choc que son cœur avait ressenti lorsque Wang Lin avait mené des centaines de cultivateurs dans une charge fulgurante vers le réseau de transfert du Temple Céleste du Tonnerre, au cri de « Dégagez le passage! », était un souvenir indélébile.
+Cependant, tout cela avait basculé lors de sa rencontre avec Wang Lin. Elle-même en était confuse. Le choc que son cœur avait ressenti lorsque Wang Lin avait mené des centaines de cultivateurs dans une charge fulgurante vers le réseau de transfert du Temple Lei Xian, au cri de « Dégagez le passage! », était un souvenir indélébile.
 
 Au début, Xi Zifeng pensait que le temps l'aiderait à oublier. Mais en le revoyant, elle se mordit la lèvre jusqu'au sang sans même s'en rendre compte. Elle fixait cette silhouette qu'elle brûlait de connaître, et qui lui semblait pourtant si étrangère.
 

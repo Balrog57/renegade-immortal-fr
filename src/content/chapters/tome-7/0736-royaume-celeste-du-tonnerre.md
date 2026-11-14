@@ -44,7 +44,7 @@ Quant à cet éclair rouge sombre, il aurait été formé par les âmes de tous 
 
 À ce moment-là, plusieurs personnes étaient déjà assises en position du lotus sous cet éclair rouge sombre. Shengong Hu comptait parmi elles.
 
-Outre les messagers du Temple Céleste du Tonnerre, on trouvait quelques rares cultivateurs solitaires du Système Stellaire de Luotian. Dans un système où les familles tenaient lieu de sectes, les solitaires étaient peu nombreux. Sans un niveau de culture terrifiant pour se protéger, la survie était bien difficile.
+Outre les messagers du Temple Lei Xian, on trouvait quelques rares cultivateurs solitaires du Système Stellaire de Luotian. Dans un système où les familles tenaient lieu de sectes, les solitaires étaient peu nombreux. Sans un niveau de culture terrifiant pour se protéger, la survie était bien difficile.
 
 Presque chaque cultivateur solitaire était une existence puissante.
 
@@ -60,9 +60,9 @@ L'expression de Shengong Hu resta imperturbable. Il regarda froidement l'homme a
 
 Les yeux de l'homme nommé Tang devinrent glacials et il esquissa un sourire lugubre. « Je voudrais bien voir quelles ambitions animent ces aigles et ces cygnes sauvages! »
 
-Shengong Hu ne répondit plus. Durant ces vingt années, il avait subi une immense pression, venant tant de sa famille que du Temple Céleste du Tonnerre. Tout cela parce qu'il avait prêté allégeance à Wang Lin!
+Shengong Hu ne répondit plus. Durant ces vingt années, il avait subi une immense pression, venant tant de sa famille que du Temple Lei Xian. Tout cela parce qu'il avait prêté allégeance à Wang Lin!
 
-Au sein de sa famille, on l'avait réprimandé pour sa décision irréfléchie. Bien qu'il fût messager du Temple Céleste du Tonnerre, il ne pouvait rien faire contre les anciens de son clan. Quant au Temple, ils n'acceptaient pas qu'un messager se lie à un tiers. Sans le dire explicitement, Shengong Hu sentait que le Temple l'écartait.
+Au sein de sa famille, on l'avait réprimandé pour sa décision irréfléchie. Bien qu'il fût messager du Temple Lei Xian, il ne pouvait rien faire contre les anciens de son clan. Quant au Temple, ils n'acceptaient pas qu'un messager se lie à un tiers. Sans le dire explicitement, Shengong Hu sentait que le Temple l'écartait.
 
 Par exemple, avec son talent, il n'aurait pas dû être ici. Il aurait dû rejoindre la majorité des autres messagers et entrer dans le Royaume Céleste par une autre voie. Bien qu'il ne fût pas le seul messager présent, ces personnes ne pouvaient en aucun cas l'égaler en termes de statut.
 
@@ -70,7 +70,7 @@ En y pensant, Shengong Hu n'éprouvait aucun regret; il ressentait au contraire 
 
 « Même le Grand Ancien de la famille est bloqué au stade du Nirvana Purificateur, il est donc inutile de parler de la légendaire troisième étape... Quelles qualifications ont-ils pour me guider?! » Les yeux de Shengong Hu brillaient d'un éclat vif.
 
-Tang Yanfeng ricana. Ce Shengong Hu avait été le premier de leur génération à devenir messager du Temple Céleste du Tonnerre. Cependant, par un seul faux pas, il se retrouvait dans une telle situation.
+Tang Yanfeng ricana. Ce Shengong Hu avait été le premier de leur génération à devenir messager du Temple Lei Xian. Cependant, par un seul faux pas, il se retrouvait dans une telle situation.
 
 À cet instant, une lumière vive apparut soudainement au loin. Un instant plus tard, un grondement tonitruant s'approcha comme une tempête.
 

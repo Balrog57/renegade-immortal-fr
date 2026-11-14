@@ -40,9 +40,9 @@ Un tonnerre violent résonna dans les cieux. Tandis que le doigt géant descenda
 
 Wang Lin se tenait au milieu de la vallée et contemplait le doigt descendant lentement du ciel avec une expression sombre. Il pouvait clairement ressentir l'aura émanant de cette attaque: c'était Tian Yunzi!
 
-« Quel genre de sort est-ce là?! » Wang Lin serra le Yang extrême dans sa main. Au moment où l'objet entra en contact avec lui, il sentit la perle défiant le ciel, située à l'intérieur de son âme d'origine, trembler.
+« Quel genre de sort est-ce là?! » Wang Lin serra le Yang extrême dans sa main. Au moment où l'objet entra en contact avec lui, il sentit la Perle Défiant le Ciel, située à l'intérieur de son âme d'origine, trembler.
 
-Sans avoir le temps de réfléchir aux changements subis par la perle défiant le ciel, Wang Lin rangea le Yang extrême dans son sac et fixa le doigt géant qui descendait des cieux.
+Sans avoir le temps de réfléchir aux changements subis par la Perle Défiant le Ciel, Wang Lin rangea le Yang extrême dans son sac et fixa le doigt géant qui descendait des cieux.
 
 Ce doigt était colossal. Il dégageait une lueur aux sept couleurs et faisait trembler sans cesse le ciel et la terre. Des fissures se creusèrent dans l'espace à mesure qu'il s'approchait de Wang Lin. Une pression inimaginable tomba du ciel pour converger autour de lui.
 

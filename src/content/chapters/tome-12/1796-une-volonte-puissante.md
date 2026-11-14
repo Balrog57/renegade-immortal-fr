@@ -56,11 +56,11 @@ Xuan Luo contempla le pavillon de la Secte Qi Dao dissimulé dans la brume et s'
 
 « Il reste moins de quatre ans. Disciple, ton Enseignant a fait tout ce qu'il pouvait... Désormais, tout dépendra de toi... » Xuan Luo ferma lentement les yeux, et entre ses sourcils jaillit une lueur rouge. Cette lumière servait de guide pour que Wang Lin ne s'égare pas.
 
-Dans le vide séparant les mondes des grottes du Continent Xian Gang, le visage de Wang Lin était d'une pâleur mortelle. Les deux mains formant des sceaux, il faisait circuler son Pouvoir de Dao Antique dans tout son corps pour résister à la pression démente qui l'assaillait de toutes parts.
+Dans le vide séparant les mondes des grottes du Continent Xian Gang, le visage de Wang Lin était d'une pâleur mortelle. Les deux mains formant des sceaux, il faisait circuler son Pouvoir de Dao Gu dans tout son corps pour résister à la pression démente qui l'assaillait de toutes parts.
 
 Cette pression était déjà d'une puissance indescriptible; sans la bête moustique qui continuait d'avancer, Wang Lin aurait déjà succombé. Même le roi moustique se déplaçait beaucoup plus lentement et peinait sous la charge. Parfois, il laissait échapper un hurlement silencieux.
 
-Les yeux de Wang Lin étaient injectés de sang. Les essences de son corps étaient épuisées et ratatinées, sans possibilité de les régénérer. La seule façon de résister aux lois du Continent Xian Gang était d'utiliser son corps de Dao Antique.
+Les yeux de Wang Lin étaient injectés de sang. Les essences de son corps étaient épuisées et ratatinées, sans possibilité de les régénérer. La seule façon de résister aux lois du Continent Xian Gang était d'utiliser son corps de Dao Gu.
 
 Cela faisait plus d'un an qu'il n'avait pas vu de cadavre. Il semblait extrêmement rare que quelqu'un parvienne aussi loin.
 
@@ -84,7 +84,7 @@ Le roi moustique trembla et poussa un rugissement. Ce cri résonna à travers le
 
 Wang Lin sourit. Malgré l'atroce douleur, il était profondément heureux. Il secoua la tête et se redressa lentement. Ce geste simple lui demandait un effort surhumain.
 
-Dès qu'il se leva, ses yeux brillèrent d'une lueur disparue depuis longtemps. Des craquements résonnèrent dans son corps et son Pouvoir de Dao Antique éclata pleinement, lui octroyant temporairement la force de bouger par lui-même.
+Dès qu'il se leva, ses yeux brillèrent d'une lueur disparue depuis longtemps. Des craquements résonnèrent dans son corps et son Pouvoir de Dao Gu éclata pleinement, lui octroyant temporairement la force de bouger par lui-même.
 
 Sa main droite traça un sceau et il ne laissa aucune chance au roi moustique de s'y opposer. Sa paume se posa sur le crâne de la bête. Dès que le mouvement du moustique fut entravé, Wang Lin bondit et s'élança.
 

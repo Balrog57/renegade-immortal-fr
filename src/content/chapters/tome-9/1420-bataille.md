@@ -18,7 +18,7 @@ Les cultivateurs de la troisième étape étaient invincibles!
 
 Tous les autres n'étaient que des fourmis devant eux!
 
-Même si Maître Simo avait été humilié par le vieux Suzaku, la réalité était qu'ailleurs, que ce soit dans le Royaume Extérieur ou le Royaume Intérieur, il lui suffirait de frapper du pied pour déclencher une catastrophe majeure!
+Même si Maître Si Mo avait été humilié par le vieux Suzaku, la réalité était qu'ailleurs, que ce soit dans le Royaume Extérieur ou le Royaume Intérieur, il lui suffirait de frapper du pied pour déclencher une catastrophe majeure!
 
 Bien qu’il ne fût qu'au stade initial du Vide du Nirvana, il demeurait un dieu pour les cultivateurs de la deuxième étape!
 
@@ -32,7 +32,7 @@ Pourtant, à cet instant, des paroles incroyables qui stupéfièrent tous les sp
 
 « Je ne suis pas si sûr. Bien que sa culture ne puisse rivaliser avec celle d'un maître de la troisième étape, le choc des épreuves a porté son élan à son apogée. S'il ne se bat pas maintenant, il gaspillerait cette opportunité! »
 
-« Hmph, un cultivateur de la troisième étape n'est pas à la portée de gens comme nous. Je parie que Maître Simo n'aura besoin que d'un seul sort pour enseigner à ce troisième Jeune Empereur les conséquences de son arrogance! »
+« Hmph, un cultivateur de la troisième étape n'est pas à la portée de gens comme nous. Je parie que Maître Si Mo n'aura besoin que d'un seul sort pour enseigner à ce troisième Jeune Empereur les conséquences de son arrogance! »
 
 « J'admire le troisième Jeune Empereur pour son audace. Qu'il réussisse ou non importe peu; combien parmi vous oseraient agir ainsi? Vous parlez tous avec dédain, mais qui d'entre vous oserait s'avancer pour le défier comme lui? »
 
@@ -40,37 +40,37 @@ Au début, les dizaines de milliers de cultivateurs murmuraient dans le dos de W
 
 Les paroles de Wang Lin, et plus particulièrement son ultime commandement — « Viens » — témoignaient d'une confiance absolue!
 
-La Grande Maîtresse Yun Luo était également sous le choc. Elle n'aurait jamais imaginé que Wang Lin oserait défier Maître Simo. À cet instant, l'homme devant elle se transformait rapidement en une figure terrifiante. Elle avait l'impression d'être en transe, incapable de distinguer l'homme devant elle de la silhouette terrifiante de sa vision.
+La Grande Maîtresse Yun Luo était également sous le choc. Elle n'aurait jamais imaginé que Wang Lin oserait défier Maître Si Mo. À cet instant, l'homme devant elle se transformait rapidement en une figure terrifiante. Elle avait l'impression d'être en transe, incapable de distinguer l'homme devant elle de la silhouette terrifiante de sa vision.
 
 Le vieux Suzaku afficha un sourire suffisant. C’était précisément ce qu’il attendait: il voulait que son cadet accomplisse ce que tout le monde jugeait impossible!
 
-« Bien que les cultivateurs de la troisième étape soient puissants, je n'ai pas infligé ces quelques gifles pour rien! » lança le vieux Suzaku en regardant Maître Simo.
+« Bien que les cultivateurs de la troisième étape soient puissants, je n'ai pas infligé ces quelques gifles pour rien! » lança le vieux Suzaku en regardant Maître Si Mo.
 
-Maître Simo fixa Wang Lin, et son regard devint soudainement limpide. Il n'y avait ni joie ni tristesse dans ses yeux, seulement une froideur qui envahit tout son être. À cet instant, il semblait être une personne totalement différente. Une majesté écrasante émana de lui, faisant vaciller la réalité elle-même.
+Maître Si Mo fixa Wang Lin, et son regard devint soudainement limpide. Il n'y avait ni joie ni tristesse dans ses yeux, seulement une froideur qui envahit tout son être. À cet instant, il semblait être une personne totalement différente. Une majesté écrasante émana de lui, faisant vaciller la réalité elle-même.
 
 Tandis que le monde se distordait, d'innombrables âmes illusoires parurent surgir. Chaque âme affichait une expression de douleur, et des gémissements silencieux résonnèrent à travers la Planète du Grand Empereur.
 
-« Tu penses pouvoir défier un cultivateur de la troisième étape simplement parce que tu as vaincu mon avatar? Puisque tu brûles d'envie de mourir, ce vieil homme exaucera ton souhait! » Maître Simo resta calme. Il fit un pas en avant et se projeta vers Wang Lin tel un rayon de lumière.
+« Tu penses pouvoir défier un cultivateur de la troisième étape simplement parce que tu as vaincu mon avatar? Puisque tu brûles d'envie de mourir, ce vieil homme exaucera ton souhait! » Maître Si Mo resta calme. Il fit un pas en avant et se projeta vers Wang Lin tel un rayon de lumière.
 
 Les cultivateurs environnants restèrent pétrifiés, le souffle coupé. Un sentiment d'excitation indescriptible commença à envahir leurs esprits.
 
 Un cultivateur de la troisième étape allait passer à l'action; une telle bataille était un événement unique dans une vie. Il était si rare d'assister à un tel spectacle qu'ils ne pouvaient s'empêcher d'être transportés par l'émotion.
 
-« Neuf Extinctions du Brise-Ciel! » La voix de Maître Simo, calme, tonna à travers le monde. En un éclair, il ne se trouva plus qu'à moins de mille pieds de Wang Lin. Sans la moindre intention meurtrière ni froideur dans le regard, il agita sa main droite.
+« Neuf Extinctions du Brise-Ciel! » La voix de Maître Si Mo, calme, tonna à travers le monde. En un éclair, il ne se trouva plus qu'à moins de mille pieds de Wang Lin. Sans la moindre intention meurtrière ni froideur dans le regard, il agita sa main droite.
 
 « Première Extinction: le Ciel! » D'un geste, le ciel gronda et d'innombrables fissures spatiales apparurent, comme si la voûte céleste était déchirée de force. Ces cicatrices monstrueuses foncèrent droit sur Wang Lin.
 
 Le firmament se tordit, engendrant encore plus de fractures spatiales.
 
-« Deuxième Extinction: la Terre! » proclama Maître Simo. La terre trembla et les cultivateurs alentour reculèrent avec effroi. Le sol autour de la tortue géante parut s'animer. Des montagnes perçant les cieux surgirent brusquement de la terre pour se ruer sur Wang Lin!
+« Deuxième Extinction: la Terre! » proclama Maître Si Mo. La terre trembla et les cultivateurs alentour reculèrent avec effroi. Le sol autour de la tortue géante parut s'animer. Des montagnes perçant les cieux surgirent brusquement de la terre pour se ruer sur Wang Lin!
 
 À cet instant, le ciel se déformait tandis que les fissures spatiales convergeaient vers lui, et la terre tremblait sous l'assaut de montagnes infinies.
 
-« Troisième Extinction: la Vie! » Une lueur traversa les yeux sereins de Maître Simo. Il agita sa main droite et une rafale de vent glacial jaillit du vide pour souffler vers Wang Lin!
+« Troisième Extinction: la Vie! » Une lueur traversa les yeux sereins de Maître Si Mo. Il agita sa main droite et une rafale de vent glacial jaillit du vide pour souffler vers Wang Lin!
 
 Ce vent froid ressemblait étrangement à l'Appel du Vent de Wang Lin; il possédait le pouvoir d'éteindre la flamme de la vie même!
 
-Tout cela se produisit en un battement de paupière. Dès le début de son assaut, Maître Simo utilisa son sort le plus puissant, avec l'intention de terrasser Wang Lin instantanément!
+Tout cela se produisit en un battement de paupière. Dès le début de son assaut, Maître Si Mo utilisa son sort le plus puissant, avec l'intention de terrasser Wang Lin instantanément!
 
 Les yeux de Wang Lin s'illuminèrent. Alors que les trois extinctions se refermaient sur lui, la tempête de feu éthéré tourbillonna violemment autour de lui!
 
@@ -88,31 +88,31 @@ Ces sept dragons jaillirent, dissipant la tempête de flammes! Wang Lin se tenai
 
 Les dizaines de milliers de cultivateurs qui avaient reculé étaient tous stupéfaits. L'image de Wang Lin restait gravée au plus profond de leur esprit; ils ne pourraient jamais l'oublier!
 
-« Quatrième Extinction, la Mort; Cinquième Extinction, le Temps; Sixième Extinction, le Vide; Septième Extinction, la Désolation; Huitième Extinction, la Réincarnation... Neuvième Extinction... Brise-Ciel! » L'expression de Maître Simo demeurait inchangée, dénuée de toute colère ou intention meurtrière. Son esprit restait serein; car face à quelqu'un maîtrisant le Feu Éthéré, la première règle est de garder l'esprit stable!
+« Quatrième Extinction, la Mort; Cinquième Extinction, le Temps; Sixième Extinction, le Vide; Septième Extinction, la Désolation; Huitième Extinction, la Réincarnation... Neuvième Extinction... Brise-Ciel! » L'expression de Maître Si Mo demeurait inchangée, dénuée de toute colère ou intention meurtrière. Son esprit restait serein; car face à quelqu'un maîtrisant le Feu Éthéré, la première règle est de garder l'esprit stable!
 
 Si son esprit vacillait, ses émotions fluctueraient, et son ennemi pourrait alors embraser le Feu Éthéré!
 
-À chaque mot prononcé, Maître Simo avançait d'un pas, progressant vers Wang Lin. Chaque incantation faisait surgir des illusions devant lui.
+À chaque mot prononcé, Maître Si Mo avançait d'un pas, progressant vers Wang Lin. Chaque incantation faisait surgir des illusions devant lui.
 
 La première fut un cimetière illusoire qui se répandit comme une brume, remplissant le monde de tombes et d'une aura de mort monstrueuse!
 
-Peu après, la puissance du temps forma une lueur sous les pieds de Maître Simo. C'était comme si le temps lui-même s'accélérait à chacun de ses pas.
+Peu après, la puissance du temps forma une lueur sous les pieds de Maître Si Mo. C'était comme si le temps lui-même s'accélérait à chacun de ses pas.
 
 Puis un vide indistinct l'enveloppa. Le tombeau sans fin et son corps furent drapés par ce néant, rendant sa silhouette floue pour les observateurs.
 
 Au cœur de ce trouble résidait une aura antique qui se mua en l'aura de la réincarnation. Il se rapprocha de Wang Lin, et en un instant, il ne fut plus qu'à cent pieds de lui. Lorsqu'il prononça les deux derniers mots, « Brise-Ciel », il n'était plus qu'à trente pieds du jeune homme. Il leva sa main droite et frappa avec une force implacable!
 
-« Neuf Extinctions du Brise-Ciel, Neuf Pas pour Éteindre le Ciel! » Le monde trembla. Au moment où la paume de Maître Simo descendit, toutes les illusions derrière lui s'effondrèrent en d'innombrables fragments. Ces débris se transformèrent en rivières de puissance qui affluèrent dans la paume droite du maître tandis qu'elle s'abattait!
+« Neuf Extinctions du Brise-Ciel, Neuf Pas pour Éteindre le Ciel! » Le monde trembla. Au moment où la paume de Maître Si Mo descendit, toutes les illusions derrière lui s'effondrèrent en d'innombrables fragments. Ces débris se transformèrent en rivières de puissance qui affluèrent dans la paume droite du maître tandis qu'elle s'abattait!
 
-Tout cela fut fulgurant. Les yeux de Wang Lin brillèrent; deux doigts de sa main droite se joignirent en forme d'épée et pointèrent soudainement vers l'avant. Les neuf dragons autour de lui poussèrent des rugissements avant de fusionner avec son doigt, qu'il tendit vers Maître Simo!
+Tout cela fut fulgurant. Les yeux de Wang Lin brillèrent; deux doigts de sa main droite se joignirent en forme d'épée et pointèrent soudainement vers l'avant. Les neuf dragons autour de lui poussèrent des rugissements avant de fusionner avec son doigt, qu'il tendit vers Maître Si Mo!
 
 De loin, le spectacle était époustouflant!
 
-La paume de Maître Simo possédait le pouvoir de briser les cieux. En empruntant l'élan des neuf extinctions et en y ajoutant sa culture de la troisième étape, cette attaque pouvait briser toute chose!
+La paume de Maître Si Mo possédait le pouvoir de briser les cieux. En empruntant l'élan des neuf extinctions et en y ajoutant sa culture de la troisième étape, cette attaque pouvait briser toute chose!
 
 Le doigt de Wang Lin semblait porter neuf têtes de dragons entrelacées; on aurait dit que ses propres membres étaient devenus le corps du dragon. Les neuf créatures rugissaient, enveloppées de flammes!
 
-En un éclair, le doigt de Wang Lin et la paume de Maître Simo entrèrent en collision. C'était l'affrontement entre la puissance du Brise-Ciel et le Feu Éthéré. Une collision de lois fondamentales!
+En un éclair, le doigt de Wang Lin et la paume de Maître Si Mo entrèrent en collision. C'était l'affrontement entre la puissance du Brise-Ciel et le Feu Éthéré. Une collision de lois fondamentales!
 
 *Boum, boum, boum, boum!*
 
@@ -122,8 +122,8 @@ Alors que le chaos résonnait, le corps de Wang Lin fut projeté en arrière. Il
 
 « Les cultivateurs de la troisième étape sont effectivement prodigieux! »
 
-La paume de Maître Simo trembla; il sentit le feu lui rebondir au visage. Son coup, censé briser les cieux, n'avait pu éteindre ces flammes. Le calme dans ses yeux se dissipa, laissant place à un instant de choc.
+La paume de Maître Si Mo trembla; il sentit le feu lui rebondir au visage. Son coup, censé briser les cieux, n'avait pu éteindre ces flammes. Le calme dans ses yeux se dissipa, laissant place à un instant de choc.
 
-Cependant, dès que cette infime trace d'étonnement apparut, les yeux de Wang Lin s'illuminèrent. Il pointa du doigt Maître Simo.
+Cependant, dès que cette infime trace d'étonnement apparut, les yeux de Wang Lin s'illuminèrent. Il pointa du doigt Maître Si Mo.
 
 « Feu Éthéré, lève-toi! »

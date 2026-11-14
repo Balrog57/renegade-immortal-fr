@@ -52,7 +52,7 @@ Ce n'était pas une prouesse qu'un simple sort céleste pouvait offrir. Très pe
 
 « La pluie vient des nuages et ces nuages viennent aussi de l'eau. Cependant, sans vent, le nuage ne peut se former! » Cet héritage venait de Qing Shui, et bien qu'il n'ait pas apporté de compréhension directe à Wang Lin, il lui avait donné une connaissance des lois. Pour cela, Wang Lin éprouvait une gratitude encore plus profonde envers Qing Shui.
 
-« Je ne pensais pas que Situ maîtrisait la loi à l'époque... » La scène où Situ Nan émergeait de la perle défiant le ciel revint dans l'esprit de Wang Lin. Il pleuvait lorsque Situ avait crié: « Dispersez-vous pour moi! »
+« Je ne pensais pas que Situ maîtrisait la loi à l'époque... » La scène où Situ Nan émergeait de la Perle Défiant le Ciel revint dans l'esprit de Wang Lin. Il pleuvait lorsque Situ avait crié: « Dispersez-vous pour moi! »
 
 À cet instant précis, la pluie s'était transformée en brume avant de disparaître rapidement. Tous les nuages du ciel s'étaient effondrés, révélant un ciel pur!
 
@@ -62,7 +62,7 @@ Ce n'était alors qu'une sensation vague. Après tout, le niveau de culture de W
 
 Mais avec le recul, Situ Nan maîtrisait manifestement la loi. En y réfléchissant, Wang Lin parvenait désormais à voir clair dans ses souvenirs.
 
-« Tout était donc ainsi... » Wang Lin songeait au moment où il avait obtenu la perle défiant le ciel pour la première fois, mille ans auparavant. Il y avait un nuage sur la perle!
+« Tout était donc ainsi... » Wang Lin songeait au moment où il avait obtenu la Perle Défiant le Ciel pour la première fois, mille ans auparavant. Il y avait un nuage sur la perle!
 
 Ce nuage devait absorber la vapeur d'eau du monde pour accroître la masse nuageuse. En y réfléchissant maintenant, Wang Lin comprit immédiatement et esquissa un sourire amer.
 
@@ -70,7 +70,7 @@ En vérité, quelque chose avait toujours existé autour de lui, mais à moins d
 
 À cet instant, Wang Lin comprit parfaitement.
 
-« Je comprends enfin la dimension liée à la loi de l'eau de la perle défiant le ciel après mille ans... Cette partie était la première étape révélée par la perle... Même maintenant, je ne l'ai pas pleinement maîtrisée, je n'ai fait que l'effleurer. » Wang Lin toucha l'espace entre ses sourcils, empreint d'émotion.
+« Je comprends enfin la dimension liée à la loi de l'eau de la Perle Défiant le Ciel après mille ans... Cette partie était la première étape révélée par la perle... Même maintenant, je ne l'ai pas pleinement maîtrisée, je n'ai fait que l'effleurer. » Wang Lin toucha l'espace entre ses sourcils, empreint d'émotion.
 
 Il regarda la pluie tomber du ciel et agita légèrement la main en murmurant: « Dispersez-vous! »
 

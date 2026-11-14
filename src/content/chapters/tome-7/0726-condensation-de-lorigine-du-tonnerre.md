@@ -22,7 +22,7 @@ Le regard de Wang Lin resta serein lorsqu'il déclara d'un ton calme: « Ce viei
 
 Les pensées confuses qui agitaient l'esprit de Shengong Hu s'évanouirent instantanément. Au moment même où Wang Lin parlait, il était parvenu à la même conclusion. Dans son esprit, seule une telle origine pouvait correspondre au statut de Wang Lin.
 
-« Senior, le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian n'est pas trop gravement endommagé. La limite de culture est le sommet du stade avancé de l'Ascendant. Cependant, le Temple Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
+« Senior, le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian n'est pas trop gravement endommagé. La limite de culture est le sommet du stade avancé de l'Ascendant. Cependant, le Temple Lei Xian dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
 
 Wang Lin hocha la tête et demanda quelques précisions supplémentaires. Ce Royaume Céleste du Tonnerre ressemblait à celui de la Pluie; après tout, il y avait des éons, les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de la Foudre étaient tous des passages vers l'ancien Royaume Céleste.
 

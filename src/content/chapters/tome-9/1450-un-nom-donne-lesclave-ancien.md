@@ -6,17 +6,17 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1450 - Given the Name Ancient Slave!"
 slug: un-nom-donne-lesclave-ancien
 ---
-L'estimé Ling Dong, qui gisait là, ouvrit soudain les yeux, révélant une expression hideuse. Il se redressa pour s'asseoir. Ses yeux sombres fixaient l'horizon et semblaient capables de percer le Fourneau Impérial pour voir Wang Lin en train de procéder au raffinage à l'extérieur. Cependant, il n'était plus qu'une lampe à huile vide.
+L'Estimé Ling Dong, qui gisait là, ouvrit soudain les yeux, révélant une expression hideuse. Il se redressa pour s'asseoir. Ses yeux sombres fixaient l'horizon et semblaient capables de percer le Fourneau Impérial pour voir Wang Lin en train de procéder au raffinage à l'extérieur. Cependant, il n'était plus qu'une lampe à huile vide.
 
 « Pour que ce vieil homme finisse dans un état aussi lamentable, tu ne peux pas être un inconnu. Qui es-tu? » Une voix rauque s'échappa de la gorge de Ling Dong, trahissant une haine monstrueuse.
 
 L'expression de Wang Lin resta calme; sa seule réponse fut d'injecter davantage de son pouvoir de Dieu Ancien dans le Fourneau Impérial. La puissance de raffinage du fourneau déferla, et des cris déchirants résonnèrent alors à l'intérieur.
 
-« Tu veux me raffiner? C'est impossible! Bien que ce vieil homme ait été gravement blessé par toi, j'ai cultivé pendant des dizaines de milliers d'années. Mon cœur de Dao est inébranlable, il t'est donc impossible de me raffiner! » ricana l'estimé Ling Dong. Voyant que Wang Lin ne répondait pas, il ferma les yeux pour entamer sa guérison.
+« Tu veux me raffiner? C'est impossible! Bien que ce vieil homme ait été gravement blessé par toi, j'ai cultivé pendant des dizaines de milliers d'années. Mon cœur de Dao est inébranlable, il t'est donc impossible de me raffiner! » ricana l'Estimé Ling Dong. Voyant que Wang Lin ne répondait pas, il ferma les yeux pour entamer sa guérison.
 
 Il en conclut que Wang Lin ne pourrait le raffiner en peu de temps. Dès qu'il aurait recouvré une partie de ses forces, il pourrait briser ce fourneau étrange et s'échapper. En effet, Wang Lin n'avait pas le niveau de culture nécessaire pour raffiner un cultivateur du troisième pas. Même avec le Fourneau Impérial, cela prendrait un temps dont il ne disposait pas dans la Tombe de l'Ordre Antique.
 
-« Pas moyen de te raffiner... vraiment? » Un soupçon de moquerie brilla dans les yeux de Wang Lin, puis il injecta une quantité encore plus massive de pouvoir de Dieu Ancien dans le Fourneau Impérial. De nouvelles âmes apparurent à l'intérieur du fourneau jusqu'à former une tempête. Tandis que la tempête d'âmes hurlait, elle se mua soudainement en une ombre gigantesque. C'était l'ombre d'un Dieu Ancien. Cette entité était extrêmement bizarre: elle était rouge et brandissait une hache monumentale. Elle leva son arme et s'abattit sur l'estimé Ling Dong.
+« Pas moyen de te raffiner... vraiment? » Un soupçon de moquerie brilla dans les yeux de Wang Lin, puis il injecta une quantité encore plus massive de pouvoir de Dieu Ancien dans le Fourneau Impérial. De nouvelles âmes apparurent à l'intérieur du fourneau jusqu'à former une tempête. Tandis que la tempête d'âmes hurlait, elle se mua soudainement en une ombre gigantesque. C'était l'ombre d'un Dieu Ancien. Cette entité était extrêmement bizarre: elle était rouge et brandissait une hache monumentale. Elle leva son arme et s'abattit sur l'Estimé Ling Dong.
 
 Les yeux de Wang Lin s'illuminèrent et il commença à psalmodier dans la langue des Dieux Anciens: « Fourneau Impérial, dix coups pour raffiner l'esclave! » Des empreintes illusoires apparurent et se fixèrent sur le Fourneau Impérial.
 
@@ -88,9 +88,9 @@ Chaque fois qu'il faisait face à un danger mortel, quelqu'un se faisant appeler
 
 Toutefois, bien qu'il fût lucide, la confusion persistait dans ses yeux.
 
-Dès qu'il retrouva la conscience dans le fourneau, les huit Dieux Anciens se superposèrent pour ne former qu'un neuvième Dieu Ancien. La dixième hache s'abattit alors vers l'estimé Ling Dong. À moins de cent pieds, il lutta contre la confusion et s'apprêta à résister.
+Dès qu'il retrouva la conscience dans le fourneau, les huit Dieux Anciens se superposèrent pour ne former qu'un neuvième Dieu Ancien. La dixième hache s'abattit alors vers l'Estimé Ling Dong. À moins de cent pieds, il lutta contre la confusion et s'apprêta à résister.
 
-Cependant, à ce moment précis, une voix glaciale résonna dans le Fourneau Impérial: « Es-tu Ling Dong ou l'Esclave Ancien... » L'estimé Ling Dong frémit. Une peur infinie envahit son regard et il rugit: « Qui diable es-tu?! »
+Cependant, à ce moment précis, une voix glaciale résonna dans le Fourneau Impérial: « Es-tu Ling Dong ou l'Esclave Ancien... » L'Estimé Ling Dong frémit. Une peur infinie envahit son regard et il rugit: « Qui diable es-tu?! »
 
 « Je suis Wang Lin! » Wang Lin était épuisé à l'extérieur du Fourneau Impérial. Sa voix résonna lentement dans le fourneau, se transformant en un tonnerre incessant dans l'esprit de Ling Dong. Il n'entendit que le nom « Wang Lin » au moment où la hache frappa son crâne. L'arme se mua en une empreinte circulaire sur son front... Puis ses yeux s'éteignirent et il s'effondra. La tempête d'âmes l'emporta.
 

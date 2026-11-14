@@ -115,4 +115,4 @@ Wang Lin réfléchit. Cela faisait longtemps qu'il n'était pas revenu; ce serai
 
 Après avoir observé Bai Wei, il ne trouva aucun sceau. Sa culture se situait véritablement au stade intermédiaire de la Transformation de l'Âme.
 
-« D'accord, nous nous retrouverons au pied du Mont Pourpre aujourd'hui à midi. »
+« D'accord, nous nous retrouverons au pied du Mont Zi aujourd'hui à midi. »

@@ -88,7 +88,7 @@ L'expression du vieil homme devint encore plus sombre.
 
 « Shengong Hu recommande Senior Xu Mu et affirme qu'il possède les qualifications pour participer! » Shengong Hu ne disait pas grand-chose, mais lorsqu'il prit la parole, ses yeux brillaient de détermination!
 
-L'Ancien de la famille Tang commença à ricaner. Juste au moment où il allait parler, une voix calme émanant de l'Ancien aux robes violettes du Temple Céleste du Tonnerre retentit:
+L'Ancien de la famille Tang commença à ricaner. Juste au moment où il allait parler, une voix calme émanant de l'Ancien aux robes violettes du Temple Lei Xian retentit:
 
 « Xu Mu a les qualifications! »
 
@@ -110,13 +110,13 @@ Puisque la famille Tang avait manifesté de l'hostilité envers lui, Wang Lin n'
 
 « Xu Mu! » L'Ancien de la famille Tang était furieux. Une trace de tristesse perçait dans ses yeux tandis qu'il fixait férocement Wang Lin. D'un bond, il chargea droit sur lui.
 
-L'expression de Wang Lin resta imperturbable alors qu'il levait sa main droite. À cet instant, un reniflement froid provint du messager aux robes violettes du Temple Céleste du Tonnerre. Le vieil homme ouvrit les yeux pour la première fois, révélant un regard glacial.
+L'expression de Wang Lin resta imperturbable alors qu'il levait sa main droite. À cet instant, un reniflement froid provint du messager aux robes violettes du Temple Lei Xian. Le vieil homme ouvrit les yeux pour la première fois, révélant un regard glacial.
 
 « Les combats privés sont interdits durant la compétition. Tang Shan, emmène les membres de ta famille et disparaissez d'ici! Une fois la compétition terminée, si vous souhaitez vous venger, apprenez de la famille Yao et réglez cela par vous-mêmes! »
 
 L'Ancien nommé Tang s'arrêta net. Après une courte réflexion, il lança un regard venimeux à Wang Lin avant de repartir précipitamment avec les siens.
 
-Le vieil homme aux robes violettes du Temple Céleste du Tonnerre observa Wang Lin. Ses yeux brillèrent et il demanda calmement: « Vous convoitez la première place parmi les 108 places du Domaine Sud? »
+Le vieil homme aux robes violettes du Temple Lei Xian observa Wang Lin. Ses yeux brillèrent et il demanda calmement: « Vous convoitez la première place parmi les 108 places du Domaine Sud? »
 
 Wang Lin regarda l'Ancien. Grâce à son niveau de culture actuel, il percevait vaguement de puissantes fluctuations d'énergie originelle émanant de lui. Wang Lin ne parvenait pas à percer le niveau de cet homme, mais comparé à Xue Zu, il était bien plus faible. Si cet Ancien n'était pas au stade Purificateur du Nirvana, il se situait au moins au stade avancé du Scruteur du Nirvana.
 

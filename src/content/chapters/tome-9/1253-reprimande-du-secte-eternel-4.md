@@ -1,6 +1,6 @@
 ---
 n: 1253
-title: Réprimande de la Secte Éternel (4)
+title: Réprimande de la Secte Wu Ji (4)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1253 - Rebuking the Everlasting Secte (4)
@@ -16,7 +16,7 @@ Le flot de larmes dans les yeux de Lu Yanfei redoubla d'intensité; deux ruissea
 
 Wang Lin avait traversé la Mer Yun en fendant ciel et terre, vêtu de tonnerre!
 
-À cet instant, non seulement ceux qui connaissaient Wang Lin furent ainsi affectés, mais tous les cultivateurs environnants, y compris les membres de la Secte Éternelle, furent frappés de stupeur.
+À cet instant, non seulement ceux qui connaissaient Wang Lin furent ainsi affectés, mais tous les cultivateurs environnants, y compris les membres de la Secte Wu Ji, furent frappés de stupeur.
 
 Feng Hai se leva brusquement, les pupilles rétractées alors qu'il fixait la silhouette blanche dans les airs. Il pouvait clairement ressentir que la force du ciel et de la terre qui imprégnait l'atmosphère n'était pas celle qu'un ordinaire briseur de Nirvana pouvait mouvoir. Une telle énergie ne pouvait être obtenue que par une compréhension profonde des lois, un attribut réservé à ceux ayant atteint la grande perfection du stade de briseur de Nirvana!
 
@@ -30,7 +30,7 @@ Le vieil homme qui avait conduit ses disciples dans le Domaine Luan Shou Wu éta
 
 Le vieil homme qui avait aperçu la silhouette de Wang Lin affichait une expression grave. Auparavant, il n'avait pas cru ce qu'on lui racontait, mais désormais, il était convaincu: cet homme possédait le pouvoir de balayer les régions de rang 6 et 7!
 
-Les yeux du Maître de la Secte Éternelle s'illuminèrent. Il était celui dont le niveau de culture était le plus élevé ici. Bien qu'il ne fût pas le plus puissant de la Secte Éternelle, il avait atteint le premier stade du Fléau Céleste!
+Les yeux du Maître de la Secte Wu Ji s'illuminèrent. Il était celui dont le niveau de culture était le plus élevé ici. Bien qu'il ne fût pas le plus puissant de la Secte Wu Ji, il avait atteint le premier stade du Fléau Céleste!
 
 C'est parce qu'il avait atteint cet état rare qu'il pouvait percevoir ce que nul autre ne voyait. Il fixa l'espace entre les sourcils de Wang Lin et, bien qu'il n'y eût rien de visible, il sentit distinctement la puissance d'une loi résider en ce point!
 
@@ -78,9 +78,9 @@ Wang Lin regarda la Lu Yanfei aux traits tirés d'un air désolé et dit douceme
 
 Lu Yanfei ne put plus retenir ses larmes; en regardant Wang Lin, elle secoua la tête. Un sourire radieux éclaira son visage alors qu'elle répondait doucement: « Tu n'es pas en retard. Tant que tu es là, il n'est jamais trop tard. »
 
-« Retourne d'où tu viens. Avec moi ici, personne ne pourra toucher à la Secte Gui Yuan! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte Gui Yuan soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei jusqu'aux côtés de la tribune de la Secte Éternelle.
+« Retourne d'où tu viens. Avec moi ici, personne ne pourra toucher à la Secte Gui Yuan! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte Gui Yuan soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei jusqu'aux côtés de la tribune de la Secte Wu Ji.
 
-Wang Lin tourna le regard vers la Secte Éternelle et joignit les mains à l'adresse du vieil homme qui avait pris la parole. Cependant, il fut surpris en apercevant Li Qianmei et… Mu Bingmei.
+Wang Lin tourna le regard vers la Secte Wu Ji et joignit les mains à l'adresse du vieil homme qui avait pris la parole. Cependant, il fut surpris en apercevant Li Qianmei et… Mu Bingmei.
 
 Il détourna le regard après un moment de choc pour observer Lu Yuncong, dont l'expression était complexe et teintée d'un sourire amer.
 
@@ -94,7 +94,7 @@ Lu Yuncong n'hésita pas et pointa la Secte Xian Yin: « Lu Yingjie de la Secte 
 
 Wang Lin hocha la tête et se tourna vers la Secte Xian Yin. Une lueur de froideur traversa son regard alors qu'il s'élançait dans les airs pour charger la secte adverse.
 
-Dans le secteur de la Secte Xian Yin, le visage de Lu Yingjie changea radicalement et il recula. Son maître et les anciens de la secte affichaient tous des visages graves. Son maître le saisit et, contre toute attente, ils s'enfuirent vers la tribune de la Secte Éternelle.
+Dans le secteur de la Secte Xian Yin, le visage de Lu Yingjie changea radicalement et il recula. Son maître et les anciens de la secte affichaient tous des visages graves. Son maître le saisit et, contre toute attente, ils s'enfuirent vers la tribune de la Secte Wu Ji.
 
 Le Maître de la Secte Xian Yin s'avança pour barrer la route à Wang Lin. Il arborait une expression respectueuse et s'apprêtait à donner des explications.
 
@@ -106,13 +106,13 @@ Wang Lin ne marqua aucune pause. Il marcha vers le vieil homme qui traînait Lu 
 
 Tous les cultivateurs sur les plateformes environnantes tombèrent dans un silence de mort!
 
-« Secte principale, aidez-nous! » Le front du maître de Lu Yingjie était couvert de sueur et ses yeux brillaient de terreur alors qu'il hurlait vers les membres de la Secte Éternelle.
+« Secte principale, aidez-nous! » Le front du maître de Lu Yingjie était couvert de sueur et ses yeux brillaient de terreur alors qu'il hurlait vers les membres de la Secte Wu Ji.
 
 Feng Hai hésita un instant avant de joindre les mains pour parler: « Daoïste Lu, je vous en prie… »
 
 Mais Wang Lin agita la main et l'interrompit brutalement!
 
-« Il a humilié ma Secte Gui Yuan, il doit donc mourir. Quiconque tentera de le sauver subira le même sort! » déclara lentement Wang Lin avant de lever sa main droite. Il était venu à la Secte Éternelle pour terrifier tout le monde, donner de l'élan à la Secte Gui Yuan et lui offrir l'échelle pour atteindre le ciel!
+« Il a humilié ma Secte Gui Yuan, il doit donc mourir. Quiconque tentera de le sauver subira le même sort! » déclara lentement Wang Lin avant de lever sa main droite. Il était venu à la Secte Wu Ji pour terrifier tout le monde, donner de l'élan à la Secte Gui Yuan et lui offrir l'échelle pour atteindre le ciel!
 
 À cet instant, d'un simple mouvement de doigt, le monde trembla et le Doigt du Destin Céleste apparut. Des ondulations résonnèrent dans le ciel alors qu'un doigt gigantesque se matérialisait, dégageant une pression monstrueuse. Tous les spectateurs retinrent leur souffle, pétrifiés devant ce doigt colossal qui semblait occuper tout l'espace!
 

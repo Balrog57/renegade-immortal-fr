@@ -6,19 +6,19 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 133 - Upheaval in Huo Fen (2)
 slug: troubles-a-hou-fen-2
 ---
-Une vague de chaleur se propagea rapidement dans la sphère de terre au moment où la boule de feu y pénétra avec fluidité. Cependant, au même instant précis, la perle défiant le ciel jaillit, forçant la boule de feu à s'interrompre pour rebrousser chemin sans l'ombre d'une hésitation.
+Une vague de chaleur se propagea rapidement dans la sphère de terre au moment où la boule de feu y pénétra avec fluidité. Cependant, au même instant précis, la Perle Défiant le Ciel jaillit, forçant la boule de feu à s'interrompre pour rebrousser chemin sans l'ombre d'une hésitation.
 
-Mais il était déjà trop tard. La perle défiant le ciel ignora tout obstacle sur son passage et percuta la boule de feu. Cette dernière poussa un cri et tenta de lutter, mais avant qu'elle n'ait pu manifester la moindre résistance, elle fut absorbée par la perle.
+Mais il était déjà trop tard. La Perle Défiant le Ciel ignora tout obstacle sur son passage et percuta la boule de feu. Cette dernière poussa un cri et tenta de lutter, mais avant qu'elle n'ait pu manifester la moindre résistance, elle fut absorbée par la perle.
 
-Les quelques feuilles gravées à l'origine à la surface de la perle défiant le ciel avaient disparu, remplacées par une sphère de feu. Bientôt, de nombreuses autres sphères de feu apparurent l'une après l'autre sur la perle.
+Les quelques feuilles gravées à l'origine à la surface de la Perle Défiant le Ciel avaient disparu, remplacées par une sphère de feu. Bientôt, de nombreuses autres sphères de feu apparurent l'une après l'autre sur la perle.
 
-La boule de feu devint de plus en plus terne jusqu'à se dissiper complètement. À cet instant, une dixième sphère apparut sur la perle défiant le ciel, émettant un éclat si vif qu'il était visible même depuis l'extérieur de la sphère de terre.
+La boule de feu devint de plus en plus terne jusqu'à se dissiper complètement. À cet instant, une dixième sphère apparut sur la Perle Défiant le Ciel, émettant un éclat si vif qu'il était visible même depuis l'extérieur de la sphère de terre.
 
 Avec la disparition de cette boule de feu, le cercle de flammes commença à faiblir et les filaments rouges qui reliaient l'anneau de feu à la sphère se rompirent.
 
 Wang Lin regarda ce qui venait de se passer, totalement stupéfait. Non seulement lui, mais toutes les bêtes de feu étaient également pétrifiées par la surprise. Elles restèrent immobiles dans la grotte, ne sachant plus quel comportement adopter.
 
-La perle défiant le ciel se dirigea rapidement vers Wang Lin et se rétracta dans son front. Wang Lin n'eut pas le temps d'examiner la perle; il mobilisa son corps pour activer sa technique d'attraction, soulevant la sphère de terre pour s'engouffrer dans l'un des tunnels.
+La Perle Défiant le Ciel se dirigea rapidement vers Wang Lin et se rétracta dans son front. Wang Lin n'eut pas le temps d'examiner la perle; il mobilisa son corps pour activer sa technique d'attraction, soulevant la sphère de terre pour s'engouffrer dans l'un des tunnels.
 
 Tout cela se produisit en un laps de temps extrêmement court. Ce n'est que lorsque la sphère de Wang Lin eut quitté les lieux que les bêtes de feu réalisèrent ce qui s'était passé. Les seize grandes bêtes de feu poussèrent des rugissements et déchirèrent le tunnel pour se lancer à la poursuite de Wang Lin.
 
@@ -28,7 +28,7 @@ Le corps de Wang Lin était prisonnier de la sphère de terre alors qu'il progre
 
 Les bêtes de feu, quant à elles, n'étaient nullement ralenties puisqu'elles étaient nées dans la lave. On pouvait dire qu'elles étaient des esprits du feu: plus la chaleur augmentait, plus elles gagnaient en célérité.
 
-Bien que Wang Lin ignorât la nature exacte de cette boule de feu, le simple fait qu'elle ait pu faire passer d'un coup l'attribut feu de la perle défiant le ciel de zéro à la perfection en disait déjà long. À en juger par le respect témoigné par les bêtes et leur fureur actuelle, cette sphère devait être d'une importance capitale pour elles. Il était fort probable qu'il s'agisse de leur roi.
+Bien que Wang Lin ignorât la nature exacte de cette boule de feu, le simple fait qu'elle ait pu faire passer d'un coup l'attribut feu de la Perle Défiant le Ciel de zéro à la perfection en disait déjà long. À en juger par le respect témoigné par les bêtes et leur fureur actuelle, cette sphère devait être d'une importance capitale pour elles. Il était fort probable qu'il s'agisse de leur roi.
 
 L'intuition de Wang Lin n'était pas erronée. Les bêtes de feu naissaient de la lave; on pouvait les décrire comme des esprits du feu occupant un rang très élevé dans la hiérarchie. Selon la dénomination commune de l'Alliance Xiu Zhen, elles étaient appelées « bêtes-esprits de feu ». Dès sa naissance, elle possédait une certaine intelligence. Elle avait cultivé avec application dans la lave sous Huo Fen, avalant et recrachant le magma à longueur de journée, et sa culture s'approfondissait de jour en jour.
 

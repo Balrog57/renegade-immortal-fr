@@ -1,6 +1,6 @@
 ---
 n: 1374
-title: Arrivée du Maître Simo
+title: Arrivée du Maître Si Mo
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1374 - Arrival of Master Simo
@@ -102,10 +102,10 @@ Wang Lin saisissait vaguement quelques indices, mais tout était trop confus pou
 
 « Ancien du Clan An Xie, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu! » Le vieil homme du Clan An Xie hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
 
-À cet instant, des ondulations apparurent dans l'espace à l'extérieur des Terres Déchues et un homme d'âge moyen en sortit. C'était celui qui poursuivait Wang Lin: Maître Simo. Ses yeux étaient sombres et une lueur étrange y brillait tandis qu'il scrutait le domaine stellaire non contrôlé par le Conseil Souverain.
+À cet instant, des ondulations apparurent dans l'espace à l'extérieur des Terres Déchues et un homme d'âge moyen en sortit. C'était celui qui poursuivait Wang Lin: Maître Si Mo. Ses yeux étaient sombres et une lueur étrange y brillait tandis qu'il scrutait le domaine stellaire non contrôlé par le Conseil Souverain.
 
 « Le Grand Maître Yun Luo a prédit qu'il se cachait dans les Terres Déchues... Cet endroit est extrêmement chaotique, je dois donc être prudent... Heureusement que je suis venu ici auparavant et que j'ai d'anciens liens avec le neuvième Ancien Déchu, le chef du Clan Long Jia. En empruntant l'identité du Clan Long Jia, je ne devrais rencontrer aucun problème! »
 
-Tout en réfléchissant, Maître Simo s'élança vers les Terres Déchues.
+Tout en réfléchissant, Maître Si Mo s'élança vers les Terres Déchues.
 
 « Je dois le trouver au plus vite, mort ou vif, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte Kong sans les Flammes d'Encens! »

@@ -1,6 +1,6 @@
 ---
 n: 652
-title: Affiner un Gardien Céleste
+title: Affiner un Garde Céleste
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 652 - Refining A Celestial Guard
@@ -48,13 +48,13 @@ Du Jian ferma soudainement les yeux. Le niveau de culture de Wang Lin était bie
 
 Du Jian prit une profonde inspiration, sentit son domaine déjà accompli et franchit l'ultime étape! Une énergie originelle du ciel et de la terre émergea progressivement du corps de Du Jian. Cette énergie devint de plus en plus puissante et finit par briser facilement le sceau que Wang Lin avait posé sur l'âme originelle de Du Jian.
 
-Les yeux de Wang Lin brillèrent tandis qu'il fixait Du Jian, plongé dans ses pensées. La raison pour laquelle il permettait à Du Jian d'atteindre le stade Ascendant était d'augmenter les chances de succès pour en faire un Gardien Céleste!
+Les yeux de Wang Lin brillèrent tandis qu'il fixait Du Jian, plongé dans ses pensées. La raison pour laquelle il permettait à Du Jian d'atteindre le stade Ascendant était d'augmenter les chances de succès pour en faire un Garde Céleste!
 
-Wang Lin n'avait pas oublié la description du Gardien Céleste inscrite sur le jade. En réalité, dès l'instant où il avait capturé Du Jian, il avait décidé de le raffiner pour en faire un gardien de basse qualité.
+Wang Lin n'avait pas oublié la description du Garde Céleste inscrite sur le jade. En réalité, dès l'instant où il avait capturé Du Jian, il avait décidé de le raffiner pour en faire un gardien de basse qualité.
 
 Bien que le taux de réussite fût infime, s'il réussissait, il obtiendrait un être comparable à un cultivateur du stade avancé de l'Ascendant à la grande perfection, à un demi-pas du stade Yin et Yang. C'était une perspective extrêmement tentante pour Wang Lin.
 
-Le jade mentionnait également certains sorts que seuls les Gardiens Célestes pouvaient utiliser. Lorsqu'ils étaient déployés, ces sortilèges étaient absolument prodigieux.
+Le jade mentionnait également certains sorts que seuls les Gardes Célestes pouvaient utiliser. Lorsqu'ils étaient déployés, ces sortilèges étaient absolument prodigieux.
 
 Si Du Jian ne l'avait pas provoqué, tout aurait été différent; Wang Lin ne l'aurait pas saisi pour le transformer en gardien. Cependant, cet homme avait manifesté une intention meurtrière envers lui et, de par son caractère, Wang Lin ne ferait pas preuve de clémence.
 
@@ -90,9 +90,9 @@ La voix de Wang Lin resta calme lorsqu'il déclara lentement: « Le rituel consi
 
 Le cœur de Du Jian bondit et il demanda amèrement: « Si ce rituel est si contraire au ciel, cela signifie que le taux d'échec est extrêmement élevé. Laissez tomber. Je ne veux poser qu'une question: puis-je conserver ma conscience? »
 
-Les yeux de Wang Lin se firent mystérieux: « Si vous êtes encore en vie après mille ans, je vous accorderai la liberté! » Il y avait une condition cruciale pour raffiner un Gardien Céleste. La moindre résistance de la part du sujet entraînerait l'échec immédiat du processus.
+Les yeux de Wang Lin se firent mystérieux: « Si vous êtes encore en vie après mille ans, je vous accorderai la liberté! » Il y avait une condition cruciale pour raffiner un Garde Céleste. La moindre résistance de la part du sujet entraînerait l'échec immédiat du processus.
 
-L'Empereur Céleste Qing Lin possédait de nombreux gardiens célestes. Cependant, tous ceux qu'il choisissait étaient des êtres d'une loyauté absolue envers lui. C'était le prix à payer pour une culture puissante, il n'avait donc jamais à s'en inquiéter.
+L'Empereur Céleste Qing Lin possédait de nombreux gardes célestes. Cependant, tous ceux qu'il choisissait étaient des êtres d'une loyauté absolue envers lui. C'était le prix à payer pour une culture puissante, il n'avait donc jamais à s'en inquiéter.
 
 À cet instant, Wang Lin utilisait la méthode même de l'empereur céleste.
 
@@ -104,22 +104,22 @@ Wang Lin ne perdit plus de temps. Sa main forma un sceau et il commença à exé
 
 Le corps de Du Jian trembla tandis qu'il fermait les yeux, devenant parfaitement immobile.
 
-Le regard de Wang Lin se fit sérieux. Le processus de création d'un Gardien Céleste était d'une complexité inouïe. La moindre erreur conduirait à l'échec.
+Le regard de Wang Lin se fit sérieux. Le processus de création d'un Garde Céleste était d'une complexité inouïe. La moindre erreur conduirait à l'échec.
 
 Même sans erreur, le taux de réussite demeurait faible. Mais Wang Lin n'avait pas d'autre option: il devait tenter le tout pour le tout!
 
-S'il était si déterminé à raffiner un Gardien Céleste, c'est parce que ce dernier pourrait posséder des sorts capables de lui offrir la chance de quitter cet endroit!
+S'il était si déterminé à raffiner un Garde Céleste, c'est parce que ce dernier pourrait posséder des sorts capables de lui offrir la chance de quitter cet endroit!
 
 « S'il échoue, je n'aurai d'autre choix que d'utiliser Yao Xixue pour réessayer! » Wang Lin cracha une bouffée d'énergie originelle qui se transforma en d'innombrables symboles avant de se poser sur Du Jian.
 
-La première étape de la création d'un Gardien Céleste consiste à raffiner le corps. Le raffiner jusqu'à ce qu'il ne puisse plus être endommagé par des trésors magiques ordinaires. En voyant cette étape, Wang Lin pensa aux anciens dieux.
+La première étape de la création d'un Garde Céleste consiste à raffiner le corps. Le raffiner jusqu'à ce qu'il ne puisse plus être endommagé par des trésors magiques ordinaires. En voyant cette étape, Wang Lin pensa aux anciens dieux.
 
 La deuxième étape consistait à transformer l'âme originelle: l'ouvrir et la réduire en fragments. Ensuite, il s'agissait de l'agrandir considérablement, quel qu'en soit le prix, avant de la réintégrer dans le corps. Le corps ne contiendrait plus d'esprit, mais l'esprit demeurerait dans l'intention.
 
 La troisième étape consistait à raffiner les organes. Faire flétrir tous les organes internes afin qu'ils ne soient plus nourris par l'énergie spirituelle céleste. Cela isolait le corps des cinq sens, lui permettant de ne plus ressentir la douleur.
 
-La dernière étape consistait à effacer la conscience divine tout en préservant l'intelligence. Cela faisait du Gardien Céleste un être sans émotion, mais capable de réfléchir. Il possédait un corps puissant, aucune émotion et aucune sensation de douleur. C'était une marionnette qui ne sourcillerait pas, même si on lui coupait la tête ou le mettait en pièces.
+La dernière étape consistait à effacer la conscience divine tout en préservant l'intelligence. Cela faisait du Garde Céleste un être sans émotion, mais capable de réfléchir. Il possédait un corps puissant, aucune émotion et aucune sensation de douleur. C'était une marionnette qui ne sourcillerait pas, même si on lui coupait la tête ou le mettait en pièces.
 
-C'était cela, un Gardien Céleste!
+C'était cela, un Garde Céleste!
 
 Un trésor magique humain, créé par l'Empereur Céleste Qing Lin, imitant les anciens dieux!

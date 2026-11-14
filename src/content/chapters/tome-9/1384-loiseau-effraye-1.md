@@ -10,13 +10,13 @@ Wang Lin traversa rapidement l'espace. Il avait quitté le Clan Long Jia après 
 
 Il y avait également de nombreux automates, dont le plus puissant atteignait le premier stade du Fléau Céleste. Tout cela constituait les économies du Clan Long Jia, et tout lui avait été remis par le nouveau patriarche.
 
-En volant, l'esprit de Wang Lin s'anima. Il était plongé dans ses pensées. Lors de son combat contre Maître Simo, l'énigmatique Grand Empereur était apparu soudainement pour finalement lui accorder le titre de Jeune Empereur.
+En volant, l'esprit de Wang Lin s'anima. Il était plongé dans ses pensées. Lors de son combat contre Maître Si Mo, l'énigmatique Grand Empereur était apparu soudainement pour finalement lui accorder le titre de Jeune Empereur.
 
 « Ce Grand Empereur a-t-il un lien avec les Quatre Sectes Divines... Si oui, qui est-il? Si non, pourquoi me traite-t-il ainsi... De plus, il s'est contenté de m'envoyer ce jade sans manifester l'intention de me rencontrer... Quelle est la signification de tout cela... » Wang Lin fronça les sourcils et accéléra sa course.
 
-« Au début, il n'avait mentionné que "cinq respirations", ce qui était dans mes prévisions. Après tout, notre combat était susceptible d'attirer son attention, et Maître Simo m'avait poursuivi jusqu'ici. Selon la loi de la Terre Déchue, il devait être puni et banni.
+« Au début, il n'avait mentionné que "cinq respirations", ce qui était dans mes prévisions. Après tout, notre combat était susceptible d'attirer son attention, et Maître Si Mo m'avait poursuivi jusqu'ici. Selon la loi de la Terre Déchue, il devait être puni et banni.
 
-Cependant, le Grand Empereur a tué l'avatar de Maître Simo. Il aurait suffi de l'expulser, mais un meurtre exprime une intention précise! Après tout, Maître Simo est un cultivateur du troisième pas. En tuant son avatar, le Grand Empereur a envoyé un message au Conseil Souverain!
+Cependant, le Grand Empereur a tué l'avatar de Maître Si Mo. Il aurait suffi de l'expulser, mais un meurtre exprime une intention précise! Après tout, Maître Si Mo est un cultivateur du troisième pas. En tuant son avatar, le Grand Empereur a envoyé un message au Conseil Souverain!
 
 Il est évident que le Grand Empereur a changé d'avis. Son plan initial était de rester simple observateur, mais il a fini par s'impliquer personnellement. Qu'est-ce qui a bien pu le faire changer d'idée... »
 

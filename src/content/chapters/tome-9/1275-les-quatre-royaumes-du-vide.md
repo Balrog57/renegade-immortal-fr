@@ -14,7 +14,7 @@ Son rêve était de créer le trésor le plus puissant du monde. Pour tuer même
 
 Son regret était resté gravé dans le jade, et finalement, il était tombé entre les mains de Wang Lin. Aujourd'hui, à cet instant précis, c'est entre les mains de Wang Lin que ce trésor révélait son pouvoir terrifiant capable de terrasser les dieux!
 
-Même si Shui Daozi avait vécu des dizaines de milliers d'années, même s'il était le serviteur du Seigneur du Royaume Scellé et l'Ancien en chef de la Secte Divine, il n'aurait pu connaître tout ce qui s'était passé dans les quatre Royaumes Célestes. Et encore moins un être céleste du nom de Duobao, ayant créé un trésor défiant le ciel, capable de menacer des cultivateurs du troisième niveau!
+Même si Shui Daozi avait vécu des dizaines de milliers d'années, même s'il était le serviteur du Seigneur du Royaume Scellé et l'Ancien en chef de la Secte Shen, il n'aurait pu connaître tout ce qui s'était passé dans les quatre Royaumes Célestes. Et encore moins un être céleste du nom de Duobao, ayant créé un trésor défiant le ciel, capable de menacer des cultivateurs du troisième niveau!
 
 « Ce n'est pas un Trésor du Vide du Nirvana. Il est impossible d'en déterminer le rang. Ceci... Quel genre de trésor est-ce là? » L'expression du garçon aux cheveux blancs changea. Il était venu pour tuer Wang Lin, et il en était absolument certain. La seule chose qui l'inquiétait était la Perle Défiant le Ciel. Il ne pensait pas que Wang Lin posséderait un trésor aussi terrifiant.
 

@@ -68,7 +68,7 @@ Le doigt du dieu antique devint plus terne, mais ne fut pas endommagé. Alors qu
 
 Le regard du Serpent aux yeux de lune devint glacial; il ouvrit la gueule et tous les petits serpents y retournèrent. Le grand Serpent aux yeux de lune avança lentement, ses innombrables tentacules oscillant, avant de disparaître parmi les étoiles.
 
-À cet instant, dans une pièce secrète du Temple Céleste du Tonnerre, trois personnes étaient assises. Une formation ancienne occupait la pièce, et les trois hommes siégeaient aux points clés de celle-ci.
+À cet instant, dans une pièce secrète du Temple Lei Xian, trois personnes étaient assises. Une formation ancienne occupait la pièce, et les trois hommes siégeaient aux points clés de celle-ci.
 
 Parmi eux se trouvait Maître Yan Leizi. Il ouvrit les yeux, affichant un air songeur. Simultanément, les deux autres ouvrirent également les yeux: le vieil homme en robe rouge et l'homme d'âge moyen en robe noire.
 

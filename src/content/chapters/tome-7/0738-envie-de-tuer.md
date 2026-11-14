@@ -66,7 +66,7 @@ Outre les jades célestes, le Royaume Céleste du Tonnerre recelait des pilules 
 
 À cela s'ajoutait une autre raison cruciale: à ce jour, huit corps d'êtres célestes parfaitement intacts avaient été découverts dans le Royaume Céleste du Tonnerre.
 
-Si l'on trouvait le reste d'un être céleste, même un simple indice, on pouvait le vendre au Temple Céleste du Tonnerre. Si les informations étaient exactes, les bénéfices étaient immenses.
+Si l'on trouvait le reste d'un être céleste, même un simple indice, on pouvait le vendre au Temple Lei Xian. Si les informations étaient exactes, les bénéfices étaient immenses.
 
 Si l'on parvenait à obtenir un corps d'être céleste par ses propres moyens pour le remettre au Temple, les gains personnels seraient inimaginables. Même pour la famille du découvreur, ce serait une récolte prodigieuse. De plus, si celui qui trouvait le corps possédait suffisamment de talent, il pourrait même devenir le disciple de l'un des dix grands Anciens. Dès lors, il s'élèverait au-dessus des autres et son avenir serait sans limites!
 

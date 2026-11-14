@@ -98,14 +98,14 @@ Pour être prêt à sacrifier deux messagers du stade intermédiaire de la Tribu
 
 Des grondements tonitruants résonnèrent et les yeux de Wang Lin brillèrent. Sa main droite s'élança vers le vide et l'armure élémentaire de terre humanoïde apparut. D'un geste, une lumière jaune terreuse enveloppa son corps.
 
-Aussitôt, Wang Lin libéra toute sa puissance et ne cacha plus son aura du Dao Antique. Une fois cette aura pleinement déployée, une silhouette gigantesque capable de soutenir le monde se matérialisa.
+Aussitôt, Wang Lin libéra toute sa puissance et ne cacha plus son aura du Dao Gu. Une fois cette aura pleinement déployée, une silhouette gigantesque capable de soutenir le monde se matérialisa.
 
-À l'instant où la figure apparut, elle fut visible par quiconque se trouvait dans un rayon de dizaines de milliers de kilomètres. Une ondulation nette de puissance du Dao Antique se propagea.
+À l'instant où la figure apparut, elle fut visible par quiconque se trouvait dans un rayon de dizaines de milliers de kilomètres. Une ondulation nette de puissance du Dao Gu se propagea.
 
-L'ombre du Dao Antique poussa un rugissement vers le ciel et protégea Wang Lin contre l'onde de choc des deux autodestructions.
+L'ombre du Dao Gu poussa un rugissement vers le ciel et protégea Wang Lin contre l'onde de choc des deux autodestructions.
 
-Un fracas de tonnerre retentit lorsque la force destructrice de la première explosion percuta l'ombre du Dao Antique. L'ombre trembla et montra des signes d'effondrement sous l'impact de la seconde explosion.
+Un fracas de tonnerre retentit lorsque la force destructrice de la première explosion percuta l'ombre du Dao Gu. L'ombre trembla et montra des signes d'effondrement sous l'impact de la seconde explosion.
 
-Le grondement fut apocalyptique, et l'ombre du Dao Antique, pourtant renforcée par la culture de Wang Lin au stade initial de la Tribulation du Vide, s'effondra soudainement!
+Le grondement fut apocalyptique, et l'ombre du Dao Gu, pourtant renforcée par la culture de Wang Lin au stade initial de la Tribulation du Vide, s'effondra soudainement!
 
 Alors que l'ombre se brisait, une partie de la force destructrice des deux explosions subsista et s'abattit sur la première couche de protection de Wang Lin: son armure élémentaire de terre humanoïde.

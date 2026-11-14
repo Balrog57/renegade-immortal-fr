@@ -88,7 +88,7 @@ Au moment où le vieil homme s'éleva, le tonnerre se rapprocha dans un fracas d
 
 « L'Empreinte de l'Esprit Guerrier! » Les pupilles de Wang Lin se rétractèrent brusquement!
 
-« Ce vieil homme est entré dans la Secte Divine et a appris ce sort. Aujourd'hui, je vais t'éliminer avec lui, et cela marquera l'achèvement d'un cycle! » Le vieillard n'était pas surpris que Wang Lin connaisse cette technique. Après tout, ce sort jouissait d'une renommée illustre dans la Mer Yun!
+« Ce vieil homme est entré dans la Secte Shen et a appris ce sort. Aujourd'hui, je vais t'éliminer avec lui, et cela marquera l'achèvement d'un cycle! » Le vieillard n'était pas surpris que Wang Lin connaisse cette technique. Après tout, ce sort jouissait d'une renommée illustre dans la Mer Yun!
 
 L'Empreinte de l'Esprit Guerrier créée par le vieil homme dégagea soudain une pression majestueuse en s'élançant. Elle entra en collision avec le tonnerre et provoqua un séisme qui ébranla les cieux!
 

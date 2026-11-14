@@ -94,7 +94,7 @@ Le grondement s'intensifia et la plateforme commença à bouger. Elle devint mal
 
 À l'intérieur de cette coquille, flottait une brume de sang. Cette brume absorba la lumière blanche et scintillait sans cesse. Finalement, une forme humaine se condensa lentement à l'intérieur; on pouvait distinguer que les traits de cette silhouette étaient ceux de Wang Lin!
 
-Alors que l'ombre se formait et devenait nette, après des décennies de sommeil, Wang Lin ouvrit lentement les yeux. Il sentait distinctement qu'une force émanait de quelque part pour infuser son sang et nourrir son corps. Le pouvoir du Dao Antique en lui se rétablit soudainement.
+Alors que l'ombre se formait et devenait nette, après des décennies de sommeil, Wang Lin ouvrit lentement les yeux. Il sentait distinctement qu'une force émanait de quelque part pour infuser son sang et nourrir son corps. Le pouvoir du Dao Gu en lui se rétablit soudainement.
 
 Simultanément, ses sept essences atteignirent leur apogée en un instant.
 

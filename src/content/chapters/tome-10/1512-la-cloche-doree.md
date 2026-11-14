@@ -120,10 +120,10 @@ L'immensité de cette formation qui enveloppait tout le Royaume Intérieur étai
 
 « Tout était donc vrai!! Les habitants du Système Stellaire Antique sont à l'extérieur de la Formation de Scellement du Royaume!! »
 
-Dans la vallée de la région de rang 1 de la Mer Yun, l'expression de Maître Hong Shan changea radicalement. Il fit un pas en avant, brisa le vide et chargea vers la Secte Divine!
+Dans la vallée de la région de rang 1 de la Mer Yun, l'expression de Maître Hong Shan changea radicalement. Il fit un pas en avant, brisa le vide et chargea vers la Secte Shen!
 
 « Damnation, c'est l'aura du Royaume Céleste Antique. Ce Shui Daozi possède réellement un tel objet!! »
 
 Dans le Système Stellaire de l'Alliance, un rugissement fracassant retentit du côté de la Secte Shi Yin.
 
-« Un objet du Royaume Céleste Antique!! Cet objet semble être celui qui a fusionné avec la formation de scellement; avant cette fusion, il était extrêmement fragile. Il ne doit surtout pas être détruit!! » Le fantôme d'un vieil homme apparut rapidement et chargea vers la Secte Divine!
+« Un objet du Royaume Céleste Antique!! Cet objet semble être celui qui a fusionné avec la formation de scellement; avant cette fusion, il était extrêmement fragile. Il ne doit surtout pas être détruit!! » Le fantôme d'un vieil homme apparut rapidement et chargea vers la Secte Shen!

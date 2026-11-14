@@ -88,7 +88,7 @@ Wang Lin recula encore plus vite, parcourant mille pieds en un instant. Le regar
 
 Sa charge fut semblable à une téléportation, lui permettant de rattraper directement Wang Lin, alors il hurla: « Confrère cultivateur Xu, pourquoi fuyez-vous ainsi!? »
 
-« Le récit du confrère Li est très séduisant, mais je crains que votre but ne soit pas de briser le sceau de la famille Li, mais bien de ressusciter la statue céleste! » Tandis que Wang Lin reculait, une ombre vacilla derrière lui. Le garde céleste surgit et lança un coup de poing vers Li Yuan!
+« Le récit du Daoïste Li est très séduisant, mais je crains que votre but ne soit pas de briser le sceau de la famille Li, mais bien de ressusciter la statue céleste! » Tandis que Wang Lin reculait, une ombre vacilla derrière lui. Le garde céleste surgit et lança un coup de poing vers Li Yuan!
 
 L'impact fut d'une violence inouïe, produisant un fracas assourdissant.
 

@@ -22,21 +22,21 @@ Cette aura possédait une puissance défiant les cieux. Si elle osait s’oppose
 
 Le corps de la Bête du Tonnerre grandit soudainement plusieurs fois. Les éclairs argentés qui parcouraient sa peau devinrent noirs!
 
-L'éclair noir charriait une aura destructrice alors qu'il jaillissait brusquement du corps de la bête. Celle-ci poussa un autre rugissement, s'élança vers le ciel et laissa échapper un langage bestial complexe. Ce cri fit trembler la Bête du Tonnerre issue du Temple Céleste du Tonnerre. Cette dernière sortit du fourneau et se coucha au sol en signe de soumission, n'osant lever les yeux. Auparavant, elle pensait que l'autre bête était seulement un peu plus forte qu'elle, et sa fierté l'avait poussée au combat.
+L'éclair noir charriait une aura destructrice alors qu'il jaillissait brusquement du corps de la bête. Celle-ci poussa un autre rugissement, s'élança vers le ciel et laissa échapper un langage bestial complexe. Ce cri fit trembler la Bête du Tonnerre issue du Temple Lei Xian. Cette dernière sortit du fourneau et se coucha au sol en signe de soumission, n'osant lever les yeux. Auparavant, elle pensait que l'autre bête était seulement un peu plus forte qu'elle, et sa fierté l'avait poussée au combat.
 
 Cependant, cette fois, une peur profonde émana de son âme. L'autre Bête du Tonnerre s'était soudainement transformée en son ancêtre, une force à laquelle elle ne pouvait rien opposer!
 
 Une fois le troisième sceau libéré, le corps de la Bête du Tonnerre fut recouvert d'éclairs. À cet instant, l'intensité atteignit son apogée et la foudre noire commença à se propager. Un orage noir s'étendit avec une fureur déchaînée.
 
-À ce moment précis, le corps du gardien céleste commença à émettre une lumière dorée. Cette lueur devint lentement rouge, puis orange, et la puissance qu'elle contenait s'intensifia encore davantage.
+À ce moment précis, le corps du garde céleste commença à émettre une lumière dorée. Cette lueur devint lentement rouge, puis orange, et la puissance qu'elle contenait s'intensifia encore davantage.
 
 Boum! L'orage de foudre recouvrit l'intégralité du fourneau; d'innombrables fissures apparurent soudainement et continuèrent de s'étendre.
 
-Boum! Le coup de poing du gardien céleste s'abattit sur le fourneau, provoquant de nouvelles fractures.
+Boum! Le coup de poing du garde céleste s'abattit sur le fourneau, provoquant de nouvelles fractures.
 
-La force colossale se propageait partout, tandis que l'énergie originelle de Lei Daozi affluait dans le fourneau comme une marée déchaînée. Il n'avait pas le temps de ressentir la douleur causée par l'épuisement de son énergie, car c'était la bataille la plus acharnée qu'il ait connue depuis qu'il était devenu un messager du Temple Céleste du Tonnerre. C'était une lutte entre la vie et la mort!
+La force colossale se propageait partout, tandis que l'énergie originelle de Lei Daozi affluait dans le fourneau comme une marée déchaînée. Il n'avait pas le temps de ressentir la douleur causée par l'épuisement de son énergie, car c'était la bataille la plus acharnée qu'il ait connue depuis qu'il était devenu un messager du Temple Lei Xian. C'était une lutte entre la vie et la mort!
 
-Cependant, la vitesse à laquelle son énergie originelle pénétrait le fourneau ne pouvait rivaliser avec la puissance combinée de la Bête du Tonnerre sous le troisième sceau et de la marionnette du gardien céleste. Face à cette crise, le regard de Wang Lin devint glacial. Il ne saisit pas sa grande épée, mais leva la main droite, deux doigts joints en forme d'épée, et frappa impitoyablement!
+Cependant, la vitesse à laquelle son énergie originelle pénétrait le fourneau ne pouvait rivaliser avec la puissance combinée de la Bête du Tonnerre sous le troisième sceau et de la marionnette du garde céleste. Face à cette crise, le regard de Wang Lin devint glacial. Il ne saisit pas sa grande épée, mais leva la main droite, deux doigts joints en forme d'épée, et frappa impitoyablement!
 
 « Coup Céleste! »
 
@@ -50,7 +50,7 @@ Son corps vacilla et le monde autour de lui retrouva son calme. Wang Lin prit un
 
 Le corps de Lei Daozi apparut dans les airs. Il cracha une large bouchée de sang et fit immédiatement demi-tour pour fuir. La terreur l'habitait. Il avait mené d'innombrables batailles, mais n'avait jamais rencontré une telle étrangeté. Bien que l'ennemi ne fût qu'un cultivateur Ascendant, les pouvoirs et sortilèges qu'il possédait lui glaçaient le sang; ces deux rayons d'énergie d'épée le faisaient regretter de ne pas pouvoir fuir plus vite!
 
-La marionnette du gardien céleste poursuivit rapidement Lei Daozi. La Bête du Tonnerre poussa un rugissement et suivit également de près le gardien. Ils disparurent progressivement à l'horizon...
+La marionnette du garde céleste poursuivit rapidement Lei Daozi. La Bête du Tonnerre poussa un rugissement et suivit également de près le gardien. Ils disparurent progressivement à l'horizon...
 
 Wang Ping demanda doucement: « Papa... Est-ce que ce qu'il a dit est vrai...? »
 

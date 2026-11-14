@@ -34,7 +34,7 @@ Le corps de Wang Lin trembla, puis il reprit conscience. Tout ce qui avait été
 
 Wang Lin murmura doucement: « Merci. » En partant, il ressentit un sentiment indescriptible au fond de son cœur.
 
-Il ne retourna pas au Temple Céleste du Tonnerre pour pénétrer dans la faille menant au Système Stellaire de l'Alliance. Au lieu de cela, il se fondit dans le monde et trouva la planète abandonnée la plus proche. Après s'être assuré qu'elle était sûre, il s'assit à l'intérieur d'une grotte qu'il avait creusée.
+Il ne retourna pas au Temple Lei Xian pour pénétrer dans la faille menant au Système Stellaire de l'Alliance. Au lieu de cela, il se fondit dans le monde et trouva la planète abandonnée la plus proche. Après s'être assuré qu'elle était sûre, il s'assit à l'intérieur d'une grotte qu'il avait creusée.
 
 Son Sens Divin s'étendit, et Ta Shan sortit pour s'asseoir et garder l'entrée de la grotte. Wang Lin frappa son sac de rangement, et la sphère de restriction contenant Li Muwan atterrit dans sa paume.
 
@@ -74,7 +74,7 @@ En quelques respirations à peine, le corps de Li Muwan se reconstitua sous ses 
 
 Pour ce seul regard, Wang Lin sentit que tout en valait la peine.
 
-Trois jours plus tard, Wang Lin quitta cette planète abandonnée avec Li Muwan et chargea vers le Temple Céleste du Tonnerre.
+Trois jours plus tard, Wang Lin quitta cette planète abandonnée avec Li Muwan et chargea vers le Temple Lei Xian.
 
 « Wan Er, rentrons à la maison! »
 
@@ -86,7 +86,7 @@ C'était comme si la fin du monde était arrivée. Ce qui était étrange, c'est
 
 Le camp Luotian était très suspicieux et ne parvenait pas à déterminer l'attitude de l'Alliance. Même Yan Leizi et ses compagnons étaient rongés par le doute.
 
-Si la même chose s'était produite dans le Système Stellaire de Luotian, le Temple Céleste du Tonnerre aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir!
+Si la même chose s'était produite dans le Système Stellaire de Luotian, le Temple Lei Xian aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir!
 
 Non seulement l'Alliance Xiu Zhen restait silencieuse, mais aucune planète de culture de rang 7 ou supérieur ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Luotian étaient de rang 6; et la moitié des planètes de rang 7 semblait avoir disparu : ils n'arrivaient pas à en trouver.
 

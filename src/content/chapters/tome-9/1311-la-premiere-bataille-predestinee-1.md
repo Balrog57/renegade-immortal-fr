@@ -44,11 +44,11 @@ Cependant, l'homme et la femme crachèrent du sang et reculèrent frénétiqueme
 
 « Ils sont enfin dispersés! » Tuo Sen était prêt à détruire une étoile entière pour les diviser. Maintenant qu'ils étaient isolés, il n'avait plus rien à craindre. Il fit un pas en avant avec un sourire carnassier. Son corps devint incroyablement colossal, provoquant un grondement sourd. Il arriva immédiatement aux côtés de l'homme au stade du Vide du Nirvana, tandis que les étoiles restantes entre ses sourcils tournèrent pour former un vortex projeté vers ce dernier!
 
-L'expression du vieil homme au stade du Vide Spirituel changea radicalement et il rugit promptement: « Si Mozi, reculez! » Des ondulations semblables à celles de l'eau apparurent dans l'espace autour de lui alors qu'il fonçait vers Si Mozi, lequel était encerclé par le vortex formé par les étoiles de l'Ancien Dieu.
+L'expression du vieil homme au stade du Vide Spirituel changea radicalement et il rugit promptement: « Si Mo, reculez! » Des ondulations semblables à celles de l'eau apparurent dans l'espace autour de lui alors qu'il fonçait vers Si Mo, lequel était encerclé par le vortex formé par les étoiles de l'Ancien Dieu.
 
-Si Mozi était un homme d'âge moyen dont les yeux brillaient. Au moment où les étoiles se refermèrent sur lui, sa main forma un sceau et il commença à murmurer: « Prisonnier du Dao du Ciel. Tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la prison profonde. Toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
+Si Mo était un homme d'âge moyen dont les yeux brillaient. Au moment où les étoiles se refermèrent sur lui, sa main forma un sceau et il commença à murmurer: « Prisonnier du Dao du Ciel. Tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la prison profonde. Toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
 
-Sa voix était étrange, et dès qu'il commença ses incantations, l'expression de Tuo Sen changea. Sa main droite forma un poing qu'il lança vers le vieil homme du Vide Spirituel qui approchait. Contre toute attente, Tuo Sen épargna Si Mozi, croisa le vieil homme pour s'élancer vers l'autre cultivateur du troisième niveau.
+Sa voix était étrange, et dès qu'il commença ses incantations, l'expression de Tuo Sen changea. Sa main droite forma un poing qu'il lança vers le vieil homme du Vide Spirituel qui approchait. Contre toute attente, Tuo Sen épargna Si Mo, croisa le vieil homme pour s'élancer vers l'autre cultivateur du troisième niveau.
 
 Il s'agissait d'une femme. Elle avait été blessée par l'onde de choc de l'étoile brisée de Tuo Sen. Alors qu'elle reculait, ses pupilles se rétractèrent en percevant l'arrivée imminente de l'adversaire.
 
@@ -58,7 +58,7 @@ Tout cela se produisit en un éclair. Après avoir emprisonné cette femme, Tuo 
 
 « Ce Dieu possède encore quelques étoiles qui n'ont pas été brisées. Je vous attends, venez donc me poursuivre tous les deux! » Bien que Tuo Sen fût parti, sa voix lugubre résonnait encore à travers les étoiles.
 
-Le vieil homme du Vide Spirituel regarda Si Mozi. Un étrange sourire apparut au coin de leurs lèvres, teinté d'une pointe d'envie. Puis, ils se transformèrent en deux rayons de lumière et s'éloignèrent rapidement.
+Le vieil homme du Vide Spirituel regarda Si Mo. Un étrange sourire apparut au coin de leurs lèvres, teinté d'une pointe d'envie. Puis, ils se transformèrent en deux rayons de lumière et s'éloignèrent rapidement.
 
 « Cette personne pourchassée par Tuo Sen dégageait également l'aura d'un Ancien Dieu. C'est aussi un Ancien Dieu royal... »
 
@@ -70,7 +70,7 @@ Le vieil homme du Vide Spirituel regarda Si Mozi. Un étrange sourire apparut au
 
 Alors qu'ils galopaient, ils envoyaient tous deux des messages par Sens Divin, mais avant que le vieil homme du Vide Spirituel n'ait pu achever sa phrase, son expression changea et il se tut.
 
-Si Mozi, à ses côtés, regarda également devant lui.
+Si Mo, à ses côtés, regarda également devant lui.
 
 Une femme apparut progressivement devant eux. Vêtue de blanc, elle avait une apparence vaporeuse. Elle s'avançait silencieusement, comme capable de franchir des distances infinies d'un seul pas.
 

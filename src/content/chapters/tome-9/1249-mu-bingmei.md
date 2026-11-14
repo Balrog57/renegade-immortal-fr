@@ -78,7 +78,7 @@ Dans la Secte Wu Ji de rang 8, la compétition régionale de rang 5 se déroulai
 
 Des grondements résonnèrent sur la plateforme, attirant l'attention de près de 100 000 cultivateurs environnants. Feng Hai et les autres membres de la Secte Wu Ji étaient assis dans la partie la plus intérieure des gradins. À ses côtés se trouvaient le vieil homme aux cheveux roux et quelques puissants cultivateurs de la Secte Wu Ji.
 
-Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple de la Secte Zi Dao qui combattait un disciple d'une autre secte de rang 5, tout en riant. « L’ascension de la Secte Zi Dao doit beaucoup à Lu Yuncong! Daoïste Wang, cette fois, la Secte Divine ne doit pas emmener Lu Yuncong. »
+Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple de la Secte Zi Dao qui combattait un disciple d'une autre secte de rang 5, tout en riant. « L’ascension de la Secte Zi Dao doit beaucoup à Lu Yuncong! Daoïste Wang, cette fois, la Secte Shen ne doit pas emmener Lu Yuncong. »
 
 Le vieil homme en blanc était gracieux et rayonnait de vitalité. Ses yeux brillaient à chaque mouvement de paupières. Son niveau de culture était élevé; il révélait sans hésitation l'aura d'un cultivateur Briseur du Nirvana.
 
@@ -90,7 +90,7 @@ Telle une fleur de lys s'épanouissant dans l'isolement ou une visiteuse venue d
 
 À ses côtés se trouvait une autre femme. Bien qu'elle fût moins éclatante, son visage doux et magnifique aurait charmé n'importe qui. Son sourire ressemblait à une fleur blanche épanouie capable d'enivrer les âmes.
 
-Cette femme souriait, le regard brillant. Sa voix était aussi mélodieuse qu'un chant d'oiseau lorsqu'elle rit: « Le Maître de la Secte est trop sérieux. Cette jeune fille a simplement mentionné que le Professeur avait déjà loué Lu Yuncong par le passé. Quant à savoir s'il sera accepté au sein de la Secte Divine ou non, ce n'est pas à moi de décider. »
+Cette femme souriait, le regard brillant. Sa voix était aussi mélodieuse qu'un chant d'oiseau lorsqu'elle rit: « Le Maître de la Secte est trop sérieux. Cette jeune fille a simplement mentionné que le Professeur avait déjà loué Lu Yuncong par le passé. Quant à savoir s'il sera accepté au sein de la Secte Shen ou non, ce n'est pas à moi de décider. »
 
 Le vieil homme en blanc sourit et ne revint pas sur le sujet, mais ils continuèrent de discuter. Il jetait parfois un regard vers la femme indifférente, sans parvenir à deviner son identité.
 

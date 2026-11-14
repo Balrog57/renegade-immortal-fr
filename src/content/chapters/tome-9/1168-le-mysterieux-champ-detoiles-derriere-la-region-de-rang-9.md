@@ -14,7 +14,7 @@ La taille de Peng Lai était bien plus vaste que celle de Mo Luo; elle était pl
 
 Dans la Mer Yun, les planètes de culture étaient très rares. Seules les sectes les plus puissantes pouvaient en posséder.
 
-Même la Secte Bao Yu n'était pas qualifiée pour occuper une planète de culture entière; il n'en avait obtenu que la moitié! S'il ne possédait qu'une fraction de cet astre, c'est parce qu'un ancêtre, il y a 20 000 ans, avait accompli de grands mérites et que la Secte Fantôme de rang 9 lui en avait fait don.
+Même la Secte Bao Yu n'était pas qualifiée pour occuper une planète de culture entière; il n'en avait obtenu que la moitié! S'il ne possédait qu'une fraction de cet astre, c'est parce qu'un ancêtre, il y a 20 000 ans, avait accompli de grands mérites et que la Secte Gui de rang 9 lui en avait fait don.
 
 Jusqu'à ce jour, aucun autre cultivateur de rang supérieur n'avait osé convoiter cette planète, permettant ainsi à la Secte Bao Yu de la conserver.
 
@@ -72,13 +72,13 @@ Wang Lin regarda Li Qianmei. Après une courte réflexion, il demanda d'une voix
 
 Sa question n'avait rien d'inapproprié. Dans la Mer Yun, la brume stellaire créait des barrières entre les cultivateurs, empêchant la diffusion large des informations. La région de rang 9, située bien au-delà, demeurait une existence énigmatique.
 
-Les archives de la Secte Gui Yuan n'offraient qu'une description sommaire de la région de rang 9, mentionnant seulement l'existence d'une Secte Divine. Wang Lin n'avait découvert l'existence de la Secte Po Tian qu'après avoir obtenu le jade et fouillé les souvenirs de la Vieille Poisonneuse. Après tout, une secte de rang 5 ne pouvait en savoir plus qu'une secte de rang 6.
+Les archives de la Secte Gui Yuan n'offraient qu'une description sommaire de la région de rang 9, mentionnant seulement l'existence d'une Secte Shen. Wang Lin n'avait découvert l'existence de la Secte Po Tian qu'après avoir obtenu le jade et fouillé les souvenirs de la Vieille Poisonneuse. Après tout, une secte de rang 5 ne pouvait en savoir plus qu'une secte de rang 6.
 
 Li Qianmei entendit Wang Lin et, après un instant de réflexion, lui répondit.
 
-« Il y a au total quatre sectes dans la région de rang 9: la Secte Divine, la Secte Fantôme, la Secte Yao et la Secte Po Tian. La Secte Po Tian, à laquelle j'appartiens, est la plus faible, tandis que la Secte Divine est la plus puissante! La Secte Fantôme est la plus mystérieuse! Quant à la Secte Yao... » Li Qianmei marqua une hésitation et murmura:
+« Il y a au total quatre sectes dans la région de rang 9: la Secte Shen, la Secte Gui, la Secte Yao et la Secte Po Tian. La Secte Po Tian, à laquelle j'appartiens, est la plus faible, tandis que la Secte Shen est la plus puissante! La Secte Gui est la plus mystérieuse! Quant à la Secte Yao... » Li Qianmei marqua une hésitation et murmura:
 
-« La Secte Yao est située dans la partie la plus profonde de la région de rang 9, et il est extrêmement difficile pour les cultivateurs d'y pénétrer. Toutes les bêtes féroces les plus puissantes s'y rassemblent. La Secte Yao ne se mêle presque pas des affaires du monde et rares sont ceux qui en sortent. Mon Maître disait qu'il existe là-bas des bêtes terrifiantes capables de prendre forme humaine... Cependant, avec la présence de la Secte Divine, la Secte Yao ne peut guère agir! »
+« La Secte Yao est située dans la partie la plus profonde de la région de rang 9, et il est extrêmement difficile pour les cultivateurs d'y pénétrer. Toutes les bêtes féroces les plus puissantes s'y rassemblent. La Secte Yao ne se mêle presque pas des affaires du monde et rares sont ceux qui en sortent. Mon Maître disait qu'il existe là-bas des bêtes terrifiantes capables de prendre forme humaine... Cependant, avec la présence de la Secte Shen, la Secte Yao ne peut guère agir! »
 
 « Oh? » L'expression de Wang Lin changea légèrement. « Des bêtes féroces capables de prendre forme humaine? »
 
@@ -86,17 +86,17 @@ Li Qianmei hocha la tête et répondit doucement: « Les bêtes féroces peuvent
 
 « Il existe des choses que vous et la grande majorité des cultivateurs ignorez. Même ma Secte Po Tian n'a découvert certains de ces secrets qu'après avoir pénétré dans la région de rang 9. »
 
-Le visage de Li Qianmei devint grave. Après un silence, elle murmura: « Il y a fort longtemps, il n'y avait qu'une seule secte dans la région de rang 9 de la Mer Yun. C'était la Secte Divine!
+Le visage de Li Qianmei devint grave. Après un silence, elle murmura: « Il y a fort longtemps, il n'y avait qu'une seule secte dans la région de rang 9 de la Mer Yun. C'était la Secte Shen!
 
-« Après que la Secte Divine eut régné sur la Mer Yun pendant d'innombrables années, la première invasion de bêtes féroces éclata. À cette époque, trois bêtes féroces avaient pris forme humaine. On disait qu'elles provenaient d'un autre système stellaire...
+« Après que la Secte Shen eut régné sur la Mer Yun pendant d'innombrables années, la première invasion de bêtes féroces éclata. À cette époque, trois bêtes féroces avaient pris forme humaine. On disait qu'elles provenaient d'un autre système stellaire...
 
-« Sans la Secte Divine, cette éruption se serait propagée à l'ensemble de la Mer Yun. Finalement, elle fut contenue par la Secte Divine, et peu d'étrangers connaissent cet événement. Cette guerre aurait causé d'immenses pertes. Après avoir réprimé les bêtes féroces, la Secte Divine envoya un groupe de disciples pour stationner dans les profondeurs de la région de rang 9. Il existe là-bas une fissure spatiale qui relie ce monde à un système stellaire mystérieux. Des créatures extrêmement puissantes en sont sorties. Afin d'empêcher leur propagation, des batailles y ont fait rage pendant des dizaines de milliers d'années. Et encore aujourd'hui, le combat continue.
+« Sans la Secte Shen, cette éruption se serait propagée à l'ensemble de la Mer Yun. Finalement, elle fut contenue par la Secte Shen, et peu d'étrangers connaissent cet événement. Cette guerre aurait causé d'immenses pertes. Après avoir réprimé les bêtes féroces, la Secte Shen envoya un groupe de disciples pour stationner dans les profondeurs de la région de rang 9. Il existe là-bas une fissure spatiale qui relie ce monde à un système stellaire mystérieux. Des créatures extrêmement puissantes en sont sorties. Afin d'empêcher leur propagation, des batailles y ont fait rage pendant des dizaines de milliers d'années. Et encore aujourd'hui, le combat continue.
 
-« Une partie de la Secte Divine a renoncé à sa liberté pour rester dans les profondeurs de la région de rang 9, agissant comme ultime ligne de défense. Cependant, avec le temps, ces disciples sont devenus indépendants et ont commencé à se faire appeler la Secte Yao. Ils ont cessé de recevoir les ordres de la Secte Divine, tout en continuant à défendre cette position contre les vagues d'attaques des bêtes féroces. »
+« Une partie de la Secte Shen a renoncé à sa liberté pour rester dans les profondeurs de la région de rang 9, agissant comme ultime ligne de défense. Cependant, avec le temps, ces disciples sont devenus indépendants et ont commencé à se faire appeler la Secte Yao. Ils ont cessé de recevoir les ordres de la Secte Shen, tout en continuant à défendre cette position contre les vagues d'attaques des bêtes féroces. »
 
 La voix de Li Qianmei était mélodieuse, mais le contenu de ses paroles était terrifiant. Le regard de Wang Lin se fit sérieux. Il n'aurait jamais imaginé que le Système Stellaire de la Mer Yun cachait un secret aussi vertigineux.
 
-« La Secte Divine s'en inquiétait. Elle craignait la Secte Yao et l'invasion des bêtes féroces. C'est pourquoi elle a d'abord favorisé l'ascension de la Secte Fantôme, experte en sorts de capture d'âmes, pour en faire une secte de rang 9. Ensuite, elle a élevé ma Secte Po Tian au rang 9 également. Tout cela afin de se préparer à une seconde éruption qui pourrait survenir à tout moment! » Après avoir fini, elle regarda Wang Lin et ajouta doucement:
+« La Secte Shen s'en inquiétait. Elle craignait la Secte Yao et l'invasion des bêtes féroces. C'est pourquoi elle a d'abord favorisé l'ascension de la Secte Gui, experte en sorts de capture d'âmes, pour en faire une secte de rang 9. Ensuite, elle a élevé ma Secte Po Tian au rang 9 également. Tout cela afin de se préparer à une seconde éruption qui pourrait survenir à tout moment! » Après avoir fini, elle regarda Wang Lin et ajouta doucement:
 
 « Cette affaire est d'une importance capitale. J'espère que le frère Lu ne la répétera pas. »
 

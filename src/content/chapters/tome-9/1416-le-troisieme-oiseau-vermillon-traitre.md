@@ -54,7 +54,7 @@ Les yeux de Lanmeng Daozun se rétrécirent tandis qu'il levait le regard. Aprè
 
 Il y avait aussi le vieil homme assis sur le lézard; ses yeux brillaient d'une lueur singulière. Sa bouche, scellée par une aiguille, tressaillit, puis il salua le Vieux Suzaku sans prononcer un mot. Sa main droite frappa le lézard qui s'élança dans un sifflement.
 
-La Grande Maîtresse Yun Luo et le Maître Simo échangèrent un regard. Elle joignit les mains, prête à parler, quand soudain de la fumée s'échappa de l'encens céleste.
+La Grande Maîtresse Yun Luo et le Maître Si Mo échangèrent un regard. Elle joignit les mains, prête à parler, quand soudain de la fumée s'échappa de l'encens céleste.
 
 « L'encens céleste s'est enflammé! »
 « Il a allumé le dernier bâton d'encens si vite! »
@@ -92,7 +92,7 @@ Témoin de cette scène, le Vieux Suzaku prit un air grave et son expression dev
 
 « L'Ancêtre de la première génération a-t-il perdu la raison pour utiliser la Flamme Infinie de Suzaku pour une épreuve?! Le but de l'Épreuve Céleste devrait être d'offrir une grande fortune; quel est le sens d'un tel comportement?! »
 
-Les yeux du Maître Simo s'illuminèrent d'une pointe de surprise. Il ne put s'empêcher de regarder la Grande Maîtresse Yun Luo. Elle mordit sa lèvre inférieure et plissa les yeux. Elle voulut tenter une divination, mais en se rappelant le regard de Wang Lin, son esprit vacilla et elle n'osa point essayer.
+Les yeux du Maître Si Mo s'illuminèrent d'une pointe de surprise. Il ne put s'empêcher de regarder la Grande Maîtresse Yun Luo. Elle mordit sa lèvre inférieure et plissa les yeux. Elle voulut tenter une divination, mais en se rappelant le regard de Wang Lin, son esprit vacilla et elle n'osa point essayer.
 
 Sixième respiration... septième... huitième... Sous l'encens céleste, du sang s'écoula de la bouche de Wang Lin et sa peau se flétrit, devenant sèche; même son sang commença à s'évaporer sous la chaleur émanant de son âme.
 

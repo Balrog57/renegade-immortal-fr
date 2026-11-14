@@ -44,7 +44,7 @@ Vingt-quatrième respiration!
 
 Vingt-cinquième respiration!
 
-Les cultivateurs environnants étaient tous frappés de stupeur. Maître Simo fronça les sourcils, une lueur d'hostilité sur le visage.
+Les cultivateurs environnants étaient tous frappés de stupeur. Maître Si Mo fronça les sourcils, une lueur d'hostilité sur le visage.
 
 La Grande Maîtresse Yun Luo forma des sceaux si rapidement que sa main laissait des images rémanentes, tout en fixant calmement Wang Lin.
 
@@ -76,7 +76,7 @@ Sous leurs yeux, le feu de l'encens descendit rapidement et dévora Wang Lin. L'
 
 « Peu importe si sa culture est monstrueuse, il a échoué à cette épreuve. Je veux voir comment le premier Jeune Empereur va le sauver. »
 
-Les cultivateurs environnants étaient en plein tumulte. Maître Simo prit une profonde inspiration et la joie apparut dans ses yeux. Cependant, sitôt apparue, cette joie s'évanouit pour laisser place à une noirceur sans fin.
+Les cultivateurs environnants étaient en plein tumulte. Maître Si Mo prit une profonde inspiration et la joie apparut dans ses yeux. Cependant, sitôt apparue, cette joie s'évanouit pour laisser place à une noirceur sans fin.
 
 La main droite de la Grande Maîtresse Yun Luo fut de nouveau ensanglantée alors qu'elle était interrompue une fois de plus. Cette fois, ce n'était pas une force étrange qui l'avait stoppée, mais deux regards indifférents émanant de l'encens en flammes!
 
@@ -118,6 +118,6 @@ Cette tempête tourbillonnait violemment, générant des rafales de vent impétu
 
 Le visage de la Grande Maîtresse Yun Luo était pâle et son esprit tremblait. À cet instant, si Wang Lin avait eu une perle et une aiguille flottant devant lui, il aurait ressemblé presque exactement à la figure qu'elle avait vue autrefois.
 
-Le corps de Wang Lin s'éleva au cœur de la tempête de Feu Éthéré. Il regarda vers le bas, passant au-dessus de Yun Luo pour fixer directement le sombre Maître Simo.
+Le corps de Wang Lin s'éleva au cœur de la tempête de Feu Éthéré. Il regarda vers le bas, passant au-dessus de Yun Luo pour fixer directement le sombre Maître Si Mo.
 
-« Maître Simo, ne vouliez-vous pas me tuer? Je vous en donne l'opportunité... Venez! » Wang Lin tendit la main droite et lança ce défi provocateur à Maître Simo.
+« Maître Si Mo, ne vouliez-vous pas me tuer? Je vous en donne l'opportunité... Venez! » Wang Lin tendit la main droite et lança ce défi provocateur à Maître Si Mo.

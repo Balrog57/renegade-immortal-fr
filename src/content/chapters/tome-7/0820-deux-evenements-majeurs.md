@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 820 - Two Big Events
 slug: deux-événements-majeurs
 ---
-Le Temple Céleste du Tonnerre avait émis un Décret de Luotian pour convoquer toutes les familles de cultivateurs afin qu'elles se rassemblent au Temple Céleste du Tonnerre pour pénétrer dans le Système Stellaire de l'Alliance une fois le passage ouvert!
+Le Temple Lei Xian avait émis un Décret de Luotian pour convoquer toutes les familles de cultivateurs afin qu'elles se rassemblent au Temple Lei Xian pour pénétrer dans le Système Stellaire de l'Alliance une fois le passage ouvert!
 
 Cette nouvelle fut comme une tempête balayant le Système Stellaire de Luotian, déclenchant des vagues de tumulte!
 
@@ -26,13 +26,13 @@ On disait que les cultivateurs du Système Stellaire de l'Alliance étaient extr
 
 Toutes ces rumeurs prêtaient au Système Stellaire de l'Alliance des visages multiples aux yeux des habitants du Système Stellaire de Luotian. Certaines familles de cultivateurs étaient très enthousiastes, brûlant d'un désir de bataille.
 
-Cependant, certaines familles hésitaient encore. Mais sous la pression du Temple Céleste du Tonnerre, l'invasion du Système Stellaire de l'Alliance était déjà une conclusion inéluctable.
+Cependant, certaines familles hésitaient encore. Mais sous la pression du Temple Lei Xian, l'invasion du Système Stellaire de l'Alliance était déjà une conclusion inéluctable.
 
-Plus important encore, l'action sans précédent du Temple Céleste du Tonnerre avait obtenu le soutien des deux puissantes familles qui existaient depuis l'ère de la culture antique!
+Plus important encore, l'action sans précédent du Temple Lei Xian avait obtenu le soutien des deux puissantes familles qui existaient depuis l'ère de la culture antique!
 
-Ces deux familles étaient les forces les plus imposantes après celle des temps primordiaux. Leur puissance n'était en rien inférieure à celle du Temple Céleste du Tonnerre!
+Ces deux familles étaient les forces les plus imposantes après celle des temps primordiaux. Leur puissance n'était en rien inférieure à celle du Temple Lei Xian!
 
-L'une d'elles était la famille Xiang de la planète Dong Lin! Ce n'est pas le Temple Céleste du Tonnerre qui était allé les chercher, mais la famille Xiang qui s'était présentée à eux. La famille Xiang soutenait fermement ce projet et avait même entraîné la seconde famille dans cette affaire.
+L'une d'elles était la famille Xiang de la planète Dong Lin! Ce n'est pas le Temple Lei Xian qui était allé les chercher, mais la famille Xiang qui s'était présentée à eux. La famille Xiang soutenait fermement ce projet et avait même entraîné la seconde famille dans cette affaire.
 
 Sous la pression de ces trois grandes puissances, comment les autres familles de cultivateurs oseraient-elles désobéir?
 
@@ -42,13 +42,13 @@ Pour cette bataille, les trois grandes puissances firent une annonce: quiconque 
 
 Cette promesse tenta les familles du Système Stellaire de Luotian. Après tout, nul ne souhaite partager une planète, mais toutes celles dotées d'énergie spirituelle étaient déjà occupées. Si l'on voulait sa propre planète, il fallait la ravir au Système Stellaire de l'Alliance.
 
-De plus, pour mobiliser toutes les familles, le Temple Céleste du Tonnerre débloqua diverses pilules et armes magiques. Ils présentèrent même des sorts célestes, créant ainsi un spectacle grandiose!
+De plus, pour mobiliser toutes les familles, le Temple Lei Xian débloqua diverses pilules et armes magiques. Ils présentèrent même des sorts célestes, créant ainsi un spectacle grandiose!
 
-« Le Temple Céleste du Tonnerre et les deux familles vont octroyer des titres célestes. C'est la première fois qu'une telle attribution à grande échelle a lieu depuis l'effondrement du Royaume Céleste du Tonnerre. Il y aura 36 Gardiens Célestes et 72 Démons Terrestres, pour un total de 108 personnes. Quiconque recevra un titre céleste aura un statut supérieur à celui des messagers du Temple Céleste du Tonnerre et sera admiré par tous les cultivateurs du Système Stellaire de Luotian! »
+« Le Temple Lei Xian et les deux familles vont octroyer des titres célestes. C'est la première fois qu'une telle attribution à grande échelle a lieu depuis l'effondrement du Royaume Céleste du Tonnerre. Il y aura 36 Gardiens Célestes et 72 Démons Terrestres, pour un total de 108 personnes. Quiconque recevra un titre céleste aura un statut supérieur à celui des messagers du Temple Lei Xian et sera admiré par tous les cultivateurs du Système Stellaire de Luotian! »
 
 « Ils deviendront même des chefs dans la bataille contre le Système Stellaire de l'Alliance! »
 
-Si cela s'était arrêté là, l'enjeu n'aurait pas été si grand, car tout le monde ne court pas après la renommée. Mais le Temple Céleste du Tonnerre avait anticipé et ajouta un argument de poids: il annonça que toutes les personnes recevant un titre céleste seraient personnellement instruites d'un sort céleste par le Seigneur Céleste Qing Shui!
+Si cela s'était arrêté là, l'enjeu n'aurait pas été si grand, car tout le monde ne court pas après la renommée. Mais le Temple Lei Xian avait anticipé et ajouta un argument de poids: il annonça que toutes les personnes recevant un titre céleste seraient personnellement instruites d'un sort céleste par le Seigneur Céleste Qing Shui!
 
 Cette nouvelle faillit provoquer l'effondrement de la tempête. Un seigneur céleste! Un seigneur céleste!
 
@@ -56,7 +56,7 @@ Un seigneur céleste était encore en vie! L'ensemble du Système Stellaire de L
 
 Simultanément, les deux familles de culture annoncèrent que les 36 Gardiens Célestes pourraient formuler une requête, et que le Temple ainsi que les deux familles feraient leur possible pour l'exaucer!
 
-La frénésie autour des titres célestes atteignit son apogée dans le Système Stellaire de Luotian, permettant au Temple Céleste du Tonnerre de rassembler toute la puissance du système.
+La frénésie autour des titres célestes atteignit son apogée dans le Système Stellaire de Luotian, permettant au Temple Lei Xian de rassembler toute la puissance du système.
 
 Mais alors, la famille de culture la plus mystérieuse des temps primordiaux envoya un message qui embrasa tout le Système Stellaire de Luotian et porta la détermination des cultivateurs à son comble!
 
@@ -76,7 +76,7 @@ Alors que la tempête des préparatifs et les flammes de la guerre se propageaie
 
 La famille Yao, qui se situait juste en dessous des deux familles de culture antiques, venait d'émettre un Ordre Céleste!
 
-Lorsque l'Ordre Céleste apparaît, le massacre est imminent! La famille Yao était la plus puissante des quatre familles possédant un héritage du Royaume Céleste. Elles pouvaient être comparées aux deux familles de culture antiques et méprisaient même le Temple Céleste du Tonnerre!
+Lorsque l'Ordre Céleste apparaît, le massacre est imminent! La famille Yao était la plus puissante des quatre familles possédant un héritage du Royaume Céleste. Elles pouvaient être comparées aux deux familles de culture antiques et méprisaient même le Temple Lei Xian!
 
 Au cours des innombrables années depuis l'effondrement du Royaume Céleste, la famille Yao n'avait émis son Ordre Céleste que trois fois! Et chaque fois, un bain de sang en résultait, et le massacre ne cessait qu'une fois la cible morte!
 

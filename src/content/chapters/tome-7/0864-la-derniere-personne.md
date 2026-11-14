@@ -10,7 +10,7 @@ Certains cultivateurs de l'étape Scruteur du Nirvana avaient participé à la c
 
 Si ces personnes s'engageaient dans une compétition peuplée de juniors, elles laisseraient derrière elles une réputation de prédateurs s'appropriant la gloire des plus jeunes. En fin de compte, cela nuirait gravement à leur prestige.
 
-Après tout, beaucoup avaient remarqué que les cent huit titres célestes du Temple Céleste du Tonnerre visaient des juniors forts, animés d'une féroce intention de combat! Bien que cela ne fût pas explicitement déclaré, d'autres pouvaient le déduire grâce à divers indices.
+Après tout, beaucoup avaient remarqué que les cent huit titres célestes du Temple Lei Xian visaient des juniors forts, animés d'une féroce intention de combat! Bien que cela ne fût pas explicitement déclaré, d'autres pouvaient le déduire grâce à divers indices.
 
 Par conséquent, il était rare que des cultivateurs au stade Scruteur du Nirvana y participent. Il en existait quelques-uns dans le Domaine Sud, mais comme ils étaient tous les ancêtres de différents clans, ils n'avaient aucun intérêt à se faire un ennemi de Wang Lin.
 
@@ -54,27 +54,27 @@ Les participants restants, plus d'une centaine, entrèrent progressivement dans 
 
 La formation brilla intensément puis disparut, emportant les 108 personnes avec elle.
 
-Le Temple Céleste du Tonnerre était une entité extrêmement puissante dans le système stellaire de Luotian. Au fil des générations, en étendant leur influence, ils étaient devenus, en apparence, la force la plus dominante de tout le système!
+Le Temple Lei Xian était une entité extrêmement puissante dans le système stellaire de Luotian. Au fil des générations, en étendant leur influence, ils étaient devenus, en apparence, la force la plus dominante de tout le système!
 
-L'emplacement du Temple Céleste du Tonnerre demeurait un mystère; nul ne savait où il se trouvait précisément. Même les messagers n'y accédaient qu'en utilisant une formation spéciale, sans autre moyen de retour possible.
+L'emplacement du Temple Lei Xian demeurait un mystère; nul ne savait où il se trouvait précisément. Même les messagers n'y accédaient qu'en utilisant une formation spéciale, sans autre moyen de retour possible.
 
-À cet instant, la zone située dans un rayon de 50000 kilomètres autour du Temple Céleste du Tonnerre était strictement interdite. Les messagers et les serviteurs du Temple saturaient l'espace. La compétition pour les titres célestes était une affaire d'une importance capitale pour le Temple; tout combat dans cette zone était proscrit, et quiconque violerait cette règle subirait l'intervention immédiate du Temple Céleste du Tonnerre.
+À cet instant, la zone située dans un rayon de 50000 kilomètres autour du Temple Lei Xian était strictement interdite. Les messagers et les serviteurs du Temple saturaient l'espace. La compétition pour les titres célestes était une affaire d'une importance capitale pour le Temple; tout combat dans cette zone était proscrit, et quiconque violerait cette règle subirait l'intervention immédiate du Temple Lei Xian.
 
-Quatre grands tableaux de transfert entouraient le Temple Céleste du Tonnerre. L'un d'eux s'illumina et des silhouettes apparurent depuis le tableau du Nord. Sous la direction des messagers affectés au Domaine Nord, les participants sortirent un à un.
+Quatre grands tableaux de transfert entouraient le Temple Lei Xian. L'un d'eux s'illumina et des silhouettes apparurent depuis le tableau du Nord. Sous la direction des messagers affectés au Domaine Nord, les participants sortirent un à un.
 
 Ces cultivateurs étaient tous calmes; très peu manifestaient de l'excitation après leur arrivée. À leur apparition, ils étaient déjà empreints d'une forte intention de combat.
 
 Au même moment, les tableaux de transfert du Sud et de l'Ouest s'illuminèrent également, laissant sortir une foule nombreuse. Wang Lin en faisait partie. Une fois sorti, il observa les environs sans que son expression ne change d'un iota.
 
-Le Temple Céleste du Tonnerre ressemblait au palais impérial d'un royaume mortel: majestueux et saturé de restrictions. Lorsque Wang Lin ressentit les fluctuations des barrières, ses yeux se rétrécirent.
+Le Temple Lei Xian ressemblait au palais impérial d'un royaume mortel: majestueux et saturé de restrictions. Lorsque Wang Lin ressentit les fluctuations des barrières, ses yeux se rétrécirent.
 
 Grâce à sa compréhension des restrictions, il percevait clairement qu'elles avaient atteint un degré terrifiant. Même avec son niveau de culture, s'il tentait de forcer le passage à travers ces restrictions, il mourrait sans aucun doute!
 
-Et ce n'était pas seulement le Temple Céleste du Tonnerre. En observant les alentours, Wang Lin fronça encore plus les sourcils. Chaque brin d'herbe, chaque plante et même les nuages étaient imprégnés de puissantes restrictions!
+Et ce n'était pas seulement le Temple Lei Xian. En observant les alentours, Wang Lin fronça encore plus les sourcils. Chaque brin d'herbe, chaque plante et même les nuages étaient imprégnés de puissantes restrictions!
 
 Wang Lin n'était pas le seul à scruter l'environnement; presque tout le monde faisait de même. Soudain, la formation à l'est s'illumina, attirant tous les regards.
 
-La lumière émanant de la formation orientale fut intense et trois silhouettes en sortirent: les messagers envoyés par le Temple Céleste du Tonnerre. Ils affichaient tous des expressions extrêmement sombres et se précipitèrent hors du tableau de transfert. L'un d'eux jeta même un regard terrifié vers la formation derrière lui.
+La lumière émanant de la formation orientale fut intense et trois silhouettes en sortirent: les messagers envoyés par le Temple Lei Xian. Ils affichaient tous des expressions extrêmement sombres et se précipitèrent hors du tableau de transfert. L'un d'eux jeta même un regard terrifié vers la formation derrière lui.
 
 Les yeux de Wang Lin se contractèrent. Simultanément, une puissante odeur de sang émana du tableau de transfert de l'est. La formation s'illumina et une seule personne en sortit!
 

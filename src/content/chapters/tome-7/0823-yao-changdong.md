@@ -68,7 +68,7 @@ Dès cet ordre, tous les cultivateurs tentèrent une téléportation sur place. 
 
 Le corps de ce dernier explosa dans un nuage de sang. Quant à son âme originelle, elle s'était déjà échappée à plus de mille pieds de là sans se retourner.
 
-Tandis qu'elle s'enfuyait, l'âme cria: « Camarade cultivateur Xu Mu, désormais, aucune famille de la planète Ling Ming ne s'ingérera dans votre conflit avec la famille Yao. Laissez-moi partir! »
+Tandis qu'elle s'enfuyait, l'âme cria: « Daoïste Xu Mu, désormais, aucune famille de la planète Ling Ming ne s'ingérera dans votre conflit avec la famille Yao. Laissez-moi partir! »
 
 Les yeux de Wang Lin brillèrent, mais il ne le poursuivit pas. À cet instant, le cultivateur Corporel Yang poussa un rugissement et les aiguilles noires se mirent à briller d'un éclat sombre, pleuvant sur Wang Lin.
 

@@ -44,7 +44,7 @@ L'expression du Saint Démon Noir était sombre. Comment pouvait-il laisser Maî
 
 Ces affrontements généraient d'immenses ondes de choc. Tout cultivateur touché par ces remous mourait instantanément!
 
-« Camarades cultivateurs, n'attendez pas de me voir me ridiculiser, attaquez! » Le Saint Démon Noir esquissa un sourire amer et agita sa main droite. Un vent chargé d'une odeur fétide de poisson apparut. Sous l'impulsion de ses mains, ce vent se transforma en une baleine géante devant lui. La créature ouvrit sa gueule et aspira tout sur son passage avec une férocité sans nom.
+« Daoïstes, n'attendez pas de me voir me ridiculiser, attaquez! » Le Saint Démon Noir esquissa un sourire amer et agita sa main droite. Un vent chargé d'une odeur fétide de poisson apparut. Sous l'impulsion de ses mains, ce vent se transforma en une baleine géante devant lui. La créature ouvrit sa gueule et aspira tout sur son passage avec une férocité sans nom.
 
 L'énergie originelle du monde était aspirée frénétiquement par la baleine formée par le Saint Démon Noir, avant que celle-ci ne lance l'attaque contre Xue Shenzi.
 

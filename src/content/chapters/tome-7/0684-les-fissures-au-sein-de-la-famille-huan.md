@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 684 - The Huan Family Fractures
 slug: les-fissures-au-sein-de-la-famille-huan
 ---
-« Le Temple Céleste du Tonnerre! » Ce n'était pas la première fois que Wang Lin entendait ce nom. Il observa attentivement la Bête du Tonnerre avant de s'aventurer sur la planète Qianhuan.
+« Le Temple Lei Xian! » Ce n'était pas la première fois que Wang Lin entendait ce nom. Il observa attentivement la Bête du Tonnerre avant de s'aventurer sur la planète Qianhuan.
 
 Après avoir rangé la boussole stellaire, il perça l'atmosphère de la planète Qianhuan. Ce qui apparut devant Wang Lin était une vaste étendue terrestre. Il déploya son sens divin et se concentra sur le sud, puis chargea vers cette direction telle une météorite.
 
@@ -64,7 +64,7 @@ De plus, même les membres de la famille Huan à l'intérieur de la formation re
 
 Auparavant, le message de Qian Kuizi n'était destiné qu'à l'ancêtre de la famille Huan; ils ignoraient donc l'existence de la créature.
 
-« Ancêtre, la Bête du Tonnerre représente le Temple Céleste du Tonnerre. Ancêtre, réfléchissez-y à deux fois! »
+« Ancêtre, la Bête du Tonnerre représente le Temple Lei Xian. Ancêtre, réfléchissez-y à deux fois! »
 
 « Ancêtre, causer un tel désastre à notre famille juste pour une étrangère est une erreur! »
 
@@ -114,7 +114,7 @@ Il s'agissait du chef de la famille Huan, Huan Feng Shen!
 
 Huan Wuqing demanda d'un ton bas: « Fengshen, es-tu également contre moi? »
 
-« Fengshen n'ose pas, Ancêtre. Que cet homme provienne ou non du Temple Céleste du Tonnerre, il possède une Bête du Tonnerre et une marionnette Yin Illusoire. Je me demande, Ancêtre, est-ce quelqu'un avec qui nous devrions nouer des liens, ou devons-nous nous battre à mort contre lui? »
+« Fengshen n'ose pas, Ancêtre. Que cet homme provienne ou non du Temple Lei Xian, il possède une Bête du Tonnerre et une marionnette Yin Illusoire. Je me demande, Ancêtre, est-ce quelqu'un avec qui nous devrions nouer des liens, ou devons-nous nous battre à mort contre lui? »
 
 Les yeux de Huan Feng Shen brillaient d'une lueur vive. Il regarda l'ancêtre sans fléchir et poursuivit: « Devenir son allié ajouterait un ami à notre famille, mais quel bénéfice tirerions-nous d'un combat à mort? Tout cela pour protéger une membre étrangère? Sa culture a été artificiellement portée à la grande perfection du stade tardif de l'Ascendant, mais son domaine ne suit pas. Même si elle franchit un nouveau palier dans sa vie, elle butera au stade Yin et Yang. Je comprends vos intentions, Ancêtre, mais pour satisfaire votre seul désir, le risque est peut-être excessif! »
 

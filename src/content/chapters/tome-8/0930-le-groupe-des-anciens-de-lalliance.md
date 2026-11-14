@@ -70,7 +70,7 @@ Les fluctuations qui émanaient de leurs chocs étaient telles que même Xue She
 
 Au loin, la femme en robe bleue observait la scène sans l'ombre d'une panique. À ses côtés, le cadavre doré se tenait silencieux, l'expression glaciale. Cinq talismans jaunes tournaient lentement autour de sa tête, tandis que des éclairs parcouraient les talismans pour maintenir son sceau.
 
-La femme en robe bleue leva la main droite et dit doucement: « J'invite le Grand Ancien du Palais Xuan, l'estimé Xuan Bao. »
+La femme en robe bleue leva la main droite et dit doucement: « J'invite le Grand Ancien du Palais Xuan, l'Estimé Xuan Bao. »
 
 Un rire résonna à travers les étoiles. Ce rire ne dégageait pas une grande puissance de culture, mais tous les trésors alentour tremblèrent un instant, comme s'ils s'apprêtaient à quitter leurs maîtres.
 
@@ -82,7 +82,7 @@ Les quatre saints de l'Alliance étaient divisés en Lune, Nuage, Xian et Yao! J
 
 En vérité, pour cette bataille, l'Alliance Xiu Zhen n'avait dépêché que le Palais Xuan, le saint Xian et ses trois subordonnés!
 
-L'estimé Xuan Bao occupait un rang très élevé au sein du Palais Xuan. Ce qui imposait véritablement le respect et la crainte des membres de l'Alliance, c'était qu'il était l'un des Anciens capables de décider de tout au sein de l'organisation! C'était là sa fonction la plus prestigieuse.
+L'Estimé Xuan Bao occupait un rang très élevé au sein du Palais Xuan. Ce qui imposait véritablement le respect et la crainte des membres de l'Alliance, c'était qu'il était l'un des Anciens capables de décider de tout au sein de l'organisation! C'était là sa fonction la plus prestigieuse.
 
 Hormis les membres du Groupe des Anciens de l'Alliance, nul ne savait exactement combien ils étaient. Cependant, chacun d'eux était d'une puissance telle qu'il pouvait renverser les cieux!
 
@@ -90,16 +90,16 @@ Si Tian Yunzi était respecté et que l'Alliance Xiu Zhen avait même envoyé qu
 
 Si Tian Yunzi n'avait pas été si discret, des individus comme Ling Tianhou n'auraient jamais pu exister. S'il l'avait voulu, il aurait pu les faire disparaître en un instant. Toutefois, après un certain incident, il s'était fait encore plus effacé et participait rarement aux réunions des anciens; il s'était retiré du monde.
 
-Il faut dire que même Ji Xiantian ou Wu Dongchan, qui affrontait en ce moment Maître Yan Leizi, n'étaient pas éligibles au rang d'Ancien. Devant l'estimé Xuan Bao, ces deux-là n'étaient rien!
+Il faut dire que même Ji Xiantian ou Wu Dongchan, qui affrontait en ce moment Maître Yan Leizi, n'étaient pas éligibles au rang d'Ancien. Devant l'Estimé Xuan Bao, ces deux-là n'étaient rien!
 
 Nul ne savait quel niveau de culture était requis pour intégrer ce groupe. Certains soupçonnaient que, si la culture y était liée, elle n'était pas le seul critère. Le groupe des anciens détenait les plus hauts pouvoirs et les secrets les plus profonds de l'Alliance! Ses membres étaient les véritables souverains de l'Alliance!
 
-L'estimé Xuan Bao portait du blanc et était d'une silhouette légèrement mince, ce qui lui conférait une aura céleste. Ses yeux brillaient d'une profondeur infinie; quiconque plongerait son regard dans le sien risquait d'y être immergé et de ne plus pouvoir s'en extirper pendant longtemps.
+L'Estimé Xuan Bao portait du blanc et était d'une silhouette légèrement mince, ce qui lui conférait une aura céleste. Ses yeux brillaient d'une profondeur infinie; quiconque plongerait son regard dans le sien risquait d'y être immergé et de ne plus pouvoir s'en extirper pendant longtemps.
 
 Il avait l'apparence d'un véritable Ancien. Il tenait un chasse-mouches à la main lorsqu'il apparut aux côtés de la femme en robe bleue.
 
 La femme en robe bleue dit doucement: « Junior salue son Oncle-Maître. »
 
-L'estimé Xuan Bao observa le champ de bataille au loin et rit: « Petite fille, ton maître t'a laissé présider cette bataille et a ordonné que tous t'obéissent. Il a même délibérément choisi ce lieu pour l'affrontement. Une telle fortune ne se présente pas souvent. »
+L'Estimé Xuan Bao observa le champ de bataille au loin et rit: « Petite fille, ton maître t'a laissé présider cette bataille et a ordonné que tous t'obéissent. Il a même délibérément choisi ce lieu pour l'affrontement. Une telle fortune ne se présente pas souvent. »
 
-En souriant, l'estimé Xuan Bao semblait totalement indifférent au combat. Ce n'est que lorsqu'il aperçut le Serpent aux yeux de lune que ses pupilles se contractèrent. Il afficha alors un sourire empreint de mystère.
+En souriant, l'Estimé Xuan Bao semblait totalement indifférent au combat. Ce n'est que lorsqu'il aperçut le Serpent aux yeux de lune que ses pupilles se contractèrent. Il afficha alors un sourire empreint de mystère.

@@ -48,9 +48,9 @@ L'éclat étrange dans les yeux du cultivateur aux grandes oreilles s'intensifia
 
 Wang Lin sourit silencieusement.
 
-Le cultivateur aux grandes oreilles esquissa un sourire ténu: « Cher compagnon, que diriez-vous d'une compétition pour voir lequel de nous atteindra le stade mythique de la Formation de l'Âme le premier? »
+Le cultivateur aux grandes oreilles esquissa un sourire ténu: « Cher Daoïste, que diriez-vous d'une compétition pour voir lequel de nous atteindra le stade mythique de la Formation de l'Âme le premier? »
 
-Wang Lin lui rendit un sourire discret et répondit: « Si je laisse une telle émulation s'emparer de mon cœur, j'ai bien peur de ne jamais atteindre la Formation de l'Âme de ma vie. Cher compagnon, vos paroles sont très cruelles. »
+Wang Lin lui rendit un sourire discret et répondit: « Si je laisse une telle émulation s'emparer de mon cœur, j'ai bien peur de ne jamais atteindre la Formation de l'Âme de ma vie. Cher Daoïste, vos paroles sont très cruelles. »
 
 Le cultivateur aux grandes oreilles rit de bon cœur en agitant ses manches et en joignant les mains: « Je ne m'attendais pas à rencontrer un cultivateur de votre calibre ici. Bien! Je m'appelle Zhou Wutai. Comment dois-je vous appeler? »
 

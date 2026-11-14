@@ -96,7 +96,7 @@ Il leva la tête vers la Bête des Limbes. Il possédait désormais tous ses sou
 
 Le seul souvenir limpide, vieux de plusieurs centaines d'années, était celui du Royaume aux Sept Couleurs.
 
-Wang Lin réfléchit et projeta une parcelle de son Sens Divin dans la Bête des Limbes. Les yeux de celle-ci s'ouvrirent et elle expulsa lentement un contenu, tel un rot. L'estimé Ling Dong fut expulsé le premier; il était dans un état lamentable, le regard toujours empreint de terreur.
+Wang Lin réfléchit et projeta une parcelle de son Sens Divin dans la Bête des Limbes. Les yeux de celle-ci s'ouvrirent et elle expulsa lentement un contenu, tel un rot. L'Estimé Ling Dong fut expulsé le premier; il était dans un état lamentable, le regard toujours empreint de terreur.
 
 Après Ling Dong, ce fut au tour de Zhou Jin et des Feuilles Anciennes d'être recrachés.
 

@@ -1,18 +1,18 @@
 ---
 n: 1261
-title: La Calamité de la Secte Divine
+title: La Calamité de la Secte Shen
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1261 - The Calamity From the God Secte
 slug: la-calamite-du-secte-divin
 ---
-Le maître de la Secte Éternelle remarqua l'expression de Wang Lin et sourit. « Cette montagne s'appelle Lu Su. On raconte qu'il y a fort longtemps, une épée venue de l'extérieur est tombée et s'est enfoncée dans le sol pour former cette montagne! »
+Le maître de la Secte Wu Ji remarqua l'expression de Wang Lin et sourit. « Cette montagne s'appelle Lu Su. On raconte qu'il y a fort longtemps, une épée venue de l'extérieur est tombée et s'est enfoncée dans le sol pour former cette montagne! »
 
 « Quel beau nom! Je me demande qui l'a nommé. » Le choc de Wang Lin ne se lisait pas sur son visage, mais des vagues de stupeur secouaient son cœur. Ce qui l'effrayait n'était pas tant l'intention d'épée que dégageait la montagne, mais plutôt sa similitude avec le souvenir de Tu Si raffinant le trident, qu'il avait ensuite jeté avec désinvolture pour qu'il se change en montagne et condense son âme.
 
 Alors qu'il se rapprochait de la montagne, il sentit vaguement les étoiles de l'Ancien Dieu cachées entre ses sourcils tourner rapidement.
 
-« Ce nom a été donné par Zhou Yunsong, le premier maître de notre Secte Éternelle. Il passa ses dernières années sur cette montagne et comprit le Dao du Rêve. Dans son rêve, il vit une épée gigantesque tomber et se transformer en montagne. Il entendit également une voix puissante faire résonner ces deux mots: "Lu Su!" » C'était le Grand Ancien qui expliquait cela, et ses yeux étaient empreints de respect.
+« Ce nom a été donné par Zhou Yunsong, le premier maître de notre Secte Wu Ji. Il passa ses dernières années sur cette montagne et comprit le Dao du Rêve. Dans son rêve, il vit une épée gigantesque tomber et se transformer en montagne. Il entendit également une voix puissante faire résonner ces deux mots: "Lu Su!" » C'était le Grand Ancien qui expliquait cela, et ses yeux étaient empreints de respect.
 
 « Lu Su... Lu Su... LU SU! » La lueur étrange dans les yeux de Wang Lin se calma progressivement, mais le choc dans son esprit était dix fois, cent fois, mille fois plus intense!
 
@@ -42,9 +42,9 @@ Cette découverte força Wang Lin à baisser la tête pour dissimuler son troubl
 
 Heureusement, le maître de la secte et l'Ancien ne s'en soucièrent guère. Après tout, Wang Lin avait gagné leur reconnaissance, ils le traitaient donc comme un égal.
 
-Une fois assis, des disciples de la Secte Éternelle apportèrent le thé avant de se retirer respectueusement.
+Une fois assis, des disciples de la Secte Wu Ji apportèrent le thé avant de se retirer respectueusement.
 
-Le maître de la Secte Éternelle réfléchit un instant et dit: « Ma Secte Éternelle possède effectivement quelques-unes des âmes Yin extrêmes dont parle le Daoïste Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Éternelle; elles nous ont été confiées par la Secte Divine. Et elle n'en a pas donné qu'à nous: les autres sectes de la région de rang 8 en ont aussi reçu quelques-unes. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
+Le maître de la Secte Wu Ji réfléchit un instant et dit: « Ma Secte Wu Ji possède effectivement quelques-unes des âmes Yin extrêmes dont parle le Daoïste Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Wu Ji; elles nous ont été confiées par la Secte Shen. Et elle n'en a pas donné qu'à nous: les autres sectes de la région de rang 8 en ont aussi reçu quelques-unes. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
 
 Wang Lin prit une gorgée de thé tout en dissimulant son trouble. Il sentait que plus il resterait ici, mieux ce serait pour lui, mais il craignait aussi que s'il prolongeait son séjour, quelqu'un ne finisse par remarquer quelque chose.
 
@@ -60,17 +60,17 @@ Ce n'était pas que les deux hommes doutaient des intentions de Wang Lin, mais l
 
 Par conséquent, même s'ils nourrissaient des doutes, ceux-ci n'étaient pas trop profonds. Ils avaient vu les sorts de Wang Lin et le trouvaient très mystérieux; peut-être que des pilules ne suffiraient pas à guérir quelqu'un de son rang.
 
-Le maître de la secte réfléchit encore et dit lentement: « Qu'importe. Depuis que la Secte Divine a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au Daoïste Lu, et la Secte Divine n'en saura rien. »
+Le maître de la secte réfléchit encore et dit lentement: « Qu'importe. Depuis que la Secte Shen a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au Daoïste Lu, et la Secte Shen n'en saura rien. »
 
-Par ses paroles, il signifiait à Wang Lin que sa demande n'était pas anodine: il était en train de lui céder un tribut destiné à la Secte Divine.
+Par ses paroles, il signifiait à Wang Lin que sa demande n'était pas anodine: il était en train de lui céder un tribut destiné à la Secte Shen.
 
 Bien que la chose ne fût pas aussi grave que ses mots le suggéraient, c'était la vérité.
 
-Wang Lin afficha une expression reconnaissante et joignit les mains en signe de gratitude. « Pour m'aider à guérir, vous êtes prêts à céder le tribut de la Secte Divine. Je vous en remercie et je donnerai mon maximum lors de la compétition entre les sectes de rang 8! »
+Wang Lin afficha une expression reconnaissante et joignit les mains en signe de gratitude. « Pour m'aider à guérir, vous êtes prêts à céder le tribut de la Secte Shen. Je vous en remercie et je donnerai mon maximum lors de la compétition entre les sectes de rang 8! »
 
 Tandis qu'il parlait, l'aura de l'Ancien Dieu pénétra son corps avec une force folle, remontant de ses pieds jusqu'à son front. Cela provoqua la reformation rapide de la sixième étoile effondrée.
 
-Le maître de la Secte Éternelle hocha la tête en souriant à Wang Lin. Sa main plongea dans le vide et en sortit un morceau de jade. Il y grava un message, puis le jade commença à brûler lorsqu'il le lança. L'objet s'envola instantanément au loin.
+Le maître de la Secte Wu Ji hocha la tête en souriant à Wang Lin. Sa main plongea dans le vide et en sortit un morceau de jade. Il y grava un message, puis le jade commença à brûler lorsqu'il le lança. L'objet s'envola instantanément au loin.
 
 « Daoïste Lu, attendez ici un instant. J'ai déjà ordonné que l'on vous apporte des âmes Yin extrêmes. »
 
@@ -94,11 +94,11 @@ Ce garçon avait le teint rosé, mais les cheveux blancs. Ses yeux s'ouvraient e
 
 Le garçon leva la main droite et pointa chaque jade du doigt avant de s'arrêter sur celui marqué « Lu Zihao ».
 
-« Depuis que l'aura du Maître s'est manifestée, j'ai utilisé le pouvoir de la Secte Divine pour fouiller la Mer Yun à la recherche d'individus suspects. J'en ai trouvé sept! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
+« Depuis que l'aura du Maître s'est manifestée, j'ai utilisé le pouvoir de la Secte Shen pour fouiller la Mer Yun à la recherche d'individus suspects. J'en ai trouvé sept! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
 
 À cet instant précis, il fronça les sourcils. Sa main s'étendit et un feu commença à brûler. Un jade apparut au milieu des flammes; il avait été envoyé par Wang Shanshan via une méthode spéciale.
 
-La main gauche du garçon s'avança et le feu pénétra étrangement dans sa paume. La scène de ce que Wang Lin venait de faire à la Secte Éternelle apparut alors avec clarté!
+La main gauche du garçon s'avança et le feu pénétra étrangement dans sa paume. La scène de ce que Wang Lin venait de faire à la Secte Wu Ji apparut alors avec clarté!
 
 Le garçon, qui était assis, se leva brusquement en voyant la vision. En se levant, six des sept jades gravés s'effondrèrent, à l'exception de celui portant le nom « Lu Zihao »!
 

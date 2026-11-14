@@ -1,6 +1,6 @@
 ---
 n: 1354
-title: "Sept coups d'épée fauchent la Montagne Céleste (1)"
+title: "Sept coups d'épée fauchent la Montagne Tian (1)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1354 - Seven Sword Chops the Heavenly Mountain (1)

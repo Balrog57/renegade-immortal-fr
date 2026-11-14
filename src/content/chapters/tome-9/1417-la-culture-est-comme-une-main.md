@@ -70,7 +70,7 @@ Sur la Planète du Grand Empereur, l'expression du vieux Suzaku était sombre; s
 
 « Quatorze respirations est sa limite. Vous voyez bien que sa chair est presque détruite et que la quasi-totalité de son sang est sur le point de s'évaporer! »
 
-Maître Simo plissa les yeux. Avec son niveau de culture, il percevait naturellement l'expression sombre du vieux Suzaku. Il ricana intérieurement:
+Maître Si Mo plissa les yeux. Avec son niveau de culture, il percevait naturellement l'expression sombre du vieux Suzaku. Il ricana intérieurement:
 
 « On dirait qu'un autre accident vient de se produire. Ce petit bâtard a traversé tant d'épreuves dans ce test... Il vaudrait mieux qu'il meure ici et m'épargne bien des ennuis. »
 

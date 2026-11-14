@@ -18,7 +18,7 @@ Wang Lin leva les deux mains et sentit une puissance colossale emplir son corps.
 
 Ce changement était le signe de l'apparition de la neuvième étoile. Un vague vortex venait de se former!
 
-Wang Lin ferma les yeux pour ressentir le pouvoir du Dao Ancien et la force impétueuse qui bouillonnait en lui. Un instant plus tard, il ouvrit brusquement les yeux et fixa le bassin de glace en contrebas. Ses yeux étincelaient d'un éclat vif tandis qu'il tendait ses mains vers la glace pour la déchirer impitoyablement!
+Wang Lin ferma les yeux pour ressentir le pouvoir du Dao Gu et la force impétueuse qui bouillonnait en lui. Un instant plus tard, il ouvrit brusquement les yeux et fixa le bassin de glace en contrebas. Ses yeux étincelaient d'un éclat vif tandis qu'il tendait ses mains vers la glace pour la déchirer impitoyablement!
 
 « Déchirure du Ciel! »
 
@@ -72,7 +72,7 @@ Quelques plateformes de tailles diverses flottaient ici et là. On y trouvait m�
 
 Wang Lin se tenait sur une plateforme. Il observa les alentours et esquissa un sourire amer.
 
-Il ne pouvait s'empêcher d'avoir ce sourire. Il connaissait cet endroit: c'était la Tombe Antique dont il avait tiré son héritage du Dao Ancien!
+Il ne pouvait s'empêcher d'avoir ce sourire. Il connaissait cet endroit: c'était la Tombe Antique dont il avait tiré son héritage du Dao Gu!
 
 « J'aurais dû m'en douter depuis longtemps... Le Souverain Céleste aux Sept Couleurs a créé ce lieu pour enterrer Ye Mo. Pourquoi aurait-il créé un tel endroit sans raison? Il s'avère que c'est la quatrième fleur... » Wang Lin contemplait les lieux avec une expression complexe. Cet endroit lui était très familier.
 
@@ -88,7 +88,7 @@ S'il parvenait à absorber le cœur de Ye Mo au fond, son héritage serait compl
 
 Toutefois, s'il absorbait ce cœur, même sans l'œil gauche, il était probable que Wang Lin puisse former sa neuvième étoile de Dieu Antique! Même son étoile de Diable Antique pourrait atteindre le rang de neuf!
 
-En conséquence, Wang Lin deviendrait un Dieu Antique à 9 étoiles et son pouvoir du Dao Ancien entrerait en éruption!
+En conséquence, Wang Lin deviendrait un Dieu Antique à 9 étoiles et son pouvoir du Dao Gu entrerait en éruption!
 
 « Un Dieu Antique à 9 étoiles... Si je devais étendre mon corps totalement, quelle serait ma taille... » Wang Lin ferma les yeux pour peser le pour et le contre.
 

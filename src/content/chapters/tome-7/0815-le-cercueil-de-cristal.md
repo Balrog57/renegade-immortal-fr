@@ -54,7 +54,7 @@ Il regarda le dos de l'homme robuste et ses yeux exprimèrent un soupçon de reg
 
 Wang Lin, debout sur l'épaule de l'homme robuste, commença à réfléchir.
 
-« Lors de chacune de mes tentatives réussies pour créer des gardiens célestes, j'ai intégré le fantôme céleste. Je me demande s'il existe un lien. L'inclusion du fantôme céleste augmente-t-elle les chances de succès? »
+« Lors de chacune de mes tentatives réussies pour créer des gardes célestes, j'ai intégré le fantôme céleste. Je me demande s'il existe un lien. L'inclusion du fantôme céleste augmente-t-elle les chances de succès? »
 
 Tout en réfléchissant, l'homme robuste accéléra la cadence. Il franchissait plusieurs centaines de pieds en une seule enjambée, se déplaçant comme une rafale de vent.
 
@@ -86,7 +86,7 @@ La porte s'éleva dans un grondement et s'ouvrit complètement un instant plus t
 
 Les yeux de Wang Lin s'illuminèrent; il frappa son sac de contenance et les trois drapeaux violets en sortirent. Ils tournèrent rapidement autour de lui pour former un vortex violet. Le cri strident fut immédiatement écrasé par ce tourbillon.
 
-« Ta Shan, détruis l'esprit! » hurla Wang Lin. Le corps de Ta Shan brilla intensément alors qu'il franchissait le seuil. Son regard était froid lorsqu'il s'élança et décocha un coup de poing. Ce coup était plusieurs fois plus puissant que ceux qu'il portait avant de devenir un gardien céleste.
+« Ta Shan, détruis l'esprit! » hurla Wang Lin. Le corps de Ta Shan brilla intensément alors qu'il franchissait le seuil. Son regard était froid lorsqu'il s'élança et décocha un coup de poing. Ce coup était plusieurs fois plus puissant que ceux qu'il portait avant de devenir un garde céleste.
 
 L'impact créa un bang sonique qui résonna dans le passage. La brume noire qui stagnait dans le couloir recula brusquement, comme balayée par une tempête.
 
@@ -94,7 +94,7 @@ Le regard de Wang Lin se fit glacial. Cette fois, il était déterminé à parti
 
 Un instant plus tard, Wang Lin atteignit le bout du passage, là où se trouvait le Fourneau Yin Mystérieux. Il vit la silhouette sombre d'une femme tourbillonner frénétiquement autour de Ta Shan en poussant des hurlements incessants.
 
-L'expression de Ta Shan était impassible. En tant que gardien céleste, son âme originelle s'était déjà effondrée pour fusionner avec son corps; le cri n'avait donc aucun effet sur lui. Même si ces ondes pouvaient blesser un corps ordinaire, la robustesse du sien les rendait inopérantes.
+L'expression de Ta Shan était impassible. En tant que garde céleste, son âme originelle s'était déjà effondrée pour fusionner avec son corps; le cri n'avait donc aucun effet sur lui. Même si ces ondes pouvaient blesser un corps ordinaire, la robustesse du sien les rendait inopérantes.
 
 Quant à Wang Lin, il bénéficiait de l'Armure de Cuir de l'Ancien Dieu pour protéger son âme originelle. Lorsque le cri frappa l'armure, celle-ci se contenta de dissiper l'onde.
 
@@ -104,7 +104,7 @@ Wang Lin ricana et forma un sceau. Les trois drapeaux autour de lui s'élancère
 
 Simultanément, Wang Lin recula et atteignit le Fourneau Yin Mystérieux en une seule enjambée. Ta Shan, qui partageait la pensée de Wang Lin, arriva également aux côtés du fourneau. Dès son arrivée, il leva le poing pour frapper la structure.
 
-Ta Shan libéra le coup le plus puissant qu'il ait porté depuis sa transformation. Bien qu'il fût devenu un gardien céleste, ses instincts primordiaux subsistaient. En cet instant, des années de haine envers le Fourneau Yin Mystérieux explosèrent à travers son poing.
+Ta Shan libéra le coup le plus puissant qu'il ait porté depuis sa transformation. Bien qu'il fût devenu un garde céleste, ses instincts primordiaux subsistaient. En cet instant, des années de haine envers le Fourneau Yin Mystérieux explosèrent à travers son poing.
 
 Le tatouage complexe entre ses sourcils scintilla comme s'il était vivant; il s'échappa pour fusionner avec le poing de Ta Shan. Son coup produisit une fluctuation magique titanesque.
 

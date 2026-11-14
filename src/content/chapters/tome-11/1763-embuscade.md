@@ -36,7 +36,7 @@ Le Daoïste aux Sept Couleurs, l'air sombre, apparut enfin. D'un geste vif de la
 
 Un fracas assourdissant, capable de briser le ciel, retentit. La collision des deux lances déclencha une onde de choc massive. C'est précisément à ce moment que la troisième embuscade de Wang Lin se déclencha!
 
-Alors que l'impact se dissipait, le corps originel de Wang Lin apparut. Les étoiles entre ses sourcils et dans ses yeux tournèrent jusqu'à former un vortex. L'ombre du Dao Antique surgit derrière lui. Son corps original grandit jusqu'à atteindre 10 000 pieds de haut avant de fusionner avec l'ombre. Il leva la Hache Brise-Ciel et, alors que les lances s'effondraient, il abattit son arme.
+Alors que l'impact se dissipait, le corps originel de Wang Lin apparut. Les étoiles entre ses sourcils et dans ses yeux tournèrent jusqu'à former un vortex. L'ombre du Dao Gu surgit derrière lui. Son corps original grandit jusqu'à atteindre 10 000 pieds de haut avant de fusionner avec l'ombre. Il leva la Hache Brise-Ciel et, alors que les lances s'effondraient, il abattit son arme.
 
 Dans un mouvement violent, la Hache Brise-Ciel vola vers le Daoïste aux Sept Couleurs. À cet instant précis, le Vieux Fantôme Zhan sortit de la mer de feu, derrière le Daoïste aux Sept Couleurs.
 

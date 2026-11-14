@@ -6,17 +6,17 @@ bookTitle: Clean Sweep
 en: Chapter 393 - The power of one word
 slug: le-pouvoir-dun-seul-mot
 ---
-Le regard de Wang Lin devint glacial. Il pointa du doigt son front et la perle défiant le ciel apparut.
+Le regard de Wang Lin devint glacial. Il pointa du doigt son front et la Perle Défiant le Ciel apparut.
 
 Ses yeux s'illuminèrent et il frappa son sac de rangement, faisant apparaître un cristal de la taille d'un poing, scintillant d'une lueur verte. C'était la moitié de l'esprit de bois que Wang Lin avait dérobée sous le nez de l'Ancien du mont Suzaku pendant son combat contre Hongdie.
 
-« Métal, bois, eau, feu et terre; la perle défiant le ciel ne manque plus que du métal et de la moitié de l'élément bois. Selon ce que Situ Nan a dit, une fois que les cinq éléments seront complets, elle pourra reconnaître un maître et déployer sa puissance. Ce jour arrivera bientôt. » Wang Lin approcha le cristal d'élément bois vers la perle.
+« Métal, bois, eau, feu et terre; la Perle Défiant le Ciel ne manque plus que du métal et de la moitié de l'élément bois. Selon ce que Situ Nan a dit, une fois que les cinq éléments seront complets, elle pourra reconnaître un maître et déployer sa puissance. Ce jour arrivera bientôt. » Wang Lin approcha le cristal d'élément bois vers la perle.
 
-Au moment où les deux se touchèrent, le cristal de bois disparut dans la perle défiant le ciel. Les motifs de feuilles de la perle se mirent à changer étrangement et à s'épanouir une à une jusqu'à ce qu'elle atteigne sa complétion.
+Au moment où les deux se touchèrent, le cristal de bois disparut dans la Perle Défiant le Ciel. Les motifs de feuilles de la perle se mirent à changer étrangement et à s'épanouir une à une jusqu'à ce qu'elle atteigne sa complétion.
 
 « Désormais, il ne me manque que l'élément métal! » Les yeux de Wang Lin étincelèrent alors qu'il tournait son regard vers Xue Yu. « L'élément métal peut attendre. Li Yuanfeng, je suis là! »
 
-Il rangea la perle défiant le ciel, se posa sur le crapaud tonnerre et éclata de rire. « Vieux ami, allons-y! »
+Il rangea la Perle Défiant le Ciel, se posa sur le crapaud tonnerre et éclata de rire. « Vieux ami, allons-y! »
 
 Le crapaud tonnerre poussa un rugissement joyeux et frappa le sol, qui se fendit en d'innombrables crevasses; il s'élança vers le ciel telle une météorite.
 

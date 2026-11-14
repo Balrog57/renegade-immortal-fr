@@ -34,7 +34,7 @@ Au fil de son vol, son apparence changea lentement. Peu de temps après, ses tra
 
 La plupart des cultivateurs maîtrisaient ce type de sort de changement d'apparence. Cependant, pour les experts, ce sort présentait trop de faiblesses: il suffisait à un cultivateur de haut niveau de se concentrer un instant pour déceler des indices, et face à des utilisateurs de sorts de vision, l'illusion serait perçue au premier coup d'œil.
 
-Pourtant, Wang Lin était différent. Il n'utilisait pas le sort lui-même; il était lancé par le gardien céleste caché dans son ombre. Peu de gens pourraient ainsi voir clair en lui.
+Pourtant, Wang Lin était différent. Il n'utilisait pas le sort lui-même; il était lancé par le garde céleste caché dans son ombre. Peu de gens pourraient ainsi voir clair en lui.
 
 Après un court voyage, une ville apparut devant lui. Cette cité était entourée de remparts faits de grandes pierres bleues et dégageait une majesté imposante. Au-dessus de la porte, deux grands caractères étaient inscrits:
 

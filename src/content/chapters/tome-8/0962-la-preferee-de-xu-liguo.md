@@ -82,7 +82,7 @@ Wang Lin ouvrit les yeux et se mit en mouvement. La porte s'ouvrit d'elle-même 
 
 « Je vais bientôt voir cette beauté! »
 
-Wang Lin fendit l'air et se dirigea vers le pied de la Montagne Pourpre. Au loin, il pouvait apercevoir des silhouettes s'agiter parmi les sept montagnes, signe de l'étendue d'une grande secte.
+Wang Lin fendit l'air et se dirigea vers le pied de la Mont Zi. Au loin, il pouvait apercevoir des silhouettes s'agiter parmi les sept montagnes, signe de l'étendue d'une grande secte.
 
 On entendait des chants au loin; c'étaient les disciples de bas niveau de la Secte Tian Yun qui pratiquaient leurs sorts.
 
@@ -90,7 +90,7 @@ Une énergie spirituelle dense imprégnait la Secte Tian Yun. Cependant, en ce m
 
 La Division Pourpre occupait le rang le plus bas parmi les sept divisions. Même la lignée des sept disciples directs n'était pas complète; en comptant Wang Lin, ils n'étaient que cinq.
 
-En conséquence, il y avait peu de disciples ordinaires sur la Montagne Pourpre, ce qui rendait cette immense montagne assez désolée et peu peuplée.
+En conséquence, il y avait peu de disciples ordinaires sur la Mont Zi, ce qui rendait cette immense montagne assez désolée et peu peuplée.
 
 En descendant la montagne, il ne croisa personne. Xu Liguo suivait Wang Lin, et la lumière du soleil qui tombait sur lui ne lui causait aucun inconfort. Au contraire, cela lui semblait agréable, surtout à l'idée de rencontrer bientôt cette beauté. Le cœur de Xu Liguo s'agita, et il en voulut à Wang Lin d'être aussi lent.
 

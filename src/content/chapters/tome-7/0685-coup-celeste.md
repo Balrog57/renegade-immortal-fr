@@ -48,7 +48,7 @@ Avec leur niveau de culture, ils ne comprenaient pas pourquoi ils ressentaient u
 
 Non seulement eux, mais les yeux de Qian Kuizi, qui observait via son Sens Divin, brillèrent intensément. Depuis la chambre secrète du domaine de la famille Qian, il se redressa brusquement.
 
-« Une Loi! Cette frappe d'épée contient une Loi! La quête de la seconde étape est celle de la Loi! La première étape consiste à comprendre les cieux, et la seconde consiste à convertir cette compréhension en le pouvoir des Lois. Si cet enfant n'est pas issu du Temple Céleste du Tonnerre, comment pourrait-il manifester une telle frappe?! »
+« Une Loi! Cette frappe d'épée contient une Loi! La quête de la seconde étape est celle de la Loi! La première étape consiste à comprendre les cieux, et la seconde consiste à convertir cette compréhension en le pouvoir des Lois. Si cet enfant n'est pas issu du Temple Lei Xian, comment pourrait-il manifester une telle frappe?! »
 
 Au même moment, un membre de la famille Xu remarqua la scène. Un vieil homme de la famille Xu observait également la bataille au domicile des Huan grâce à son Sens Divin. Auparavant, il avait conclu un accord pour apporter son aide à la famille Huan. Il avait déjà levé le pied pour intervenir, mais à cet instant, il le reposa doucement.
 
@@ -84,7 +84,7 @@ Huan Wuqing pensa: « Hélas, le trésor céleste a disparu avec Huan Wuxiang il
 
 La puissance émanant du jade était semblable à une douce brise printanière, tout en dégageant une lumière éclatante. Après un instant, le jade sembla fondre pour prendre la forme d'une personne. Bien que ses traits fussent flous, elle dégageait une majesté écrasante.
 
-« Le pouvoir du jade céleste de la famille Huan est imprévisible. La rumeur prétend que l'ancêtre céleste des Huan possédait une culture équivalente à celle d'un Purificateur du Nirvana. Je me demande comment le messager du Temple Céleste du Tonnerre va réagir. Mais c'est étrange; pourquoi ne sort-il pas le trésor laissé par l'ancêtre au lieu de convoquer le jade? » Les yeux de Qian Kuizi brillaient tandis qu'il observait la scène via son Sens Divin.
+« Le pouvoir du jade céleste de la famille Huan est imprévisible. La rumeur prétend que l'ancêtre céleste des Huan possédait une culture équivalente à celle d'un Purificateur du Nirvana. Je me demande comment le messager du Temple Lei Xian va réagir. Mais c'est étrange; pourquoi ne sort-il pas le trésor laissé par l'ancêtre au lieu de convoquer le jade? » Les yeux de Qian Kuizi brillaient tandis qu'il observait la scène via son Sens Divin.
 
 Dans la demeure des Xu, le vieil homme sourit et murmura: « Le trésor céleste de la famille Huan a dû être emporté par l'autre ancêtre de leur lignée. L'ancêtre céleste en a laissé un autre, tout à fait convenable. Cependant, il n'aurait jamais cru que ce trésor finirait par tuer un cultivateur de la seconde étape de la famille Huan. »
 

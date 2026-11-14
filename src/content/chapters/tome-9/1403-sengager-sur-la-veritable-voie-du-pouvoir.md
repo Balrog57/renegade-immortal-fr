@@ -84,7 +84,7 @@ Le vieux Suzaku déglutit et soupira intérieurement. Ayant vécu si longtemps, 
 
 Mais intérieurement, il fulminait: « Malédiction, je ne peux pas laisser ce gamin me démasquer. S'il découvre que ce vieil homme n'avait même pas pu comprendre cela à l'époque, toute ma dignité d'Ancien sera réduite à néant... Si j'avais su, je lui aurais transmis les sorts secrets du Tigre Blanc ou du Dragon Azure. Ces techniques ne sont pas destinées aux humains. Avec la compréhension de ce petit monstre, il devrait plutôt étudier ces choses-là. »
 
-Le vieux Suzaku toussa sèchement pour changer de sujet. Ses yeux s'agrandirent et il déclara: « Très bien. Maintenant que tu as appris le sort secret, suis-moi pour l'épreuve. Une fois l'épreuve terminée, va te servir de Maître Simo pour asseoir ton autorité! »
+Le vieux Suzaku toussa sèchement pour changer de sujet. Ses yeux s'agrandirent et il déclara: « Très bien. Maintenant que tu as appris le sort secret, suis-moi pour l'épreuve. Une fois l'épreuve terminée, va te servir de Maître Si Mo pour asseoir ton autorité! »
 
 D'un revers de manche, il les transforma tous deux en Flamme Éthérée avant de s'élancer vers le nord-ouest.
 
@@ -96,7 +96,7 @@ Grâce à la puissance de culture du vieux Suzaku, Wang Lin fut transporté inst
 
 Des dizaines de milliers de cultivateurs entouraient l'arène pour observer le combat, et plusieurs zones restaient désertées, car nul n'osait s'en approcher.
 
-L'un de ces lieux isolés était occupé par Maître Simo et le Grand Maître Yun Luo! Un autre abritait un père et sa fille enveloppés d'une lumière bleue!
+L'un de ces lieux isolés était occupé par Maître Si Mo et le Grand Maître Yun Luo! Un autre abritait un père et sa fille enveloppés d'une lumière bleue!
 
 Ailleurs, un homme seul, vêtu de vert, ressemblant à un jeune homme, était allongé paresseusement sur un nuage, observant le combat en dessous. Il bâilla en croquant dans une pêche.
 

@@ -72,11 +72,11 @@ Le Clan Lan Si était devenu un grand clan du Système Stellaire Antique grâce 
 
 Ils avaient retrouvé cette joie sous la protection de Lanmeng Daozun. Pour le Clan Lan Si, Lanmeng Daozun était leur divinité, recevant l'admiration et le respect de tout son peuple.
 
-Le Mont Bleu, son lieu de résidence, était devenu une terre sacrée pour le clan! Cependant, malgré cette joie retrouvée, une subtile tristesse émanant du Mont Bleu allait pour toujours subsister.
+Le Mont Lan, son lieu de résidence, était devenu une terre sacrée pour le clan! Cependant, malgré cette joie retrouvée, une subtile tristesse émanant du Mont Lan allait pour toujours subsister.
 
 Tout comme le souvenir de Lanmeng Daozun, cette mélancolie était devenue éternelle.
 
-À cet instant précis, au sommet du Mont Bleu, une demeure très ordinaire oscillait doucement sous la brise. À l'intérieur, un homme d'âge mûr aux cheveux bleus jouait de la cithare. Après un long moment, il leva lentement la tête.
+À cet instant précis, au sommet du Mont Lan, une demeure très ordinaire oscillait doucement sous la brise. À l'intérieur, un homme d'âge mûr aux cheveux bleus jouait de la cithare. Après un long moment, il leva lentement la tête.
 
 Sa beauté aurait fait pâlir tous les autres hommes du monde. Même les femmes semblaient ternes en comparaison; sa prestance paraissait presque indigne de ce monde mortel.
 
@@ -110,7 +110,7 @@ Le domaine stellaire du Clan Lan Si était extrêmement vaste. À cet instant, �
 
 Alors qu'elle s'apprêtait à pénétrer dans le territoire du clan, la femme en blanc s'arrêta brusquement et regarda droit devant elle.
 
-Une lumière bleue apparut silencieusement dans le vide. L'homme d'âge mûr qui avait quitté le Mont Bleu venait de réapparaître.
+Une lumière bleue apparut silencieusement dans le vide. L'homme d'âge mûr qui avait quitté le Mont Lan venait de réapparaître.
 
 Ses yeux étaient glacials, et il ne prononça qu'un mot:
 

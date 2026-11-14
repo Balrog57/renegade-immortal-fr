@@ -18,9 +18,9 @@ L'expression de l'homme en or se ternit en voyant cela. Il laissa échapper un r
 
 Plusieurs personnes l'accompagnaient. Toutes affichaient des visages sombres et restaient muettes, les yeux fixés sur le nuage ténébreux.
 
-Une pointe de dérision apparut dans les yeux de Sun Yunshan. Il avait appris quelques détails sur cette affaire par l'intermédiaire de sa sœur. La plupart des petites équipes pensaient qu'il s'agissait d'une occasion facile de gagner du mérite, car l'Ancêtre avait envoyé un gardien céleste. Tous se battaient pour saisir cette chance.
+Une pointe de dérision apparut dans les yeux de Sun Yunshan. Il avait appris quelques détails sur cette affaire par l'intermédiaire de sa sœur. La plupart des petites équipes pensaient qu'il s'agissait d'une occasion facile de gagner du mérite, car l'Ancêtre avait envoyé un garde céleste. Tous se battaient pour saisir cette chance.
 
-Le messager qui avait rapporté la position de Wang Lin avait certes mentionné que le lieu était entouré d'un puissant nuage, mais ceux qui convoitaient ce mérite n'y avaient pas prêté attention. Ils étaient convaincus que rien ne poserait problème en présence du gardien céleste.
+Le messager qui avait rapporté la position de Wang Lin avait certes mentionné que le lieu était entouré d'un puissant nuage, mais ceux qui convoitaient ce mérite n'y avaient pas prêté attention. Ils étaient convaincus que rien ne poserait problème en présence du garde céleste.
 
 Sun Yunshan regarda autour de lui. En comptant lui-même, ils étaient moins de vingt. La plupart se situaient au début du stade de la Transformation de l'Âme, et seuls quelques-uns atteignaient le milieu de ce stade. Il n'y avait qu'un seul cultivateur au stade tardif de la Transformation de l'Âme: l'Oncle Feng, qui était resté silencieux durant tout ce temps.
 
@@ -48,7 +48,7 @@ La masse sombre se souleva comme des vagues déchaînées et prit des formes de 
 
 Presque tous les membres de l'Union de Culture furent frappés de stupeur. Bien qu'ils fussent encore loin, ils eurent l'impression d'être juste à côté du nuage noir. Leurs vêtements se retrouvèrent instantanément trempés de sueur. C'était comme si le numéro 10 n'était pas le seul à avoir été dévoré par cette obscurité.
 
-Les yeux calmes du gardien céleste s'illuminèrent soudainement alors qu'il observait attentivement le nuage, affichant une expression perplexe.
+Les yeux calmes du garde céleste s'illuminèrent soudainement alors qu'il observait attentivement le nuage, affichant une expression perplexe.
 
 « Capitaine... Capitaine, ce nuage noir... » Un homme aux côtés de l'homme en or était terrifié.
 
@@ -108,7 +108,7 @@ L'expression de l'homme en or changea radicalement. Il recula instinctivement, l
 
 Quant à Sun Yunshan, l'excitation qui brûlait en lui surpassait largement le choc. Il criait intérieurement: « C'est lui, c'est vraiment lui! »
 
-Alors qu'il reculait, l'homme en or hurla: « Gardien Céleste, attaque! »
+Alors qu'il reculait, l'homme en or hurla: « Garde Céleste, attaque! »
 
 À peine eut-il parlé que les yeux de l'homme en noir brillèrent d'un éclat soudain. Il fit un pas et apparut au-dessus de la tour en un instant. Sa main droite traça un sceau qu'il abattit avec force!
 

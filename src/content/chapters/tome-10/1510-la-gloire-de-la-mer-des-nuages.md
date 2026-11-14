@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1510 - Glory of the Cloud Sea!"
 slug: la-gloire-de-la-mer-des-nuages
 ---
-Sa voix déferla sur la Secte Divine, pénétrant les oreilles des quelque 10 000 cultivateurs se trouvant à l'intérieur de la Formation de Destruction des Neuf Cieux.
+Sa voix déferla sur la Secte Shen, pénétrant les oreilles des quelque 10 000 cultivateurs se trouvant à l'intérieur de la Formation de Destruction des Neuf Cieux.
 
 Ces cultivateurs n'avaient pas encore terminé la mise en place de la formation. Ils s'étaient précipités ici dès réception de l'ordre, mais Wang Lin avait été trop rapide: la formation n'était achevée qu'à moins de 30 %!
 
@@ -18,7 +18,7 @@ Alors que sa voix résonnait à travers les étoiles, elle fut clairement entend
 
 « Tu ne racontes que des bêtises. Formation de Destruction des Neuf Cieux, détruisez cet espion du Souverain! » La voix du Shui Daozi perça l'esprit de Wang Lin telle une épée tranchante.
 
-Un éclair de froideur brilla dans ses yeux et il laissa échapper un reniflement glacial. Ce souffle dispersa l'épée invisible envoyée par le Shui Daozi, tandis que Wang Lin pointait simultanément l'espace entre ses sourcils. Un éclat de lumière sanguine apparut sans que personne ne puisse le détecter, puis Wang Lin avança vers la Secte Divine!
+Un éclair de froideur brilla dans ses yeux et il laissa échapper un reniflement glacial. Ce souffle dispersa l'épée invisible envoyée par le Shui Daozi, tandis que Wang Lin pointait simultanément l'espace entre ses sourcils. Un éclat de lumière sanguine apparut sans que personne ne puisse le détecter, puis Wang Lin avança vers la Secte Shen!
 
 Il marchait vers le sommet de la Mer Yun pour affronter le cultivateur de la troisième étape, le Shui Daozi!
 
@@ -48,11 +48,11 @@ Cependant, aujourd'hui, la situation s'était totalement inversée. À cet insta
 
 « Tuez! »
 
-« Nous ne pouvons pas laisser cet homme entrer dans la Secte Divine! »
+« Nous ne pouvons pas laisser cet homme entrer dans la Secte Shen! »
 
-« L'ordre de la Secte Divine est de défendre jusqu'à la mort! Des cultivateurs comme nous ne craignent pas la mort! » Les cultivateurs au visage pâle étaient forcés de battre en retraite. La Secte Divine était derrière eux; c'était leur vie même et la raison de leur culture!
+« L'ordre de la Secte Shen est de défendre jusqu'à la mort! Des cultivateurs comme nous ne craignent pas la mort! » Les cultivateurs au visage pâle étaient forcés de battre en retraite. La Secte Shen était derrière eux; c'était leur vie même et la raison de leur culture!
 
-Au cours des dizaines de milliers d'années écoulées, la position de la Secte Divine était une chose que les cultivateurs de la Mer Yun respectaient et pour laquelle ils étaient prêts à mourir!
+Au cours des dizaines de milliers d'années écoulées, la position de la Secte Shen était une chose que les cultivateurs de la Mer Yun respectaient et pour laquelle ils étaient prêts à mourir!
 
 L'intention du Shui Daozi était de les laisser périr! De les laisser mourir entre les mains de Wang Lin, afin de susciter la colère de tous les cultivateurs de la Mer Yun et le chagrin des trois autres systèmes stellaires!
 
@@ -66,11 +66,11 @@ Sous la poussée de la peur et de l'honneur, ces quelque 10 000 cultivateurs fir
 
 « Gloire à la Mer Yun! »
 
-Ces rugissements se propagèrent en ondes tandis que ces quelque 10 000 cultivateurs poussaient le cri le plus puissant de leur vie. C'était leur détermination à protéger la Mer Yun et la Secte Divine jusqu'au dernier souffle!
+Ces rugissements se propagèrent en ondes tandis que ces quelque 10 000 cultivateurs poussaient le cri le plus puissant de leur vie. C'était leur détermination à protéger la Mer Yun et la Secte Shen jusqu'au dernier souffle!
 
 Ce son était capable de secouer l'esprit de quiconque l'entendait et de faire trembler les âmes!
 
-Portés par ce chant de gloire, ces quelque 10 000 cultivateurs semblaient avoir perdu la raison en chargeant vers l'avant. Ils commencèrent à activer la Formation de Destruction des Neuf Cieux pourtant incomplète. Ils utilisaient leur chair et leur sang pour défendre la gloire de la Secte Divine!
+Portés par ce chant de gloire, ces quelque 10 000 cultivateurs semblaient avoir perdu la raison en chargeant vers l'avant. Ils commencèrent à activer la Formation de Destruction des Neuf Cieux pourtant incomplète. Ils utilisaient leur chair et leur sang pour défendre la gloire de la Secte Shen!
 
 Pitoyables, mais respectables!
 
@@ -78,9 +78,9 @@ Wang Lin fut ému en voyant les cultivateurs de la Mer Yun charger contre lui. C
 
 Ces cultivateurs appartenaient à divers niveaux de culture, possédaient différents domaines et venaient de sectes variées. Pourtant, ils partageaient le sang de la Mer Yun et une foi unique. Ils étaient de véritables cultivateurs de la Mer Yun, unis dans la vie comme dans la mort!
 
-Ce qu'ils gardaient n'était pas le Shui Daozi, mais la Secte Divine!
+Ce qu'ils gardaient n'était pas le Shui Daozi, mais la Secte Shen!
 
-Ils ignoraient l'insidiosité du Shui Daozi; ils savaient seulement que la Secte Divine avait ordonné de ne pas laisser Wang Lin entrer!
+Ils ignoraient l'insidiosité du Shui Daozi; ils savaient seulement que la Secte Shen avait ordonné de ne pas laisser Wang Lin entrer!
 
 Gloire à la Mer Yun!
 
@@ -122,9 +122,9 @@ Dès que ces quelque 10 000 personnes furent figées, Wang Lin fit un pas en ava
 
 Ils étaient dignes de respect!
 
-Le monde trembla. Wang Lin avait écarté les quelque 10 000 cultivateurs, mais il ne pouvait écarter la gloire. Il fendit cette aura pour charger vers la planète de la Secte Divine, là où se trouvait le Shui Daozi!
+Le monde trembla. Wang Lin avait écarté les quelque 10 000 cultivateurs, mais il ne pouvait écarter la gloire. Il fendit cette aura pour charger vers la planète de la Secte Shen, là où se trouvait le Shui Daozi!
 
-« Shui Daozi, oses-tu m'affronter loyalement? » La planète de la Secte Divine trembla et la terre s'effondra. D'innombrables fissures apparurent sous les pas de Wang Lin alors qu'il atteignait la planète!
+« Shui Daozi, oses-tu m'affronter loyalement? » La planète de la Secte Shen trembla et la terre s'effondra. D'innombrables fissures apparurent sous les pas de Wang Lin alors qu'il atteignait la planète!
 
 Son apparition fit hurler le brouillard gelé, tandis que les craquements se multipliaient. La glace se répandit dans toutes les directions, enveloppant toute la zone!
 

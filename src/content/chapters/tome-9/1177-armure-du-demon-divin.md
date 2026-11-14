@@ -34,9 +34,9 @@ Elle n'était pas obligée de le faire, mais elle l'avait fait.
 
 Le génie de la Secte Po Tian de rang 9, Li Qianmei, s'était assise aux côtés de Wang Lin et avait même reçu une peinture de sa part. Ce geste fut vu par tous les cultivateurs environnants.
 
-Li Qianmei avait utilisé cette méthode pour apporter la réponse à la question de savoir si Wang Lin était un membre de la Secte Divine.
+Li Qianmei avait utilisé cette méthode pour apporter la réponse à la question de savoir si Wang Lin était un membre de la Secte Shen.
 
-L'enchère se poursuivit, mais le regard des cultivateurs envers Wang Lin changea. Auparavant, beaucoup doutaient de son appartenance à la Secte Divine; des doutes subsistaient, bien que soigneusement dissimulés.
+L'enchère se poursuivit, mais le regard des cultivateurs envers Wang Lin changea. Auparavant, beaucoup doutaient de son appartenance à la Secte Shen; des doutes subsistaient, bien que soigneusement dissimulés.
 
 Cependant, la majorité de ces doutes furent dissipés par le départ de Li Qianmei.
 
@@ -94,13 +94,13 @@ Dès que le sceau de l'armure fut levé, l'environnement s'enfonça dans un sile
 
 Certains se levèrent, frappés par le choc et l'incrédulité.
 
-Le vieil homme balafré eut un souffle court et murmura: « L'Armure Démoniaque de la Secte Divine! »
+Le vieil homme balafré eut un souffle court et murmura: « L'Armure Démoniaque de la Secte Shen! »
 
 « L'Armure du Démon Divin! »
 
 « C'est bel et bien l'Armure du Démon Divin! »
 
-« L'armure que seule la Secte Divine possède... Son énergie démoniaque est extrêmement dense; elle doit être une Armure du Démon Divin de rang 4! » Toute l'enchère s'agita face à cette apparition.
+« L'armure que seule la Secte Shen possède... Son énergie démoniaque est extrêmement dense; elle doit être une Armure du Démon Divin de rang 4! » Toute l'enchère s'agita face à cette apparition.
 
 Les cultivateurs présents étaient tous des experts érudits, puissants et dotés d'une grande force mentale. Pourtant, à cet instant précis, leur volonté vacilla devant cette armure!
 
@@ -108,7 +108,7 @@ L'Ancien de la Secte Dao Fa joignit les mains vers Wang Lin: « Daoïste Lu, sou
 
 Sa question plongea immédiatement l'assemblée dans le silence. Tous les regards se tournèrent vers Wang Lin.
 
-Wang Lin restait calme en contemplant l'armure démoniaque. Il n'avait pas imaginé que cet objet serait lié à la Secte Divine. Un intérêt marqué pour la Secte Divine de la Mer Yun naquit dans son cœur.
+Wang Lin restait calme en contemplant l'armure démoniaque. Il n'avait pas imaginé que cet objet serait lié à la Secte Shen. Un intérêt marqué pour la Secte Shen de la Mer Yun naquit dans son cœur.
 
 Wang Lin dit simplement: « Je ne veux que des cristaux d'origine. »
 
@@ -116,7 +116,7 @@ Wang Lin dit simplement: « Je ne veux que des cristaux d'origine. »
 
 « Cette femme en offre 5 000! » La vieille dame qui avait échangé la carte stellaire avec Wang Lin lança son offre, le regard mystérieux fixé sur l'armure.
 
-Le lettré en blanc prit une grande inspiration: « Je crois que vous voulez tous l'acquérir pour étudier les sorts de la Secte Divine. Seuls ses membres possèdent de tels objets, et ils sont rarement divulgués. Je dois l'obtenir. J'offre 8 000 cristaux d'origine! »
+Le lettré en blanc prit une grande inspiration: « Je crois que vous voulez tous l'acquérir pour étudier les sorts de la Secte Shen. Seuls ses membres possèdent de tels objets, et ils sont rarement divulgués. Je dois l'obtenir. J'offre 8 000 cristaux d'origine! »
 
 L'Ancien de la Secte Dao Fa hésita, puis serra les dents: « 10 000 cristaux d'origine! » Sa secte ne disposait pas de telles richesses; 10 000 était sa limite absolue.
 

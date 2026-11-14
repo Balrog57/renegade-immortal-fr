@@ -6,13 +6,13 @@ bookTitle: Light of the coming end
 en: Chapter 2028 - Filled With Rage (7)
 slug: empli-de-rage-7
 ---
-Alors que Wang Lin traversait le palais entouré d'un millier de personnes, un soupir provenant de son maître, Xuan Luo, résonna. Quelques instants auparavant, dans une montagne éloignée de la cité impériale du Dao Antique, quelque chose d'autre se passait.
+Alors que Wang Lin traversait le palais entouré d'un millier de personnes, un soupir provenant de son maître, Xuan Luo, résonna. Quelques instants auparavant, dans une montagne éloignée de la cité impériale du Dao Gu, quelque chose d'autre se passait.
 
 L'intérieur de la montagne était totalement creux, mais de l'extérieur, même des Grands Empyréens n'auraient rien remarqué. À l'intérieur se trouvait une immense formation, si extrêmement complexe qu'elle en troublait la vue pour quiconque tenterait de l'observer.
 
 La formation émettait une lumière blanche et scintillait sans cesse. Elle dégageait une sensation étrange, et au centre siégeait une silhouette floue enveloppée d'une lumière aux sept couleurs. La silhouette forgeait des sceaux et les appliquait sur la formation.
 
-Dès que les sceaux aux sept couleurs se posèrent, une illusion apparut au sein de la formation: une version miniature du palais impérial du Dao Antique.
+Dès que les sceaux aux sept couleurs se posèrent, une illusion apparut au sein de la formation: une version miniature du palais impérial du Dao Gu.
 
 Des points noirs et blancs étaient dispersés dans ce palais miniature. On comptait des dizaines de milliers de points noirs, mais comparés aux points blancs, ils restaient inférieurs en nombre. Les points blancs occupaient presque tout le palais et leur nombre ne cessait d'augmenter.
 
@@ -20,9 +20,9 @@ Mille points blancs entouraient l'unique point rouge. Ce point rouge, imprégné
 
 « Le noir représente les âmes mortes et le blanc la vitalité... Ce point rouge... est Wang Lin... Wang Lin, nous nous retrouvons! » La silhouette floue aux sept couleurs sourit, et une voix rauque résonna.
 
-« Ce vieil homme a récupéré son... fragment d'âme à l'époque pour le donner à l'Empereur du Dao Antique. Il a bien agi selon mes plans en trouvant quelqu'un pour fusionner avec cette âme afin de devenir son impératrice... »
+« Ce vieil homme a récupéré son... fragment d'âme à l'époque pour le donner à l'Empereur du Dao Gu. Il a bien agi selon mes plans en trouvant quelqu'un pour fusionner avec cette âme afin de devenir son impératrice... »
 
-« Et tu es venu au palais du Dao Antique, comme je m'y attendais... Tue! Plus tu tueras, plus le bénéfice sera grand pour ce vieil homme! » La silhouette aux sept couleurs sourit, mais lorsqu'il prononça « fragment d'âme », sa voix trembla légèrement avant de se rétablir aussitôt. Il leva la main droite et une lumière blanche brilla; tandis que sa main gauche s'élevait, une lumière noire enveloppa sa paume. Cela fit que les couleurs l'entourant passèrent à neuf!
+« Et tu es venu au palais du Dao Gu, comme je m'y attendais... Tue! Plus tu tueras, plus le bénéfice sera grand pour ce vieil homme! » La silhouette aux sept couleurs sourit, mais lorsqu'il prononça « fragment d'âme », sa voix trembla légèrement avant de se rétablir aussitôt. Il leva la main droite et une lumière blanche brilla; tandis que sa main gauche s'élevait, une lumière noire enveloppa sa paume. Cela fit que les couleurs l'entourant passèrent à neuf!
 
 Au même instant, un rayon de gaz gris apparut de nulle part et fusionna avec les neuf couleurs, les portant à dix!!
 
@@ -32,7 +32,7 @@ Ce gaz gris était ce rayon de lumière fantomatique qui s'était manifesté lor
 
 « Malheureusement, je souffre de... limitations et ne peux absorber que l'aura de mort issue du massacre de Wang Lin. Sinon, si ce vieil homme agissait personnellement, je pourrais rassembler la quantité d'aura de mort dont j'ai besoin en peu de temps afin de... » La silhouette marqua deux pauses en parlant. C'était comme s'il était entravé par quelque chose et qu'il craignait même l'objectif qu'il tentait d'atteindre avec cette aura, au point de ne vouloir le nommer clairement.
 
-« Le massacre de Wang Lin dans le monde des grottes m'a satisfait, mais depuis son arrivée sur le Continent Xian Gang, il a très peu tué sur les terres du clan céleste. Sans cela, ce vieil homme aurait pu terminer sa collecte et n'aurait pas eu besoin d'utiliser l'atout du Dao Antique... Heureusement, j'étais préparé et j'ai retiré son... fragment d'âme bien tôt. » La silhouette floue s'interrompit à nouveau sur le mot « son », et sa voix trembla avant de s'éteindre.
+« Le massacre de Wang Lin dans le monde des grottes m'a satisfait, mais depuis son arrivée sur le Continent Xian Gang, il a très peu tué sur les terres du clan céleste. Sans cela, ce vieil homme aurait pu terminer sa collecte et n'aurait pas eu besoin d'utiliser l'atout du Dao Gu... Heureusement, j'étais préparé et j'ai retiré son... fragment d'âme bien tôt. » La silhouette floue s'interrompit à nouveau sur le mot « son », et sa voix trembla avant de s'éteindre.
 
 Après un long moment, une lueur de froideur traversa les yeux de la silhouette.
 
@@ -44,17 +44,17 @@ Sur ce geste, tous les points noirs tremblèrent et devinrent pâles, comme s'il
 
 L'expression de la silhouette entourée des dix couleurs changea, et il s'exclama: « Ils... »
 
-À ce moment précis, dans la cité impériale du Dao Antique, alors que le soupir tombait du ciel, Wang Lin s'arrêta soudainement. Il semblait avoir oublié le danger, les 36 Fléaux qui chargeaient vers lui et l'Empereur du Dao Antique situé à des dizaines de milliers de pieds de là.
+À ce moment précis, dans la cité impériale du Dao Gu, alors que le soupir tombait du ciel, Wang Lin s'arrêta soudainement. Il semblait avoir oublié le danger, les 36 Fléaux qui chargeaient vers lui et l'Empereur du Dao Gu situé à des dizaines de milliers de pieds de là.
 
 Le rouge dans les yeux de Wang Lin se dissipa progressivement, et la folie ainsi que la férocité sur son visage s'estompèrent lentement, remplacées par une amertume face à la silhouette familière qui descendait du ciel.
 
-Il savait que son maître viendrait certainement et qu'il l'arrêterait sans faute. C'est pourquoi il n'avait rien expliqué et avait tenté de tuer l'Empereur du Dao Antique pour emmener Li Muwan le plus vite possible.
+Il savait que son maître viendrait certainement et qu'il l'arrêterait sans faute. C'est pourquoi il n'avait rien expliqué et avait tenté de tuer l'Empereur du Dao Gu pour emmener Li Muwan le plus vite possible.
 
-Wang Lin avait depuis longtemps percé les intentions et les agissements de l'Empereur du Dao Antique grâce au jade laissé par l'Ancêtre de la Secte Da Hun. Il avait même entendu ce que l'Empereur avait murmuré près du lit.
+Wang Lin avait depuis longtemps percé les intentions et les agissements de l'Empereur du Dao Gu grâce au jade laissé par l'Ancêtre de la Secte Da Hun. Il avait même entendu ce que l'Empereur avait murmuré près du lit.
 
-Par-dessus tout, l'Empereur du Dao Antique avait forcé Song Zhi à boire avec Wang Lin. Comment l'Empereur aurait-il pu ne pas comprendre en voyant l'expression de Wang Lin? Il se complaisait simplement dans le plaisir de manipuler un couple d'amants.
+Par-dessus tout, l'Empereur du Dao Gu avait forcé Song Zhi à boire avec Wang Lin. Comment l'Empereur aurait-il pu ne pas comprendre en voyant l'expression de Wang Lin? Il se complaisait simplement dans le plaisir de manipuler un couple d'amants.
 
-C'est pourquoi, une fois que Wang Lin comprit tout, il poussa un hurlement annonçant qu'il allait tuer Ye Dao et cet Empereur du Dao Antique!
+C'est pourquoi, une fois que Wang Lin comprit tout, il poussa un hurlement annonçant qu'il allait tuer Ye Dao et cet Empereur du Dao Gu!
 
 Il avait envisagé de dissimuler sa rage et de pénétrer calmement dans le palais pour emmener Song Zhi. Cependant, sa limite ultime avait été franchie. S'il pouvait tolérer cela, alors il n'avait plus de limite ultime!
 
@@ -62,7 +62,7 @@ Bien qu'attaquer un Empereur pris au dépourvu puisse sembler être la meilleure
 
 Mais s'il agissait en assassin, cela signifierait qu'il était d'un calme glacial. S'il commettait un tel acte tout en réfléchissant froidement, les dommages causés à Xuan Luo seraient irréparables. Wang Lin comprenait tout cela, et il ne choisirait pas cette voie.
 
-Wang Lin n'utiliserait pas de telles méthodes. Il allait reprendre l'âme de Wan Er, tuer l'Empereur du Dao Antique, et le faire ouvertement, la tête haute. La seule chose qu'il devait considérer était les sentiments de son maître...
+Wang Lin n'utiliserait pas de telles méthodes. Il allait reprendre l'âme de Wan Er, tuer l'Empereur du Dao Gu, et le faire ouvertement, la tête haute. La seule chose qu'il devait considérer était les sentiments de son maître...
 
 « Maître... » Wang Lin joignit les mains et s'inclina devant la personne qui s'avançait vers lui. Il ne se redressa pas et continua de s'incliner, même lorsque les 36 Fléaux profitèrent de cette occasion pour se rapprocher.
 
@@ -70,19 +70,19 @@ Dans le ciel, Xuan Luo apparut et regarda Wang Lin. Il semblait avoir beaucoup v
 
 D'un seul mouvement, les 36 Fléaux crachèrent du sang et reculèrent, terrifiés. Tous ceux qui se trouvaient aux côtés de Wang Lin furent projetés à 10 000 pieds, ne laissant que Wang Lin, qui poursuivait son inclinaison.
 
-L'Empereur du Dao Antique ricana intérieurement en voyant Xuan Luo apparaître. Ses yeux s'illuminèrent et il s'avança rapidement: « Seigneur Xuan, Wang Lin a forcé l'entrée du palais pour tenter de voler mon impératrice. Il est coupable d'une trahison inouïe, indigne d'être le disciple de votre Seigneurie! J'espère que le Seigneur Xuan... »
+L'Empereur du Dao Gu ricana intérieurement en voyant Xuan Luo apparaître. Ses yeux s'illuminèrent et il s'avança rapidement: « Seigneur Xuan, Wang Lin a forcé l'entrée du palais pour tenter de voler mon impératrice. Il est coupable d'une trahison inouïe, indigne d'être le disciple de votre Seigneurie! J'espère que le Seigneur Xuan... »
 
 Avant qu'il ne puisse achever sa phrase, Xuan Luo se tourna brusquement vers lui.
 
 « Dégage de ma vue!! »
 
-L'Empereur du Dao Antique trembla et cracha du sang en reculant de plusieurs pas. Il regarda le sang qu'il avait expulsé avec incrédulité. Il ne s'attendait pas à ce que Xuan Luo ose le blesser!
+L'Empereur du Dao Gu trembla et cracha du sang en reculant de plusieurs pas. Il regarda le sang qu'il avait expulsé avec incrédulité. Il ne s'attendait pas à ce que Xuan Luo ose le blesser!
 
 Il allait reprendre la parole, mais face à l'intention meurtrière et à la rage dans les yeux de Xuan Luo, il avala ses mots. Son expression était sombre, mais il n'osa plus rien dire.
 
-« Grand Empyréen Xuan Luo... » Le père de l'Empereur du Dao Antique, le vieil homme qui avait perdu son bras droit, soupira et s'inclina devant Xuan Luo.
+« Grand Empyréen Xuan Luo... » Le père de l'Empereur du Dao Gu, le vieil homme qui avait perdu son bras droit, soupira et s'inclina devant Xuan Luo.
 
-« Cet enfant manque de respect au pouvoir impérial, mais je crois que le vénérable gardien du Dao Antique traitera cette affaire avec équité. Après tout, cet individu a tué des dizaines de milliers de puissants de mon Dao Antique. Il a gravement entamé la vitalité de mon Dao Antique, et cela est impardonnable! » Le vieil homme était bien plus avisé que l'empereur actuel. Ses paroles mettaient l'accent sur le fait que Wang Lin avait massacré une multitude de personnes.
+« Cet enfant manque de respect au pouvoir impérial, mais je crois que le vénérable gardien du Dao Gu traitera cette affaire avec équité. Après tout, cet individu a tué des dizaines de milliers de puissants de mon Dao Gu. Il a gravement entamé la vitalité de mon Dao Gu, et cela est impardonnable! » Le vieil homme était bien plus avisé que l'empereur actuel. Ses paroles mettaient l'accent sur le fait que Wang Lin avait massacré une multitude de personnes.
 
 Xuan Luo réfléchit silencieusement, puis il regarda Wang Lin. Ses yeux étaient empreints de regret et de tristesse. Il y avait aussi de la confusion, et son visage paraissait encore plus vieilli. Il observa son disciple, toujours agenouillé là. Ses lèvres tremblèrent, mais il resta incapable de parler.
 

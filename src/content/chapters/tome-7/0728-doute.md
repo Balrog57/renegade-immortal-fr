@@ -28,13 +28,13 @@ L'homme au visage féminin détourna soigneusement le regard de Wang Lin, craign
 
 Il aperçut également la Bête de Tonnerre aux cornes argentées dans le lac ainsi que la marionnette. Ses soupçons s'accentuèrent.
 
-Il pensa: « Il doit posséder un trésor caché. Il est impossible qu'il dissimule son niveau de culture! Mais pourquoi y a-t-il deux Bêtes de Tonnerre ici? Cet homme pourrait-il aussi être un messager du Temple Céleste du Tonnerre? » Après tout, pénétrer le cercle intérieur du lac de tonnerre était une perspective terrifiante. Même avec sa culture au sommet du stade Corporel Yang, il lui aurait été impossible d'y entrer.
+Il pensa: « Il doit posséder un trésor caché. Il est impossible qu'il dissimule son niveau de culture! Mais pourquoi y a-t-il deux Bêtes de Tonnerre ici? Cet homme pourrait-il aussi être un messager du Temple Lei Xian? » Après tout, pénétrer le cercle intérieur du lac de tonnerre était une perspective terrifiante. Même avec sa culture au sommet du stade Corporel Yang, il lui aurait été impossible d'y entrer.
 
 « C'est Shengong Hu de la famille Shengong. Je ne t'avais pas reconnu. Ton niveau de culture a bien chuté! » L'homme au visage féminin concentra son esprit et fixa Shengong Hu.
 
 Shengong Hu renifla froidement intérieurement, mais son expression resta imperturbable. Ses yeux devinrent cependant sombres alors qu'il disait calmement: « Cet endroit n'est pas pour toi. Pourquoi n'es-tu pas encore parti? »
 
-Bien qu'il fût blessé et que sa culture ne fût pas encore rétablie, la présence de Wang Lin lui donnait l'audace de parler ainsi, même si le seigneur du Temple Céleste du Tonnerre venait en personne.
+Bien qu'il fût blessé et que sa culture ne fût pas encore rétablie, la présence de Wang Lin lui donnait l'audace de parler ainsi, même si le seigneur du Temple Lei Xian venait en personne.
 
 Zhan Konglie fronça les sourcils et regarda inconsciemment Wang Lin. Il dit lentement: « Quelles grandes paroles. Cet endroit appartient-il à ta famille Shengong? Interdirais-tu l'accès aux étrangers simplement parce que tu as amené un junior ici pour sa culture? »
 
@@ -42,7 +42,7 @@ Shengong Hu ricana sans toutefois s'expliquer. Il dit froidement: « Si tu ne pa
 
 Si ce Zhan Konglie persistait dans son ingratitude et perturbait la culture de son Senior, il l'attaquerait, même avec une culture endommagée. Tant que le Senior jetterait sur Zhan Konglie le même regard qu'autrefois sur Shengong Hu, cela suffirait à faire s'effondrer Zhan Konglie!
 
-Après tout, cet homme n'était pas un messager du Temple Céleste du Tonnerre. Bien que le tuer soit problématique, tant que le Senior était là, ce ne serait qu'une mince affaire.
+Après tout, cet homme n'était pas un messager du Temple Lei Xian. Bien que le tuer soit problématique, tant que le Senior était là, ce ne serait qu'une mince affaire.
 
 Les yeux de Zhan Konglie se plissèrent et il recula immédiatement. Homme prudent, ses yeux tombèrent en reculant sur Wang Lin, qui se trouvait dans les profondeurs du lac de tonnerre. Le doute dans son cœur s'intensifia.
 

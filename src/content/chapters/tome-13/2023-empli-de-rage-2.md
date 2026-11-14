@@ -22,7 +22,7 @@ Des gouttes de vin s'éparpillèrent, et l'une d'elles atterrit sur le visage de
 
 « Wan Er... Où est ton âme?! » Wang Lin disparut dans le ciel, mais la femme entendit vaguement sa voix.
 
-Cette voix était empreinte d'une tristesse infinie. Elle n'était pas la seule à l'avoir entendue; certains parmi la foule sur la place et sur les plateformes l'avaient également perçue. L'Empereur Dao Antique l'entendit aussi, et le sourire au coin de ses lèvres s'élargit. Il prit sa coupe de vin et en but une gorgée.
+Cette voix était empreinte d'une tristesse infinie. Elle n'était pas la seule à l'avoir entendue; certains parmi la foule sur la place et sur les plateformes l'avaient également perçue. L'Empereur Dao Gu l'entendit aussi, et le sourire au coin de ses lèvres s'élargit. Il prit sa coupe de vin et en but une gorgée.
 
 Il ne vit pas, Wang Lin ne vit pas, et personne ici ne vit que lorsque la femme en robe de phénix entendit les mots « Wan Er », son visage trahit un combat intérieur et une profonde confusion. Cependant, cela disparut rapidement pour laisser place à une expression de vide absolu.
 
@@ -40,7 +40,7 @@ Elle retourna au palais, l'esprit éteint. Derrière elle, l'effervescence de la
 
 « Wan Er, où est ton âme?! »
 
-Des larmes coulèrent sur le visage de Wang Lin alors qu'il traversait la cité impériale du Dao Antique, baignée de lumières. En marchant silencieusement, son dos dégageait une mélancolie et une solitude déchirantes.
+Des larmes coulèrent sur le visage de Wang Lin alors qu'il traversait la cité impériale du Dao Gu, baignée de lumières. En marchant silencieusement, son dos dégageait une mélancolie et une solitude déchirantes.
 
 Sa tristesse avait toujours été enfouie au plus profond de son cœur, dissimulée sous un masque d'indifférence. Elle n'apparaissait que rarement, mais face à ce tempérament si familier, Wang Lin ne put plus se mentir ni masquer ses émotions. Ses larmes coulèrent.
 
@@ -52,7 +52,7 @@ Il retourna au Temple Dao Gu et regagna sa demeure. Il s'assit à l'intérieur, 
 
 « J'ai la volonté de défier les cieux... Et alors? »
 
-« Même si je suis le gardien du Dao Antique, je ne peux pas retrouver l'âme de Wan Er... » Le visage de Wang Lin était marqué par la douleur. Il refusait de songer à ce problème; il utilisait sa culture comme un prétexte pour s'anesthésier et se mentir à lui-même. Il s'était convaincu que c'était son seul espoir de retrouver l'âme de Wan Er.
+« Même si je suis le gardien du Dao Gu, je ne peux pas retrouver l'âme de Wan Er... » Le visage de Wang Lin était marqué par la douleur. Il refusait de songer à ce problème; il utilisait sa culture comme un prétexte pour s'anesthésier et se mentir à lui-même. Il s'était convaincu que c'était son seul espoir de retrouver l'âme de Wan Er.
 
 Pourtant, il s'était menti à lui-même pendant des milliers d'années, car maintenant qu'il avait vu Song Zhi, qui ressemblait tant à Wan Er, il ne pouvait plus contrôler ses sentiments.
 
@@ -82,11 +82,11 @@ Le corps de Wang Lin tremblait.
 
 « Quelque chose ne va pas!! »
 
-« L'Empereur Dao Antique a cherché une concubine pendant des centaines d'années avant de la choisir. Song Zhi n'est pas une beauté absolue, alors pourquoi l'a-t-il choisie...? »
+« L'Empereur Dao Gu a cherché une concubine pendant des centaines d'années avant de la choisir. Song Zhi n'est pas une beauté absolue, alors pourquoi l'a-t-il choisie...? »
 
-« Quel genre de femme l'Empereur Dao Antique a-t-il cherchée pendant des siècles... Pourquoi Song Zhi m'a-t-elle semblé si différente au palais?! »
+« Quel genre de femme l'Empereur Dao Gu a-t-il cherchée pendant des siècles... Pourquoi Song Zhi m'a-t-elle semblé si différente au palais?! »
 
-« Pourquoi ai-je ressenti une telle agitation en allant vers le palais et une fois arrivé? Pourquoi cette intention de tuer est-elle apparue face à l'Empereur Dao Antique? Et pourquoi a-t-elle disparu quand j'ai vu Song Zhi?! »
+« Pourquoi ai-je ressenti une telle agitation en allant vers le palais et une fois arrivé? Pourquoi cette intention de tuer est-elle apparue face à l'Empereur Dao Gu? Et pourquoi a-t-elle disparu quand j'ai vu Song Zhi?! »
 
 Wang Lin se leva brusquement, le corps tremblant. Ses yeux brillaient d'un éclat si intense qu'ils illuminèrent toute la demeure. Ses cheveux s'agitèrent sans le moindre vent, comme si une puissance cachée était sur le point d'éclater!
 
@@ -96,11 +96,11 @@ Wang Lin se leva brusquement, le corps tremblant. Ses yeux brillaient d'un écla
 
 Un feu semblait couver dans son cœur, prêt à exploser!
 
-« Des centaines d'années de sélection... L'énorme écart entre la Song Zhi d'autrefois et celle d'aujourd'hui... En fin de compte, quel est ce secret qui me rend fou?! » L'expression de Wang Lin se déforma; il peinait à se maîtriser. Il avait envie de se précipiter au palais pour capturer l'Empereur Dao Antique et lui pratiquer une recherche d'âme!
+« Des centaines d'années de sélection... L'énorme écart entre la Song Zhi d'autrefois et celle d'aujourd'hui... En fin de compte, quel est ce secret qui me rend fou?! » L'expression de Wang Lin se déforma; il peinait à se maîtriser. Il avait envie de se précipiter au palais pour capturer l'Empereur Dao Gu et lui pratiquer une recherche d'âme!
 
 Mais... il ne le pouvait pas!
 
-Il était le disciple de Xuan Luo, et Xuan Luo était le gardien du Dao Antique. Xuan Luo était son maître et l'avait énormément aidé! Sans aucune preuve, s'il se rendait au palais pour tuer l'Empereur, il ne pourrait plus se regarder en face. Il ne pourrait jamais affronter le maître qui lui avait tant donné!
+Il était le disciple de Xuan Luo, et Xuan Luo était le gardien du Dao Gu. Xuan Luo était son maître et l'avait énormément aidé! Sans aucune preuve, s'il se rendait au palais pour tuer l'Empereur, il ne pourrait plus se regarder en face. Il ne pourrait jamais affronter le maître qui lui avait tant donné!
 
 Les yeux de Wang Lin s'illuminèrent et il leva la main droite. Un jade noir apparut soudainement dans sa paume!
 
@@ -122,7 +122,7 @@ Il vit l'homme en robe royale lui pincer la joue jusqu'à ce que la douleur fass
 
 Et il entendit les paroles de cet homme!
 
-L'homme en robe royale n'était autre que l'Empereur Dao Antique!
+L'homme en robe royale n'était autre que l'Empereur Dao Gu!
 
 « Ye Dao! Je vais te tuer! » Wang Lin ouvrit les yeux, injectés de sang par la folie. Ses cheveux s'agitèrent et il poussa un rugissement capable de déchirer les cieux et de pulvériser le pouvoir impérial!
 

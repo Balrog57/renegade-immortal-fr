@@ -113,7 +113,7 @@ Xu Liguo fut stupéfait. Alors qu'il allait répliquer, le second démon flotta 
 
 Une fois les démons installés, Wang Lin déploya son Royaume Ji et scanna la zone, laissant une partie de son sens divin en sentinelle avant de le retirer. Si les deux démons tentaient de s'échapper, ils seraient frappés par le Royaume Ji. Il devait être prudent; bien qu'il les ait créés, il ne pouvait se permettre aucun accident pour ce qu'il s'apprêtait à accomplir.
 
-Ensuite, Wang Lin entra dans la pièce centrale, s'assit en tailleur et prit une profonde inspiration. Il pointa son front, d'où émergea une sphère de lumière multicolore qui devint de plus en plus solide, révélant finalement l'apparence de la perle défiant le ciel. Après l'avoir observée un instant, il la mit de côté et disposa plusieurs fioles de jade de chaque côté de lui. Puis, il ferma les yeux pour entrer en méditation.
+Ensuite, Wang Lin entra dans la pièce centrale, s'assit en tailleur et prit une profonde inspiration. Il pointa son front, d'où émergea une sphère de lumière multicolore qui devint de plus en plus solide, révélant finalement l'apparence de la Perle Défiant le Ciel. Après l'avoir observée un instant, il la mit de côté et disposa plusieurs fioles de jade de chaque côté de lui. Puis, il ferma les yeux pour entrer en méditation.
 
 Le temps s'écoula, et une année passa. Durant cette période, hormis la collecte du liquide issu de la perle, Wang Lin était resté pratiquement immobile. Au cours de sa méditation, il avait condensé tout son surplus d'énergie spirituelle en trois tourbillons, au sein desquels résidait la ligne rouge de la Tribulation Céleste.
 
@@ -125,10 +125,10 @@ Cette technique consistait à créer un second corps réel, un double. L'idée �
 
 À l'époque, Wang Lin n'avait pas pu utiliser cette méthode faute de pilules suffisantes pour lui-même et son double. Mais aujourd'hui, il voyait dans cette technique un moyen non seulement de préserver sa culture, mais aussi d'atteindre le stade de l'Âme Naissante. Son plan était d'utiliser l'avatar pour atteindre ce stade en trente ans, puis de le fusionner avec son corps actuel afin de briser le blocage qui l'empêchait de progresser.
 
-De cette manière, il n'aurait pas besoin de détruire sa culture pour évoluer. Le défi majeur résidait dans la capacité de l'avatar à atteindre l'Âme Naissante en seulement trente ans. Grâce à l'espace de la perle défiant le ciel, le temps pouvait être dilaté. Avec le multiplicateur de six fois la vitesse normale, Wang Lin disposait en réalité de 180 ans pour son avatar.
+De cette manière, il n'aurait pas besoin de détruire sa culture pour évoluer. Le défi majeur résidait dans la capacité de l'avatar à atteindre l'Âme Naissante en seulement trente ans. Grâce à l'espace de la Perle Défiant le Ciel, le temps pouvait être dilaté. Avec le multiplicateur de six fois la vitesse normale, Wang Lin disposait en réalité de 180 ans pour son avatar.
 
 Mais un autre problème crucial subsistait: les pilules! Ce problème serait résolu à la Secte Yun Tian. C'est d'ailleurs pour cette raison qu'il avait choisi de s'isoler ici dès qu'il apprit que la secte était proche.
 
-L'expression de Wang Lin restait sereine. Devant lui reposaient trois fioles blanches remplies du liquide recueilli auprès de la perle défiant le ciel durant l'année écoulée. Ce liquide constituerait le premier présent offert à son avatar.
+L'expression de Wang Lin restait sereine. Devant lui reposaient trois fioles blanches remplies du liquide recueilli auprès de la Perle Défiant le Ciel durant l'année écoulée. Ce liquide constituerait le premier présent offert à son avatar.
 
 Après une réflexion, ses yeux brillèrent d'une détermination sans faille. Ses mains formèrent un sceau et il entama les étapes de la technique pour créer son incarnation. Cette technique n'était pas difficile pour qui en comprenait tous les détails, car elle ne dépendait ni du talent ni de la puissance brute. Autrement, Chen Chong, qui possédait le pire talent du Temple Zhan Shen, n'aurait pu être le seul, après son maître, à percer le secret de cette technique du Chemin Divin.

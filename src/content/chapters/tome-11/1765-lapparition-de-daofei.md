@@ -74,7 +74,7 @@ Pourtant, ses yeux étaient toujours habités par la démence.
 
 « Tu es si près de cette force destructrice... Avec ton niveau de culture, je veux voir comment tu vas y survivre!!! »
 
-Wang Lin était effectivement le plus proche, et l'onde destructrice se refermait sur lui. Les mondes s'effondraient et, même avec son héritage du Dao Antique, il ne pouvait rien y faire. Dès que cela toucherait son corps, il serait anéanti!
+Wang Lin était effectivement le plus proche, et l'onde destructrice se refermait sur lui. Les mondes s'effondraient et, même avec son héritage du Dao Gu, il ne pouvait rien y faire. Dès que cela toucherait son corps, il serait anéanti!
 
 Cependant, puisque Wang Lin avait osé tendre ce piège, il était naturellement préparé. Il s'attendait à cette force destructrice. Alors qu'elle se rapprochait de lui, ses mains formèrent un sceau et sa main droite plongea dans le vide.
 

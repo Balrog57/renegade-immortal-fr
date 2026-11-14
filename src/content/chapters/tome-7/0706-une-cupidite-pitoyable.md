@@ -8,11 +8,11 @@ slug: une-cupidite-pitoyable
 ---
 Lei Daozi hurla: « Xu Mu, tu n'as pas tenu ta promesse! »
 
-Le regard de Wang Lin était calme. Lei Daozi était gravement blessé et son corps était presque dépourvu d'énergie. Pour survivre, il avait dû accepter les conditions de Wang Lin, ce qui avait offert à ce dernier une opportunité idéale pour raffiner un gardien céleste.
+Le regard de Wang Lin était calme. Lei Daozi était gravement blessé et son corps était presque dépourvu d'énergie. Pour survivre, il avait dû accepter les conditions de Wang Lin, ce qui avait offert à ce dernier une opportunité idéale pour raffiner un garde céleste.
 
 La première condition pour raffiner une marionnette était que la personne raffinée soit consentante!
 
-Wang Lin dit calmement: « Je n'ai pas manqué à ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû prier ton âme originelle de sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre d'encercler immédiatement l'âme originelle de Lei Daozi. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
+Wang Lin dit calmement: « Je n'ai pas manqué à ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû prier ton âme originelle de sortir. » De sa main droite, il fit signe au garde céleste et à la Bête du Tonnerre d'encercler immédiatement l'âme originelle de Lei Daozi. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
 
 Sans accorder un regard à l'âme originelle de Lei Daozi, Wang Lin saisit cette âme et la plaça devant lui. Après avoir récupéré le sac de rangement, il cracha une nouvelle bouffée d'énergie originelle qui enveloppa le corps de Lei Daozi.
 
@@ -24,7 +24,7 @@ En un éclair, plusieurs jours s'écoulèrent. Le corps de Lei Daozi continua de
 
 L'âme originelle de Lei Daozi observait la scène avec attention chaque jour, ses yeux empreints de choc constant. Au début, il ne comprenait pas les intentions de Wang Lin, mais après quelques jours, il comprit soudainement: ce Xu Mu allait le raffiner pour en faire une marionnette!
 
-Le choc dans son regard se mua en horreur, d'autant plus lorsqu'il observa la marionnette du gardien céleste à ses côtés. Bien qu'il ne soit actuellement qu'une âme originelle, il sentit un froid glacial l'envahir.
+Le choc dans son regard se mua en horreur, d'autant plus lorsqu'il observa la marionnette du garde céleste à ses côtés. Bien qu'il ne soit actuellement qu'une âme originelle, il sentit un froid glacial l'envahir.
 
 « Serait-ce... cette marionnette qui a été raffinée par lui?! Quelle est donc l'origine de cet homme pour connaître une méthode de raffinement aussi vicieuse?! »
 
@@ -34,7 +34,7 @@ Wang Lin ouvrit les yeux et contempla le corps momifié qui émettait une lueur 
 
 Voyant Wang Lin ouvrir les yeux, l'âme originelle de Lei Daozi s'écria immédiatement: « Xu Mu, que fais-tu?! Ce vieil homme a promis d'être ton esclave, pas ta marionnette! » Il avait déjà hurlé à maintes reprises, mais Wang Lin l'ignorait simplement et poursuivait son raffinage. Voir son propre corps ainsi transformé fit monter sa haine envers Wang Lin jusqu'à son paroxysme.
 
-Cependant, il n'osait pas agir avec imprudence. Le sceau posé sur son âme originelle, conjugué à la présence du gardien céleste, de la Bête du Tonnerre et des trois âmes primaires ultimes, signifiait qu'il mourrait au moindre mouvement de travers.
+Cependant, il n'osait pas agir avec imprudence. Le sceau posé sur son âme originelle, conjugué à la présence du garde céleste, de la Bête du Tonnerre et des trois âmes primaires ultimes, signifiait qu'il mourrait au moindre mouvement de travers.
 
 « Trop bruyant! » Wang Lin fronça les sourcils et fit un geste de la main. Deux rayons de l'énergie d'épée de Ling Tianhou jaillirent, remplissant instantanément la grotte. Cette énergie était imprégnée du domaine tyrannique de Ling Tianhou. Sous la pression de ces deux rayons, Lei Daozi se tut immédiatement. L'horreur dans ses yeux redoubla lorsqu'il vit l'éclat de cette énergie d'épée.
 

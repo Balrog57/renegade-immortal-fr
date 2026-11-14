@@ -20,11 +20,11 @@ Même si un Exalté Empyréen apprenait l'Art Magique Rapide, s'il ne pouvait ut
 
 Car sa limite resterait de 27 sorts, et elle ne pourrait être dépassée. Tout comme une bouteille ne peut contenir qu'une certaine quantité d'eau: peu importe la quantité que vous tentez d'y verser, elle ne pourra en contenir qu'un certain volume.
 
-Mais Wang Lin était différent. Sa force de combat réelle était infiniment supérieure grâce à son corps du Dao Antique et au sang de l'âme. Ce sang de l'âme jouait un rôle vital.
+Mais Wang Lin était différent. Sa force de combat réelle était infiniment supérieure grâce à son corps du Dao Gu et au sang de l'âme. Ce sang de l'âme jouait un rôle vital.
 
 En conséquence, avec sa culture actuelle d'Exalté Doré empruntée, la puissance de combat qu'il pouvait déployer était encore plus immense.
 
-C'était aussi pour cette raison que Wang Lin pouvait combattre des êtres dépassant son niveau de culture après avoir fusionné le Dao Antique de son corps et sa culture! Une autre raison pour laquelle Wang Lin était devenu si puissant ici, alors qu'il ne l'était pas autant dans le monde des grottes, était la présence de son avatar le plus puissant dans le vide!
+C'était aussi pour cette raison que Wang Lin pouvait combattre des êtres dépassant son niveau de culture après avoir fusionné le Dao Gu de son corps et sa culture! Une autre raison pour laquelle Wang Lin était devenu si puissant ici, alors qu'il ne l'était pas autant dans le monde des grottes, était la présence de son avatar le plus puissant dans le vide!
 
 La fusion de ces trois puissances était la raison pour laquelle Wang Lin possédait une telle force de combat!
 

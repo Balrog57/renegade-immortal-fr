@@ -12,7 +12,7 @@ Des traces de larmes marquaient encore son visage alors qu'elle mordillait sa l�
 
 « Il y a des choses dans ce monde qui n'ont aucune logique, et il faut s'y accrocher. Peu importe que cela en vaille la peine ou non, il fallait le faire... » Elle poussa un soupir, endurant la tristesse et l'amertume qui lui serraient le cœur, puis vola plus vite encore.
 
-Dans la région de rang 9, là où se trouvait la Secte Divine, une planète de culture était dissimulée au plus profond du brouillard. Une immense formation s'y déployait, et en son centre trônait un palais magnifique.
+Dans la région de rang 9, là où se trouvait la Secte Shen, une planète de culture était dissimulée au plus profond du brouillard. Une immense formation s'y déployait, et en son centre trônait un palais magnifique.
 
 À l'intérieur du palais, Mu Bingmei restait assise, le regard perdu dans le vide. Son beau visage affichait une expression d'indifférence.
 
@@ -20,7 +20,7 @@ Dans la région de rang 9, là où se trouvait la Secte Divine, une planète de 
 
 Assise à l'extérieur du palais, Wang Shanshan fronça les sourcils et dit: « Grande Sœur Mu, il est difficile de désobéir aux ordres du Maître. Petite Sœur est également très perplexe. Peut-être que le Maître a donné cet ordre pour que tu puisses te rétablir au plus vite... »
 
-Mu Bingmei réfléchissait en silence. Elle ne comprenait pas pourquoi le Grand Ancien de la Secte Divine agissait ainsi, et cela lui inspirait un sentiment étrange. Un picotement inconnu lui serrait le cœur; c'était comme si un événement majeur allait se produire, et qu'il allait frapper quelqu'un qu'elle connaissait.
+Mu Bingmei réfléchissait en silence. Elle ne comprenait pas pourquoi le Grand Ancien de la Secte Shen agissait ainsi, et cela lui inspirait un sentiment étrange. Un picotement inconnu lui serrait le cœur; c'était comme si un événement majeur allait se produire, et qu'il allait frapper quelqu'un qu'elle connaissait.
 
 À cet instant, Mu Bingmei ignorait que la compétition des sectes de rang 8 avait été annulée ou que Li Qianmei avait quitté la Secte Po Tian.
 

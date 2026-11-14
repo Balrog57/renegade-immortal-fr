@@ -52,7 +52,7 @@ Wang Lin réfléchit un instant avant de joindre les mains et de dire respectueu
 
 Le regard du vieil homme se posa sur le sac de Wang Lin et il dit: « Aucun problème. Tu ne peux pas m'aider, mais la Bête du Tonnerre à l'intérieur de ton sac, si. Laisse ce vieux l'emprunter un moment, je te la rendrai ensuite. »
 
-Wang Lin poussa un soupir secret. Il ignorait comment le vieil homme savait ce qu'il contenait dans son sac de rangement. Il frappa son sac et la Bête du Tonnerre s'en échappa. À l'instant même où elle apparut, avant même d'avoir pu pousser un rugissement, elle fut saisie par le vieil homme et emportée. L'ancien sourit: « Très bien, c'est en fait une Bête du Tonnerre aux cornes argentées, excellent. Petit gars, ce vieux ne prend pas seulement cette bête; la Bête du Tonnerre de chaque messager du Temple Céleste du Tonnerre appartiendra à ce vieux pendant un certain temps! »
+Wang Lin poussa un soupir secret. Il ignorait comment le vieil homme savait ce qu'il contenait dans son sac de rangement. Il frappa son sac et la Bête du Tonnerre s'en échappa. À l'instant même où elle apparut, avant même d'avoir pu pousser un rugissement, elle fut saisie par le vieil homme et emportée. L'ancien sourit: « Très bien, c'est en fait une Bête du Tonnerre aux cornes argentées, excellent. Petit gars, ce vieux ne prend pas seulement cette bête; la Bête du Tonnerre de chaque messager du Temple Lei Xian appartiendra à ce vieux pendant un certain temps! »
 
 La Bête du Tonnerre finit par reprendre ses esprits et tremblait de terreur. C'était la première fois qu'elle manifestait un tel comportement.
 

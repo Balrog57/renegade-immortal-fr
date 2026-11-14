@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1766 - Dong Lin Secte
 slug: secte-dong-ling
 ---
-Grâce à l'utilisation du fou comme bouclier, la force destructrice fut affaiblie au point que l'héritage du Dao Antique de Wang Lin put y résister.
+Grâce à l'utilisation du fou comme bouclier, la force destructrice fut affaiblie au point que l'héritage du Dao Gu de Wang Lin put y résister.
 
 Alors que le fou retombait dans son sommeil, Wang Lin se retira rapidement vers les neuf Poissons-Œil.
 

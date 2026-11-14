@@ -38,7 +38,7 @@ La bête-moustique apparut dans un coin et resta immobile. Le fragment de Sens D
 
 « Miaoyin Daozun... La personne qui combat est imprégnée de poison et est également un cultivateur du troisième pas... C'était trop rapide, je n'ai pas pu voir son identité! » Les yeux de Wang Lin brillèrent. Il avait également aperçu la terre en dessous, où près de 100 cultivateurs se livraient bataille, y compris la fille du Clan Feng Mie.
 
-« La culture de Miaoyin Daozun est un peu étrange... Il semble n'être qu'au niveau de Maître Simo... L'adversaire qu'il combat est de force comparable... » Wang Lin commença à méditer. Dès son entrée dans la tombe, en voyant la femme en blanc, il avait constaté que son niveau de culture avait bien trop chuté par rapport à ce qu'elle était à l'extérieur du Tombeau de l'Ordre Ancien.
+« La culture de Miaoyin Daozun est un peu étrange... Il semble n'être qu'au niveau de Maître Si Mo... L'adversaire qu'il combat est de force comparable... » Wang Lin commença à méditer. Dès son entrée dans la tombe, en voyant la femme en blanc, il avait constaté que son niveau de culture avait bien trop chuté par rapport à ce qu'elle était à l'extérieur du Tombeau de l'Ordre Ancien.
 
 Ayant revu le Maître Miaoyin Daozun une fois de plus, et constatant qu'il était lui aussi bien affaibli, tout comme la femme en blanc, ses spéculations s'accentuèrent. « Devrais-je parier... » Wang Lin fronça les sourcils.
 

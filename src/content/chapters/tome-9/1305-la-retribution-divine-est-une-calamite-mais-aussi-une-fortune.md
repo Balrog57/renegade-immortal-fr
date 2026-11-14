@@ -30,7 +30,7 @@ L'arbre était si vaste qu'il comblait l'intégralité du vide. Un visage sécul
 
 « Maître de Secte! » Le Grand Ancien de la Secte Yao regarda l'arbre gigantesque avec exaltation, ses yeux empreints d'une révérence extrême.
 
-L'apparition de l'arbre provoqua un immense tumulte dans la région de rang 9. Au sein de la Secte Divine, le Shui Daozi arborait une expression hideuse et hurlait sans relâche. Cependant, à cet instant, son corps fut parcouru de tremblements et son visage se mua en un masque de terreur.
+L'apparition de l'arbre provoqua un immense tumulte dans la région de rang 9. Au sein de la Secte Shen, le Shui Daozi arborait une expression hideuse et hurlait sans relâche. Cependant, à cet instant, son corps fut parcouru de tremblements et son visage se mua en un masque de terreur.
 
 « Maître... »
 
@@ -60,7 +60,7 @@ Le corps du Grand Ancien de la Secte Yao frémit et il leva les yeux. Une lueur 
 
 Le visage antique sur l'arbre gigantesque regarda au loin et, après un long silence, murmura: « Esclave Dao... si tu peux aider la Secte Yao dans cette affaire, ce vieil homme ne te tuera pas... »
 
-Dans la chambre secrète de la Secte Divine, le Shui Daozi tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna à plusieurs reprises.
+Dans la chambre secrète de la Secte Shen, le Shui Daozi tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna à plusieurs reprises.
 
 « Maître Démon, vous avez fui le Royaume Extérieur et je vous ai offert l'intégralité de la Secte Gui comme disciple pour vous aider à guérir. Maintenant que vous êtes rétabli et devenu un démon ancien à neuf étoiles, il est temps d'honorer notre pacte! »
 

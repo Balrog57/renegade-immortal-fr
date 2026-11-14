@@ -49,9 +49,9 @@ Finalement, après une brève hésitation, les yeux de Wang Lin s'illuminèrent 
 
 Une fois cette épreuve passée, Treize, renaissant à travers la souffrance, exsudait une aura digne d'un dieu démon. La puissance de son corps était désormais suffisante pour affronter des cultivateurs Ascendants en stade avancé, et il regorgeait d'un potentiel infini!
 
-Mais cela ne suffisait pas. Wang Lin sortit de son sac de rangement une multitude de trésors et les fit fondre, puis les insuffla dans le corps de Treize, à la manière dont il avait affiné un gardien céleste, tout en veillant à ne pas endommager son âme. Treize supporta l'agonie en s'accrochant à sa loyauté et à sa ferveur envers Wang Lin. Une fois les innombrables trésors infusés, il possédait le corps d'un gardien céleste argenté, capable de résister aux attaques d'un cultivateur Yin Illusoire, tout en conservant sa conscience, ce qui le distinguait radicalement d'un simple gardien.
+Mais cela ne suffisait pas. Wang Lin sortit de son sac de rangement une multitude de trésors et les fit fondre, puis les insuffla dans le corps de Treize, à la manière dont il avait affiné un garde céleste, tout en veillant à ne pas endommager son âme. Treize supporta l'agonie en s'accrochant à sa loyauté et à sa ferveur envers Wang Lin. Une fois les innombrables trésors infusés, il possédait le corps d'un garde céleste argenté, capable de résister aux attaques d'un cultivateur Yin Illusoire, tout en conservant sa conscience, ce qui le distinguait radicalement d'un simple gardien.
 
-Après tout, Wang Lin n'avait aucune intention de transformer Treize en un gardien céleste!
+Après tout, Wang Lin n'avait aucune intention de transformer Treize en un garde céleste!
 
 Wang Lin éprouvait une profonde affection pour Treize, l'ayant vu grandir. Dans son cœur, il considérait avoir deux disciples: le premier était Treize, et le second était Xie Qing, à Luotian! Wang Lin ne serait jamais avare envers ses disciples, surtout un être aussi loyal. Il choisit un sort céleste complet de qualité moyenne nommé Âme Céleste, le divisa en trois parties et les transmit à Treize! Tant que ce dernier maîtriserait ces trois volets, il pourrait véritablement cultiver l'Âme Céleste!
 

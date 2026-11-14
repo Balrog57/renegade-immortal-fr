@@ -22,7 +22,7 @@ Il ne s'agissait pas d'un simple cultivateur du stade Briseur du Nirvana, mais d
 
 La voix majestueuse émana du jade et enveloppa toute la Secte Gui Yuan. Même le continent de Mo Luo trembla sous la puissance de cette voix.
 
-Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternelle du rang 8, n'était pas une simple cultivatrice du stade Scruteur du Nirvana. Son regard eut un éclat et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biaozi est venu dans ma Secte Gui Yuan! »
+Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Wu Ji du rang 8, n'était pas une simple cultivatrice du stade Scruteur du Nirvana. Son regard eut un éclat et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biaozi est venu dans ma Secte Gui Yuan! »
 
 « Un désastre vous menace et vous n'en avez même pas conscience, alors je vais vous l'apprendre. Il y a trois jours, quelqu'un a trouvé ce vieil homme. Cette personne voulait acheter la vie de toute votre Secte Gui Yuan! »
 
@@ -34,7 +34,7 @@ L'expression de Lu Yanfei changea instantanément!
 
 Le regard de Lu Yanfei devint glacial alors qu'elle ricanait, mais les autres disciples de la Secte Gui Yuan étaient pétris de peur.
 
-« Vous avez tous déjà fait vos bagages, prêts pour la dissolution. Peu importe, ce vieil homme est lié de longue date au maître de la Secte Éternelle, qui m'a autrefois dû une faveur. Si vous me satisfaites, ce vieil homme enverra une lettre et empêchera la dissolution de votre Secte Gui Yuan! »
+« Vous avez tous déjà fait vos bagages, prêts pour la dissolution. Peu importe, ce vieil homme est lié de longue date au maître de la Secte Wu Ji, qui m'a autrefois dû une faveur. Si vous me satisfaites, ce vieil homme enverra une lettre et empêchera la dissolution de votre Secte Gui Yuan! »
 
 « Ce vieil homme ne souhaite pas anéantir toute votre Secte. Si vous pouvez fournir suffisamment de cristaux d'origine ou une valeur équivalente, je mettrai fin à cette affaire! » La voix antique dégageait une aura indéniable doublée d'une intention menaçante. En raison de la puissance du stade Briseur du Nirvana, cette menace pouvait ébranler l'esprit de quiconque l'entendait.
 
@@ -58,13 +58,13 @@ Même en l'examinant de près, on ne ressentait rien d'anormal. Ce n'était qu'e
 
 «... Après un demi-bâton d'encens, si vous n'envoyez pas les cristaux d'origine, tous les membres de votre Secte Gui Yuan seront instantanément anéantis! » Le vieil homme était assis là comme s'il se parlait à lui-même. Ces paroles furent absorbées par le jade et transmises à la Secte Gui Yuan, située à des centaines de milliers de kilomètres de là!
 
-« Cependant, ce vieil homme sait que votre Secte Gui Yuan ne possède rien de précieux. Peu importe, vous n'avez qu'à sortir tous vos sacs et les objets de vos espaces de stockage, et ce vieil homme fera comme si de rien n'était. Non seulement cela dissipera le danger, mais j'enverrai également une lettre au maître de la Secte Éternelle... Ce vieil homme fait rarement preuve d'une telle compassion, alors réfléchissez bien! » En parlant, le vieil homme secoua la tête. Il maîtrisait parfaitement le ton de ses paroles.
+« Cependant, ce vieil homme sait que votre Secte Gui Yuan ne possède rien de précieux. Peu importe, vous n'avez qu'à sortir tous vos sacs et les objets de vos espaces de stockage, et ce vieil homme fera comme si de rien n'était. Non seulement cela dissipera le danger, mais j'enverrai également une lettre au maître de la Secte Wu Ji... Ce vieil homme fait rarement preuve d'une telle compassion, alors réfléchissez bien! » En parlant, le vieil homme secoua la tête. Il maîtrisait parfaitement le ton de ses paroles.
 
 Une fois son discours achevé, il ouvrit les yeux. Son regard brilla et il afficha un sourire suffisant.
 
 Il avait déjà reçu l'information selon laquelle la Secte Gui Yuan allait probablement être dissoute; il attendait donc ici. Il attendait que les cultivateurs reviennent de la compétition pour profiter de leur panique et réussir son coup d'un seul trait.
 
-Cependant, en raison du silence imposé par la Secte Éternelle sur toutes les informations, il ignorait l'éclat avec lequel la Secte Gui Yuan s'était illustrée à la Secte Éternelle, tout comme l'existence même de Wang Lin!
+Cependant, en raison du silence imposé par la Secte Wu Ji sur toutes les informations, il ignorait l'éclat avec lequel la Secte Gui Yuan s'était illustrée à la Secte Wu Ji, tout comme l'existence même de Wang Lin!
 
 « Les chances de réussite sont de presque 100 %. Ce vieil homme ne tente jamais rien qui puisse échouer! C'est dommage que je ne puisse pas me présenter en personne. Cette Lu Yanfei est connue comme la première beauté de la région de rang 5. Quel regret... Si ce vieil homme pouvait goûter à ses charmes, ce serait merveilleux. »
 

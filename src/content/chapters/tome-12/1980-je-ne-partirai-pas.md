@@ -14,7 +14,7 @@ Wang Lin voulait utiliser cela pour anéantir l'être tapi derrière ce doigt. W
 
 Le vent et la neige hurlaient à travers la longue rue. Le doigt surgissant du vide percuta soudainement celui de Wang Lin, chargé d'une soif de sang dévastatrice!
 
-Dans le tumulte de la neige et du vent, lorsque les deux doigts entrèrent en collision, la puissance du Dao Antique de Wang Lin jaillit, étant la première à heurter l'autre doigt.
+Dans le tumulte de la neige et du vent, lorsque les deux doigts entrèrent en collision, la puissance du Dao Gu de Wang Lin jaillit, étant la première à heurter l'autre doigt.
 
 Des grondements tonitruants retentirent. Les 99 images rémanentes des cinq Veines Magiques fusionnèrent en une seule et, alliées à la puissance du Tian Niu, formèrent la deuxième onde de choc contre le doigt!
 
@@ -40,7 +40,7 @@ Alors que ces paroles résonnaient, le doigt effondré se reforma comme si de ri
 
 « Car là où il y a existence, elle devient le vide une fois perdue! »
 
-À l'instant où les deux doigts se touchèrent, la puissance du Dao Antique de Wang Lin disparut, comme si elle avait été réduite au néant! De plus, les sorts qu'il avait accumulés ainsi que la puissance du Tian Niu s'évanouirent, comme s'ils avaient été balayés de l'existence même.
+À l'instant où les deux doigts se touchèrent, la puissance du Dao Gu de Wang Lin disparut, comme si elle avait été réduite au néant! De plus, les sorts qu'il avait accumulés ainsi que la puissance du Tian Niu s'évanouirent, comme s'ils avaient été balayés de l'existence même.
 
 Même son corps véritable à cinq éléments et son corps véritable d'essence tonnerre disparurent sous cette force étrange. Cependant, ses trois essences éthérées demeurèrent!
 

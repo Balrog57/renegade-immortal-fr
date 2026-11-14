@@ -30,7 +30,7 @@ Cang Songzi ricana intérieurement. Lui et Yun Hunzi échangèrent des regards s
 
 Yun Hunzi transmit sa pensée à Cang Songzi: « Cet homme a bien la capacité de tuer Wu Qing, mais il subsiste un fossé entre lui et les cultivateurs Briseur du Nirvana de stade intermédiaire comme nous. Si j'attaque seul, je peux le tuer en dix respirations! Si nous unissons nos forces, nous pouvons l'éliminer instantanément! »
 
-Cang Songzi ferma les yeux et répondit par message: « Ce qui m'effraie le plus n'est pas son identité potentielle de membre de la Secte Divine. C'est qu'il est manifestement un cultivateur Purificateur du Nirvana, et pourtant ses sorts ont même pu tuer Wu Qing. Il cache clairement son niveau de culture. Si je ne connais pas sa véritable puissance, cela pourrait compromettre nos plans. Cependant, après avoir vu votre combat, je suis rassuré. Mais cet homme est extrêmement rusé; pendant le trajet, trouvez une occasion de le tester encore quelques fois! »
+Cang Songzi ferma les yeux et répondit par message: « Ce qui m'effraie le plus n'est pas son identité potentielle de membre de la Secte Shen. C'est qu'il est manifestement un cultivateur Purificateur du Nirvana, et pourtant ses sorts ont même pu tuer Wu Qing. Il cache clairement son niveau de culture. Si je ne connais pas sa véritable puissance, cela pourrait compromettre nos plans. Cependant, après avoir vu votre combat, je suis rassuré. Mais cet homme est extrêmement rusé; pendant le trajet, trouvez une occasion de le tester encore quelques fois! »
 
 Les yeux de Yun Hunzi brillèrent d'assentiment.
 

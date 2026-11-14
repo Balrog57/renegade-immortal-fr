@@ -10,7 +10,7 @@ Chaque fois que le pouvoir de l'Ancien Dieu de Wang Lin atteignait le moment cri
 
 Cette douleur intense aurait suffi à rendre n'importe qui fou. Si Wang Lin avait été inconscient, cela n'aurait pas été si terrible, mais il avait repris connaissance depuis longtemps. Pourtant, à son réveil, son corps était saturé du sang de ce fou.
 
-Ce sang était imprégné d'une puissance extrêmement pure. Wang Lin n'avait jamais vu une telle force de sa vie. Seul le sort « Ancien Dao, aucun Céleste » lancé par Ye Mo, qu'il avait contemplé lorsqu'il siégeait sur le trône dans la Tombe de Dao Gu pouvait rivaliser avec lui en puissance.
+Ce sang était imprégné d'une puissance extrêmement pure. Wang Lin n'avait jamais vu une telle force de sa vie. Seul le sort « Dao Gu, aucun Céleste » lancé par Ye Mo, qu'il avait contemplé lorsqu'il siégeait sur le trône dans la Tombe de Dao Gu pouvait rivaliser avec lui en puissance.
 
 Cependant, ce pouvoir ne pouvait être maîtrisé par Wang Lin. Il restait tapi au sein de son sang et circulait dans ses veines. Tandis qu'il entrait en conflit avec le pouvoir de l'Ancien Dieu, il fusionnait lentement avec les os et le sang de Wang Lin.
 

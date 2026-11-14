@@ -38,7 +38,7 @@ Le clan Ancien se préparait... Le clan Céleste en faisait autant!
 
 Cinq cents ans, seulement cinq cents ans! Pour les mortels, les cultivateurs de bas niveau ou les membres subalternes des trois clans, cinq cents ans pouvaient sembler une éternité. Pourtant, pour les puissants, ce n'était qu'un battement de cils.
 
-Les signes de guerre se manifestaient à travers le Continent Xian Gang en raison de l'émergence du Royaume Divin Immémorial. Dans un pays situé aux frontières du Dao Gu et de l'Ancien Shi, c'était la saison des pluies. La pluie n'était pas torrentielle, mais elle semblait destinée à durer longtemps.
+Les signes de guerre se manifestaient à travers le Continent Xian Gang en raison de l'émergence du Royaume Divin Immémorial. Dans un pays situé aux frontières du Dao Gu et du Shi Gu, c'était la saison des pluies. La pluie n'était pas torrentielle, mais elle semblait destinée à durer longtemps.
 
 Sous la pluie, les cités du Dao Gu demeuraient animées, tandis que la terre alentour restait paisible. La pluie tombait sur les feuilles avec un crépitement, puis sur le sol, s'accumulant en de petits ruisseaux.
 
@@ -64,13 +64,13 @@ Il ne voyageait pas à pleine vitesse, car il devait ménager le corps fragile d
 
 Durant cette année, Wang Lin n'avait pas été traqué par le Mont Gu Dao, et le clan Ancien n'avait rien dit. Wang Lin conduisit calmement la femme jusqu'aux confins du territoire du Dao Gu.
 
-Au-delà de ce lieu se trouvait l'Ancien Shi.
+Au-delà de ce lieu se trouvait le Shi Gu.
 
 « L'endroit où nous nous sommes rencontrés... Est-ce Ville Hei Shi? » Les cheveux noirs de la femme furent balayés par le vent, et quelques mèches s'envolèrent vers le visage de Wang Lin, s'entremêlant à ses cheveux blancs.
 
 Wang Lin ne répondit pas et disparut progressivement avec elle dans la pluie.
 
-Quelques mois plus tard, Wang Lin et Song Zhi quittèrent le Dao Gu pour atteindre l'Ancien Shi. Une fois arrivée, l'humeur de Song Zhi s'était apaisée. En contemplant l'Ancien Shi, elle y trouva un sentiment de familiarité.
+Quelques mois plus tard, Wang Lin et Song Zhi quittèrent le Dao Gu pour atteindre le Shi Gu. Une fois arrivée, l'humeur de Song Zhi s'était apaisée. En contemplant le Shi Gu, elle y trouva un sentiment de familiarité.
 
 Mais elle parlait de moins en moins. Face à Wang Lin, elle devenait de plus en plus silencieuse, habitée par des sentiments complexes. Au cours de ce voyage, elle sentait parfois Wang Lin lui transmettre une énergie chaleureuse. Elle ignorait son but, mais elle percevait que le fragment d'âme fusionné avec elle montrait des signes de séparation.
 

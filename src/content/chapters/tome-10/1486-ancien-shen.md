@@ -80,7 +80,7 @@ Le visage de l'homme était pâle et il cracha une bouffée de sang. Ses yeux é
 
 L'expression de Wang Lin demeura sereine alors qu'il s'élevait hors du ravin pour faire face au vieillard vêtu d'or!
 
-Cet homme avait surpassé le Cinquième Ciel de la Calamité et se trouvait à un demi-pas du troisième niveau, tout comme l'estimé Ling Dong autrefois!
+Cet homme avait surpassé le Cinquième Ciel de la Calamité et se trouvait à un demi-pas du troisième niveau, tout comme l'Estimé Ling Dong autrefois!
 
 Wang Lin agita ses manches et ses cheveux blancs flottèrent au vent. Une aura de maître émana de lui lorsqu'il déclara lentement: « J'ai assez tué aujourd'hui. Je m'en vais. Allez-vous m'en empêcher? »
 

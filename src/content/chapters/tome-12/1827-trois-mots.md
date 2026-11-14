@@ -26,7 +26,7 @@ Le véritable corps d'essence du Très Respecté Qing Niu fixa Wang Lin et dit l
 
 Wang Lin arqua un sourcil et une étincelle jaillit de son œil gauche. Une ombre apparut derrière lui et se mua en son véritable corps d'essence. Il était l'exact reflet de Wang Lin et fixa le corps d'essence du Très Respecté Qing Niu.
 
-Alors que les deux corps d'essence se contemplaient, celui du Très Respecté Qing Niu se leva. Une aura terrifiante se propagea, enveloppant la Montagne Céleste. La neige bleue fut balayée par un vent hurlant.
+Alors que les deux corps d'essence se contemplaient, celui du Très Respecté Qing Niu se leva. Une aura terrifiante se propagea, enveloppant la Montagne Tian. La neige bleue fut balayée par un vent hurlant.
 
 « Un véritable corps d'essence, en effet... Dans ma vie, à part moi-même, tu es la troisième personne que je vois posséder un tel corps... »
 
@@ -88,7 +88,7 @@ Le temps s'écoulait lentement. Peu après, alors qu'il ne restait plus que la m
 
 « Si tu souhaites l'apprendre, je peux te l'enseigner... Le temps touche à sa fin, j'attends ta décision. » Le Très Respecté Qing Niu sourit en parlant.
 
-Wang Lin regarda le bâton d'encens de neige dont la fin était proche, et ses yeux s'illuminèrent. Il fit un pas en arrière, et son corps d'essence fit de même. Des ondulations résonnèrent et il disparut de la Montagne Céleste.
+Wang Lin regarda le bâton d'encens de neige dont la fin était proche, et ses yeux s'illuminèrent. Il fit un pas en arrière, et son corps d'essence fit de même. Des ondulations résonnèrent et il disparut de la Montagne Tian.
 
 Son mouvement soudain ne fut pas entravé par le Très Respecté Qing Niu, et ce dernier ne changea même pas d'expression. Il regarda Wang Lin disparaître en secouant légèrement la tête.
 
@@ -96,7 +96,7 @@ Son mouvement soudain ne fut pas entravé par le Très Respecté Qing Niu, et ce
 
 Il ne restait pas grand-chose du bâton d'encens de neige; il fondait lentement.
 
-Loin de la Montagne Céleste, dans une région du Continent Tian Niu qu'il aurait fallu un mois à Wang Lin pour atteindre en volant, se trouvait une montagne couverte d'une forêt verdoyante. Des ondulations résonnèrent dans le ciel et Wang Lin en émergea.
+Loin de la Montagne Tian, dans une région du Continent Tian Niu qu'il aurait fallu un mois à Wang Lin pour atteindre en volant, se trouvait une montagne couverte d'une forêt verdoyante. Des ondulations résonnèrent dans le ciel et Wang Lin en émergea.
 
 Les montagnes saturent l'espace, toutes de formes irrégulières. La chaîne montagneuse était dense et infinie — un terrain typique du Continent Tian Niu.
 

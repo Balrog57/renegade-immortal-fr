@@ -18,13 +18,13 @@ En un éclair, ce halo violet disparut dans les profondeurs du temple ancestral.
 
 Wang Lin était assis au plus profond du temple ancestral, entouré d'innombrables particules de lumière violette. La lumière se condensa sur son corps et fusionna rapidement avec la première goutte de sang d'âme qu'il possédait.
 
-Après les Trois Séparations de l'Âme du Dao Antique vinrent la Bénédiction de l'Ancêtre Ancien. Ce sang d'âme était cette bénédiction!
+Après les Trois Séparations de l'Âme du Dao Gu vinrent la Bénédiction de l'Ancêtre Ancien. Ce sang d'âme était cette bénédiction!
 
 Tous ceux qui avaient vu le sang violet descendre étaient sous le choc. Ils ne pouvaient croire ce qu'ils voyaient. C'était du sang d'âme, le sang d'âme de l'Ancêtre Ancien!!
 
 « La rumeur dit que trois gouttes de sang d'âme peuvent créer un nouveau clan. Il a réellement obtenu une goutte de sang d'âme lors de la Bénédiction de l'Ancêtre Ancien! »
 
-« Serait-il possible que si l'on traverse parfaitement les Trois Séparations de l'Âme du Dao Antique, l'on puisse obtenir du sang d'âme?! »
+« Serait-il possible que si l'on traverse parfaitement les Trois Séparations de l'Âme du Dao Gu, l'on puisse obtenir du sang d'âme?! »
 
 Un tollé retentit à travers le monde. Ji Du regarda la statue de l'Ancêtre Ancien en prenant une profonde inspiration. Même lui ne s'attendait pas à ce que son parrain obtienne le sang d'âme de l'Ancêtre Ancien!
 

@@ -36,27 +36,27 @@ Le corps de Wang Lin vacilla et il atterrit au sol. Nangong Han toucha terre pre
 
 Les 108 cultivateurs sur la place s'étaient tous réveillés. L'expression de Xu Ting était extrêmement sombre alors qu'il fixait silencieusement Wang Lin. Le cultivateur aux six doigts, lui aussi, lançait un regard malveillant vers Wang Lin.
 
-Maître Yan Leizi affichait un sourire alors qu'il se redressait et déclarait d'une voix lente: « Mon Temple Céleste du Tonnerre octroie 108 titres célestes! » Sur ces mots, sa main droite s'élança vers le vide. Le temple tout entier trembla et un chant digne du Royaume Céleste commença soudainement à résonner.
+Maître Yan Leizi affichait un sourire alors qu'il se redressait et déclarait d'une voix lente: « Mon Temple Lei Xian octroie 108 titres célestes! » Sur ces mots, sa main droite s'élança vers le vide. Le temple tout entier trembla et un chant digne du Royaume Céleste commença soudainement à résonner.
 
 Ce chant était d'une beauté sublime, comme s'il s'agissait de la mélodie des cieux eux-mêmes.
 
 D'immenses nuages se rassemblèrent au rythme du chant et l'énergie spirituelle céleste dans l'air devint si dense que l'endroit ressemblait au Royaume Céleste. Quelques grues passèrent en poussant des cris qui apaisaient les cœurs de ceux qui les entendaient.
 
-Si l'on regardait de loin, combiné au Temple Céleste du Tonnerre, ce lieu ne différait en rien du véritable Royaume Céleste.
+Si l'on regardait de loin, combiné au Temple Lei Xian, ce lieu ne différait en rien du véritable Royaume Céleste.
 
-Les cultivateurs environnants se levèrent, accompagnés des ancêtres de leurs clans. Tous affichaient des expressions respectueuses, formant une foule compacte. Non seulement eux, mais même les vieux monstres sur les tapis de prière se redressèrent, le visage grave. À l'autre extrémité, les messagers du Temple Céleste du Tonnerre se tenaient là, empreints de solennité.
+Les cultivateurs environnants se levèrent, accompagnés des ancêtres de leurs clans. Tous affichaient des expressions respectueuses, formant une foule compacte. Non seulement eux, mais même les vieux monstres sur les tapis de prière se redressèrent, le visage grave. À l'autre extrémité, les messagers du Temple Lei Xian se tenaient là, empreints de solennité.
 
-À cet instant, ce n'était pas seulement au Temple Céleste du Tonnerre que ce spectacle était offert. Le temple avait utilisé une méthode spéciale pour transmettre cette scène à l'ensemble du Système Stellaire de Luotian. Les cultivateurs de chaque famille sur chaque planète de culture possédaient une pierre de transmission sonore du Temple Céleste du Tonnerre.
+À cet instant, ce n'était pas seulement au Temple Lei Xian que ce spectacle était offert. Le temple avait utilisé une méthode spéciale pour transmettre cette scène à l'ensemble du Système Stellaire de Luotian. Les cultivateurs de chaque famille sur chaque planète de culture possédaient une pierre de transmission sonore du Temple Lei Xian.
 
 Ces pierres ne permettaient pas seulement de transmettre le son, elles pouvaient aussi projeter les images de ce qui se déroulait. Elles avaient été distribuées gratuitement par le temple; outre leur usage pour le don céleste, elles serviraient également à la mobilisation pour la guerre contre le Système Stellaire de l'Alliance.
 
 Ainsi, presque tous les cultivateurs assistaient à la cérémonie du don céleste à travers les images projetées par leurs pierres de transmission.
 
-Le Temple Céleste du Tonnerre étant situé au centre du Système Stellaire de Luotian, une aura meurtrière commença à émaner des quatre domaines qui l'entouraient.
+Le Temple Lei Xian étant situé au centre du Système Stellaire de Luotian, une aura meurtrière commença à émaner des quatre domaines qui l'entouraient.
 
 À l'est, les cultivateurs commençaient à se rassembler en une foule dense d'au moins 10 000 personnes! Ils portaient tous des vêtements distincts, prouvant qu'ils appartenaient à différentes familles de culture. Tous regardaient silencieusement devant eux. Un homme couvert d'une armure rouge se tenait face à eux, ses cheveux blancs flottant dans son dos et le visage impassible, tenant la pierre de transmission sonore qui relayait la scène du temple.
 
-Le sud était identique: 10 000 cultivateurs étaient assis dans l'espace, menés par un vieillard, les yeux rivés sur les étoiles. Les secteurs ouest et nord comptaient également des armées de cultivateurs similaires. À cet instant, le don céleste au Temple Céleste du Tonnerre était observé par tous!
+Le sud était identique: 10 000 cultivateurs étaient assis dans l'espace, menés par un vieillard, les yeux rivés sur les étoiles. Les secteurs ouest et nord comptaient également des armées de cultivateurs similaires. À cet instant, le don céleste au Temple Lei Xian était observé par tous!
 
 Dans le temple, une grue survola la scène avec un parchemin jaune dans le bec. Elle tourna autour de Maître Yan Leizi avant de lâcher le précieux rouleau que celui-ci rattrapa. Il l'agita et le parchemin s'ouvrit devant lui, dégageant une riche énergie spirituelle céleste. C'était manifestement un trésor céleste!
 
@@ -103,7 +103,7 @@ Dans le Domaine Nord, sur une planète de culture presque dévastée où une ode
 
 À cet instant, tous les cultivateurs du Système Stellaire de Luotian qui connaissaient Wang Lin levèrent les yeux au ciel, la stupéfaction se lisant sur leurs visages.
 
-Dans le Temple Céleste du Tonnerre, Maître Yan Leizi cria: « Xu Ting, avance! »
+Dans le Temple Lei Xian, Maître Yan Leizi cria: « Xu Ting, avance! »
 Xu Ting prit une grande inspiration, s'avança rapidement et se tint là, respectueusement.
 « Je te confère le titre de Vice-Céleste du Tonnerre et une armée de 2 000 cultivateurs. Tu seras la seconde avant-garde! »
 

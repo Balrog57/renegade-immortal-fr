@@ -46,7 +46,7 @@ Sur ces mots, il agita ses manches et son corps s'envola dans les airs pour pour
 
 Les deux vieillards jetèrent un regard au jeune homme avant de disparaître sans laisser de trace.
 
-Wang Lin déchaîna toute sa puissance et se poussa à ses limites pour fuir. Alors qu'il apercevait les murs de la ville, quelques ombres surgirent soudainement en criant: « Il est strictement interdit de voler dans la ville de la Famille Teng! Camarade cultivateur, arrêtez-vous! »
+Wang Lin déchaîna toute sa puissance et se poussa à ses limites pour fuir. Alors qu'il apercevait les murs de la ville, quelques ombres surgirent soudainement en criant: « Il est strictement interdit de voler dans la ville de la Famille Teng! Daoïste, arrêtez-vous! »
 
 Sans perdre un instant, Wang Lin sortit une gourde. Il n'avait pas le temps de se soucier de révéler le secret du liquide spirituel et prit une grande gorgée. L'énergie spirituelle emplit son corps. Il inspira profondément, marqua un temps d'arrêt, puis fonça en avant comme l'éclair, à une vitesse deux fois supérieure à la précédente.
 

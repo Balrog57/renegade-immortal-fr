@@ -16,13 +16,13 @@ L'esprit de Lie Yunzi trembla; il se leva et recula de quelques pas. Fixant l'ho
 
 Il ne put achever sa phrase.
 
-L'homme en armure déclara lentement: « J'ai entendu dire que Wang Lin est votre Céleste du Tonnerre de Luotian. Est-ce vous qui convoitez sa personne, ou est-ce votre Temple Céleste du Tonnerre qui le réclame? »
+L'homme en armure déclara lentement: « J'ai entendu dire que Wang Lin est votre Céleste du Tonnerre de Luotian. Est-ce vous qui convoitez sa personne, ou est-ce votre Temple Lei Xian qui le réclame? »
 
-Lie Yunzi fronça les sourcils: « Bien que cet homme appartienne à mon Luotian, son statut de Céleste du Tonnerre a déjà été révoqué... » Il fixa l'homme en armure et ajouta: « Bien que je sois venu ici pour le demander, cela relève également de la volonté du Temple Céleste du Tonnerre. »
+Lie Yunzi fronça les sourcils: « Bien que cet homme appartienne à mon Luotian, son statut de Céleste du Tonnerre a déjà été révoqué... » Il fixa l'homme en armure et ajouta: « Bien que je sois venu ici pour le demander, cela relève également de la volonté du Temple Lei Xian. »
 
 Alors que l'homme en armure observait Lie Yunzi, son sourire semblait transparaître à travers l'armure elle-même. Il dit d'une voix lente: « Oh? Je me demande bien quel grief lie Wang Lin à vous et à Luotian. »
 
-L'inquiétude dans le cœur de Lie Yunzi s'accentua. Après une courte réflexion, il répondit: « Il a de nombreux griefs avec le Temple Céleste du Tonnerre, mais il serait fastidieux de les énumérer un par un. Cependant, envers moi, il a dérobé un trésor précieux de ma famille; je dois donc naturellement le récupérer. »
+L'inquiétude dans le cœur de Lie Yunzi s'accentua. Après une courte réflexion, il répondit: « Il a de nombreux griefs avec le Temple Lei Xian, mais il serait fastidieux de les énumérer un par un. Cependant, envers moi, il a dérobé un trésor précieux de ma famille; je dois donc naturellement le récupérer. »
 
 « Ainsi, c'est la raison pour laquelle vous voulez Wang Lin. C'est compréhensible. » L'homme en armure hocha la tête, mais les quatre anciens qui l'entouraient affichèrent des expressions étranges sans toutefois prendre la parole.
 
@@ -40,7 +40,7 @@ Avant qu'il ne puisse réagir, l'homme en armure se leva et posa sa main sur son
 
 Le contraste était si violent qu'il dépassait l'entendement de Lie Yunzi. Il fixait Wang Lin, le regard empreint d'incrédulité, mais sa terreur ne faisait que croître.
 
-L'un des quatre anciens aux côtés de Wang Lin fit un pas en avant et déclara d'un ton sombre: « Vous osez! Même si vous représentez le Temple Céleste du Tonnerre de Luotian, vous n'avez aucun droit de juger l'Empereur Divin de Suzaku! »
+L'un des quatre anciens aux côtés de Wang Lin fit un pas en avant et déclara d'un ton sombre: « Vous osez! Même si vous représentez le Temple Lei Xian de Luotian, vous n'avez aucun droit de juger l'Empereur Divin de Suzaku! »
 
 D'un seul pas, la pression d'un cultivateur du Briseur du Nirvana se propagea et s'abattit sur Lie Yunzi!
 
@@ -50,7 +50,7 @@ Déjà sous le choc, Lie Yunzi cracha une bouchée de sang lorsque cette pressio
 
 « Lie Yunzi, êtes-vous venu ici au nom de Luotian pour me féliciter de mon accession au trône d'Empereur Divin, ou êtes-vous ici pour m'humilier en venant à la Secte Divine de Suzaku réclamer l'Empereur Divin? C'est proprement absurde! » L'expression de Wang Lin était sombre et sa voix aussi glaciale que le vent des enfers.
 
-« Cette affaire revient à envoyer quelqu'un à Luotian pour exiger le Maître Yan Leizi du Temple Céleste du Tonnerre. Lie Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas la Secte Divine de Suzaku. Demain, votre Luotian en paiera le prix! »
+« Cette affaire revient à envoyer quelqu'un à Luotian pour exiger le Maître Yan Leizi du Temple Lei Xian. Lie Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas la Secte Divine de Suzaku. Demain, votre Luotian en paiera le prix! »
 
 « Ce n'est pas une accusation fabriquée de ma part. Le Daoïste Mo Zhi, du pays de Chu Yun, peut en être témoin! » Wang Lin ne laissa aucune chance à Lie Yunzi; il lança son assaut comme un coup de tonnerre!
 
@@ -72,7 +72,7 @@ Il se remémora leur première rencontre sur la planète Suzaku, dans un temple,
 
 La belle femme de la Secte Shi Yin garda également le silence. Elle observait Lie Yunzi avec un sourire qui n'en était pas un, comme si elle assistait à un spectacle divertissant.
 
-La sueur perla lentement sur le front de Lie Yunzi. Il était évident qu'avec son niveau de culture, il ne pourrait s'échapper des Quatre Sectes Divines. En impliquant le Temple Céleste du Tonnerre, Wang Lin avait été d'une cruauté sans nom. Ce n'était plus une affaire personnelle; c'était tout le Temple Céleste du Tonnerre qui insultait l'Empereur Divin de Suzaku!
+La sueur perla lentement sur le front de Lie Yunzi. Il était évident qu'avec son niveau de culture, il ne pourrait s'échapper des Quatre Sectes Divines. En impliquant le Temple Lei Xian, Wang Lin avait été d'une cruauté sans nom. Ce n'était plus une affaire personnelle; c'était tout le Temple Lei Xian qui insultait l'Empereur Divin de Suzaku!
 
 C'était exactement le contraire de l'intention initiale de Luotian.
 
@@ -94,7 +94,7 @@ Wang Lin fit mine de n'avoir rien entendu et continua d'observer sa main droite.
 
 Les veines de Lie Yunzi gonflèrent tandis qu'il réprimait sa rage. En voyant les quatre anciens du Briseur du Nirvana entourant Wang Lin, son esprit vacilla. Après une réflexion rapide, il força un air respectueux et dit: « J'espère que l'Empereur Divin ne tiendra pas rigueur de l'erreur de ce vieil homme. J'ai été imprudent, mais je n'avais nullement l'intention d'insulter... »
 
-Wang Lin fixa sa main droite et déclara lentement: « Imprudent! Je vous ai demandé si cette affaire était personnelle ou si elle concernait Luotian! Je me souviens très bien de votre réponse. Je me demande dans quelles affaires du Temple Céleste du Tonnerre de Luotian je me trouve impliqué. »
+Wang Lin fixa sa main droite et déclara lentement: « Imprudent! Je vous ai demandé si cette affaire était personnelle ou si elle concernait Luotian! Je me souviens très bien de votre réponse. Je me demande dans quelles affaires du Temple Lei Xian de Luotian je me trouve impliqué. »
 
 « Vous! » Lie Yunzi leva la tête, réprimant la rage qui allait exploser. À cet instant, il n'osait pas s'emporter... Si la femme de la Secte Shi Yin et Mo Zhi n'avaient pas été là, il aurait combattu jusqu'à la mort. Même s'il risquait de mourir, Luotian se vengerait pour lui.
 

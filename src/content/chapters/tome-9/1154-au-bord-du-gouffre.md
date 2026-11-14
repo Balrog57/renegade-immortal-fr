@@ -26,7 +26,7 @@ Finalement, ils avaient découvert un cadavre dans les profondeurs de la fissure
 
 Trois objets reposaient aux côtés du corps: une pilule, une épée brisée et un fragment d'os de bête. Après avoir récupéré ces trois trésors, les Anciens de la Secte Po Tian étaient devenus frénétiques et avaient quitté précipitamment la fissure pour regagner leur secte.
 
-Leur découverte était trop incroyable; elle pouvait ébranler tout le système stellaire de la Mer Yun! Il était possible que la Secte Po Tian supplante la Secte Divine de rang 9!
+Leur découverte était trop incroyable; elle pouvait ébranler tout le système stellaire de la Mer Yun! Il était possible que la Secte Po Tian supplante la Secte Shen de rang 9!
 
 Cependant, un traître s'était glissé parmi eux et la nouvelle avait fuité. Ce qui les attendait fut l'hostilité de toute la région de rang 8. D'innombrables vieux monstres, d'ordinaire si discrets, avaient participé à cette bataille qui les avait poussés à bout, les yeux injectés de sang.
 

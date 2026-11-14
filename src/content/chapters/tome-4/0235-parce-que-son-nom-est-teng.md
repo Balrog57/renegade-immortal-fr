@@ -34,7 +34,7 @@ Dans la cour, sous un auvent, se trouvaient une table en bois et quelques petite
 
 Après un long moment, Wang Lin s'approcha de la maison, ouvrit la porte et pénétra à l'intérieur. Tout était resté tel qu'il s'en souvenait, comme si rien n'avait changé.
 
-À cet instant, Wang Lin eut l'impression que tout ce qui s'était produit au cours des quatre cents dernières années n'était qu'un rêve dont il venait de s'éveiller. Ses parents n'étaient plus morts et leurs âmes ne résidaient pas dans la perle défiant le ciel. Ils étaient là, dans sa maison, et s'étaient couchés pour la nuit en cette nuit pluvieuse.
+À cet instant, Wang Lin eut l'impression que tout ce qui s'était produit au cours des quatre cents dernières années n'était qu'un rêve dont il venait de s'éveiller. Ses parents n'étaient plus morts et leurs âmes ne résidaient pas dans la Perle Défiant le Ciel. Ils étaient là, dans sa maison, et s'étaient couchés pour la nuit en cette nuit pluvieuse.
 
 Pourtant, grâce à son sens divin, il savait sans même l'étendre que personne ne se trouvait dans cette pièce.
 

@@ -30,7 +30,7 @@ Les yeux de Wang Lin se plissèrent. Sans dire un mot, il frappa son sac de rang
 
 Le vieil homme cria: « Même toi, tu ignores ce que c'est! Laisse-moi te dire que c'est un objet que je portais avec moi dans le Royaume Céleste. Je m'en servais pour éclairer les cultivateurs des royaumes inférieurs! Ce vieux bonhomme prend en compte la difficulté que tu as à cultiver, alors file maintenant! Si tu ne t'en vas pas, je vais vraiment attaquer! »
 
-Wang Lin regarda le vieil homme et dit lentement: « Tu n'as pas besoin de me répéter sans cesse de partir. J'ai déjà remarqué que bien que tu sois au stade intermédiaire de l'Ascendant, tu es comme ces gardiens célestes. Aucun d'entre vous ne possède d'énergie originelle dans son corps! »
+Wang Lin regarda le vieil homme et dit lentement: « Tu n'as pas besoin de me répéter sans cesse de partir. J'ai déjà remarqué que bien que tu sois au stade intermédiaire de l'Ascendant, tu es comme ces gardes célestes. Aucun d'entre vous ne possède d'énergie originelle dans son corps! »
 
 Le plus grand secret du vieil homme venait d'être mis à nu par Wang Lin. Fou de rage et d'humiliation, il agita le pinceau de sa main. Puis, après avoir craché une bouchée de sang, il traça un symbole avec le pinceau.
 
@@ -70,7 +70,7 @@ Sa timidité était innée. Il avait atteint le stade tardif de la Transformatio
 
 Il avait peur de la mort!
 
-Cependant, il finit par oublier cette prudence après avoir rassemblé dix gardiens célestes. Il commença à agir personnellement pour capturer davantage de cultivateurs afin de les fusionner avec les jades brisés, espérant ainsi cultiver des experts du niveau des gardiens célestes.
+Cependant, il finit par oublier cette prudence après avoir rassemblé dix gardes célestes. Il commença à agir personnellement pour capturer davantage de cultivateurs afin de les fusionner avec les jades brisés, espérant ainsi cultiver des experts du niveau des gardes célestes.
 
 « Quelles sont les origines de ce maudit Wang Lin? Comment peut-il être aussi puissant?! Bon sang, si je m'échappe cette fois, j'irai briser la tête du cultivateur de la Cité Gu Yao qui m'a donné des nouvelles de lui! » lança le vieil homme dans sa fuite, maudissant intérieurement.
 

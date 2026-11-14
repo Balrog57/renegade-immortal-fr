@@ -10,7 +10,7 @@ Le sort de recherche d'âme était une technique extrêmement puissante. Cependa
 
 Même lors d'une recherche forcée, on ne pouvait obtenir que quelques fragments, et non l'intégralité des souvenirs. Peut-être que si le niveau de culture était bien supérieur à celui d'un Exalté Doré, une extraction parfaite des souvenirs serait alors possible.
 
-Bien que Wang Lin puisse vaincre des Exaltés Dorés, cela était dû à la fusion de son corps de Dao Antique et de sa culture, lui permettant d'atteindre une telle puissance de combat. En réalité, son niveau de culture n'était qu'au début du stade Tribulation du Vide.
+Bien que Wang Lin puisse vaincre des Exaltés Dorés, cela était dû à la fusion de son corps de Dao Gu et de sa culture, lui permettant d'atteindre une telle puissance de combat. En réalité, son niveau de culture n'était qu'au début du stade Tribulation du Vide.
 
 Pendant que l'âme originelle du Maître de la Secte Dao Mo était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret de la guerre entre le Continent Tian Niu et le Continent Lu Mo. Il ne trouva que quelques pensées concernant l'ancêtre Exalté de la Secte Dao Mo.
 

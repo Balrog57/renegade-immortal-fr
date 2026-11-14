@@ -60,7 +60,7 @@ La pression du sceau noir s'abattit sur l'Esprit de la Terre, le faisant hurler 
 
 Un regard de désespoir envahit l'Esprit de la Terre alors que le jeune homme levait la main, prêt à manier son pinceau une nouvelle fois. Wang Lin chargea immédiatement vers le drapeau de restriction et pointa son propre front. Une puissante force d'aspiration apparut, aspirant instantanément l'Esprit de la Terre dans le front de Wang Lin.
 
-Wang Lin n'eut pas le temps de vérifier l'état de sa capture une fois l'esprit absorbé dans la perle défiant le ciel. Il rétracta le sceau noir et d'un geste de la main, rangea le drapeau de restriction dans son sac de rangement.
+Wang Lin n'eut pas le temps de vérifier l'état de sa capture une fois l'esprit absorbé dans la Perle Défiant le Ciel. Il rétracta le sceau noir et d'un geste de la main, rangea le drapeau de restriction dans son sac de rangement.
 
 Tout cela s'était déroulé avec une rapidité extrême. Ensuite, sans hésiter, il cria: « Ce junior est un disciple de la Secte Bai Yun. Mon maître est Qing Song! » Sur ces mots, son sens divin pénétra dans son sac de rangement pour manipuler la sculpture de l'ancien afin de libérer une infime portion du domaine du passage du temps, avant de faire demi-tour et de s'enfuir.
 
@@ -72,7 +72,7 @@ Wang Lin avait pris d'énormes risques pour dérober cet Esprit de la Terre à a
 
 De plus, l'endommagement du drapeau de restriction lui causait une vive douleur au cœur.
 
-Caché dans une montagne de neige, Wang Lin vérifia la perle défiant le ciel et constata que l'élément terre était totalement comblé. Il ne lui manquait désormais que le bois et le métal pour parfaire la perle.
+Caché dans une montagne de neige, Wang Lin vérifia la Perle Défiant le Ciel et constata que l'élément terre était totalement comblé. Il ne lui manquait désormais que le bois et le métal pour parfaire la perle.
 
 À cet instant précis, le sol trembla et d'innombrables sculptures de glace représentant des serpents dotés de têtes humaines émergèrent de la terre.
 

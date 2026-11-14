@@ -33,7 +33,7 @@ Le visage de l'homme en or devint encore plus livide. Puis, son expression se mu
 
 Le corps de Sun Yunshan trembla et il s'apprêtait à répliquer quand Wang Lin fit un geste de la main. Une brise légère frappa l'homme en or et son corps explosa soudainement. Son âme originelle s'échappa de sa carcasse, empreinte de confusion, avant d'être rapidement dévorée par le nuage noir dans le ciel.
 
-L'odeur du sang ne s'était pas encore dissipée que les yeux de tous les cultivateurs environnants étaient déjà emplis de terreur. Ils ne pouvaient imaginer que la culture de Wang Lin ait atteint un tel niveau! D'une simple saisie, il avait capturé le gardien céleste; d'un simple revers de main, l'homme en or avait explosé.
+L'odeur du sang ne s'était pas encore dissipée que les yeux de tous les cultivateurs environnants étaient déjà emplis de terreur. Ils ne pouvaient imaginer que la culture de Wang Lin ait atteint un tel niveau! D'une simple saisie, il avait capturé le garde céleste; d'un simple revers de main, l'homme en or avait explosé.
 
 « Stade avancé de l'Ascendant!! Il doit être au stade avancé de l'Ascendant!! »
 
@@ -55,11 +55,11 @@ Sun Yunshan resta figé sur le côté. Après avoir hésité, il s'assit face à
 
 « Puisque vous êtes déjà venu, il n'y a aucun mal à me demander de l'aide. » Wang Lin sourit en posant la jarre de vin et fixa Sun Yunshan.
 
-Sun Yunshan réfléchit un court instant avant de saisir la coupe et de la vider d'un trait. Il s'empara ensuite de la jarre pour boire directement au goulot. Ce n'est qu'après avoir bu la majeure partie du contenu qu'il la reposa. Les yeux brillants, il regarda Wang Lin avant de prendre une profonde inspiration. Pointant l'homme en noir, il déclara: « Frère Wang, cet homme n'a pas de nom et est appelé gardien céleste. Nous appartenons à la même organisation qui se fait appeler l'Union de Culture! »
+Sun Yunshan réfléchit un court instant avant de saisir la coupe et de la vider d'un trait. Il s'empara ensuite de la jarre pour boire directement au goulot. Ce n'est qu'après avoir bu la majeure partie du contenu qu'il la reposa. Les yeux brillants, il regarda Wang Lin avant de prendre une profonde inspiration. Pointant l'homme en noir, il déclara: « Frère Wang, cet homme n'a pas de nom et est appelé garde céleste. Nous appartenons à la même organisation qui se fait appeler l'Union de Culture! »
 
-L'expression de Wang Lin resta imperturbable alors qu'il répétait lentement: « Gardien céleste... »
+L'expression de Wang Lin resta imperturbable alors qu'il répétait lentement: « Garde céleste... »
 
-Sun Yunshan prit une autre grande gorgée de vin, les yeux légèrement injectés de sang, et poursuivit: « Il y a au sein de l'Union de Culture un homme qui se fait appeler l'Ancêtre du Royaume Céleste. Sa culture est extrêmement élevée, et c'est lui qui les nomme gardiens célestes. En plus de cet Ancêtre, il compte dix gardiens célestes au total. Leurs forces sont à peu près équivalentes.
+Sun Yunshan prit une autre grande gorgée de vin, les yeux légèrement injectés de sang, et poursuivit: « Il y a au sein de l'Union de Culture un homme qui se fait appeler l'Ancêtre du Royaume Céleste. Sa culture est extrêmement élevée, et c'est lui qui les nomme gardes célestes. En plus de cet Ancêtre, il compte dix gardes célestes au total. Leurs forces sont à peu près équivalentes.
 
 « La bataille que vous avez menée dans la Cité Gu Yao du Pays Tian Yao contre le Général Démon Mo Lihai a attiré l'attention de l'Ancêtre. Pour une raison inconnue, il a envoyé des gens pour vous capturer vivant. Je suppose que vous avez déjà rencontré ceux qui tentaient de vous saisir à la Cité Tian Yao.
 
@@ -85,13 +85,13 @@ Après un long moment, Wang Lin ouvrit les yeux et demanda lentement: « L'Ancê
 
 Sun Yunshan hocha vivement la tête: « C'est exact. L'Ancêtre a dit un jour qu'il l'avait obtenue du Royaume Céleste avant son effondrement, que c'était un objet sacré du Royaume Céleste et que personne, hormis lui, ne pouvait la briser! »
 
-Une lumière mystérieuse brilla dans les yeux de Wang Lin alors qu'il observait l'homme en noir: « Cet homme est un gardien céleste. Cette restriction est une graine céleste... et cet Ancêtre prétend venir du Royaume Céleste... Se pourrait-il que ce soit l'Empereur Céleste Qing Lin... Bien que cette probabilité soit infime, cette restriction n'est certes pas ordinaire. Elle contient une énergie spirituelle céleste immense; elle provient donc bien du Royaume Céleste! »
+Une lumière mystérieuse brilla dans les yeux de Wang Lin alors qu'il observait l'homme en noir: « Cet homme est un garde céleste. Cette restriction est une graine céleste... et cet Ancêtre prétend venir du Royaume Céleste... Se pourrait-il que ce soit l'Empereur Céleste Qing Lin... Bien que cette probabilité soit infime, cette restriction n'est certes pas ordinaire. Elle contient une énergie spirituelle céleste immense; elle provient donc bien du Royaume Céleste! »
 
-Wang Lin réfléchit un instant avant de plonger la main dans le vide pour saisir le gardien céleste. Avec indifférence, il posa sa main sur la tête de l'individu et activa le sort de recherche d'âme!
+Wang Lin réfléchit un instant avant de plonger la main dans le vide pour saisir le garde céleste. Avec indifférence, il posa sa main sur la tête de l'individu et activa le sort de recherche d'âme!
 
 Si cet homme en noir avait été un véritable cultivateur Ascendant, Wang Lin n'aurait pas osé fouiller l'âme d'un être de même niveau que lui. Cependant, ce corps ne contenait aucune énergie originelle. En réalité, sa culture de stade Ascendant lui avait été conférée par le jade brisé logé dans son âme originelle. Sa véritable culture n'était qu'au stade intermédiaire de la Transformation de l'Âme.
 
-À mesure qu'il procédait à la recherche, l'expression de Wang Lin se fit de plus en plus sombre. La mémoire de cet homme était très courte; elle ne contenait que des souvenirs postérieurs à sa transformation en gardien céleste. Quant à ses souvenirs antérieurs, c'était un vide total.
+À mesure qu'il procédait à la recherche, l'expression de Wang Lin se fit de plus en plus sombre. La mémoire de cet homme était très courte; elle ne contenait que des souvenirs postérieurs à sa transformation en garde céleste. Quant à ses souvenirs antérieurs, c'était un vide total.
 
 Wang Lin retira sa main droite et, d'un coup sec, repoussa l'âme originelle. Ses yeux devinrent glacials alors qu'il crachait une bouffée de flammes originelles. Il commença ensuite à raffiner l'âme originelle sous les yeux de Sun Yunshan.
 
@@ -99,11 +99,11 @@ Sun Yunshan observa la scène, le cœur partagé entre un choc immense et une cr
 
 Tandis que Wang Lin affinait l'âme originelle, son regard balaya Sun Yunshan. Il avait ses raisons d'agir ainsi. Les origines de cet Ancêtre étaient effectivement étranges; Wang Lin ne pouvait donc se fier aveuglément aux paroles de Sun Yunshan. Il devait prendre les précautions nécessaires, en terrorisant Sun Yunshan tout en restant sur ses gardes.
 
-L'âme originelle du gardien céleste fut rapidement raffinée. Le morceau de jade brisé, de la taille d'un ongle, scintilla alors qu'il flottait devant Wang Lin. Il le fixa longuement, plongé dans sa réflexion.
+L'âme originelle du garde céleste fut rapidement raffinée. Le morceau de jade brisé, de la taille d'un ongle, scintilla alors qu'il flottait devant Wang Lin. Il le fixa longuement, plongé dans sa réflexion.
 
 Bien que ce jade ne dégageât aucune énergie spirituelle céleste, l'examen de Wang Lin révéla qu'il recelait une quantité inimaginable d'énergie spirituelle céleste. Pourtant, cette énergie ne pouvait être absorbée, car il semblait y avoir une intention à l'intérieur!
 
-« La fusion de l'âme originelle d'un cultivateur et de ce jade brisé peut créer un être semblable à un cultivateur au début du stade Ascendant. Cependant, je parie que le taux de réussite de cette fusion est extrêmement faible, sinon cet Ancêtre n'aurait pas seulement dix gardiens célestes!
+« La fusion de l'âme originelle d'un cultivateur et de ce jade brisé peut créer un être semblable à un cultivateur au début du stade Ascendant. Cependant, je parie que le taux de réussite de cette fusion est extrêmement faible, sinon cet Ancêtre n'aurait pas seulement dix gardes célestes!
 
 « De plus, cette union ne peut se résumer à une simple fusion avec le jade. La clé doit résider dans l'intention contenue dans ce jade brisé! Ce n'est qu'en fusionnant avec cette intention que le processus devient complet! » Les idées défilaient rapidement dans l'esprit de Wang Lin.
 

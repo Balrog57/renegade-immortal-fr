@@ -44,17 +44,17 @@ Qui était celui qui avait combattu l'étrange homme aux cheveux blancs à la po
 
 Qui était celui qui avait sauvé tant de cultivateurs de la mort au plus fort de la crise?
 
-Qui était celui qui avait insufflé la volonté de vivre lors de l'effondrement du Royaume Céleste du Tonnerre et utilisé un fragment pour sauver d'innombrables âmes? Qui était celui qui avait conduit ces gens vers le réseau de transfert du Temple Céleste du Tonnerre? Il avait brisé la barrière et, d'un rugissement, avait effrayé les messagers du Temple afin de faire entrer tout le monde dans le réseau de transfert avant qu'il ne s'effondre!
+Qui était celui qui avait insufflé la volonté de vivre lors de l'effondrement du Royaume Céleste du Tonnerre et utilisé un fragment pour sauver d'innombrables âmes? Qui était celui qui avait conduit ces gens vers le réseau de transfert du Temple Lei Xian? Il avait brisé la barrière et, d'un rugissement, avait effrayé les messagers du Temple afin de faire entrer tout le monde dans le réseau de transfert avant qu'il ne s'effondre!
 
 Xu Mu!
 
 Parmi les dizaines de familles de survivants, il y avait des clans de toutes tailles. Cependant, une fois unis, ils formèrent une force qu'on ne pouvait sous-estimer.
 
-Grâce à cette puissance, le Temple Céleste du Tonnerre ne mentionna, fait rare, absolument rien de l'incident du réseau de transfert; c'était comme si cela n'avait jamais existé. En réalité, ces dizaines de familles avaient largement médiatisé l'événement pour faire de Xu Mu un héros!
+Grâce à cette puissance, le Temple Lei Xian ne mentionna, fait rare, absolument rien de l'incident du réseau de transfert; c'était comme si cela n'avait jamais existé. En réalité, ces dizaines de familles avaient largement médiatisé l'événement pour faire de Xu Mu un héros!
 
-Après tout, certains membres de ces familles avaient pénétré dans la zone interdite du Temple Céleste du Tonnerre, ce qui aurait pu causer le désastre de tout leur clan. Cela ne pouvait être passé sous silence et le Temple devait déjà être au courant.
+Après tout, certains membres de ces familles avaient pénétré dans la zone interdite du Temple Lei Xian, ce qui aurait pu causer le désastre de tout leur clan. Cela ne pouvait être passé sous silence et le Temple devait déjà être au courant.
 
-Plutôt que d'attendre que le Temple Céleste du Tonnerre ne vienne les exterminer, ils décidèrent de s'unir pour négocier avec raison! De cette façon, une chance de survie subsistait. Autrement, ils n'auraient eu d'autre choix que de mettre eux-mêmes fin à la vie des leurs qui s'étaient échappés du Royaume Céleste du Tonnerre.
+Plutôt que d'attendre que le Temple Lei Xian ne vienne les exterminer, ils décidèrent de s'unir pour négocier avec raison! De cette façon, une chance de survie subsistait. Autrement, ils n'auraient eu d'autre choix que de mettre eux-mêmes fin à la vie des leurs qui s'étaient échappés du Royaume Céleste du Tonnerre.
 
 Pourtant, les personnes capables d'entrer dans le Royaume Céleste du Tonnerre étaient des descendants directs, les futurs piliers de leurs lignées; comment pouvait-on les laisser mourir?!
 

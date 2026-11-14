@@ -48,7 +48,7 @@ La dernière personne était naturellement celle qui se tenait aux côtés de Wa
 
 À ce moment précis, le ciel devint rouge et une masse de nuages se rassembla. Ces nuages se condensèrent au-dessus de l'assemblée pour former un vieil homme. Il avait les cheveux blancs et dégageait l'aura d'un être céleste. À son apparition, le tonnerre résonna sous ses pieds, comme s'il marchait sur la foudre.
 
-« Je suis l'émissaire de bienvenue du Temple Céleste du Tonnerre. Est-ce toi qui as tué les autres participants du Domaine Est? » Après l'apparition du vieil homme, une aura puissante commença à se propager. D'après l'énergie d'origine qu'il libérait, il se trouvait au stade intermédiaire du Scruteur du Nirvana!
+« Je suis l'émissaire de bienvenue du Temple Lei Xian. Est-ce toi qui as tué les autres participants du Domaine Est? » Après l'apparition du vieil homme, une aura puissante commença à se propager. D'après l'énergie d'origine qu'il libérait, il se trouvait au stade intermédiaire du Scruteur du Nirvana!
 
 Il fixa l'homme en robe blanche et sa voix résonna avec majesté.
 
@@ -72,7 +72,7 @@ La renommée de la famille Xu ne cessait de croître au travers de ces tempêtes
 
 Des murmures s'élevèrent de partout. La famille Xu était trop célèbre, et leurs méthodes de meurtre glaçaient le sang des spectateurs.
 
-Le vieil homme du Temple Céleste du Tonnerre fronça les sourcils et déclara: « La bataille pour les 108 titres célestes commencera dans trois jours, à midi. Par la suite, des membres du Temple Céleste du Tonnerre vous remettront vos jetons et organiseront vos séjours. »
+Le vieil homme du Temple Lei Xian fronça les sourcils et déclara: « La bataille pour les 108 titres célestes commencera dans trois jours, à midi. Par la suite, des membres du Temple Lei Xian vous remettront vos jetons et organiseront vos séjours. »
 
 Après avoir fini de parler, le vieil homme marqua une pause. Ses yeux brillèrent et son regard balaya l'assemblée. « Xu Mu est-il parmi vous? » demanda-t-il.
 
@@ -100,9 +100,9 @@ Il y avait aussi ce jeune homme extrêmement beau vêtu de bleu. Lorsqu'il enten
 
 Wang Lin prit un moment pour réfléchir. Sans accorder d'importance aux regards des cultivateurs environnants, il s'éleva dans les airs et marcha derrière lui.
 
-Le vieil homme du Temple Céleste du Tonnerre ne volait pas très vite. À mesure qu'ils avançaient, les nuages devant eux se fendirent. Wang Lin suivit calmement, sans poser la moindre question en chemin.
+Le vieil homme du Temple Lei Xian ne volait pas très vite. À mesure qu'ils avançaient, les nuages devant eux se fendirent. Wang Lin suivit calmement, sans poser la moindre question en chemin.
 
-Une pointe d'admiration apparut dans les yeux du vieil homme et il sourit. « Le Temple Céleste du Tonnerre est immense. Ce que vous voyez là n'est que la salle extérieure. Je vais vous conduire dans la salle intérieure! »
+Une pointe d'admiration apparut dans les yeux du vieil homme et il sourit. « Le Temple Lei Xian est immense. Ce que vous voyez là n'est que la salle extérieure. Je vais vous conduire dans la salle intérieure! »
 
 Wang Lin hocha la tête et regarda au loin. Tandis que les nuages défilaient, de majestueux palais apparurent devant lui.
 
@@ -110,17 +110,17 @@ Les palais étaient légion; bien qu'ils ne fussent pas proches les uns des autr
 
 Une énergie spirituelle céleste dense emplissait la région, comme si on se trouvait dans le Royaume Céleste. Wang Lin comprit que ces palais n'avaient rien d'ordinaire: en vérité, c'était de ces édifices que sourdait cette essence spirituelle si dense.
 
-« Le Temple Céleste du Tonnerre compte un total de 1 372 salles principales. Chacune d'elles a été extraite du Royaume Céleste du Tonnerre par les Seigneurs du Temple successifs! » Les paroles du vieil homme étaient empreintes de fierté.
+« Le Temple Lei Xian compte un total de 1 372 salles principales. Chacune d'elles a été extraite du Royaume Céleste du Tonnerre par les Seigneurs du Temple successifs! » Les paroles du vieil homme étaient empreintes de fierté.
 
-Wang Lin acquiesça et fit l'éloge: « Le Temple Céleste du Tonnerre est effectivement le temple le plus puissant du Système Stellaire de Luotian! » Ce genre de compliment était sans risque, et Wang Lin maîtrisait depuis longtemps les règles de la bienséance après ses mille ans de culture.
+Wang Lin acquiesça et fit l'éloge: « Le Temple Lei Xian est effectivement le temple le plus puissant du Système Stellaire de Luotian! » Ce genre de compliment était sans risque, et Wang Lin maîtrisait depuis longtemps les règles de la bienséance après ses mille ans de culture.
 
 Le vieil homme sourit et dit: « Les futurs accomplissements de l'ami Xu ne manqueront pas d'être grandioses. Il y aura certainement une place pour vous ici, cher Daoïste! »
 
-Wang Lin sourit et discuta avec le vieil homme. En regardant devant lui, il vit que la majeure partie du Temple Céleste du Tonnerre était enveloppée d'une fine couche de brume.
+Wang Lin sourit et discuta avec le vieil homme. En regardant devant lui, il vit que la majeure partie du Temple Lei Xian était enveloppée d'une fine couche de brume.
 
 Presque chaque recoin du temple était protégé par des restrictions. Wang Lin en découvrit même de nombreuses sur leur chemin. S'il n'avait pas suivi le vieil homme, ces seules barrières auraient suffi à l'arrêter.
 
-En continuant leur progression, ils finirent par atteindre le centre du Temple Céleste du Tonnerre. Il y avait là une immense place pavée de pierres bleues, parcourue par des éclairs. La place était vaste, faisant au moins dix mille pieds de large, et semblait avoir été formée par un écoulement de foudre. À leur approche, le tonnerre prit la forme d'une gueule béante tentant de les engloutir.
+En continuant leur progression, ils finirent par atteindre le centre du Temple Lei Xian. Il y avait là une immense place pavée de pierres bleues, parcourue par des éclairs. La place était vaste, faisant au moins dix mille pieds de large, et semblait avoir été formée par un écoulement de foudre. À leur approche, le tonnerre prit la forme d'une gueule béante tentant de les engloutir.
 
 Le vieil homme rit et, d'un geste sur son sac de stockage, fit apparaître une multitude de fruits rouges dans sa main. Il les lança dans la gueule qui tentait de les dévorer.
 
@@ -130,4 +130,4 @@ Un grondement sourd émana du tonnerre de la place. Les fruits disparurent un à
 
 « Ami Xu, ces fruits vous sont-ils familiers? Héhé, ce qui est scellé ici est le clone de l'esprit du tonnerre qui garde le Royaume Céleste du Tonnerre. Quiconque souhaite y pénétrer doit le nourrir d'une grande quantité de Fruits d'Ascension Céleste. Autrement, cette bête refusera toute entrée!
 
-Le précédent Seigneur du Temple a utilisé un sort puissant et passé d'innombrables années à séparer une parcelle de cette créature de tonnerre pour qu'elle devienne l'une des bêtes gardiennes du Temple Céleste du Tonnerre! »
+Le précédent Seigneur du Temple a utilisé un sort puissant et passé d'innombrables années à séparer une parcelle de cette créature de tonnerre pour qu'elle devienne l'une des bêtes gardiennes du Temple Lei Xian! »

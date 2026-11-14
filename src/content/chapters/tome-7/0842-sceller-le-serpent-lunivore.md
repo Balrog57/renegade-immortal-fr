@@ -60,7 +60,7 @@ Les trois garçons face au Serpent aux yeux de lune furent incapables de résist
 
 La barrière disparut et une multitude de serpents aux yeux de lune s'en précipitèrent. L'ancêtre de la famille Shengong fit un pas en avant, le corps parcouru d'éclairs. Une légion de dragons de tonnerre apparut pour tenter de stopper les serpents.
 
-Le Domaine Nord entier semblait vaciller tandis que le fracas résonnait à travers les étoiles. L'espace dans cette zone commença à s'effondrer. Même la barrière formée par les messagers du Temple Céleste du Tonnerre, situés à 50 000 kilomètres de là, fut affectée. Une brèche se forma, mais elle fut rapidement comblée par la foudre.
+Le Domaine Nord entier semblait vaciller tandis que le fracas résonnait à travers les étoiles. L'espace dans cette zone commença à s'effondrer. Même la barrière formée par les messagers du Temple Lei Xian, situés à 50 000 kilomètres de là, fut affectée. Une brèche se forma, mais elle fut rapidement comblée par la foudre.
 
 Au même moment, le fantôme formé par le Daoïste aux Cinq Couleurs s'élança pour attaquer le Serpent aux yeux de lune.
 
@@ -82,7 +82,7 @@ L'aigle noir de l'homme en robe noire ne s'arrêta pas non plus. Alors que les s
 
 La puissance combinée d'une attaque de cinq experts au sommet du Système Stellaire de Luotian pouvait facilement détruire une planète; la destruction du Domaine Nord n'était pas impossible!
 
-À cet instant, leurs sorts formèrent une tempête dévastatrice capable de déchirer le vide. Cette tempête était si puissante que même les expressions des messagers du Temple Céleste du Tonnerre, à 50 000 kilomètres, changèrent. Certains, qui n'étaient qu'au stade de l'Yin Illusoire, devinrent livides et crachèrent du sang.
+À cet instant, leurs sorts formèrent une tempête dévastatrice capable de déchirer le vide. Cette tempête était si puissante que même les expressions des messagers du Temple Lei Xian, à 50 000 kilomètres, changèrent. Certains, qui n'étaient qu'au stade de l'Yin Illusoire, devinrent livides et crachèrent du sang.
 
 Cette tempête percuta de plein fouet le doigt du Dieu Ancien presque corporel!
 
@@ -102,7 +102,7 @@ La collision de ces sorts créa une onde de choc qui se propagea avec une violen
 
 La zone dans un rayon de 50 000 kilomètres fut immédiatement frappée par cette onde de choc. Quelques planètes abandonnées volèrent en éclats!
 
-Les messagers du Temple Céleste du Tonnerre, à 50 000 kilomètres, crachèrent tous du sang. Incapables de maintenir le barrage, ils furent tous balayés.
+Les messagers du Temple Lei Xian, à 50 000 kilomètres, crachèrent tous du sang. Incapables de maintenir le barrage, ils furent tous balayés.
 
 Plus loin, les deux barrières formées par les cultivateurs en robes noire et rouge furent également affectées. Ils pâlirent et reculèrent promptement.
 

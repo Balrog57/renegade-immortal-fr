@@ -28,7 +28,7 @@ En même temps, à cause de Wang Lin, ces bêtes de feu haïssaient désormais t
 
 Pour être plus précis, ces bêtes de feu n'avaient pas d'âmes; elles existaient d'une manière singulière. Les épées volantes ordinaires ne pouvaient entamer leurs corps endurcis. La seule manière de les tuer était de les frapper violemment avec de puissants trésors magiques.
 
-Cependant, elles étaient bien trop nombreuses. Même à cet instant, une infinité de bêtes de feu surgissait des volcans, petits ou grands, de Huo Fen. Quant au nombre exact qu'elles formaient, seul l'esprit de feu ancestral, absorbé par la perle défiant le ciel, pouvait le savoir.
+Cependant, elles étaient bien trop nombreuses. Même à cet instant, une infinité de bêtes de feu surgissait des volcans, petits ou grands, de Huo Fen. Quant au nombre exact qu'elles formaient, seul l'esprit de feu ancestral, absorbé par la Perle Défiant le Ciel, pouvait le savoir.
 
 À mesure que Wang Lin s'éloignait, sa vitesse augmentait. Ces bêtes étaient plus rapides que lui lorsqu'elles évoluaient dans la lave, mais à découvert, il réussissait à maintenir la distance.
 

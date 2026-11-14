@@ -58,15 +58,15 @@ Wang Lin observa le Bassin Dong Lin durant un long moment avant de prendre une p
 
 En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla. Un grondement résonna dans son esprit et il sembla se souvenir de quelque chose.
 
-« Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiante du Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiante du Ciel pendant le combat du Grand Empyréen Dao Yi et de mon Maître, sans attirer leur attention... »
+« Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiant le Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiant le Ciel pendant le combat du Grand Empyréen Dao Yi et de mon Maître, sans attirer leur attention... »
 
-« Pourquoi est-ce que, dans le monde de la grotte, Lanmeng et les autres, y compris le Daoïste aux Sept Couleurs, pouvaient voir que je possédais la Perle Défiante du Ciel... alors que sur le Continent Xian Gang, même à présent, personne ne l'a remarqué... »
+« Pourquoi est-ce que, dans le monde de la grotte, Lanmeng et les autres, y compris le Daoïste aux Sept Couleurs, pouvaient voir que je possédais la Perle Défiant le Ciel... alors que sur le Continent Xian Gang, même à présent, personne ne l'a remarqué... »
 
 « Pourquoi mon propre Maître, Xuan Luo, n'a-t-il rien vu lorsqu'il s'est rendu dans le monde de la grotte? Peut-être l'avait-il décelée sans pour autant parler? »
 
 « Si c'est réellement le cas, j'ai également rencontré le Grand Empyréen Dao Yi. Pourquoi n'a-t-il rien dit et n'a-t-il pas tenté de la voler... Je crois plutôt qu'ils ne l'ont pas vue! »
 
-« Que représente exactement la Perle Défiante du Ciel? Qui a créé la boussole qui lui est destinée, et quelle est sa fonction... Pourquoi certains dans le monde de la grotte peuvent-ils voir que je la possède, alors que personne sur le Continent Xian Gang n'en est capable... »
+« Que représente exactement la Perle Défiant le Ciel? Qui a créé la boussole qui lui est destinée, et quelle est sa fonction... Pourquoi certains dans le monde de la grotte peuvent-ils voir que je la possède, alors que personne sur le Continent Xian Gang n'en est capable... »
 
 « Lorsque j'ai absorbé l'âme du scorpion, celui-ci a murmuré "perle blanche"... Perle blanche... Cela signifie-t-il qu'il existe une perle noire? Que contient-elle? »
 
@@ -74,7 +74,7 @@ En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla.
 
 « En vérité, j'ai un autre moyen de découvrir ce qui est arrivé à la Secte Dong Lin et qui l'a détruit... Mais même les Grands Empyréens ne peuvent le deviner par divination. Même l'Enseignant Impérial fut troublé pendant trois jours et en perdit la mémoire. Moi... puis-je y parvenir... »
 
-Wang Lin hésita un instant, mais bientôt, ses yeux s'emplirent de détermination. Ce n'était pas seulement une question liée à la Secte Dong Lin, c'était aussi une affaire le concernant personnellement. Après tout, il venait du monde de la grotte et possédait la Perle Défiante du Ciel.
+Wang Lin hésita un instant, mais bientôt, ses yeux s'emplirent de détermination. Ce n'était pas seulement une question liée à la Secte Dong Lin, c'était aussi une affaire le concernant personnellement. Après tout, il venait du monde de la grotte et possédait la Perle Défiant le Ciel.
 
 Wang Lin avait initialement cru avoir levé le voile, mais il n'en avait soulevé qu'un coin — celui-ci recouvrait toujours ses yeux. Il allait maintenant écarter de force les mains invisibles qui obstruaient sa vue pour s'autoriser à percevoir la vérité à travers la faille!
 

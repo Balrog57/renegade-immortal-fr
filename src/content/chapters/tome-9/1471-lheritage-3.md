@@ -58,7 +58,7 @@ Dès que l'aura arriva, la force d'aspiration du trône se dissipa et une force 
 
 Bien que cette force n'ait duré qu'un instant, elle détruisit la moitié inférieure du corps de Wang Lin.
 
-Des grondements tonitruants résonnèrent alors que les jambes de Wang Lin s'effondraient. Au même moment, l'estimé Ling Dong, qui aidait Wang Lin à résister, trembla. Sa main gauche se brisa également.
+Des grondements tonitruants résonnèrent alors que les jambes de Wang Lin s'effondraient. Au même moment, l'Estimé Ling Dong, qui aidait Wang Lin à résister, trembla. Sa main gauche se brisa également.
 
 Frappé par cette puissance colossale, il fut contraint de reculer de plusieurs pas. Il redressa la tête et cracha du sang avant de reculer davantage! Malgré ce recul forcé, il obéit strictement aux ordres de Wang Lin. Sa main forma un sceau et une statue noire géante apparut.
 

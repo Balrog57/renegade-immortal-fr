@@ -1,6 +1,6 @@
 ---
 n: 1251
-title: Réprimander la Secte Éternelle (2)
+title: Réprimander la Secte Wu Ji (2)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1251 - Rebuking the Everlasting Secte (2)
@@ -26,7 +26,7 @@ L'homme en blanc regarda calmement Lu Yuncong et demanda: « Quel est son niveau
 
 « Début du stade Purificateur du Nirvana... Mais... » Lu Yuncong hésita un instant avant de poursuivre: « Le disciple a seulement ressenti une culture au début du stade Purificateur du Nirvana, mais il n'a pas pu voir clair en lui, comme s'il cachait son véritable niveau. »
 
-Après ses paroles, les membres de la Secte Éternelle échangèrent des regards. L'homme en blanc réfléchit un moment avant de dire: « Comment as-tu rencontré cet homme? Raconte-nous tout en détail! »
+Après ses paroles, les membres de la Secte Wu Ji échangèrent des regards. L'homme en blanc réfléchit un moment avant de dire: « Comment as-tu rencontré cet homme? Raconte-nous tout en détail! »
 
 Lu Yuncong hocha la tête, les yeux empreints de nostalgie, et répondit: « Il a tué ce maudit fils... »
 
@@ -36,7 +36,7 @@ Dès qu'il eut prononcé ces mots, non seulement les personnes sur l'estrade fur
 
 Lu Yuncong commença à relater tout ce qui s'était passé lors de sa rencontre avec Wang Lin. Il inclut également les trois questions de Li Qianmei et la manière dont Wang Lin y avait répondu. La réponse comparant le ciel à un cercle émut toute l'assistance!
 
-Les Anciens de la Secte Éternelle furent tous sous le choc. L'homme en blanc réfléchit attentivement un long moment avant que ses yeux ne brillent d'un éclat vif.
+Les Anciens de la Secte Wu Ji furent tous sous le choc. L'homme en blanc réfléchit attentivement un long moment avant que ses yeux ne brillent d'un éclat vif.
 
 « Quelle magnifique conception que celle de voir le ciel comme un cercle! Ce que tu recherches se trouve encore dans ce monde, tandis que ce qu'il cherche est déjà au-delà des cieux et de la terre. La compréhension du Dao de cet homme surpasse largement la tienne! »
 
@@ -48,19 +48,19 @@ En entendant cela, tous comprirent pourquoi Li Qianmei était venue en aide à l
 
 « Je ne m'attendais pas à ce qu'un tel individu apparaisse au sein de la Secte Gui Yuan! » Feng Hai laissa paraître son admiration en regardant la silencieuse Lu Yanfei.
 
-« Lu Yanfei, cet homme est-il vraiment l'ancêtre de votre Secte Gui Yuan? » La question vint de l'homme en robe blanche, le Maître de la Secte Éternelle.
+« Lu Yanfei, cet homme est-il vraiment l'ancêtre de votre Secte Gui Yuan? » La question vint de l'homme en robe blanche, le Maître de la Secte Wu Ji.
 
 C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'hésita pas et répondit doucement: « Oui, mon Oncle-Maître a erré à travers le monde pour revenir sauver la Secte Gui Yuan. Il s'était installé... Mais après avoir discuté du Dao avec le Daoïste Lu et les autres, il est reparti. Ses traces sont aujourd'hui inconnues. »
 
 « Un tel cultivateur doit errer dans le monde pour comprendre le Dao. Sa personnalité doit l'inciter à se détourner des affaires mondaines; c'est ainsi qu'il a pu atteindre une telle compréhension du Dao. » C'était l'homme d'âge mûr nommé Zhou qui parlait, avec un certain regret.
 
-« Ton Oncle-Maître viendra-t-il ici? » demanda l'homme en blanc. Après avoir entendu les propos de Lu Yuncong, son intérêt s'était décuplé. Bien que cet homme appartînt à la Secte Gui Yuan, ce dernier n'était qu'une branche de la Secte Éternelle. En fin de compte, cet individu était toujours un disciple de la Secte Éternelle!
+« Ton Oncle-Maître viendra-t-il ici? » demanda l'homme en blanc. Après avoir entendu les propos de Lu Yuncong, son intérêt s'était décuplé. Bien que cet homme appartînt à la Secte Gui Yuan, ce dernier n'était qu'une branche de la Secte Wu Ji. En fin de compte, cet individu était toujours un disciple de la Secte Wu Ji!
 
 « Lorsque l'Oncle-Maître est parti, il a dit qu'il reviendrait. » Bien que la voix de Lu Yanfei fût douce, ses paroles étaient empreintes de détermination.
 
 « Bien, alors attendons-le! Ce vieil homme veut voir quel genre d'homme est ce Lu Zihao! Le combat entre votre Secte Gui Yuan et la Secte Zi Dao sera reporté. Ancien Feng, ordonnez aux sectes de rang 6 de commencer! » L'homme en blanc sourit, visiblement ravi.
 
-La compétition des sectes de rang 6 commença officiellement. Sur la plateforme, les sectes de rang 6 passèrent à l'attaque les unes après les autres et les grondements ne cessaient pas. Cependant, cela ne put attirer l'attention des dizaines de milliers de cultivateurs qui observaient alentour, car tous les regards étaient encore rivés sur les gradins de la Secte Éternelle.
+La compétition des sectes de rang 6 commença officiellement. Sur la plateforme, les sectes de rang 6 passèrent à l'attaque les unes après les autres et les grondements ne cessaient pas. Cependant, cela ne put attirer l'attention des dizaines de milliers de cultivateurs qui observaient alentour, car tous les regards étaient encore rivés sur les gradins de la Secte Wu Ji.
 
 « Daoïste Mu, vous avez tout entendu également. Comment ce Lu Zihao se compare-t-il à cette personne dont vous parliez? » L'homme nommé Zhou lança un sourire en s'adressant à elle.
 
@@ -76,7 +76,7 @@ Puis, il y injecta son énergie originelle et le jade explosa. Alors que les fra
 
 Cette silhouette était vêtue de blanc, avec des cheveux aussi blancs que la neige. Son expression indifférente trahissait une pointe de solitude, mais un tempérament indescriptible émanait de lui.
 
-Dès que cette image apparut, les Anciens de la Secte Éternelle fixèrent l'apparition. Deux d'entre eux se levèrent brusquement et s'exclamèrent: « C'est lui! »
+Dès que cette image apparut, les Anciens de la Secte Wu Ji fixèrent l'apparition. Deux d'entre eux se levèrent brusquement et s'exclamèrent: « C'est lui! »
 
 Le corps de Mu Bingmei trembla en contemplant la silhouette; elle fut saisie par une excitation soudaine qu'elle réprima aussitôt, laissant place à une tristesse inexplicable.
 
@@ -84,9 +84,9 @@ C'était comme si une âme solitaire retrouvait un être cher en terre étrangè
 
 Lu Yanfei était également plongée dans la confusion en regardant la silhouette, ressentant une amertume profonde au fond de son cœur.
 
-Lu Yuncong fut surpris. Avant qu'il ne puisse dire quoi que ce soit, un rayon de lumière jaillit soudainement de la plateforme nord. Ce trait de lumière provoqua un grondement assourdissant et charriait avec lui cent ans d'intention meurtrière. Balayant le ciel dans un fracas apocalyptique, Li Qianmei, aux cheveux bleus, apparut devant l'estrade où siégeaient les Anciens de la Secte Éternelle. Son regard se verrouilla sur les deux Anciens qui s'étaient levés.
+Lu Yuncong fut surpris. Avant qu'il ne puisse dire quoi que ce soit, un rayon de lumière jaillit soudainement de la plateforme nord. Ce trait de lumière provoqua un grondement assourdissant et charriait avec lui cent ans d'intention meurtrière. Balayant le ciel dans un fracas apocalyptique, Li Qianmei, aux cheveux bleus, apparut devant l'estrade où siégeaient les Anciens de la Secte Wu Ji. Son regard se verrouilla sur les deux Anciens qui s'étaient levés.
 
-« Vous l'avez vu? » La voix de Li Qianmei était calme, mais un léger tremblement, qu'elle ne remarqua même pas, l'agitait. En fixant la silhouette devant elle, une obsession consumait son cœur. Pour cette seule pensée, elle n'avait pas hésité à risquer les châtiments de la Secte Yao pour rejoindre la Secte Éternelle, juste pour revoir cet homme.
+« Vous l'avez vu? » La voix de Li Qianmei était calme, mais un léger tremblement, qu'elle ne remarqua même pas, l'agitait. En fixant la silhouette devant elle, une obsession consumait son cœur. Pour cette seule pensée, elle n'avait pas hésité à risquer les châtiments de la Secte Yao pour rejoindre la Secte Wu Ji, juste pour revoir cet homme.
 
 Cent ans n'étaient ni longs, ni courts. Même Li Qianmei ne savait pas définir ce sentiment inexplicable. Elle savait seulement que durant ces cent années de combat, chaque fois qu'elle quittait le champ de bataille, épuisée et blessée, sa silhouette apparaissait.
 
@@ -94,11 +94,11 @@ L'arrivée de Li Qianmei fit se lever Wang Shanshan. Elle s'apprêtait à parler
 
 C'était la première fois que Mu Bingmei posait les yeux sur Li Qianmei. La beauté et le calme de cette femme firent naître une pointe d'amertume dans son cœur. Elle mordilla sa lèvre inférieure et resta silencieuse.
 
-Le Maître de la Secte Éternelle fronça les sourcils en regardant les deux Anciens qui s'étaient levés.
+Le Maître de la Secte Wu Ji fronça les sourcils en regardant les deux Anciens qui s'étaient levés.
 
 L'un des Anciens, encore sous le choc, prit une profonde inspiration et déclara: « Je ne savais pas qu'il s'agissait de Lu Zihao! Cependant, ce que Lu Yuncong a dit est quelque peu erroné! Comment cet homme pourrait-il n'être qu'un cultivateur au stade Purificateur du Nirvana? J'ai emmené mes disciples dans le Domaine Luan Shou Wu pour l'entraînement et j'ai vu cet homme terrasser avec aisance des centipèdes de feu de rang 11 et blesser gravement une bête de rang 12. S'il n'avait pas été blessé, je crains que même moi ne sois pas de taille face à lui! »
 
-Après son intervention, tous les Anciens de la Secte Éternelle furent stupéfaits. Si un autre l'avait affirmé, ils ne l'auraient peut-être pas cru, mais l'Ancien Wu Tian, toujours calme et imperturbable, jouissait d'une immense crédibilité.
+Après son intervention, tous les Anciens de la Secte Wu Ji furent stupéfaits. Si un autre l'avait affirmé, ils ne l'auraient peut-être pas cru, mais l'Ancien Wu Tian, toujours calme et imperturbable, jouissait d'une immense crédibilité.
 
 « Ainsi, l'Ancien Wu a vu cet homme. Ce vieil homme n'a pas vu son visage, mais j'ai aperçu sa silhouette. Plus tôt, j'ai reçu des rapports des régions de rang 6 et de rang 7. Quelqu'un a surgi de la région de rang 5 pour traverser celle de rang 6. Sa vitesse était prodigieuse, comparable à celle d'un Briseur du Nirvana au sommet ou d'un cultivateur au premier stade du Fléau Céleste. Il a survolé d'innombrables continents sans que personne n'ose l'arrêter! »
 

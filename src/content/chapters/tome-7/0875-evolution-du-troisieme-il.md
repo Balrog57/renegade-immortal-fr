@@ -8,19 +8,19 @@ slug: evolution-du-troisieme-il
 ---
 À première vue, le mot « bataille » semblait tout à fait ordinaire, mais en y regardant de plus près, une intention meurtrière inimaginable, comme un pic montagneux, s'abattit soudainement!
 
-À cet instant, des illusions apparurent devant les yeux de Wang Lin. C'était comme si le ciel et la terre s'étaient effondrés. Tout disparut: la place, les cultivateurs environnants, et même le Temple Céleste du Tonnerre. La seule chose qui subsistait était le mot « bataille! »
+À cet instant, des illusions apparurent devant les yeux de Wang Lin. C'était comme si le ciel et la terre s'étaient effondrés. Tout disparut: la place, les cultivateurs environnants, et même le Temple Lei Xian. La seule chose qui subsistait était le mot « bataille! »
 
 Wang Lin sentit son corps trembler et son être entier entra dans une transe. C'était comme si une puissance mystérieuse avait explosé à partir du mot « bataille ». Cette force descendit et prit possession de son esprit. Il eut l'impression que son âme originelle s'était séparée de sa chair; il n'y avait plus aucun lien entre les deux.
 
 Une intention meurtrière monstrueuse l'enveloppa. Wang Lin se sentait comme un mortel en plein hiver, dépourvu de tout vêtement. Le froid semblait vouloir éteindre la flamme de sa vie.
 
-Dans cet état de transe, Wang Lin eut l'impression de revenir à l'époque où la perle défiant le ciel était achevée. Une porte apparut et, au moment où elle s'ouvrit, une vague d'énergie originelle surgit soudainement!
+Dans cet état de transe, Wang Lin eut l'impression de revenir à l'époque où la Perle Défiant le Ciel était achevée. Une porte apparut et, au moment où elle s'ouvrit, une vague d'énergie originelle surgit soudainement!
 
-Le troisième œil apparut lentement entre ses sourcils et s'ouvrit doucement, mais aucune lumière rouge n'en émana. À cet instant, Wang Lin était immobile, mais son esprit tremblait violemment. Le sentiment d'être confronté à la porte à l'intérieur de la perle défiant le ciel résonna une fois de plus!
+Le troisième œil apparut lentement entre ses sourcils et s'ouvrit doucement, mais aucune lumière rouge n'en émana. À cet instant, Wang Lin était immobile, mais son esprit tremblait violemment. Le sentiment d'être confronté à la porte à l'intérieur de la Perle Défiant le Ciel résonna une fois de plus!
 
 Cependant, comparée au sentiment ressenti autrefois, cette sensation était infiniment plus faible. À l'époque, Wang Lin avait failli s'effondrer après un seul regard. Désormais, lorsqu'il fixait le mot « bataille », bien qu'il fût choqué, il pouvait persévérer.
 
-Il était évident que l'énergie originelle contenue dans le mot « bataille » ne pouvait même pas être comparée à celle de la perle défiant le ciel. Pour Wang Lin, la perle était trop mystérieuse, mais ce mot, « bataille », était une chose qu'il pouvait saisir.
+Il était évident que l'énergie originelle contenue dans le mot « bataille » ne pouvait même pas être comparée à celle de la Perle Défiant le Ciel. Pour Wang Lin, la perle était trop mystérieuse, mais ce mot, « bataille », était une chose qu'il pouvait saisir.
 
 Ces événements semblèrent se dérouler sur une longue période, mais tout s'était produit au moment même où Wang Lin avait levé la tête. Cela n'avait duré qu'une respiration!
 

@@ -40,13 +40,13 @@ Soudain, l'un des trois halos autour de la statue vacilla comme une flamme de bo
 
 « Quand ces deux halos disparaîtront, il... Vite, regardez, un autre vient de s'éteindre! »
 
-Un halètement collectif parcourut toute la cité impériale des Anciens Shi et presque tout le monde retint son souffle. Un autre halo venait de disparaître, et il n'en restait plus qu'un seul!
+Un halètement collectif parcourut toute la cité impériale des Shi Gu et presque tout le monde retint son souffle. Un autre halo venait de disparaître, et il n'en restait plus qu'un seul!
 
 Et ce dernier halo s'estompait lui aussi lentement.
 
 « Wang Lin! Réveille-toi! » Xuan Luo asséna un coup de poing contre le temple ancestral et poussa un rugissement capable de briser les cieux. Ce cri résonna dans toute la cité impériale tel le tonnerre avant de s'engouffrer vers le temple.
 
-Il tenta de forcer à nouveau l'entrée, mais fut rejeté par la force de répulsion. Xuan Luo était en proie à une angoisse extrême. Il avait déjà vécu les Trois Divisions d'Âme de l'Ancien Dao. Tant que les halos subsistaient, même en l'absence de vitalité ou de conscience, ce n'était pas la mort, mais une sorte de sommeil.
+Il tenta de forcer à nouveau l'entrée, mais fut rejeté par la force de répulsion. Xuan Luo était en proie à une angoisse extrême. Il avait déjà vécu les Trois Divisions d'Âme du Dao Gu. Tant que les halos subsistaient, même en l'absence de vitalité ou de conscience, ce n'était pas la mort, mais une sorte de sommeil.
 
 Un sommeil de l'âme. Si Wang Lin pouvait être tiré de cette léthargie, tant que les halos persistaient, il y aurait un espoir de survie. C'était pour cette raison qu'il avait choisi de monter la garde auprès de lui!
 
@@ -54,17 +54,17 @@ Mais une fois tous les halos disparus, ce sommeil équivaudrait à la mort véri
 
 « Wang Lin, je suis ton maître, Xuan Luo. Vite, réveille-toi! » rugit Xuan Luo en concentrant toute sa voix vers le temple dans lequel il ne pouvait pénétrer.
 
-Lorsque son cri retentit dans toute l'ancienne cité impériale des Anciens Shi, il stupéfia la foule. Presque tout le monde s'était demandé qui traversait cette calamité dans le temple ancestral!
+Lorsque son cri retentit dans toute l'ancienne cité impériale des Shi Gu, il stupéfia la foule. Presque tout le monde s'était demandé qui traversait cette calamité dans le temple ancestral!
 
 Une réponse venait enfin d'éclater au grand jour!
 
 « Wang Lin? Ce nom me semble familier... »
 
-« C'est lui! Ce Wang Lin est celui qui a tué l'Empereur du Dao Antique il y a plus de cent ans! C'est bien lui! »
+« C'est lui! Ce Wang Lin est celui qui a tué l'Empereur du Dao Gu il y a plus de cent ans! C'est bien lui! »
 
 « La rumeur dit que ce Wang Lin est déjà le dixième soleil du Continent Xian Gang. Mon Dieu, je n'aurais jamais imaginé que la personne subissant la calamité soit ce Wang Lin! »
 
-Alors que les rugissements anxieux de Xuan Luo faisaient vibrer la cité impériale des Anciens Shi, le dernier halo restant devint encore plus pâle. Il semblait sur le point de s'évanouir à tout instant.
+Alors que les rugissements anxieux de Xuan Luo faisaient vibrer la cité impériale des Shi Gu, le dernier halo restant devint encore plus pâle. Il semblait sur le point de s'évanouir à tout instant.
 
 Au plus profond du temple ancestral, la lueur sanglante sur le corps de Wang Lin vacillait avec une violence accrue.
 
@@ -100,7 +100,7 @@ Tandis que ce cri se propageait, le ciel sombre commença à trembler et d'innom
 
 Le corps de Wang Lin frémit et il se retourna inconsciemment. À cet instant, un grondement tonitruant résonna dans son esprit.
 
-Il se souvint. Il était Wang Lin, et il traversait une calamité dans le temple ancestral des Anciens Shi. Il tentait de fusionner son âme après la deuxième division d'âme. Une fois sa mémoire retrouvée, la confusion quitta ses yeux pour être remplacée par une clarté limpide.
+Il se souvint. Il était Wang Lin, et il traversait une calamité dans le temple ancestral des Shi Gu. Il tentait de fusionner son âme après la deuxième division d'âme. Une fois sa mémoire retrouvée, la confusion quitta ses yeux pour être remplacée par une clarté limpide.
 
 Au même moment, au plus profond du temple ancestral, un vieil homme aux cheveux blancs tremblait à cent pieds de Wang Lin. Ce vieil homme portait les mêmes vêtements que Xuan Luo!
 
@@ -116,7 +116,7 @@ Il leva soudainement la tête et ses mains formèrent des sceaux. Une quantité 
 
 Alors qu'il était éjecté du temple, Xuan Luo vit le dernier halo s'estomper lentement. Mais alors qu'il allait disparaître, il se reforma et brilla intensément. Puis vinrent le deuxième, le troisième, le quatrième... Douze halos réapparurent dans un éclat fulgurant!
 
-Peu après, les treizième, quatorzième... jusqu'au dix-huitième halo réapparurent tous! Toute la cité impériale des Anciens Shi fut plongée dans le silence par ce phénomène.
+Peu après, les treizième, quatorzième... jusqu'au dix-huitième halo réapparurent tous! Toute la cité impériale des Shi Gu fut plongée dans le silence par ce phénomène.
 
 Après un bref instant de stupeur, une immense agitation parcourut la ville.
 

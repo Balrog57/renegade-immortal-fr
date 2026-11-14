@@ -30,11 +30,11 @@ Wang Lin resta calme et répondit lentement: « Pourquoi n'oserais-je pas? »
 
 « Bien. J'espère que vous me surprendrez une troisième fois! » L'ancien Suzaku éclata de rire et agita sa main droite. Une rafale de vent enveloppa Wang Lin, qui s'élança tel un éclair vers le premier bâton d'encens!
 
-Le regard du Maître Simo cachait une malveillance venimeuse. Son visage était toujours livide, et aucun sortilège ne pourrait le guérir en peu de temps. Après tout, l'ancien Suzaku avait agi ainsi délibérément pour l'humilier.
+Le regard du Maître Si Mo cachait une malveillance venimeuse. Son visage était toujours livide, et aucun sortilège ne pourrait le guérir en peu de temps. Après tout, l'ancien Suzaku avait agi ainsi délibérément pour l'humilier.
 
-À présent, le Maître Simo n'osait plus faire preuve d'autant d'arrogance qu'auparavant, mais son intention meurtrière envers Wang Lin était devenue plus ardente encore.
+À présent, le Maître Si Mo n'osait plus faire preuve d'autant d'arrogance qu'auparavant, mais son intention meurtrière envers Wang Lin était devenue plus ardente encore.
 
-Le Maître Simo laissa échapper un reniflement froid. « Le Conseil Souverain a étudié l'épreuve des Terres Déchues en profondeur. Ce petit bâtard ne pourra jamais réussir avec son niveau de culture! »
+Le Maître Si Mo laissa échapper un reniflement froid. « Le Conseil Souverain a étudié l'épreuve des Terres Déchues en profondeur. Ce petit bâtard ne pourra jamais réussir avec son niveau de culture! »
 
 À ses côtés, la Grand Maître Yun Luo affichait également une expression sombre. Sa main, dissimulée dans sa manche droite, traçait furtivement quelques sceaux comme pour pratiquer la divination, tandis que son regard dérivait vers Miaoyin Daozun.
 

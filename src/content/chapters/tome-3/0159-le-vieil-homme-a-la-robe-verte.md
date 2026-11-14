@@ -20,7 +20,7 @@ Dans le pays de Huo Fen, bien que le fléau des bêtes de feu ait été élimin�
 
 L'ancienne cité impériale n'était plus qu'un amas de lave et tous les bâtiments avaient disparu. Plus aucune créature vivante ne subsistait à Huo Fen; le pays tout entier ressemblait à une tombe silencieuse.
 
-Wang Lin et Li Muwan survolèrent rapidement le pays. Tous deux restaient plongés dans un silence pensif face au spectacle de ce que Huo Fen était devenue. Bien que Wang Lin éprouvât des sentiments mitigés, s'il n'avait pas eu la perle défiant le ciel pour absorber l'esprit de feu, il aurait déjà été dévoré par celui-ci.
+Wang Lin et Li Muwan survolèrent rapidement le pays. Tous deux restaient plongés dans un silence pensif face au spectacle de ce que Huo Fen était devenue. Bien que Wang Lin éprouvât des sentiments mitigés, s'il n'avait pas eu la Perle Défiant le Ciel pour absorber l'esprit de feu, il aurait déjà été dévoré par celui-ci.
 
 Tout cela ne pouvait être qu'une coïncidence; il n'y avait ni bien ni mal. Même si, à l'époque, il avait connu les conséquences, s'il avait pu choisir, Wang Lin aurait tout de même choisi de se sauver lui-même.
 
@@ -62,11 +62,11 @@ Wang Lin rattrapa le jade et l'examina. Le message que Li Muwan y avait laissé 
 
 Tenant le jade, écoutant les paroles de Li Muwan et regardant sa silhouette s'effacer au loin, Wang Lin resta silencieux. Il rangea le jade, puis son corps toucha soudainement le sol. Après un seul pas, il disparut. S'étant éloigné, il se toucha le front et son corps s'évanouit dans un éclat de lumière sous terre.
 
-Il était entré dans la perle défiant le ciel; à cet instant, sa présence s'était volatilisée. Wang Lin avait déjà décidé d'entrer dans la perle après avoir ramené Li Muwan. L'ordre de mise à mort avait une durée de cent jours. Pour lui, ce n'étaient que quelques jours de culture supplémentaires à l'intérieur de la perle.
+Il était entré dans la Perle Défiant le Ciel; à cet instant, sa présence s'était volatilisée. Wang Lin avait déjà décidé d'entrer dans la perle après avoir ramené Li Muwan. L'ordre de mise à mort avait une durée de cent jours. Pour lui, ce n'étaient que quelques jours de culture supplémentaires à l'intérieur de la perle.
 
 C'était aussi pour cette raison que, bien qu'il connaisse les dangers liés à l'ordre de mise à mort des Dix Mille Démons, il avait tout de même tué Qian Kun.
 
-Le vieil homme qui poursuivait Wang Lin arriva rapidement à Huo Fen. Il atteignit l'endroit où Wang Lin avait disparu peu après son entrée dans la perle défiant le ciel. Le visage du vieil homme était empreint de doute tandis qu'il s'enfonçait dans le sol par ses pouvoirs. Après avoir cherché un moment, il en ressortit avec une expression encore plus perplexe. « Disparu... même le lien de l'essence de sang de l'âme a disparu. Il semble que ce petit gars cache bien des secrets. »
+Le vieil homme qui poursuivait Wang Lin arriva rapidement à Huo Fen. Il atteignit l'endroit où Wang Lin avait disparu peu après son entrée dans la Perle Défiant le Ciel. Le visage du vieil homme était empreint de doute tandis qu'il s'enfonçait dans le sol par ses pouvoirs. Après avoir cherché un moment, il en ressortit avec une expression encore plus perplexe. « Disparu... même le lien de l'essence de sang de l'âme a disparu. Il semble que ce petit gars cache bien des secrets. »
 
 À cet instant précis, il leva soudainement la tête et observa sans aucune émotion trois rayons de lumière fonçant vers lui. Bientôt, les trois éclats arrivèrent, révélant une femme et deux hommes.
 

@@ -8,17 +8,17 @@ slug: barriere-spatiale-ouvre
 ---
 Maître Yan Leizi flottait dans les airs, ses mains formant un sceau tandis que des éclats de lumière noire jaillissaient de son front. À l'apparition de ces lumières noires, elles se transformèrent rapidement en fragments d'un continent.
 
-Des dizaines de fragments célestes couvrirent instantanément le ciel, dégageant une pression inimaginable. Cela poussa chaque cultivateur du Temple Céleste du Tonnerre à activer sa culture pour résister à cette force.
+Des dizaines de fragments célestes couvrirent instantanément le ciel, dégageant une pression inimaginable. Cela poussa chaque cultivateur du Temple Lei Xian à activer sa culture pour résister à cette force.
 
 À première vue, on aurait dit que le ciel était découpé en morceaux. Des rayons de lumière transperçaient l'interstice formé par l'intersection des fragments. Lorsque tous les cultivateurs du Système Stellaire de Luotian virent cela, leurs esprits tremblèrent et leur sang se mit à bouillir.
 
 Les yeux de Maître Yan Leizi révélaient une haine qu'il avait dissimulée pendant des dizaines de milliers d'années. Il prit une profonde inspiration et ouvrit les bras. Tandis que les fragments tournaient, des grondements retentirent dans le ciel. Ce bruit était si intense qu'il fit changer les couleurs du monde.
 
-D'innombrables fragments recouvraient la voûte céleste. À cet instant, sous l'impulsion des mouvements de Maître Yan Leizi, ils commencèrent à pivoter lentement. Leur rotation fut d'abord lente, puis s'accéléra progressivement. Un sifflement commença soudainement à se propager de plus en plus loin, pénétrant le Temple Céleste du Tonnerre jusqu'à ce que les régions environnantes puissent tous l'entendre.
+D'innombrables fragments recouvraient la voûte céleste. À cet instant, sous l'impulsion des mouvements de Maître Yan Leizi, ils commencèrent à pivoter lentement. Leur rotation fut d'abord lente, puis s'accéléra progressivement. Un sifflement commença soudainement à se propager de plus en plus loin, pénétrant le Temple Lei Xian jusqu'à ce que les régions environnantes puissent tous l'entendre.
 
 Alors que ces fragments tournaient autour d'un point central, un vortex apparut dans le ciel. Ce vortex était d'une puissance colossale et générait une tempête. Tandis que les grondements et les sifflements persistaient, la scène devint véritablement apocalyptique!
 
-Les nuages disparurent comme par enchantement. Le ciel étoilé apparut, comme si une paire de mains géantes était en train de le déchirer. Le vortex formé par la rotation des fragments brillait d'un éclat extrême dans le ciel étoilé. Il s'étendit jusqu'à couvrir la totalité du ciel au-dessus du Temple Céleste du Tonnerre.
+Les nuages disparurent comme par enchantement. Le ciel étoilé apparut, comme si une paire de mains géantes était en train de le déchirer. Le vortex formé par la rotation des fragments brillait d'un éclat extrême dans le ciel étoilé. Il s'étendit jusqu'à couvrir la totalité du ciel au-dessus du Temple Lei Xian.
 
 Ce vortex contenait une puissance inimaginable, capable de tuer instantanément un cultivateur de niveau Scruteur du Nirvana. Même des cultivateurs de niveau Purificateur du Nirvana ne pourraient y survivre longtemps!
 
@@ -66,7 +66,7 @@ L'éclair rouge imprégné du pouvoir du Royaume Ji s'enfonça dans les profonde
 
 Boum!
 
-Le Temple Céleste du Tonnerre tout entier trembla, le ciel changea de couleur et les nuages furent balayés. Tous les cultivateurs du Système Stellaire de Luotian virent, par les pierres de transmission sonore, une scène grandiose qu'ils n'oublieraient jamais de leur vie!
+Le Temple Lei Xian tout entier trembla, le ciel changea de couleur et les nuages furent balayés. Tous les cultivateurs du Système Stellaire de Luotian virent, par les pierres de transmission sonore, une scène grandiose qu'ils n'oublieraient jamais de leur vie!
 
 Le vortex dans le ciel trembla soudainement et une petite fissure fut déchirée de force. Dès son apparition, la brèche se propagea rapidement pour atteindre, en un instant, plus de cent pieds de long. C'était une cicatrice qui faisait frémir les cœurs.
 
@@ -82,9 +82,9 @@ Pourtant, son effondrement réussit à retarder suffisamment la fermeture de la 
 
 Alors que davantage de fragments s'y engouffraient, la fissure fut impitoyablement déchirée et s'élargit considérablement. Elle gagna mille pieds!
 
-À cet instant, les cultivateurs du Temple Céleste du Tonnerre étaient transportés par l'enthousiasme. Non seulement eux, mais tous les cultivateurs du Système Stellaire de Luotian virent la scène, et une intention meurtrière envahit l'ensemble du système.
+À cet instant, les cultivateurs du Temple Lei Xian étaient transportés par l'enthousiasme. Non seulement eux, mais tous les cultivateurs du Système Stellaire de Luotian virent la scène, et une intention meurtrière envahit l'ensemble du système.
 
-À l'extérieur du Temple Céleste du Tonnerre, les armées des quatre côtés levèrent les yeux pour fixer la brèche qui surplombait le monde.
+À l'extérieur du Temple Lei Xian, les armées des quatre côtés levèrent les yeux pour fixer la brèche qui surplombait le monde.
 
 Une aura n'appartenant pas au Système Stellaire de Luotian, et à laquelle Wang Lin était très familier, émanait de la faille. C'était l'aura du Système Stellaire de l'Alliance!
 

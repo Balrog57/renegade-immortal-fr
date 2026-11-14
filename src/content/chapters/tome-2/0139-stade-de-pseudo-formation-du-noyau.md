@@ -138,13 +138,13 @@ Wang Lin saisit le noyau doré et l'avala sans hésiter. Puis, il frappa légèr
 
 Il descendit à dix mille pieds sous terre et s'assit en tailleur pour digérer le noyau. Celui-ci se dissipa instantanément, libérant une vague d'énergie spirituelle dans son corps.
 
-Cette énergie était trop puissante pour sa constitution actuelle; il se mit à saigner du nez et de la bouche. Wang Lin pressa son front et la perle défiant le ciel apparut. Il s'en saisit et disparut dans l'espace de la perle.
+Cette énergie était trop puissante pour sa constitution actuelle; il se mit à saigner du nez et de la bouche. Wang Lin pressa son front et la Perle Défiant le Ciel apparut. Il s'en saisit et disparut dans l'espace de la perle.
 
 À l'intérieur, Wang Lin vola immédiatement vers l'Âme Naissante de Situ Nan pour entamer sa culture. Son corps saignait abondamment et ses veines commençaient à apparaître sous sa peau.
 
 Ses mains formèrent un sceau complexe, une position étrange où une main reposait sur son front et l'autre sur son ventre, créant une boucle parfaite, tandis qu'il récitait mentalement la formule. L'immense quantité d'énergie spirituelle circulait rapidement dans son corps, renforçant ses muscles et ses os à chaque cycle.
 
-Deux mois passèrent dans la perle défiant le ciel avant que Wang Lin n'ouvre les yeux. Son regard était trouble, et il fallut un moment pour qu'il retrouve sa clarté.
+Deux mois passèrent dans la Perle Défiant le Ciel avant que Wang Lin n'ouvre les yeux. Son regard était trouble, et il fallut un moment pour qu'il retrouve sa clarté.
 
 « Le jade de la Secte Xie Mo affirmait qu'on pouvait augmenter son niveau de culture en dévorant des noyaux. Cela semble vrai, tant que je respecte le sceau et les incantations du jade. Hélas, ce n'était qu'un noyau de stade initial, et ce n'est qu'après avoir cultivé l'Art Shura de la Grande Liberté que l'on peut absorber plus de 20 % de l'énergie d'un noyau; sans cet art, on ne peut en absorber que 10 % au maximum. »
 

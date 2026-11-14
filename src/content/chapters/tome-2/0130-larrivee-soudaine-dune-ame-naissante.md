@@ -66,7 +66,7 @@ Le regard du jeune homme se fit glacial alors qu'il murmurait à la jeune fille:
 
 La jeune fille regarda Wang Lin. Elle esquissa un sourire apologétique et répondit à voix basse: « Frère, ce n'est pas lui. Bien que cette personne soit douée pour l'art du déguisement, elle ne peut pas imiter son tempérament. »
 
-La froideur quitta les yeux du jeune homme. Il joignit les mains devant Wang Lin et dit avec franchise: « Veuillez ne pas nous en vouloir, camarade cultivateur. Je suis Li Qiqing de la Secte Luo He. Pardonnez notre impolitesse. »
+La froideur quitta les yeux du jeune homme. Il joignit les mains devant Wang Lin et dit avec franchise: « Veuillez ne pas nous en vouloir, Daoïste. Je suis Li Qiqing de la Secte Luo He. Pardonnez notre impolitesse. »
 
 L'expression de Wang Lin resta imperturbable tandis qu'il répondait calmement: « Aucun problème. Puisqu'il s'agit d'un malentendu, comment pourrais-je vous en vouloir? »
 
@@ -78,15 +78,15 @@ Une fois qu'ils furent partis, Wang Lin regarda le sol et avança sans dire un m
 
 Le morceau de métal fendit l'air avec rapidité et percuta le sol dans un fracas. Aussitôt, une silhouette très pitoyable émergea à travers vingt mètres de terre.
 
-L'apparence de cet homme était tout à fait ordinaire, si ce n'est que ses yeux brillaient d'intelligence. Il leva précipitamment la main et cria: « Camarade cultivateur, c'est un malentendu, un malentendu! » Tout en parlant, il jeta un regard inquiet autour de lui avant de bondir. Une épée volante apparut et le transporta vers Wang Lin.
+L'apparence de cet homme était tout à fait ordinaire, si ce n'est que ses yeux brillaient d'intelligence. Il leva précipitamment la main et cria: « Daoïste, c'est un malentendu, un malentendu! » Tout en parlant, il jeta un regard inquiet autour de lui avant de bondir. Une épée volante apparut et le transporta vers Wang Lin.
 
-« Camarade cultivateur, je suis Sun Youcai. C'est un malentendu. Je ne voulais pas vous suivre délibérément, mais j'y étais contraint. Cette fille de la Secte Luo He me recherche, et comme je ne peux pas les battre en combat, je n'ai d'autre choix que de me cacher. Ils me traquent toujours, mais si je vous suis, ce Li Qiqing ne pourra pas me trouver. »
+« Daoïste, je suis Sun Youcai. C'est un malentendu. Je ne voulais pas vous suivre délibérément, mais j'y étais contraint. Cette fille de la Secte Luo He me recherche, et comme je ne peux pas les battre en combat, je n'ai d'autre choix que de me cacher. Ils me traquent toujours, mais si je vous suis, ce Li Qiqing ne pourra pas me trouver. »
 
 Wang Lin le regarda, puis s'envola sans même lui accorder une seconde attention.
 
-Sun Youcai le suivit rapidement et demanda d'un ton volubile: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Xie Mo. »
+Sun Youcai le suivit rapidement et demanda d'un ton volubile: « Daoïste, de quelle secte venez-vous? Je suis un disciple de la Secte Xie Mo. »
 
-Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il se tapa les cuisses et, d'un bond, rattrapa Wang Lin en un clin d'œil. Il poursuivit: « Camarade cultivateur, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez au Marché Xi Gu, n'est-ce pas? Et si nous faisions route ensemble? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes-fourneaux du pays de Zhou au stade de la Condensation de Qi. »
+Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il se tapa les cuisses et, d'un bond, rattrapa Wang Lin en un clin d'œil. Il poursuivit: « Daoïste, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez au Marché Xi Gu, n'est-ce pas? Et si nous faisions route ensemble? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes-fourneaux du pays de Zhou au stade de la Condensation de Qi. »
 
 « Quelle vitesse! » Le cœur de Wang Lin tressaillit lorsqu'il se tourna vers Sun Youcai avec un sourire. En voyant ce sourire, Sun Youcai sentit soudain sa peau se hérisser. Ce sentiment disparut aussi vite qu'il était apparu et il secoua la tête. Il pensait que cet homme n'était qu'au stade intermédiaire de l'Établissement des Fondations; avec sa propre culture au stade avancé, il ne pouvait absolument pas échouer. Il sourit et dit: « Qu'en dites-vous, camarade? »
 

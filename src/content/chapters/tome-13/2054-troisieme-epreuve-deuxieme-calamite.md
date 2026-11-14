@@ -12,7 +12,7 @@ Chaque membre adulte du clan Ancien se rendait au temple ancestral lors de sa tr
 
 Depuis des temps immémoriaux, très peu d'individus avaient satisfait aux conditions pour pratiquer une culture en isolement au sein des temples ancestraux. C’était un privilège rare, même pour les Grands Empyréens, car le contrôle de ces lieux reposait entre les mains de l'empereur de chaque génération. Seuls les membres des familles royales pouvaient s'aventurer dans les profondeurs des temples pour passer cette épreuve.
 
-Wang Lin se tenait au centre de la cité impériale des Anciens Shi. Il se trouvait sous l'antique statue, qui semblait soutenir le ciel, et la regardait en silence.
+Wang Lin se tenait au centre de la cité impériale des Shi Gu. Il se trouvait sous l'antique statue, qui semblait soutenir le ciel, et la regardait en silence.
 
 Cette statue était identique à celle du Dao Gu. L'Ancêtre, les mains dans le dos, regardait les cieux et la terre avec un mépris souverain. Avant que Wang Lin ne traverse les trois Ponts du Piétinement des Cieux, il n'avait rien ressenti de particulier en contemplant la statue de l'Ancêtre dans le Dao Gu.
 
@@ -50,9 +50,9 @@ La lumière sombre sur la statue de l'Ancêtre s'estompa progressivement. Elle r
 
 Song Tian resta là un long moment avant de laisser échapper un soupir et de partir.
 
-La plupart des membres des Anciens Shi avaient remarqué l'aura autour de la statue, mais peu savaient que Wang Lin était entré. Cette nouvelle fut étouffée par l'Empereur des Anciens Shi, et les gens finirent par oublier l'événement.
+La plupart des membres des Shi Gu avaient remarqué l'aura autour de la statue, mais peu savaient que Wang Lin était entré. Cette nouvelle fut étouffée par l'Empereur des Shi Gu, et les gens finirent par oublier l'événement.
 
-L'ensemble des Anciens Shi ne semblait pas avoir changé, mais les observants attentifs remarquèrent que le Prince Ji Du, qui était habituellement absent de la cité impériale, résidait désormais dans le palais.
+L'ensemble des Shi Gu ne semblait pas avoir changé, mais les observants attentifs remarquèrent que le Prince Ji Du, qui était habituellement absent de la cité impériale, résidait désormais dans le palais.
 
 Dix ans plus tard, le fils aîné de l'empereur fut nommé roi et quitta la cité dans la discrétion, envoyé aux frontières pour les défendre.
 
@@ -60,7 +60,7 @@ Cinq années s'écoulèrent encore. Le Prince Chi Man, le plus probable successe
 
 Durant ces trente années, le Prince Ji Du resta très discret et n'interagit que peu avec l'extérieur. Son statut d'héritier étant établi, il n'avait plus besoin d'agir dans l'ombre. Il lui suffisait d'attendre.
 
-Une fois tous les autres princes nommés rois et écartés, le peuple des Anciens Shi savait qui serait le futur empereur.
+Une fois tous les autres princes nommés rois et écartés, le peuple des Shi Gu savait qui serait le futur empereur.
 
 Ji Du commença progressivement à entrer en contact avec les puissances occultes rattachées à l'Empereur. Au cours des soixante-dix années suivantes, son père lui transmettrait lentement le pouvoir. C’était une étape nécessaire pour tout nouvel empereur des trois clans Anciens, et c'était aussi la période la plus paisible.
 
@@ -74,7 +74,7 @@ Outre cela, durant ces trente années, il n'oublia pas l'ordre de Wang Lin. Il a
 
 Après plus d'un siècle, Song Zhi n'était plus la même et portait les marques du temps. Elle ignorait que le seigneur de Ville Hei Shi et d'innombrables experts agissaient ainsi pour elle.
 
-En un éclair, vingt années supplémentaires passèrent. Cinquante ans après l'entrée de Wang Lin dans le temple ancestral, une cérémonie grandiose fut organisée au sein des Anciens Shi.
+En un éclair, vingt années supplémentaires passèrent. Cinquante ans après l'entrée de Wang Lin dans le temple ancestral, une cérémonie grandiose fut organisée au sein des Shi Gu.
 
 Ce n'était pas le couronnement de Ji Du, mais son mariage. Il avait choisi comme épouse une descendante de la lignée de Song Tian, nommée Song Yu. Cette femme était choyée par Song Tian et comptait parmi les rares descendantes à pouvoir recevoir personnellement ses enseignements.
 
@@ -94,7 +94,7 @@ La femme fut surprise.
 
 « Ton parrain? » s'étonna-t-elle.
 
-« Parrain, j'ai pris une descendante du Seigneur Song pour épouse. Elle sera la future impératrice des Anciens Shi. Aujourd'hui, je l'ai amenée ici pour lui rendre hommage! » Ji Du parlait avec un respect profond, venant du plus profond de son cœur.
+« Parrain, j'ai pris une descendante du Seigneur Song pour épouse. Elle sera la future impératrice des Shi Gu. Aujourd'hui, je l'ai amenée ici pour lui rendre hommage! » Ji Du parlait avec un respect profond, venant du plus profond de son cœur.
 
 Il se souviendrait à jamais que tout ce qu'il possédait lui avait été accordé par Wang Lin. Il n'oublierait jamais que sans lui, il n'aurait jamais eu la moindre chance de devenir empereur. Même la femme à ses côtés ne serait peut-être pas sa femme; elle appartiendrait à Chi Man.
 
@@ -116,7 +116,7 @@ Wang Lin était assis au plus profond du temple. Son corps dégageait une odeur 
 
 « La première calamité de la troisième épreuve est le Sang Céleste de la Race Ancienne! »
 
-« La deuxième calamité de la troisième épreuve est la Triple Division de l'Âme de l'Ancien Dao! »
+« La deuxième calamité de la troisième épreuve est la Triple Division de l'Âme du Dao Gu! »
 
 « La troisième calamité, qui est la dernière, est la Bénédiction de l'Ancêtre! » murmura Wang Lin en fixant le vide. Une stèle se dressait devant lui, sur laquelle étaient gravées toutes les informations concernant les Trois Épreuves et les Sept Calamités du clan Ancien.
 

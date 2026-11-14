@@ -32,7 +32,7 @@ Cependant, pour Wang Lin, cela était bien trop dérisoire.
 
 Sur ce lit reposait un corps qui ressemblait à une montagne de graisse. L'homme avait le visage huileux et était si massif qu'il ne semblait même plus humain. Il était enveloppé dans une couverture ornée d'une centaine de pierres spirituelles de qualité moyenne.
 
-« Tu connais ce vieil homme? » L'homme gras observa les innombrables corps derrière Wang Lin et fronça les sourcils. Il demanda: « Camarade cultivateur, ces mortels t'ont-ils importuné au point que tu aies dû tous les massacrer? » À ses yeux, Wang Lin était son semblable, n'étant qu'au début du stade de l'Âme Naissante; il ne le considérait donc pas comme une menace.
+« Tu connais ce vieil homme? » L'homme gras observa les innombrables corps derrière Wang Lin et fronça les sourcils. Il demanda: « Daoïste, ces mortels t'ont-ils importuné au point que tu aies dû tous les massacrer? » À ses yeux, Wang Lin était son semblable, n'étant qu'au début du stade de l'Âme Naissante; il ne le considérait donc pas comme une menace.
 
 Ji Mo avait semé la terreur dans le pays de Zhao pendant plusieurs années. Depuis qu'il avait atteint le stade de l'Âme Naissante, hormis quelques cultivateurs au stade avancé, il ne pensait que peu d'autres être une menace pour lui. Cela était dû en grande partie à l'Art de la Lumière Sombre qu'il pratiquait. Cette méthode de culture était dédiée à la création de marionnettes; ainsi, bien qu'il ne fût qu'au début du stade de l'Âme Naissante, il possédait plusieurs marionnettes façonnées à partir des restes d'anciens cultivateurs.
 
@@ -50,11 +50,11 @@ Il aspira une bouffée d'air froid en fixant Wang Lin et demanda lentement: « C
 
 Il décida immédiatement que ce personnage n'était pas un adversaire à prendre à la légère. Teng Huayuan avait déjà atteint le stade avancé de l'Âme Naissante et la famille Teng regorgeait de cultivateurs puissants, pourtant cet homme semblait s'en moquer éperdument. Évidemment, il méprisait la famille Teng, et le vieux Ji Mo n'avait aucune envie de s'attirer les foudres d'un tel fou.
 
-Le visage du vieux Ji Mo se couvrit instantanément de sourires: « Bien joué! Ce vieil homme considère également la famille Teng comme une nuisance. Camarade cultivateur, excellent travail pour ce massacre... continuez ainsi! Ce vieil homme a des affaires à régler, je vais prendre congé. » Sur ces mots, il tenta de manœuvrer la calèche pour reculer et s'éloigner de ce démon.
+Le visage du vieux Ji Mo se couvrit instantanément de sourires: « Bien joué! Ce vieil homme considère également la famille Teng comme une nuisance. Daoïste, excellent travail pour ce massacre... continuez ainsi! Ce vieil homme a des affaires à régler, je vais prendre congé. » Sur ces mots, il tenta de manœuvrer la calèche pour reculer et s'éloigner de ce démon.
 
 Le regard de Wang Lin devint glacial alors qu'il demandait: « Savez-vous pourquoi je tue les membres de la famille Teng? »
 
-Le corps de Ji Mo trembla. Il eut le pressentiment que le pire allait arriver et lâcha: « Je ne veux pas savoir. Camarade cultivateur, adieu! » Il commença à s'enfuir sans hésiter, abandonnant même les jeunes qui l'escortaient.
+Le corps de Ji Mo trembla. Il eut le pressentiment que le pire allait arriver et lâcha: « Je ne veux pas savoir. Daoïste, adieu! » Il commença à s'enfuir sans hésiter, abandonnant même les jeunes qui l'escortaient.
 
 Wang Lin ne l'arrêta pas, mais frappa son sac de rangement pour en sortir le drapeau de restriction. D'une secousse, un rayon de 500 kilomètres fut instantanément plongé sous un voile noir.
 
@@ -142,7 +142,7 @@ Wang Lin contemplait la Secte He Huan en contrebas. Il sentait que la formation 
 
 Les membres de la famille Teng se trouvaient dans la salle principale; il était clair que la Secte He Huan comptait se battre jusqu'au bout. Le regard de Wang Lin balaya calmement le sol et s'arrêta sur un vieil homme. Il lui lança: « Si vous n'ouvrez pas cette formation, une rivière de sang coulera ici. »
 
-Ce vieil homme était Yin Yang. En voyant Wang Lin, il fronça les sourcils et demanda: « Camarade cultivateur, que venez-vous faire ici? »
+Ce vieil homme était Yin Yang. En voyant Wang Lin, il fronça les sourcils et demanda: « Daoïste, que venez-vous faire ici? »
 
 Wang Lin eut un ricanement méprisant et des éclairs rouges jaillirent de ses yeux. Bien que la formation fût robuste, si tous ceux qui l'alimentaient mouraient, elle s'effondrerait d'elle-même.
 
@@ -168,7 +168,7 @@ Wang Lin prit une profonde inspiration et sortit nonchalamment une fiole de jade
 
 Cette sphère était composée purement de Royaume Ji. Une fois de la taille d'un poing, elle commença à descendre lentement vers le sol.
 
-Yin Yang fut saisi par l'horreur; c'était la première fois qu'il voyait quelqu'un consommer des Âmes Naissantes comme de simples pilules. En voyant la sphère rouge descendre, il hurla: « Camarade cultivateur, arrêtez! Je vais l'ouvrir! Je l'ouvre! Je ne me soucierai plus de la famille Teng! »
+Yin Yang fut saisi par l'horreur; c'était la première fois qu'il voyait quelqu'un consommer des Âmes Naissantes comme de simples pilules. En voyant la sphère rouge descendre, il hurla: « Daoïste, arrêtez! Je vais l'ouvrir! Je l'ouvre! Je ne me soucierai plus de la famille Teng! »
 
 Il se leva brusquement, saisit une tablette de jade et y injecta frénétiquement son énergie. La formation protégeant la Secte He Huan disparut juste avant que la sphère d'éclairs ne percute le sol.
 

@@ -120,4 +120,4 @@ Il était le Grand Ancien de la famille Huan sur la planète Qianhuan, la planè
 
 C'est pour cette raison qu'il avait pris la décision immédiate de faire d'elle sa disciple!
 
-Après avoir passé des siècles à ses côtés, il avait appris à la chérir de plus en plus. Il en était venu à renoncer même à sa quête de la perle défiant le ciel pour pouvoir la ramener dans le système stellaire de Luotian.
+Après avoir passé des siècles à ses côtés, il avait appris à la chérir de plus en plus. Il en était venu à renoncer même à sa quête de la Perle Défiant le Ciel pour pouvoir la ramener dans le système stellaire de Luotian.

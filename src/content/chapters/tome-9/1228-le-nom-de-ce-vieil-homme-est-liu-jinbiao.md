@@ -16,9 +16,9 @@ La Secte Gui Yuan était en déclin constant depuis d'innombrables années. C'é
 
 La Secte Gui Yuan ne pouvait l'accepter, mais elle n'osait s'y opposer. Si elle le faisait, elle serait purement et simplement anéantie. Après tout, la Secte Gui Yuan n'était qu'une simple branche.
 
-Cette méthode brutale servait à garantir que les sectes de rang 8 continuent de croître en puissance, jusqu'au jour où la plupart de leurs branches seraient devenues assez puissantes pour que la Secte Divine leur accorde le statut de secte de rang 9.
+Cette méthode brutale servait à garantir que les sectes de rang 8 continuent de croître en puissance, jusqu'au jour où la plupart de leurs branches seraient devenues assez puissantes pour que la Secte Shen leur accorde le statut de secte de rang 9.
 
-La rumeur disait que la Secte Po Tian et la Secte Fantôme s'étaient élevées de cette manière même.
+La rumeur disait que la Secte Po Tian et la Secte Gui s'étaient élevées de cette manière même.
 
 Il y avait au total cinq sectes dans la région de rang 8: la Secte Wu Ji, la Secte Ying Feng, la Secte Hong Tu, la Secte Ying Tian et la Secte Ji Hun. La Secte Gui Yuan et la Secte Zi Dao appartenaient à la grande secte de rang 8, la Secte Wu Ji.
 

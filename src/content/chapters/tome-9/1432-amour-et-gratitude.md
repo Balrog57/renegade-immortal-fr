@@ -30,7 +30,7 @@ Pour ressusciter Li Muwan, Wang Lin était prêt à tout! À tout risquer!
 
 Lorsqu'il n'avait plus d'espoir, il aspirait à l'espoir. Désormais, l'espoir était là, et même s'il ne s'agissait que d'une lueur, elle pesait lourdement dans son cœur. Il luttait comme un fou.
 
-« Devenez le soldat de ce vieil homme, et vous serez une existence dépassant Maître Simo, Qing Shui et Qing Lin. Vous serez le sommet des soldats de la mort les plus prometteurs que j'aie jamais eus!
+« Devenez le soldat de ce vieil homme, et vous serez une existence dépassant Maître Si Mo, Qing Shui et Qing Lin. Vous serez le sommet des soldats de la mort les plus prometteurs que j'aie jamais eus!
 
 « Si vous acceptez, ce vieil homme vous donnera pour nom dao Maître Lin Shang!
 
@@ -44,7 +44,7 @@ Le visage de Wang Lin était livide et le conflit dans son esprit atteignait un 
 
 « Accepte son offre. Ce n'est que devenir l'esclave du Souverain, devoir simplement obéir à tous ses ordres. Compare ta liberté personnelle à la vie de Wan Er; laquelle est la plus importante? »
 
-« Accepte son offre, deviens le second Maître Simo et deviens un esclave du Souverain. Trahis le Royaume Intérieur. Romps avec Situ Nan, Qing Shui et tous ceux que tu connaissais dans le Royaume Intérieur. À partir de maintenant, ils sont tes ennemis! »
+« Accepte son offre, deviens le second Maître Si Mo et deviens un esclave du Souverain. Trahis le Royaume Intérieur. Romps avec Situ Nan, Qing Shui et tous ceux que tu connaissais dans le Royaume Intérieur. À partir de maintenant, ils sont tes ennemis! »
 
 Cette voix devint de plus en plus forte jusqu'à devenir un rugissement faisant trembler les cieux dans l'esprit de Wang Lin. Son visage pâlit et il recula inconsciemment de quelques pas. Ses yeux étaient injectés de sang, il tremblait et son esprit était au bord de l'effondrement. Cette lutte pour choisir s'était transformée en un déluge qui le noyait.
 
@@ -80,29 +80,29 @@ La deuxième génération lui avait transmis la méthode pour contrôler le drag
 
 « Petit gars, n'oublie pas que la prochaine fois que nous nous verrons, tu devras choisir la septième génération pour ce vieil homme. Choisis un enfant déterminé! Tu as l'air plutôt froid, mais même toi, tu as été espiègle à un moment donné. Quel dommage... Ah, qu'est-ce qu'il y a de si bien dans la culture duale, ce vieil homme ne comprend vraiment pas... »
 
-Il y avait encore tant de gens, tant de personnes... Comment Wang Lin pourrait-il rompre tous ces liens par un seul choix... Les souvenirs du Maître Simo emplirent l'esprit de Wang Lin. En contemplant la vie du Maître Simo, il avait l'impression de visionner ses propres souvenirs.
+Il y avait encore tant de gens, tant de personnes... Comment Wang Lin pourrait-il rompre tous ces liens par un seul choix... Les souvenirs du Maître Si Mo emplirent l'esprit de Wang Lin. En contemplant la vie du Maître Si Mo, il avait l'impression de visionner ses propres souvenirs.
 
-Le Maître Simo d'aujourd'hui était l'avenir de Wang Lin!
+Le Maître Si Mo d'aujourd'hui était l'avenir de Wang Lin!
 
-Pour ressusciter sa sœur, le Maître Simo avait abandonné la Secte Po Tian et tous ses Senior frères et Junior frères. Il avait même sacrifié sa propre âme pour devenir le chien du Souverain et avait tué sur ordre de celui-ci. Sur un simple signe du Souverain, même s'il s'agissait de son propre maître, il aurait levé le couperet tout en versant des larmes!
+Pour ressusciter sa sœur, le Maître Si Mo avait abandonné la Secte Po Tian et tous ses Senior frères et Junior frères. Il avait même sacrifié sa propre âme pour devenir le chien du Souverain et avait tué sur ordre de celui-ci. Sur un simple signe du Souverain, même s'il s'agissait de son propre maître, il aurait levé le couperet tout en versant des larmes!
 
-S'il n'avait pas vu les souvenirs du Maître Simo, le choix de Wang Lin aurait été encore plus déchirant.
+S'il n'avait pas vu les souvenirs du Maître Si Mo, le choix de Wang Lin aurait été encore plus déchirant.
 
 S'il n'avait pas connu la proposition de Lanmeng Daozun ou les paroles de la première génération de Suzaku, Wang Lin n'aurait peut-être jamais pu prendre la décision la plus cruciale de sa vie!
 
 Une décision douloureuse, mais qu'il devait faire!
 
-Après avoir vu les souvenirs du Maître Simo, Wang Lin s'était demandé comment il ferait si ce jour venait... Cependant, il ne s'attendait pas à ce que ce jour arrive si vite!
+Après avoir vu les souvenirs du Maître Si Mo, Wang Lin s'était demandé comment il ferait si ce jour venait... Cependant, il ne s'attendait pas à ce que ce jour arrive si vite!
 
 Ce jour était une véritable calamité!
 
-Heureusement, les souvenirs du Maître Simo lui avaient tracé une voie... « Je ne veux pas devenir le Maître Simo... » murmura Wang Lin d'une voix basse. La lutte dans ses yeux fit place à la douleur, mais une douleur empreinte de détermination!
+Heureusement, les souvenirs du Maître Si Mo lui avaient tracé une voie... « Je ne veux pas devenir le Maître Si Mo... » murmura Wang Lin d'une voix basse. La lutte dans ses yeux fit place à la douleur, mais une douleur empreinte de détermination!
 
 « Je ne veux pas devenir ton esclave!
 
 « Je ne veux pas trahir leur gratitude par mon choix. L'amour est la souffrance que je ne peux abandonner. C'est pour cela que j'ai cultivé toute ma vie... Mais l'amour n'est pas la seule chose qui compte pour moi!
 
-« J'admire quelqu'un comme le Maître Simo, capable de tout abandonner, même sa conscience et le blâme de la multitude, pour une seule personne! Cependant, j'ai peur de choisir, j'ai peur d'affronter tous ceux qui ont été bienveillants envers moi... Même si ma femme et mon enfant s'éveillaient, nous ne serions que des marionnettes... Je ne choisirai pas cela...
+« J'admire quelqu'un comme le Maître Si Mo, capable de tout abandonner, même sa conscience et le blâme de la multitude, pour une seule personne! Cependant, j'ai peur de choisir, j'ai peur d'affronter tous ceux qui ont été bienveillants envers moi... Même si ma femme et mon enfant s'éveillaient, nous ne serions que des marionnettes... Je ne choisirai pas cela...
 
 « Peut-être que ton maître peut vraiment réveiller ma femme et mon enfant, mais s'il le peut, alors moi aussi, Wang Lin, je le peux! »
 

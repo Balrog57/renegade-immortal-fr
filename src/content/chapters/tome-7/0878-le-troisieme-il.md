@@ -16,7 +16,7 @@ Les cultivateurs présents sur le champ de bataille levèrent tous les yeux vers
 
 Xu Ting regarda la scène, stupéfait, et serra le poing. Il ne remarqua pas que celui-ci tremblait légèrement!
 
-Dans le Temple Céleste du Tonnerre, sur la place, le garçon à la grosse tête ouvrit soudainement les yeux et cracha une large bouffée de sang. Il perdit instantanément toute vigueur. Son expression devint féroce alors qu'il se redressait brusquement pour regarder autour de lui; il fut saisi d'effroi et la terreur se lut sur son visage!
+Dans le Temple Lei Xian, sur la place, le garçon à la grosse tête ouvrit soudainement les yeux et cracha une large bouffée de sang. Il perdit instantanément toute vigueur. Son expression devint féroce alors qu'il se redressait brusquement pour regarder autour de lui; il fut saisi d'effroi et la terreur se lut sur son visage!
 
 « Non... »
 

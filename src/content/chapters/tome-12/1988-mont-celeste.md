@@ -82,7 +82,7 @@ Il mordit une nouvelle fois sa langue et, dans un rugissement, son corps commen�
 
 Le corps de l'Enseignant Impérial tremblait et sa respiration devint rauque. Son visage était extrêmement pâle, enveloppé par l'ombre de la mort.
 
-Voyant l'état de l'Enseignant Impérial, Wang Lin serra les dents et poussa la puissance de l'armure d'âme du Tian Niu à son paroxysme. Ses cheveux s'agitèrent sans vent alors que son Dao antique et sa culture céleste fusionnaient; il lança alors un coup de poing vers Ming Dao!
+Voyant l'état de l'Enseignant Impérial, Wang Lin serra les dents et poussa la puissance de l'armure d'âme du Tian Niu à son paroxysme. Ses cheveux s'agitèrent sans vent alors que son Dao Gu et sa culture céleste fusionnaient; il lança alors un coup de poing vers Ming Dao!
 
 Ce coup représentait le summum de la puissance de Wang Lin. En frappant, quatre-vingt-dix-neuf images rémanentes se condensèrent pour former le corps véritable d'un Tian Niu, qui s'abattit sur Ming Dao.
 

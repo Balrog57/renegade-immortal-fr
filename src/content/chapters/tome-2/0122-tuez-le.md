@@ -38,11 +38,11 @@ Le Senior frère Yang partit également, refusant de rester sur place. Zhou Ziho
 
 Durant tout ce temps, Wang Lin n'avait pas encore eu l'occasion de parler, se contentant de les suivre sans se presser. La raison pour laquelle il avait sauvé ces trois-là, outre ses propres desseins, était qu'il savait par les souvenirs de Ma Liang que celui-ci éprouvait une immense gratitude envers Zhou Zihong. Puisqu'il avait pris possession du corps de Ma Liang, il lui semblait juste d'accomplir quelques tâches pour son compte.
 
-Les trois individus volaient avec une prudence extrême, faisant preuve d'une vigilance accrue lorsqu'ils sortaient des pilules pour restaurer leur énergie spirituelle. Zhou Zihong sortit même une pilule supplémentaire et la tendit à Wang Lin. Il fixa l'objet, incapable de ne penser à sa perle défiant le ciel; le liquide dans lequel la perle trempait constituait le meilleur remède de récupération.
+Les trois individus volaient avec une prudence extrême, faisant preuve d'une vigilance accrue lorsqu'ils sortaient des pilules pour restaurer leur énergie spirituelle. Zhou Zihong sortit même une pilule supplémentaire et la tendit à Wang Lin. Il fixa l'objet, incapable de ne penser à sa Perle Défiant le Ciel; le liquide dans lequel la perle trempait constituait le meilleur remède de récupération.
 
 Hélas, le sac de rangement contenant ses gourdes et tous ses trésors avait été broyé par Teng Huayuan.
 
-Wang Lin soupira intérieurement. Il pouvait sentir l'existence de la perle défiant le ciel dans son Sens Divin, et même l'épée volante affinée par la technique du sang semblait s'être fondue dans son âme. Cependant, ce n'était pas le moment opportun pour les examiner. Après réflexion, Wang Lin fut d'autant plus déterminé à trouver un lieu propice à une culture en isolement dès sa sortie du champ de bataille étranger.
+Wang Lin soupira intérieurement. Il pouvait sentir l'existence de la Perle Défiant le Ciel dans son Sens Divin, et même l'épée volante affinée par la technique du sang semblait s'être fondue dans son âme. Cependant, ce n'était pas le moment opportun pour les examiner. Après réflexion, Wang Lin fut d'autant plus déterminé à trouver un lieu propice à une culture en isolement dès sa sortie du champ de bataille étranger.
 
 Les cultivateurs présents dans le champ de bataille étranger remarquèrent que, ces derniers jours, la vitesse à laquelle l'espace s'effondrait semblait avoir ralenti. Mais cela n'avait aucune importance pour eux: comparé à l'effondrement du champ de bataille, les créatures étranges étaient bien plus terrifiantes.
 

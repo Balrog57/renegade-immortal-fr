@@ -40,9 +40,9 @@ Dans le Système Stellaire de Luotian, plus de dix mille cultivateurs avaient ac
 
 Cet objet était un morceau de bois. Cependant, ce bois mesurait plusieurs centaines de milliers de pieds de long et près de dix mille pieds de large!
 
-Le Bois Perçant le Ciel! Il avait été découvert par le Temple Céleste du Tonnerre il y a trente mille ans. La rumeur prétendait qu'il s'agissait d'un arbre céleste qui soutenait l'Ancien Royaume Céleste. Seul Luotian avait pu préserver le sien relativement intact; les trois autres royaumes avaient perdu le leur lors de l'effondrement des Royaumes Célestes.
+Le Bois Perçant le Ciel! Il avait été découvert par le Temple Lei Xian il y a trente mille ans. La rumeur prétendait qu'il s'agissait d'un arbre céleste qui soutenait l'Ancien Royaume Céleste. Seul Luotian avait pu préserver le sien relativement intact; les trois autres royaumes avaient perdu le leur lors de l'effondrement des Royaumes Célestes.
 
-Une puissante vague d'énergie spirituelle céleste surgit. Après sa découverte par le Temple Céleste du Tonnerre, ils l'avaient dissimulé. Désormais, il était déployé comme une méthode d'attaque redoutable contre l'Alliance.
+Une puissante vague d'énergie spirituelle céleste surgit. Après sa découverte par le Temple Lei Xian, ils l'avaient dissimulé. Désormais, il était déployé comme une méthode d'attaque redoutable contre l'Alliance.
 
 Ces plus de dix mille cultivateurs qui entouraient ce bois géant crièrent à l'unisson. Ils poussaient sans relâche cette masse colossale vers l'avant! À l'arrière se trouvaient même des vieux monstres, tels que l'ancêtre de la famille Xiang et l'homme d'âge mûr de la famille Gongsun. Grâce à leur aide, le bois géant s'élança vers le tunnel dans un grondement tonitruant.
 

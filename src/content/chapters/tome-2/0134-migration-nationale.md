@@ -76,9 +76,9 @@ Wang Lin savait de quoi il s'agissait, car il en avait déjà possédé un. C'é
 
 Wang Lin ne put s'empêcher de ricaner en tenant le papier jaune. Si l'homme d'âge moyen avait été plus prudent et avait sorti ce trésor, il ne serait sans doute pas mort. Mais il était évident que c'était son atout ultime; il ne l'aurait utilisé qu'en cas de nécessité absolue. Malheureusement, il était tombé sur le Royaume Ji de Wang Lin. Ajouté au fait qu'il l'avait sous-estimé, il n'avait même pas eu le temps de sortir ce trésor.
 
-Comparé à ce talisman, rien d'autre dans le sac ne valait la peine d'être mentionné. Après avoir organisé son butin, il pointa son front et la perle défiant le ciel flotta hors de lui.
+Comparé à ce talisman, rien d'autre dans le sac ne valait la peine d'être mentionné. Après avoir organisé son butin, il pointa son front et la Perle Défiant le Ciel flotta hors de lui.
 
-Wang Lin esquissa un sourire amer en contemplant la perle. Celle-ci avait déjà retrouvé ses cinq feuilles. Il réfléchit un instant. La perle défiant le ciel devait compléter les cinq éléments pour libérer son véritable pouvoir. L'eau et le feu étaient acquis, et le bois était à moitié complété. Il lui manquait encore la terre et le métal.
+Wang Lin esquissa un sourire amer en contemplant la perle. Celle-ci avait déjà retrouvé ses cinq feuilles. Il réfléchit un instant. La Perle Défiant le Ciel devait compléter les cinq éléments pour libérer son véritable pouvoir. L'eau et le feu étaient acquis, et le bois était à moitié complété. Il lui manquait encore la terre et le métal.
 
 Wang Lin brûlait d'envie de découvrir la puissance que cette perle déploierait une fois les cinq éléments réunis. Pour l'instant, sa seule capacité semblait être de donner accès à un espace onirique. Cependant, comment un trésor ayant causé la perte du corps du plus grand expert de la planète Suzaku, Situ Nan, pouvait-il être aussi simple?
 

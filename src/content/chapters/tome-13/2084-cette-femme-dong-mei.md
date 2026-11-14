@@ -28,7 +28,7 @@ Xuan Luo saisit le jade. Il ne l'examina pas immédiatement, mais fixa Wang Lin.
 
 Wang Lin hocha la tête.
 
-Xuan Luo ferma les yeux. Lorsqu'il les rouvrit, il se changea en un rayon de lumière aux côtés de Song Tian et du Grand Empyréen Ancien Ji. En un éclair, ils disparurent sans laisser de trace.
+Xuan Luo ferma les yeux. Lorsqu'il les rouvrit, il se changea en un rayon de lumière aux côtés de Song Tian et du Grand Empyréen Ji Gu. En un éclair, ils disparurent sans laisser de trace.
 
 À cet instant, à l'extérieur de la tempête marine, seuls Wang Lin et Gu Dao restèrent.
 

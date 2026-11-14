@@ -1,6 +1,6 @@
 ---
 n: 1252
-title: Réprimande de la Secte Éternelle (3)
+title: Réprimande de la Secte Wu Ji (3)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1252 - Rebuking the Everlasting Secte (3)
@@ -14,11 +14,11 @@ L'esprit de Lu Yanfei se vida et, après un long moment, la joie dans son cœur 
 
 Même Wang Shanshan afficha un regard étrange alors que diverses scènes lui venaient à l'esprit: une silhouette en blanc fendant l'espace... Elle était simplement très confuse de savoir comment il pouvait connaître l'Empreinte de l'Esprit Guerrier.
 
-Lu Yuncong laissa échapper un sourire amer. Il n'aurait jamais pensé que Frère Lu déclencherait une telle vague d'agitation avant même son arrivée. Cela n'avait rien à voir avec lui, c'était la conséquence des paroles des deux Anciens de la Secte Éternelle.
+Lu Yuncong laissa échapper un sourire amer. Il n'aurait jamais pensé que Frère Lu déclencherait une telle vague d'agitation avant même son arrivée. Cela n'avait rien à voir avec lui, c'était la conséquence des paroles des deux Anciens de la Secte Wu Ji.
 
 L'ensemble de la tribune s'était tu, et le vieil homme en blanc poussa un profond soupir. Il devait y croire! À cet instant, il ne regardait plus cet être mystérieux comme un simple Junior, mais comme un semblable, un membre de sa propre génération!
 
-« Lu... Lu Yanfei, vous n'avez pas besoin de repartir. Attendez ici. Je présume que d'ici la fin de la compétition des sectes de rang 6, votre Oncle-Maître sera arrivé. » Le Maître de la Secte Éternelle toussa sèchement. Il regarda Lu Yanfei avec l'admiration que l'on porte à un Junior prodige.
+« Lu... Lu Yanfei, vous n'avez pas besoin de repartir. Attendez ici. Je présume que d'ici la fin de la compétition des sectes de rang 6, votre Oncle-Maître sera arrivé. » Le Maître de la Secte Wu Ji toussa sèchement. Il regarda Lu Yanfei avec l'admiration que l'on porte à un Junior prodige.
 
 Li Qianmei ne partit pas et s'assit suite à l'invitation de Wang Shanshan. Dès qu'elle prit place, le regard fulgurant de Mu Bingmei la balaya.
 
@@ -28,7 +28,7 @@ Mu Bingmei fixa Li Qianmei longuement avant de détourner les yeux et de dire d'
 
 Li Qianmei était quelque peu confuse de voir cette étrange et belle femme la dévisager ainsi. Au moment où le regard de Mu Bingmei se détourna, Li Qianmei répondit doucement: « En termes de beauté, je ne peux vraiment pas rivaliser avec la Daoïste Mu. »
 
-Les membres de la Secte Éternelle étaient de plus en plus exaltés par la compétition. Cependant, ce qu'ils attendaient, c'était l'individu dont les deux Anciens avaient parlé.
+Les membres de la Secte Wu Ji étaient de plus en plus exaltés par la compétition. Cependant, ce qu'ils attendaient, c'était l'individu dont les deux Anciens avaient parlé.
 
 La lutte entre les sectes de rang 6 n'avait plus d'intérêt, mais une personne se démarqua et attira tous les regards, tout comme Lu Yuncong l'avait fait autrefois!
 
@@ -68,7 +68,7 @@ Lâchant un soupir, Lu Yanfei vola tel un papillon vers l'arène. Elle y atterri
 
 « Même s'il ne vient pas, je dois mener ce combat jusqu'au bout! »
 
-C'était une affaire privée de la Secte Éternelle, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte Gui Yuan devait être dissoute, elle s'était juré de ramener tous ses membres à la Secte Po Tian.
+C'était une affaire privée de la Secte Wu Ji, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte Gui Yuan devait être dissoute, elle s'était juré de ramener tous ses membres à la Secte Po Tian.
 
 Dès que Lu Yuncong et Lu Yanfei atteignirent l'arène, un silence s'installa et tous les regards se tournèrent vers eux. À cause d'une seule personne de la Secte Gui Yuan, ils avaient captivé l'attention générale. Pour la première fois, une si petite secte était remarquée par les innombrables cultivateurs présents.
 
@@ -84,7 +84,7 @@ Plus loin encore, au sein de la Secte Xun Luan, l'atmosphère était lugubre. Zh
 
 « Même si Li Qianmei tente de m'arrêter, elle n'est qu'une personne seule; elle ne représente pas la Secte Po Tian! Nous ne l'offenserons pas, mais cet homme mystérieux nommé Lu doit mourir! »
 
-Ce qui s'était passé sur la tribune était trop loin pour être entendu; seuls les membres de la Secte Éternelle en étaient informés. Ils n'avaient perçu qu'une image vague, sans pouvoir distinguer clairement les détails.
+Ce qui s'était passé sur la tribune était trop loin pour être entendu; seuls les membres de la Secte Wu Ji en étaient informés. Ils n'avaient perçu qu'une image vague, sans pouvoir distinguer clairement les détails.
 
 Yuan Fei, du rang 6, fixait également les deux combattants avec un sourire méprisant. Il espérait que l'homme mystérieux se présenterait; il voulait voir de ses propres yeux ce qui rendait cet individu si spécial!
 

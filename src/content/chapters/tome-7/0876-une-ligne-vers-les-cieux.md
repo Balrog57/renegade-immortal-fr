@@ -60,7 +60,7 @@ Les yeux de Wang Lin s'illuminèrent.
 
 Wang Lin réfléchit silencieusement. Après avoir fait circuler son énergie d'origine pour inspecter son corps, il put discerner certains indices. C'était exactement comme l'avait affirmé Maître Yan Leizi. Le corps présent ici était identique au sien, mais après sa mort, cela n'aurait que peu d'impact sur son véritable corps.
 
-« Une ligne vers le ciel sans véritable mort permettrait à de nombreux cultivateurs manquant d'expérience de traverser une épreuve de vie ou de mort. Je crains que ce ne soit là le véritable but du Temple Céleste du Tonnerre: former de véritables cultivateurs! » Wang Lin fronça les sourcils et tenta de fusionner avec le ciel et la terre pour employer son pouvoir divin de rétrécir la terre. Cependant, comme il ne s'agissait pas du monde réel, cela n'eut aucun effet. Après une courte réflexion, une bouffée de fumée l'enveloppa et il disparut.
+« Une ligne vers le ciel sans véritable mort permettrait à de nombreux cultivateurs manquant d'expérience de traverser une épreuve de vie ou de mort. Je crains que ce ne soit là le véritable but du Temple Lei Xian: former de véritables cultivateurs! » Wang Lin fronça les sourcils et tenta de fusionner avec le ciel et la terre pour employer son pouvoir divin de rétrécir la terre. Cependant, comme il ne s'agissait pas du monde réel, cela n'eut aucun effet. Après une courte réflexion, une bouffée de fumée l'enveloppa et il disparut.
 
 « Les épreuves de l'Homme, de la Terre et du Ciel n'étaient que des tests. Cette "ligne vers le ciel" est la véritable bataille pour les titres célestes. Il n'y a ni bien ni mal. Si je veux être le premier, alors je dois être celui qui tue le plus! » Tandis qu'il se déplaçait, une lueur glaciale passa dans ses yeux.
 

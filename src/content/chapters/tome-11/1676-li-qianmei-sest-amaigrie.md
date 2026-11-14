@@ -98,11 +98,11 @@ Ils s'étaient connus à travers trois questions et une poursuite sans regret qu
 
 Wang Lin ne pouvait s'empêcher de penser à elle. Elle avait taché sa statue de sang pendant dix ans alors que sa beauté se flétrissait. Elle était même allée chercher des remèdes pour lui. Puis, dans la faille de la Mer Yun, alors qu'elle touchait à sa fin et s'apprêtait à fermer les yeux, il n'y avait aucun regret dans son regard.
 
-Pour elle, Wang Lin était allé dans le Royaume Extérieur chercher Lanmeng Daozun afin qu'elle puisse survivre... Puis, lorsqu'elle s'était réveillée, Wang Lin avait gravi la Montagne Bleue malgré une pression infinie. Il voulait simplement voir si elle était revenue à elle.
+Pour elle, Wang Lin était allé dans le Royaume Extérieur chercher Lanmeng Daozun afin qu'elle puisse survivre... Puis, lorsqu'elle s'était réveillée, Wang Lin avait gravi le Mont Lan malgré une pression infinie. Il voulait simplement voir si elle était revenue à elle.
 
 Cependant, cette phrase — « Qui êtes-vous? » — fut comme une lame tranchant tout le reste!
 
-Cette simple question fit réaliser tant de choses à Wang Lin qu'il finit par renoncer à lutter. Il laissa la force de rejet de la Montagne Bleue le repousser toujours plus loin.
+Cette simple question fit réaliser tant de choses à Wang Lin qu'il finit par renoncer à lutter. Il laissa la force de rejet du Mont Lan le repousser toujours plus loin.
 
 Wang Lin regarda Li Qianmei et, après un long silence, dit: « Tu as maigri... »
 

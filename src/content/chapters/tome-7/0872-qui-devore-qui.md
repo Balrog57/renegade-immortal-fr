@@ -22,7 +22,7 @@ Cependant, les dragons du tonnerre n'étaient pas immortels. Nés du tonnerre, i
 
 Il avait existé, jadis, un esprit de tonnerre semblable à celui-ci dans le Royaume Céleste du Tonnerre. Les célestes avaient utilisé une méthode inconnue pour empêcher sa dissipation et en avaient fait la bête gardienne du Royaume Céleste du Tonnerre.
 
-L'esprit du tonnerre présent dans le Temple Céleste du Tonnerre n'était qu'un fragment détaché de l'esprit gardien du Royaume Céleste du Tonnerre. En voyant Wang Lin, il ressentit un choc sans précédent.
+L'esprit du tonnerre présent dans le Temple Lei Xian n'était qu'un fragment détaché de l'esprit gardien du Royaume Céleste du Tonnerre. En voyant Wang Lin, il ressentit un choc sans précédent.
 
 Par chance, une fois que Wang Lin eut fermé les yeux, la majesté de l'ancien dragon du tonnerre cessa de se manifester. Wang Lin se concentra de nouveau sur l'absorption du tonnerre, ce qui permit à l'esprit de se détendre. Empli de rage, il chargea alors vers les autres cultivateurs.
 

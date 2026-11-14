@@ -60,15 +60,15 @@ Levant les yeux vers le ciel, un éclat de froideur traversa son regard. Elle le
 
 « Puisque vous n'avez pas encore tranché, je vais vous donner un coup de main! » murmura la femme en retirant une épingle dorée de sa chevelure de la main gauche avant de la projeter en avant!
 
-Des vagues de musique de cithare émanaient du sommet du Mont Bleu, au sein du Clan Lan Si. Bien que mélodieuse, cette musique était étrange. Parfois empreinte d'une volonté d'embuscade et de mort, elle était parfois d'une douceur extrême. Ces deux extrêmes fusionnaient pour former une émotion complexe.
+Des vagues de musique de cithare émanaient du sommet du Mont Lan, au sein du Clan Lan Si. Bien que mélodieuse, cette musique était étrange. Parfois empreinte d'une volonté d'embuscade et de mort, elle était parfois d'une douceur extrême. Ces deux extrêmes fusionnaient pour former une émotion complexe.
 
 Lanmeng Daozun ferma les yeux, ses mains dansant sur la cithare. Il semblait hésiter, comme s'il était face à un choix crucial!
 
 Li Qianmei était assise calmement en face de son père. Elle l'observait en silence, sans dire un mot.
 
-À cet instant précis, des ondulations résonnèrent au-dessus du Mont Bleu et un éclat de lumière dorée jaillit. C'était une épingle, une parure que seule une femme porterait dans ses cheveux!
+À cet instant précis, des ondulations résonnèrent au-dessus du Mont Lan et un éclat de lumière dorée jaillit. C'était une épingle, une parure que seule une femme porterait dans ses cheveux!
 
-L'épingle fendit le vide et fonça droit vers le Mont Bleu. Elle perça le toit de la demeure et s'enfonça impitoyablement dans le sol, entre Li Qianmei et Lanmeng Daozun!
+L'épingle fendit le vide et fonça droit vers le Mont Lan. Elle perça le toit de la demeure et s'enfonça impitoyablement dans le sol, entre Li Qianmei et Lanmeng Daozun!
 
 La musique de la cithare s'interrompit brusquement! L'une des cordes se rompit et s'envola dans les airs. Lanmeng Daozun ouvrit les yeux et fixa l'épingle devant lui; une lutte douloureuse se lisait dans son regard.
 

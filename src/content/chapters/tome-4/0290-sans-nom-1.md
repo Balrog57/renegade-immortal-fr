@@ -42,7 +42,7 @@ Après sept jours, la silhouette de la tortue-dragon réapparut, le vieil homme 
 
 Mais chaque fois qu'elles tentaient de s'échapper, un écran de lumière bloquait leur chemin.
 
-Le vieil homme regarda Wang Lin avec une expression surprise, mais sans dire un mot, il quitta les Étoiles Brisées du Chaos par la même voie qu'il était entré. Une fois dehors, il esquissa un sourire et leva la main. Il saisit l'une des lignes dorées et la lança vers Wang Lin en disant: « Camarade cultivateur, je t'offre cette mèche de Feu d'Aurore. »
+Le vieil homme regarda Wang Lin avec une expression surprise, mais sans dire un mot, il quitta les Étoiles Brisées du Chaos par la même voie qu'il était entré. Une fois dehors, il esquissa un sourire et leva la main. Il saisit l'une des lignes dorées et la lança vers Wang Lin en disant: « Daoïste, je t'offre cette mèche de Feu d'Aurore. »
 
 Cette ligne dorée fendit l'air comme l'éclair. Un instant elle était loin, le suivant, elle se trouvait déjà devant lui.
 

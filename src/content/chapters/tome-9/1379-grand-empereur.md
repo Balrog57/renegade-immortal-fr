@@ -6,47 +6,47 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1379 - Great Emperor
 slug: grand-empereur
 ---
-Maître Simo se tenait entre la peinture et l'encre. D'un geste de la main, il fit s'animer l'encre qui représentait la terre. Telle un pinceau, il dessinait des montagnes et des rivières sur la toile.
+Maître Si Mo se tenait entre la peinture et l'encre. D'un geste de la main, il fit s'animer l'encre qui représentait la terre. Telle un pinceau, il dessinait des montagnes et des rivières sur la toile.
 
 En quelques traits seulement, il esquissa la planète sur laquelle ils se trouvaient. La silhouette de Wang Lin apparut également dans la peinture!
 
-« Même s'il ne s'agit que de mon avatar, je peux encore te tuer avec le Dao Briseur de Ciel! » Les yeux de Maître Simo devinrent glacials alors qu'il levait sa main droite, prêt à frapper violemment!
+« Même s'il ne s'agit que de mon avatar, je peux encore te tuer avec le Dao Briseur de Ciel! » Les yeux de Maître Si Mo devinrent glacials alors qu'il levait sa main droite, prêt à frapper violemment!
 
 Cependant, à cet instant précis, les yeux de Wang Lin brillèrent d'une lueur étrange et il s'écria: « Sima Mo de la Secte Po Tian! »
 
-Sa voix tonna comme un coup de tonnerre, résonnant à travers le monde tel le rugissement des cieux! Les mains de Maître Simo hésitèrent un instant tandis qu'il fixait Wang Lin.
+Sa voix tonna comme un coup de tonnerre, résonnant à travers le monde tel le rugissement des cieux! Les mains de Maître Si Mo hésitèrent un instant tandis qu'il fixait Wang Lin.
 
-À cet instant même, Wang Lin fit un pas en avant. Il leva la main droite et pointa l'avant! Les cieux changèrent de couleur et les nuages se dispersèrent. La silhouette de Wang Lin disparut pour réapparaître aussitôt devant Maître Simo. Son index droit, qui semblait masquer le ciel, pressa impitoyablement l'espace entre les sourcils de Maître Simo!
+À cet instant même, Wang Lin fit un pas en avant. Il leva la main droite et pointa l'avant! Les cieux changèrent de couleur et les nuages se dispersèrent. La silhouette de Wang Lin disparut pour réapparaître aussitôt devant Maître Si Mo. Son index droit, qui semblait masquer le ciel, pressa impitoyablement l'espace entre les sourcils de Maître Si Mo!
 
-L'expression de Maître Simo changea radicalement. À cause du rugissement de Wang Lin, il avait manqué la meilleure opportunité d'utiliser sa technique. N'ayant pas le temps de réfléchir, il abattit sa main droite dans un geste brusque. Un seul trait pour briser les cieux et la terre!
+L'expression de Maître Si Mo changea radicalement. À cause du rugissement de Wang Lin, il avait manqué la meilleure opportunité d'utiliser sa technique. N'ayant pas le temps de réfléchir, il abattit sa main droite dans un geste brusque. Un seul trait pour briser les cieux et la terre!
 
 D'un coup, les montagnes et les rivières de la peinture furent déchirées. Tout s'effondra et même la silhouette de Wang Lin au sein du tableau commença à se distordre.
 
 Une force de déchirement émana du corps de Wang Lin, se transformant en une douleur fulgurante. Son visage pâlit et le sang monta à sa gorge, mais il parvint à le réprimer. Une intention meurtrière embrasa ses yeux alors qu'il pointait impitoyablement son doigt vers l'avant!
 
-La puissance de ce doigt unique stupéfia Maître Simo. Il recula rapidement tout en soulevant l'encre terrestre pour ériger un rempart devant lui. Il ressentit vaguement une crise de vie ou de mort émanant du doigt de Wang Lin, une sensation qu'il n'avait pas éprouvée depuis bien longtemps!
+La puissance de ce doigt unique stupéfia Maître Si Mo. Il recula rapidement tout en soulevant l'encre terrestre pour ériger un rempart devant lui. Il ressentit vaguement une crise de vie ou de mort émanant du doigt de Wang Lin, une sensation qu'il n'avait pas éprouvée depuis bien longtemps!
 
 « Quel genre de sort est-ce là?! »
 
 L'encre noire bloqua instantanément l'attaque de Wang Lin et percuta son doigt. À cet instant, des rayons d'énergie d'épée jaillirent de sa phalange!
 
-C'était l'un des atouts de Wang Lin, l'une des trois techniques mortelles qu'il avait préparées pour Maître Simo!
+C'était l'un des atouts de Wang Lin, l'une des trois techniques mortelles qu'il avait préparées pour Maître Si Mo!
 
 L'énergie d'épée jaillit avec frénésie. Un rayon; dix rayons; cent rayons; mille rayons; dix mille rayons; cent mille rayons; un million de rayons; dix millions de rayons... Le doigt contenait au total 39 999 999 rayons d'énergie d'épée, et en ajoutant la puissance du doigt de Wang Lin lui-même, cela faisait 40 000 000 de rayons d'énergie d'épée!
 
 La puissance de ces 40 millions de rayons était capable de briser les cieux, et ils surgirent tous simultanément. Deux cerfs apparurent autour du doigt de Wang Lin!
 
-Les pupilles de Maître Simo se rétractèrent, le visage empreint d'incrédulité!
+Les pupilles de Maître Si Mo se rétractèrent, le visage empreint d'incrédulité!
 
 « C'est... »
 
-Le grondement tonitruant qui s'ensuivit fit trembler les cieux. L'encre formée par la terre s'effondra instantanément sous l'impact de l'énergie d'épée. Ces rayons transpercèrent l'encre et fusèrent directement vers Maître Simo!
+Le grondement tonitruant qui s'ensuivit fit trembler les cieux. L'encre formée par la terre s'effondra instantanément sous l'impact de l'énergie d'épée. Ces rayons transpercèrent l'encre et fusèrent directement vers Maître Si Mo!
 
 Les 40 millions de rayons d'énergie d'épée formèrent une tempête dont Wang Lin était le centre.
 
 Cette tempête, saturée d'énergie tranchante, dégageait une puissante aura d'épée. Un sifflement aigu et constant émanait de la rotation des rayons. De loin, on aurait dit des dizaines de millions de serpents en plein vol; c'était un spectacle terrifiant!
 
-Tout cela se produisit en un instant. En un clin d'œil, le doigt chargé de 40 millions de rayons d'énergie frappa le corps de Maître Simo. Ce dernier cracha du sang et son corps fut projeté violemment. C'était comme si son être même était en train de se déchirer, mais ses mains formèrent rapidement un sceau! Ce n'était pas que son corps s'était effondré, mais il avait utilisé une méthode spéciale pour esquiver l'attaque mortelle de Wang Lin et réapparaître à 10 000 pieds de là.
+Tout cela se produisit en un instant. En un clin d'œil, le doigt chargé de 40 millions de rayons d'énergie frappa le corps de Maître Si Mo. Ce dernier cracha du sang et son corps fut projeté violemment. C'était comme si son être même était en train de se déchirer, mais ses mains formèrent rapidement un sceau! Ce n'était pas que son corps s'était effondré, mais il avait utilisé une méthode spéciale pour esquiver l'attaque mortelle de Wang Lin et réapparaître à 10 000 pieds de là.
 
 Lorsqu'il se matérialisa à nouveau, une scène extrêmement étrange se déroulait devant lui!
 
@@ -54,25 +54,25 @@ Il y avait un autre ciel sous le ciel et une autre terre au-dessus de la terre. 
 
 Wang Lin était désormais encerclé par le monde formé par le Dao Briseur de Ciel et ne pouvait plus en sortir!
 
-L'expression de Maître Simo devint féroce. Ses mains formèrent un sceau et il ouvrit brusquement les bras, avant de les refermer aussitôt et de les abattre violemment en rugissant: « Brisez les cieux! »
+L'expression de Maître Si Mo devint féroce. Ses mains formèrent un sceau et il ouvrit brusquement les bras, avant de les refermer aussitôt et de les abattre violemment en rugissant: « Brisez les cieux! »
 
 À ce cri, le monde dans lequel se trouvait Wang Lin trembla et la peinture céleste commença à se déchirer. La silhouette de Wang Lin à l'intérieur du tableau se déforma davantage encore.
 
 À cet instant précis, tous les cultivateurs sur la planète de culture furent ébranlés. Le vieil homme du Clan Huo Que et ses compagnons observaient la bataille depuis longtemps grâce à leur Sens Divin. En voyant la scène se dérouler, la peur envahit son regard et une expression complexe marqua son visage.
 
-« Cet homme va mourir sans aucun doute! Le Dao Briseur de Ciel est véritablement digne de son nom! Maître Simo... Maître Simo... Je ne m'attendais pas à ce qu'il vienne. L'identité de la personne qui m'a vendu les pilules est donc évidente! »
+« Cet homme va mourir sans aucun doute! Le Dao Briseur de Ciel est véritablement digne de son nom! Maître Si Mo... Maître Si Mo... Je ne m'attendais pas à ce qu'il vienne. L'identité de la personne qui m'a vendu les pilules est donc évidente! »
 
 « Malheureusement, j'ignore d'où provient le sang contenu dans ces pilules de l'âme! » Le vieil homme du Clan Huo Que secoua la tête. Il avait déjà conclu que Wang Lin était condamné.
 
 Dans la terre sainte du Clan Long Jia, le jeune maître avait également déployé son Sens Divin pour observer et finit par se détendre un peu.
 
-« Cet homme est très puissant, mais hélas, il ne peut échapper au sort de Maître Simo. Le Dao Briseur de Ciel est prodigieux, capable de créer son propre monde pour l'anéantir! »
+« Cet homme est très puissant, mais hélas, il ne peut échapper au sort de Maître Si Mo. Le Dao Briseur de Ciel est prodigieux, capable de créer son propre monde pour l'anéantir! »
 
 Le Patriarche du Clan Long Jia détourna également son regard du ciel et se calma légèrement.
 
-« Il ignore ses propres limites. Maître Simo est un cultivateur du troisième pas; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué le Grand Ancien du Clan Shan Lei, il est impuissant face à Maître Simo! »
+« Il ignore ses propres limites. Maître Si Mo est un cultivateur du troisième pas; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué le Grand Ancien du Clan Shan Lei, il est impuissant face à Maître Si Mo! »
 
-« Cependant, le simple fait qu'il puisse blesser Maître Simo prouve qu'il n'est pas un être ordinaire. Heureusement, il n'a aucune chance de survie, sinon, s'il venait se venger de notre clan pour notre aide, il serait difficile de s'en défaire. »
+« Cependant, le simple fait qu'il puisse blesser Maître Si Mo prouve qu'il n'est pas un être ordinaire. Heureusement, il n'a aucune chance de survie, sinon, s'il venait se venger de notre clan pour notre aide, il serait difficile de s'en défaire. »
 
 Pourtant, alors que tous étaient convaincus que Wang Lin ne pourrait s'échapper, un revirement soudain se produisit!
 
@@ -104,27 +104,27 @@ Alors que Wang Lin parlait, un monde apparut dans ses yeux et se mit soudainemen
 
 À cet instant, le monde extérieur gronda et commença à s'inverser!
 
-« Sort d'Inversion du Ciel de Lanmeng Daozun! » L'expression de Maître Simo se fit grave et il agita sa main droite. Pour la première fois, il sortit un trésor: un drapeau de cent pieds apparut à ses côtés!
+« Sort d'Inversion du Ciel de Lanmeng Daozun! » L'expression de Maître Si Mo se fit grave et il agita sa main droite. Pour la première fois, il sortit un trésor: un drapeau de cent pieds apparut à ses côtés!
 
 D'innombrables restrictions y étaient inscrites. Elles s'activèrent toutes simultanément, dégageant le pouvoir du temps!
 
 La Restriction Temporelle!
 
-Le drapeau de cent pieds s'ouvrit et la Restriction Temporelle s'en échappa. Des dizaines de milliers de restrictions entourèrent Maître Simo, formant un vortex de contraintes!
+Le drapeau de cent pieds s'ouvrit et la Restriction Temporelle s'en échappa. Des dizaines de milliers de restrictions entourèrent Maître Si Mo, formant un vortex de contraintes!
 
 À cet instant, le monde fut renversé. Le ciel se retrouva sous vos pieds et la terre au-dessus de votre tête; une scène capable de terrifier n'importe qui! Les pupilles du Patriarche du Clan Long Jia se contractèrent violemment.
 
-« Cet homme possède le sort de Lanmeng Daozun!! Humph, même ainsi, je suis certain qu'il périra face au sort de Maître Simo! »
+« Cet homme possède le sort de Lanmeng Daozun!! Humph, même ainsi, je suis certain qu'il périra face au sort de Maître Si Mo! »
 
-Wang Lin laissa échapper un rugissement et abattit sa main. Le monde gronda et le ciel commença à s'écraser sur Maître Simo!
+Wang Lin laissa échapper un rugissement et abattit sa main. Le monde gronda et le ciel commença à s'écraser sur Maître Si Mo!
 
-Maître Simo était entouré par la Restriction Temporelle, ses yeux brillant d'une lueur étrange.
+Maître Si Mo était entouré par la Restriction Temporelle, ses yeux brillant d'une lueur étrange.
 
 « Restriction Temporelle, dissipe-toi dans le temps. Que ce soit les cieux ou la terre, tout finit par se dissiper dans le flux du temps! »
 
-Maître Simo ouvrit les bras et la Restriction Temporelle se déploya pour résister au monde qui s'abattait. Le monde commença à gronder et devint désolé, montrant des signes d'effondrement imminent!
+Maître Si Mo ouvrit les bras et la Restriction Temporelle se déploya pour résister au monde qui s'abattait. Le monde commença à gronder et devint désolé, montrant des signes d'effondrement imminent!
 
-« Sort Interdit du Temps, Fin des Temps! » La voix de Maître Simo résonna puissamment!
+« Sort Interdit du Temps, Fin des Temps! » La voix de Maître Si Mo résonna puissamment!
 
 Les pupilles de Wang Lin se contractèrent alors qu'il s'apprêtait à utiliser un sort. Cependant, précisément à ce moment, un rire retentit. Il était très faible, mais il parvint jusqu'aux oreilles de chaque être vivant sur la planète!
 
@@ -132,6 +132,6 @@ Les pupilles de Wang Lin se contractèrent alors qu'il s'apprêtait à utiliser 
 
 Dans la terre sainte du Clan Long Jia, l'expression du Neuvième Ancien Déchu, le Patriarche du Clan Long Jia, changea radicalement lorsqu'il s'exclama: « Grand Empereur! »
 
-L'expression de Maître Simo changea elle aussi brusquement, la panique envahissant son visage.
+L'expression de Maître Si Mo changea elle aussi brusquement, la panique envahissant son visage.
 
 La voix provenant du vide déclara lentement: « Un. »

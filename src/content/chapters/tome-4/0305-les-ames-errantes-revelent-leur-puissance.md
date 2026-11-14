@@ -68,11 +68,11 @@ Les yeux de Wang Lin brillèrent d'une lueur particulière. Sous son commandemen
 
 Wang Lin le regarda et répondit calmement: « Un fragment du royaume céleste s'est effondré. »
 
-L'homme fut stupéfait, puis il rit amèrement en se rendant compte qu'il disait une évidence. Il regarda Wang Lin avec une admiration non feinte: « Cher compagnon, quiconque peut réchapper d'un tel effondrement n'est pas un être ordinaire. Je vous admire sincèrement! Je suis Chi Hu, du Clan Ju Mo. Quel est votre nom? »
+L'homme fut stupéfait, puis il rit amèrement en se rendant compte qu'il disait une évidence. Il regarda Wang Lin avec une admiration non feinte: « Cher Daoïste, quiconque peut réchapper d'un tel effondrement n'est pas un être ordinaire. Je vous admire sincèrement! Je suis Chi Hu, du Clan Ju Mo. Quel est votre nom? »
 
 Wang Lin secoua la tête et dit: « Ce n'était que de la chance. Mon nom est Zeng Niu! » En repensant à l'effondrement du fragment, il ne put s'empêcher d'être saisi par la peur. S'il n'avait pas avalé imprudemment le cristal d'énergie céleste, il serait déjà mort.
 
-« Zeng Niu... » Chi Hu réfléchit un instant avant que son regard ne devienne sérieux: « Cher compagnon, seriez-vous un membre de la famille Zeng, issue du pays de culture de rang 5 nommé Tianhun, dans le sud de Suzaku? »
+« Zeng Niu... » Chi Hu réfléchit un instant avant que son regard ne devienne sérieux: « Cher Daoïste, seriez-vous un membre de la famille Zeng, issue du pays de culture de rang 5 nommé Tianhun, dans le sud de Suzaku? »
 
 Wang Lin fut surpris et secoua silencieusement la tête.
 

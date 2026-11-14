@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1721 - The Tian Yunzi Falls Into a Trap!"
 slug: lomniscient-tombe-dans-un-piege
 ---
-La tempête formée par la lignée de sang de l'Ancien Dao se dissipa. Hormis le rocher sous Wang Lin, tous les autres disparurent. Une fois la tempête dissipée, le calme revint.
+La tempête formée par la lignée de sang du Dao Gu se dissipa. Hormis le rocher sous Wang Lin, tous les autres disparurent. Une fois la tempête dissipée, le calme revint.
 
 Wang Lin regarda vers l'est. Il ressentit à nouveau l'aura de Tian Yunzi dans cette direction. Une illusion semblait se superposer à son corps; elle se détacha lentement pour laisser place à son corps original qui en sortit.
 

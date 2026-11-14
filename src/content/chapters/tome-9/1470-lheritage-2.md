@@ -22,7 +22,7 @@ En ce jour, une silhouette vêtue d'une robe de Dao aux sept couleurs apparut so
 
 « Je tiendrai ma promesse envers vous... Une fois que le Dao Céleste aura grandi, je renverrai cet arc à votre secte... » Le cultivateur aux sept couleurs prit l'arc prodigieux des mains de Li Guang. Cependant, à cet instant précis, son expression changea et il fit un pas en avant sans réfléchir. Il se déplaçait avec une rapidité fulgurante, atteignant ses limites!
 
-« Ancien Dao, pas d'Immortel! » Alors que Wang Lin observait cette scène, ces mots résonnèrent soudainement dans son esprit. À cet instant, un changement indescriptible s'opéra en lui!
+« Dao Gu, pas d'Immortel! » Alors que Wang Lin observait cette scène, ces mots résonnèrent soudainement dans son esprit. À cet instant, un changement indescriptible s'opéra en lui!
 
 Cette simple phrase, ces quatre mots épurés, firent une fois de plus changer l'expression du cultivateur aux sept couleurs.
 
@@ -104,7 +104,7 @@ Sixième respiration!
 
 Ling Dong n'hésita pas et se positionna du côté gauche de Wang Lin. Ses mains formèrent un sceau et sa main droite pressa le trône. Il commença à invoquer les Flammes d'Encens de son corps, tandis que sa main gauche appuyait sur Wang Lin pour l'aider à compenser la force de rejet.
 
-Les cheveux et les vêtements de l'estimé Ling Dong s'agitèrent sans qu'aucun vent ne soufflât, alors qu'une puissance colossale émanait du corps de Wang Lin. Son expression changea immédiatement et il serra les dents pour endurer le choc.
+Les cheveux et les vêtements de l'Estimé Ling Dong s'agitèrent sans qu'aucun vent ne soufflât, alors qu'une puissance colossale émanait du corps de Wang Lin. Son expression changea immédiatement et il serra les dents pour endurer le choc.
 
 Zhou Jin, du Clan Feng Tian Lang, avait été frappé par le doigt de Wang Lin. Son visage était pâle et ses yeux trahissaient sa lutte. Cependant, plus il résistait, plus la rune d'ancien esclave clignotait entre ses sourcils.
 

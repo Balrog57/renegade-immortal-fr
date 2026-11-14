@@ -96,13 +96,13 @@ Bien que Pu Nanzi fût rassuré, il en eut le cuir chevelu qui picotait. Il igno
 
 Il n'avait aucun doute: si le noble messager n'était pas intervenu, il serait déjà un cadavre. Il regarda Wang Lin avec un mélange de peur profonde et d'un vague regret.
 
-L'homme d'âge moyen fixa Wang Lin et déclara lentement: « Je ne peux croire que tu sois encore en vie et qu'en seulement quatre cents ans, tu aies atteint un si haut niveau de culture. Très bien! Remets-moi la perle défiant le ciel et je t'épargnerai la vie! Je te permettrai de devenir l'homme numéro un à Zhao. Qu'en dis-tu? »
+L'homme d'âge moyen fixa Wang Lin et déclara lentement: « Je ne peux croire que tu sois encore en vie et qu'en seulement quatre cents ans, tu aies atteint un si haut niveau de culture. Très bien! Remets-moi la Perle Défiant le Ciel et je t'épargnerai la vie! Je te permettrai de devenir l'homme numéro un à Zhao. Qu'en dis-tu? »
 
 L'expression de Wang Lin resta calme. L'apparition de cet homme faisait partie de ses calculs. Il avait senti sa présence dès qu'il se trouvait à cinq mille kilomètres. Cet individu était le messager de la Tour Tong Tian, un habitant d'un pays de rang 4. Wang Lin devina que son niveau de culture était celui de la Formation de l'Âme.
 
 S'il n'était pas au stade de la Formation de l'Âme, comment aurait-il pu détruire si aisément l'éclair du Royaume Ji?
 
-Le fait que cet homme sache pour la perle défiant le ciel faisait également partie des considérations de Wang Lin dans son plan de vengeance. C'est pourquoi, lors de son séjour à Zhao, son Sens Divin avait constamment enveloppé tout son corps. De cette façon, avec un Sens Divin de niveau Formation de l'Âme, à moins de lui faire face de très près, personne ne pourrait distinguer son visage.
+Le fait que cet homme sache pour la Perle Défiant le Ciel faisait également partie des considérations de Wang Lin dans son plan de vengeance. C'est pourquoi, lors de son séjour à Zhao, son Sens Divin avait constamment enveloppé tout son corps. De cette façon, avec un Sens Divin de niveau Formation de l'Âme, à moins de lui faire face de très près, personne ne pourrait distinguer son visage.
 
 Et personne ne pouvait le verrouiller par leur propre Sens Divin. C'est ce qui expliquait pourquoi ce messager n'était jamais sorti pour le traquer durant ces neuf jours de massacre.
 

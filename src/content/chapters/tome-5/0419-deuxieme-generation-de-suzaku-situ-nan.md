@@ -42,7 +42,7 @@ Dun Tian répondit d'une voix lente: « Son sort est inconnu. » Il soupira et c
 
 « Bien que la bataille ait été remportée, la deuxième génération de Suzaku fut traquée par les cultivateurs étrangers et disparut. »
 
-Le cœur de Wang Lin tressaillit. Il se souvint des paroles de Situ Nan, lui racontant qu'il avait combattu des cultivateurs étrangers. Finalement, son corps avait été détruit par eux, mais son Âme Naissante s'était échappée dans la perle défiant le ciel, lui sauvant ainsi la vie.
+Le cœur de Wang Lin tressaillit. Il se souvint des paroles de Situ Nan, lui racontant qu'il avait combattu des cultivateurs étrangers. Finalement, son corps avait été détruit par eux, mais son Âme Naissante s'était échappée dans la Perle Défiant le Ciel, lui sauvant ainsi la vie.
 
 La haine que Situ Nan éprouvait pour ces individus était proprement monstrueuse. Selon le récit de Dun Tian, le destin de la deuxième génération de Suzaku ressemblait étrangement à celui de Situ Nan.
 

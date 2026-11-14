@@ -1,6 +1,6 @@
 ---
 n: 2055
-title: "La Triple Division de l'Âme de l'Ancien Dao!"
+title: "La Triple Division de l'Âme du Dao Gu!"
 book: 13
 bookTitle: Light of the coming end
 en: "Chapter 2055 - Ancient Dao Three Soul Splits!"
@@ -22,7 +22,7 @@ Alors que son sang bouillonnait, son corps ne pouvait plus le supporter et comme
 
 Pourtant, il ne paraissait pas faible du tout; il semblait au contraire contenir une vitalité et une force terrifiantes. On aurait dit qu'une fois que le corps de Wang Lin serait revenu à l'état où il était lorsqu'il était entré dans le temple ancestral, la puissance de son corps physique atteindrait un niveau prodigieux.
 
-La troisième épreuve du clan Ancien comportait trois calamités. Après le Sang Céleste de la Race Ancienne venait la Triple Division de l'Âme de l'Ancien Dao! Après avoir survécu à cela, les membres du clan Ancien verraient leur puissance ancienne considérablement accrue.
+La troisième épreuve du clan Ancien comportait trois calamités. Après le Sang Céleste de la Race Ancienne venait la Triple Division de l'Âme du Dao Gu! Après avoir survécu à cela, les membres du clan Ancien verraient leur puissance ancienne considérablement accrue.
 
 De nombreux membres des trois clans ayant atteint 27 étoiles et accédé au rang de Seigneur avaient traversé les trois épreuves et les sept calamités. En particulier, les deux dernières calamités de la troisième épreuve devaient impérativement se dérouler dans le temple ancestral de chaque clan.
 
@@ -32,7 +32,7 @@ Pendant cinquante ans, Wang Lin était resté là, presque totalement immobile. 
 
 Le rugissement dans son esprit devint plus intense encore et son sang sembla s'enflammer davantage. Une sensation de chaleur jaillit et se propagea dans tout son corps.
 
-« La Triple Division de l'Âme de l'Ancien Dao... » murmura Wang Lin. D'après la tablette de pierre, il avait appris que cette épreuve ne diviserait pas son âme originelle en trois parties distinctes.
+« La Triple Division de l'Âme du Dao Gu... » murmura Wang Lin. D'après la tablette de pierre, il avait appris que cette épreuve ne diviserait pas son âme originelle en trois parties distinctes.
 
 Au lieu de cela, il devait endurer trois cycles complets de division et de fusion. Il devrait subir à chaque division une douleur atroce, comparable à la dispersion de sa force, et ferait preuve d'une persévérance hors du commun pour refusionner lentement son âme originelle avant d'entamer la division suivante.
 
@@ -70,9 +70,9 @@ Mais ce n'était que le début!
 
 « Pour obtenir le sang d'âme, je dois pousser la deuxième calamité jusqu'à ses limites pour voir où elle s'arrête! » Une lueur de détermination absolue brilla dans ses yeux. Il ferma lentement les paupières pour affronter la tempête.
 
-Alors que Wang Lin traversait la deuxième calamité, des ondulations circulaires apparurent autour de la statue de l'Ancêtre. Ces ondes se propagèrent dans toutes les directions, enveloppant presque toute la cité impériale des Anciens Shi.
+Alors que Wang Lin traversait la deuxième calamité, des ondulations circulaires apparurent autour de la statue de l'Ancêtre. Ces ondes se propagèrent dans toutes les directions, enveloppant presque toute la cité impériale des Shi Gu.
 
-Ce phénomène étrange attira immédiatement l'attention de tous les membres des Anciens Shi.
+Ce phénomène étrange attira immédiatement l'attention de tous les membres des Shi Gu.
 
 « La statue de l'Ancêtre émet des halos! Quelqu'un traverse les calamités! »
 
@@ -84,11 +84,11 @@ Ce phénomène étrange attira immédiatement l'attention de tous les membres de
 
 « Je me demande combien de personnes tentent la calamité et combien de temps elles pourront tenir. Normalement, cela ne dure que quelques jours. »
 
-Les habitants des Anciens Shi ne furent pas surpris par les halos émanant de la statue de l'Ancêtre. Ils avaient déjà vu cela auparavant et, après un bref regard, ils cessèrent d'y prêter attention.
+Les habitants des Shi Gu ne furent pas surpris par les halos émanant de la statue de l'Ancêtre. Ils avaient déjà vu cela auparavant et, après un bref regard, ils cessèrent d'y prêter attention.
 
-Ce qu'ils ignoraient, c'est que lorsque les neuf halos apparurent, l'Empereur des Anciens Shi et Ji Du scrutèrent tous deux l'horizon.
+Ce qu'ils ignoraient, c'est que lorsque les neuf halos apparurent, l'Empereur des Shi Gu et Ji Du scrutèrent tous deux l'horizon.
 
-« Cinquante ans... Il a enfin commencé sa première division... Je me demande combien de temps il pourra persister. Chez les Anciens Shi, certains ont passé une année entière sur la première division pour atteindre la perfection. Je me demande si cet homme pourra en faire autant. » L'Empereur des Anciens Shi observa longuement le lointain avant de détourner les yeux.
+« Cinquante ans... Il a enfin commencé sa première division... Je me demande combien de temps il pourra persister. Chez les Shi Gu, certains ont passé une année entière sur la première division pour atteindre la perfection. Je me demande si cet homme pourra en faire autant. » L'Empereur des Shi Gu observa longuement le lointain avant de détourner les yeux.
 
 Ji Du se tenait près de la fenêtre de sa chambre, le regard perdu dans le lointain. Sa femme était à ses côtés, contemplant la même direction.
 
@@ -114,7 +114,7 @@ Wang Lin connaissait cette silhouette.
 
 « Maître... » murmura-t-il. Il savait que son maître ne quitterait pas le Dao Gu sans raison. Son maître était venu parce que Xuan Luo voulait le protéger alors qu'il était au plus vulnérable face à la calamité.
 
-Dans le ciel, Xuan Luo contemplait la cité impériale des Anciens Shi et la statue de l'Ancêtre. Il percevait faiblement l'aura de Wang Lin émanant du temple ancestral.
+Dans le ciel, Xuan Luo contemplait la cité impériale des Shi Gu et la statue de l'Ancêtre. Il percevait faiblement l'aura de Wang Lin émanant du temple ancestral.
 
 Un sourire étira ses lèvres et son regard devint empreint de douceur.
 

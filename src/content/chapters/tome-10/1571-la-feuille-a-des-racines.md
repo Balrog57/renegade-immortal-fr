@@ -36,7 +36,7 @@ Le vieil homme fronça les sourcils et s'apprêtait à parler quand ses yeux se 
 
 Son expression s'assombrit et il cessa d'accorder la moindre attention au fou. Il fit un pas vers Wang Lin et dit d'un ton grave:
 
-« Camarade cultivateur, le pays de Zhao, patrie du Seigneur du Royaume Scellé, n'est pas un lieu où des étrangers comme nous peuvent pénétrer. J'espère que vous saurez vous maîtriser! » Les paroles du vieil homme retentirent comme un coup de tonnerre et secouèrent les environs, effrayant le fou.
+« Daoïste, le pays de Zhao, patrie du Seigneur du Royaume Scellé, n'est pas un lieu où des étrangers comme nous peuvent pénétrer. J'espère que vous saurez vous maîtriser! » Les paroles du vieil homme retentirent comme un coup de tonnerre et secouèrent les environs, effrayant le fou.
 
 Le fou fixa le vieil homme et se mit à rugir:
 
@@ -46,7 +46,7 @@ Wang Lin ne prêta aucune attention à ces cris. La formation lumineuse n'exista
 
 D'un seul pas, il atteignit la formation lumineuse, provoquant immédiatement des ondulations. C'était comme si un vortex géant apparaissait devant lui. Le tourbillon s'intensifia jusqu'à ce que les ondes se propagent à travers toute la formation entourant le pays de Zhao.
 
-« Camarade cultivateur, arrêtez! » L'expression du vieil homme changea et il chargea Wang Lin sans réfléchir pour tenter de l'intercepter. À ses yeux, l'acte de Wang Lin constituait déjà une offense envers la patrie du Seigneur du Royaume Scellé et méritait un châtiment exemplaire.
+« Daoïste, arrêtez! » L'expression du vieil homme changea et il chargea Wang Lin sans réfléchir pour tenter de l'intercepter. À ses yeux, l'acte de Wang Lin constituait déjà une offense envers la patrie du Seigneur du Royaume Scellé et méritait un châtiment exemplaire.
 
 Puisqu'il en était témoin, il se devait d'agir!
 

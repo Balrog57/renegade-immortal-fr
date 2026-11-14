@@ -12,7 +12,7 @@ Cela révéla la silhouette de Wang Lin derrière le vieux Suzaku.
 
 À l'instant même où Wang Lin apparut, plusieurs regards se posèrent sur lui.
 
-Le premier venait de Maître Simo. Son regard était glacial, empreint d'une intention meurtrière.
+Le premier venait de Maître Si Mo. Son regard était glacial, empreint d'une intention meurtrière.
 
 Le second était doux, contenant une pointe de confusion et de nostalgie. Il émanait de la jeune fille enveloppée d'une lumière bleue.
 
@@ -24,31 +24,31 @@ Wang Lin joignit les mains et dit respectueusement: « Ce junior salue le Senior
 
 Lanmeng Daozun sourit, hocha la tête et répondit: « Je t'ai vraiment sous-estimé auparavant. »
 
-Le vieux Suzaku fut surpris d'apprendre que Wang Lin connaissait Lanmeng Daozun. Puis son regard glissa vers Li Qianmei; il esquissa un sourire espiègle avant de passer à autre chose. Enfin, son regard se fixa sur Maître Simo.
+Le vieux Suzaku fut surpris d'apprendre que Wang Lin connaissait Lanmeng Daozun. Puis son regard glissa vers Li Qianmei; il esquissa un sourire espiègle avant de passer à autre chose. Enfin, son regard se fixa sur Maître Si Mo.
 
-« Petit gamin, qu'est-ce que tu regardes? Es-tu mécontent de ce vieil homme? Veux-tu le défier? Viens donc te battre, ce vieux va jouer avec toi! » Le Suzaku ne possédait aucune des manières d'un Senior alors qu'il fixait Maître Simo en faisant un geste provocateur de l'index.
+« Petit gamin, qu'est-ce que tu regardes? Es-tu mécontent de ce vieil homme? Veux-tu le défier? Viens donc te battre, ce vieux va jouer avec toi! » Le Suzaku ne possédait aucune des manières d'un Senior alors qu'il fixait Maître Si Mo en faisant un geste provocateur de l'index.
 
-Le visage de Maître Simo changea. Il savait que ce vieil homme était le premier Jeune Empereur des Terres Déchues. C'était un être situé juste en dessous du Grand Empereur, et sa renommée était immense. Le Conseil Souverain menait encore des recherches sur lui; ce vieux fou n'était pas facile à gérer.
+Le visage de Maître Si Mo changea. Il savait que ce vieil homme était le premier Jeune Empereur des Terres Déchues. C'était un être situé juste en dessous du Grand Empereur, et sa renommée était immense. Le Conseil Souverain menait encore des recherches sur lui; ce vieux fou n'était pas facile à gérer.
 
-L'intention meurtrière dans les yeux de Maître Simo s'évanouit. Il joignit les mains et dit doucement: « La culture du Senior est transcendante. Le junior... le junior n'est pas de taille. »
+L'intention meurtrière dans les yeux de Maître Si Mo s'évanouit. Il joignit les mains et dit doucement: « La culture du Senior est transcendante. Le junior... le junior n'est pas de taille. »
 
-« Humph, tu n'oserais pas affronter ce vieil homme, mais tu veux provoquer mon junior? Tu mérites une correction! » Peu importe la façon dont Suzaku regardait Maître Simo, il le trouvait insupportable. Il laissa échapper un reniflement froid et agita sa main droite.
+« Humph, tu n'oserais pas affronter ce vieil homme, mais tu veux provoquer mon junior? Tu mérites une correction! » Peu importe la façon dont Suzaku regardait Maître Si Mo, il le trouvait insupportable. Il laissa échapper un reniflement froid et agita sa main droite.
 
-Aucun sort ne sembla jaillir de ce geste, mais l'expression de Grand Maître Yun Luo changea radicalement et elle recula sans hésiter. Les pupilles de Maître Simo se rétractèrent également; il laissa échapper un rugissement en commençant à former des sceaux de mains. Cependant, avant qu'il ne puisse les achever, un grondement tonitruant retentit.
+Aucun sort ne sembla jaillir de ce geste, mais l'expression de Grand Maître Yun Luo changea radicalement et elle recula sans hésiter. Les pupilles de Maître Si Mo se rétractèrent également; il laissa échapper un rugissement en commençant à former des sceaux de mains. Cependant, avant qu'il ne puisse les achever, un grondement tonitruant retentit.
 
-Maître Simo recula précipitamment de trente pieds devant ce fracas. Sa main tremblait et son visage était pâle. Un feu éthéré brûlait en lui et clignota trois fois. À chaque éclat, la puissance de combustion à l'intérieur de son corps augmentait.
+Maître Si Mo recula précipitamment de trente pieds devant ce fracas. Sa main tremblait et son visage était pâle. Un feu éthéré brûlait en lui et clignota trois fois. À chaque éclat, la puissance de combustion à l'intérieur de son corps augmentait.
 
-Après ce recul, le corps de Maître Simo trembla violemment et il cracha du sang. Ses yeux étaient pétris de terreur.
+Après ce recul, le corps de Maître Si Mo trembla violemment et il cracha du sang. Ses yeux étaient pétris de terreur.
 
-« Senior, vous intimidez un junior devant tout le monde! Qu'est-ce que cela signifie?! » La colère se lut sur le visage de Maître Simo, mais cette rage sembla alimenter le feu éthéré qui l'entourait, le rendant plus puissant encore.
+« Senior, vous intimidez un junior devant tout le monde! Qu'est-ce que cela signifie?! » La colère se lut sur le visage de Maître Si Mo, mais cette rage sembla alimenter le feu éthéré qui l'entourait, le rendant plus puissant encore.
 
-Maître Simo cracha du sang une fois de plus. À ce moment, Grand Maître Yun Luo s'avança et posa sa main sur son dos. Elle utilisa un sort secret pour tenter d'améliorer l'aspect de Maître Simo, mais celui-ci restait d'une pâleur mortelle.
+Maître Si Mo cracha du sang une fois de plus. À ce moment, Grand Maître Yun Luo s'avança et posa sa main sur son dos. Elle utilisa un sort secret pour tenter d'améliorer l'aspect de Maître Si Mo, mais celui-ci restait d'une pâleur mortelle.
 
-« Le fort opprimant le faible? Parbleu, tu sais même ce que cela signifie? Après avoir utilisé ta culture de la troisième étape pour forcer un combat contre mon junior, tu oses dire que j'opprime les faibles? Et alors, si c'est le cas?! » Le Suzaku cultivait depuis de nombreuses années et, bien qu'il parût bienveillant envers Wang Lin, il était en réalité réputé, à l'époque où il s'était fait un nom, pour son tempérament explosif. En entendant les paroles de Maître Simo, ses yeux s'écarquillèrent et il fit un pas en avant.
+« Le fort opprimant le faible? Parbleu, tu sais même ce que cela signifie? Après avoir utilisé ta culture de la troisième étape pour forcer un combat contre mon junior, tu oses dire que j'opprime les faibles? Et alors, si c'est le cas?! » Le Suzaku cultivait depuis de nombreuses années et, bien qu'il parût bienveillant envers Wang Lin, il était en réalité réputé, à l'époque où il s'était fait un nom, pour son tempérament explosif. En entendant les paroles de Maître Si Mo, ses yeux s'écarquillèrent et il fit un pas en avant.
 
-Il fut si rapide que l'œil nu ou même le Sens Divin ne purent le suivre. Il surgit devant Maître Simo et lui asséna une gifle directe.
+Il fut si rapide que l'œil nu ou même le Sens Divin ne purent le suivre. Il surgit devant Maître Si Mo et lui asséna une gifle directe.
 
-Sous la force de l'impact, Maître Simo laissa échapper un gémissement étouffé et fut projeté en arrière de plusieurs dizaines de pieds. Sa joue gauche gonfla, prenant une teinte violacée.
+Sous la force de l'impact, Maître Si Mo laissa échapper un gémissement étouffé et fut projeté en arrière de plusieurs dizaines de pieds. Sa joue gauche gonfla, prenant une teinte violacée.
 
 Le visage de Grand Maître Yun Luo pâlit alors qu'elle reculait: « Senior, arrêtez, le Conseil Souverain... »
 
@@ -56,21 +56,21 @@ Avant qu'elle ne puisse achever sa phrase, Suzaku lui lança un regard féroce. 
 
 Cela força Grand Maître Yun Luo à se mordre la lèvre et à se taire.
 
-Maître Simo venait à peine de stabiliser sa posture que sa vision se troubla.
+Maître Si Mo venait à peine de stabiliser sa posture que sa vision se troubla.
 
 « Qui es-tu pour oser traiter mon junior de "petit bâtard"? Tu es un bâtard, et toute ta famille est composée de bâtards! » Tandis qu'il parlait, Suzaku se rapprocha à nouveau et envoya une gifle de la main gauche.
 
-Maître Simo poussa un râle étouffé et cracha du sang. Repoussé, la colère monta en lui, mais cette rage ne fit qu'accroître la puissance du feu dans son corps. Il poussa un cri misérable et tenta de réprimer sa rage.
+Maître Si Mo poussa un râle étouffé et cracha du sang. Repoussé, la colère monta en lui, mais cette rage ne fit qu'accroître la puissance du feu dans son corps. Il poussa un cri misérable et tenta de réprimer sa rage.
 
-« Si mon junior est un bâtard, cela ne fait-il pas de moi un bâtard aussi? Bon sang, tu oses insulter ce vieil homme? » Le vieil homme fixa Maître Simo et le poursuivit.
+« Si mon junior est un bâtard, cela ne fait-il pas de moi un bâtard aussi? Bon sang, tu oses insulter ce vieil homme? » Le vieil homme fixa Maître Si Mo et le poursuivit.
 
-« Le junior n'a pas... » L'esprit de Maître Simo trembla; il allait tenter de s'expliquer, mais ses paroles ne furent évidemment pas aussi rapides que Suzaku. Ce dernier surgit soudainement et lui asséna une gifle de la main droite.
+« Le junior n'a pas... » L'esprit de Maître Si Mo trembla; il allait tenter de s'expliquer, mais ses paroles ne furent évidemment pas aussi rapides que Suzaku. Ce dernier surgit soudainement et lui asséna une gifle de la main droite.
 
-Le visage de Maître Simo, déjà tuméfié, gonfla davantage et il cracha du sang ainsi que quelques dents. Son corps fut projeté au loin.
+Le visage de Maître Si Mo, déjà tuméfié, gonfla davantage et il cracha du sang ainsi que quelques dents. Son corps fut projeté au loin.
 
-« Humph, tu oses insulter ce vieil homme?! » Une lueur meurtrière traversa les yeux de Suzaku. S'il n'avait pas voulu que Wang Lin utilise Maître Simo pour faire étalage de sa puissance, il ne se serait pas contenté de trois gifles; il lui aurait instantanément pris la vie!
+« Humph, tu oses insulter ce vieil homme?! » Une lueur meurtrière traversa les yeux de Suzaku. S'il n'avait pas voulu que Wang Lin utilise Maître Si Mo pour faire étalage de sa puissance, il ne se serait pas contenté de trois gifles; il lui aurait instantanément pris la vie!
 
-Le Suzaku osait pêcher un dragon et possédait un niveau de culture terrifiant. Bien que Maître Simo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si c'avait été quelqu'un d'autre, même doté de la culture de Suzaku, il aurait hésité, car le Conseil Souverain soutenait Maître Simo.
+Le Suzaku osait pêcher un dragon et possédait un niveau de culture terrifiant. Bien que Maître Si Mo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si c'avait été quelqu'un d'autre, même doté de la culture de Suzaku, il aurait hésité, car le Conseil Souverain soutenait Maître Si Mo.
 
 Cependant, Suzaku n'en avait cure. Il n'avait qu'une seule pensée: personne ne pouvait provoquer le Clan Suzaku! Même si ses adversaires possédaient une culture supérieure à la sienne, il s'en moquait. L'Ancêtre de la première génération s'en chargerait.
 
@@ -82,7 +82,7 @@ La personnalité de Wang Lin était parfois très simple: ceux qui lui étaient 
 
 Quant aux autres personnes suspendues dans le ciel, elles restèrent silencieuses.
 
-Après avoir giflé Maître Simo à plusieurs reprises, Suzaku détourna son regard et retourna aux côtés de Wang Lin. Il ignora totalement Maître Simo, dans un état pitoyable, ainsi que la sombre Grand Maître Yun Luo.
+Après avoir giflé Maître Si Mo à plusieurs reprises, Suzaku détourna son regard et retourna aux côtés de Wang Lin. Il ignora totalement Maître Si Mo, dans un état pitoyable, ainsi que la sombre Grand Maître Yun Luo.
 
 « Ce vieil homme est très heureux que vous soyez tous réunis sur la Planète du Grand Empereur. Bien qu'il manque encore quelques vieux briscards, ce n'est pas grave. Puisque tout le monde est présent, je veux que vous soyez tous témoins de l'épreuve de mon troisième Jeune Empereur des Terres Déchues! »
 
@@ -106,7 +106,7 @@ Les yeux de Suzaku s'écarquillèrent en entendant l'insulte « vieux oiseau »,
 
 « Prends-le. Cette chose contient le venin de ce petit insecte. C'est une arme redoutable contre tes ennemis! »
 
-Tandis qu'il parlait, Suzaku leva la main droite et fit un geste vers l'arène. Il cria: « La Sélection des Anciens Délaissés est reportée, et l'épreuve du Jeune Empereur commence! »
+Tandis qu'il parlait, Suzaku leva la main droite et fit un geste vers l'arène. Il cria: « La Sélection des Anciens Déchus est reportée, et l'épreuve du Jeune Empereur commence! »
 
 Sa voix tonna comme le tonnerre et résonna dans toute l'arène. Le rugissement d'une tortue dragon retentit, et la tortue géante, déjà apparue sous les coups de Wang Lin, surgit de l'arène, sa carapace se reformant plaque après plaque.
 

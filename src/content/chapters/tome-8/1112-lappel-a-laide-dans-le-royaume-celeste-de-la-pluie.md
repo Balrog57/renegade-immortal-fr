@@ -42,7 +42,7 @@ La lumière rouge brilla intensément et la lance jaillit de la Mer Xiu Mo. Ce r
 
 Après des dizaines de milliers d'années, l'arme du clan royal des anciens dieux apparaissait une fois de plus!
 
-Toutes les forces situées à l'extérieur de la planète Suzaku ressentirent cette aura qui faisait trembler les cieux. Alors qu'elles s'apprêtaient à intervenir, la Lance de l’Extermination Divine fondit sur l'un des palais du Temple Céleste du Tonnerre de Luotian!
+Toutes les forces situées à l'extérieur de la planète Suzaku ressentirent cette aura qui faisait trembler les cieux. Alors qu'elles s'apprêtaient à intervenir, la Lance de l’Extermination Divine fondit sur l'un des palais du Temple Lei Xian de Luotian!
 
 Dans un éclair rouge, la lance perça le palais. Celui-ci trembla et vola en éclats. La Lance de l’Extermination Divine ne s'arrêta pas là; elle transperça tous les palais de Luotian, provoquant leur effondrement total.
 

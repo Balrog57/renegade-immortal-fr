@@ -20,11 +20,11 @@ Ce lieu était appelé le Royaume Luan Shou Wu!
 
 Si on le décrivait comme un « royaume », c'était en raison de son immensité. Si un cultivateur ordinaire y pénétrait seul, il n'en resterait même pas les os. Seuls de véritables vieux monstres pouvaient y entrer, et encore, ils devaient faire preuve d'une prudence extrême.
 
-Cependant, la Secte Divine avait utilisé une méthode inconnue pour que les bêtes féroces de l'intérieur ne quittent guère ce royaume; elles se contentaient d'y absorber l'énergie originelle. C'était comme si une frontière invisible marquait la limite de ce brouillard.
+Cependant, la Secte Shen avait utilisé une méthode inconnue pour que les bêtes féroces de l'intérieur ne quittent guère ce royaume; elles se contentaient d'y absorber l'énergie originelle. C'était comme si une frontière invisible marquait la limite de ce brouillard.
 
 Quatre chemins existaient dans le Royaume Luan Shou Wu, et seuls ces quatre sentiers étaient sûrs. C'étaient les voies que les disciples des sectes de rang 8 devaient emprunter s'ils souhaitaient quitter la région de rang 8 sans utiliser de matrice de transfert.
 
-La rumeur disait qu'ils avaient été ouverts par la Secte Divine il y a des éons. Ils avaient employé une méthode spéciale pour garantir la sécurité de ces quatre voies, afin que ceux qui les empruntaient ne soient pas attaqués par les bêtes féroces.
+La rumeur disait qu'ils avaient été ouverts par la Secte Shen il y a des éons. Ils avaient employé une méthode spéciale pour garantir la sécurité de ces quatre voies, afin que ceux qui les empruntaient ne soient pas attaqués par les bêtes féroces.
 
 Toutefois, hormis les disciples des sectes de rang 8 et ceux ayant obtenu un jade de guidage, personne ne connaissait l'existence de ces chemins. Les autres ne pouvaient que s'élancer tête baissée dans le Royaume Luan Shou Wu, avec pour seule chance d'atteindre la région de rang 8 de ne pas mourir en chemin.
 
@@ -92,7 +92,7 @@ Après avoir entendu le rugissement de la bête de rang 12, Wang Lin fronça lé
 
 « La bête la plus proche n'a pas hésité à sacrifier sa vie pour me ralentir, et la suivante est arrivée pour m'entraver également. Tout cela pour permettre à la bête de rang 12 d'arriver à temps... C'est intéressant! » Un éclair de froideur passa dans les yeux de Wang Lin.
 
-Peu importait la haine que ces centipèdes entretenaient envers la Secte Divine; si elles le provoquaient, elles ne rencontreraient que la mort! Les yeux de Wang Lin s'illuminèrent. Il savait qu'il devait éliminer celle qui le poursuivait, sans quoi elle continuerait à rugir et trahirait sa position.
+Peu importait la haine que ces centipèdes entretenaient envers la Secte Shen; si elles le provoquaient, elles ne rencontreraient que la mort! Les yeux de Wang Lin s'illuminèrent. Il savait qu'il devait éliminer celle qui le poursuivait, sans quoi elle continuerait à rugir et trahirait sa position.
 
 Ce rugissement était également très irritant pour lui.
 

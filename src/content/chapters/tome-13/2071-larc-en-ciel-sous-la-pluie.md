@@ -88,21 +88,21 @@ Durant cette période, Wang Lin avait revu presque tous ses anciens amis du mond
 
 Quoi qu'il advienne, Wang Lin laissait toujours derrière lui de quoi les protéger, car ils venaient du même monde des grottes. Plus précisément, ils appartenaient tous à la Secte Qi Dao.
 
-La Secte Soleil et Lune était la plus puissante du continent Tian Fang. Elle comptait plus de 100 000 membres et figurait parmi les neuf sectes et treize factions du Continent de l'Est.
+La Secte Ri Yue était la plus puissante du continent Tian Fang. Elle comptait plus de 100 000 membres et figurait parmi les neuf sectes et treize factions du Continent de l'Est.
 
 Le nombre de génies y était immense, mais aucun ne pouvait égaler une femme nommée Qing Hong. Son talent était si rare qu'on ne le croisait qu'une fois tous les dix mille ans!
 
-Il y a des centaines d'années, elle était devenue disciple de la Secte Soleil et Lune. En moins de mille ans, elle était devenue une grande puissante de la troisième étape et avait atteint le sommet du Vide du Nirvana, n'étant plus qu'à un pas de devenir une cultivatrice du Vide Spirituel.
+Il y a des centaines d'années, elle était devenue disciple de la Secte Ri Yue. En moins de mille ans, elle était devenue une grande puissante de la troisième étape et avait atteint le sommet du Vide du Nirvana, n'étant plus qu'à un pas de devenir une cultivatrice du Vide Spirituel.
 
-Cela était dû en grande partie au fait que la Secte Soleil et Lune l'avait formée de manière optimale, mais cela témoignait aussi de son importance cruciale pour l'organisation.
+Cela était dû en grande partie au fait que la Secte Ri Yue l'avait formée de manière optimale, mais cela témoignait aussi de son importance cruciale pour l'organisation.
 
 L'Ancien de haut rang, l'Exalté Doré, restait en retraite perpétuelle. La rumeur disait qu'elle possédait la puissance d'un Exalté Empyréen, bien qu'elle n'ait jamais passé l'Épreuve Céleste.
 
 Cette dernière avait personnellement accepté cette femme comme disciple et, tous les quelques années, elle sortait pour lui prodiguer ses conseils. Parfois, elle l'emmenait même avec elle durant ses retraites.
 
-Cette femme était appelée la Sainte de la Secte Soleil et Lune. Beaucoup l'admiraient et, par sa beauté, elle était courtisée par de nombreux disciples.
+Cette femme était appelée la Sainte de la Secte Ri Yue. Beaucoup l'admiraient et, par sa beauté, elle était courtisée par de nombreux disciples.
 
-Cependant, elle était bien trop exceptionnelle et son tempérament d'une froideur absolue. Au cours des siècles, elle n'avait jamais choisi de partenaire spirituel, mais plus elle restait distante, plus les disciples de la Secte Soleil et Lune la vouaient un culte.
+Cependant, elle était bien trop exceptionnelle et son tempérament d'une froideur absolue. Au cours des siècles, elle n'avait jamais choisi de partenaire spirituel, mais plus elle restait distante, plus les disciples de la Secte Ri Yue la vouaient un culte.
 
 En particulier, les enfants des Anciens et les disciples se croyant dignes ne cessaient de la courtiser.
 

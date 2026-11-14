@@ -16,7 +16,7 @@ Le jeune homme rit et passa son bras autour de la taille de la femme. « Je ne l
 
 La femme sourit, affichant un regard charmeur. Sa voix était séduisante lorsqu'elle dit: « Puisque le cousin est un membre de la famille Yao, tu peux naturellement tout obtenir. »
 
-Le jeune homme afficha sa fierté. La famille Yao était un nom que même le Temple Céleste du Tonnerre devait respecter. En tant que membre de la lignée Yao, il en était ainsi: tant qu'il posait les yeux sur une chose, rien ne lui résistait.
+Le jeune homme afficha sa fierté. La famille Yao était un nom que même le Temple Lei Xian devait respecter. En tant que membre de la lignée Yao, il en était ainsi: tant qu'il posait les yeux sur une chose, rien ne lui résistait.
 
 À cet instant, au sein du vide, Wang Lin vit le fragment devant lui. Son corps vacilla et il se retrouva sur celui-ci.
 

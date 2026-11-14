@@ -16,7 +16,7 @@ L'attitude de Wang Lin restait constante; il ne profita pas de la situation pour
 
 Wang Lin sourit et hocha la tête.
 
-Le regard respectueux de l'estimé Ling Dong se posa sur Maître Lu Fu. Il joignit ses mains et déclara: « Ce vieil homme se nomme Ling Dong, l'ancêtre du clan Ling Dong du Royaume Extérieur! »
+Le regard respectueux de l'Estimé Ling Dong se posa sur Maître Lu Fu. Il joignit ses mains et déclara: « Ce vieil homme se nomme Ling Dong, l'ancêtre du clan Ling Dong du Royaume Extérieur! »
 
 Bien que Maître Lu Fu eût déjà des spéculations, il fut tout de même ému en entendant les paroles de Ling Dong.
 
@@ -24,7 +24,7 @@ Bien que Maître Lu Fu eût déjà des spéculations, il fut tout de même ému 
 
 Ling Dong détourna le regard et dit lentement: « Le clan Ling Dong n'est pas un grand clan dans le Système Stellaire Antique, nous ne comptons que dix mille membres. »
 
-Maître Lu Fu joignit les mains devant l'estimé Ling Dong. Bien que Ling Dong fût l'esclave de Wang Lin, il restait à ses yeux un cultivateur du troisième niveau sur un pied d'égalité avec lui. Après avoir salué, il regarda Zhou Jin qui demeurait silencieux. « Et celui-ci est... »
+Maître Lu Fu joignit les mains devant l'Estimé Ling Dong. Bien que Ling Dong fût l'esclave de Wang Lin, il restait à ses yeux un cultivateur du troisième niveau sur un pied d'égalité avec lui. Après avoir salué, il regarda Zhou Jin qui demeurait silencieux. « Et celui-ci est... »
 
 « Zhou Jin, l'ancêtre du clan du Loup Céleste du Royaume Extérieur! »
 

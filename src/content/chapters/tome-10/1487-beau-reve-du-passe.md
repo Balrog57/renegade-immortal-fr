@@ -82,7 +82,7 @@ Elle n'avait pas oublié ses désirs passés. Elle voulait devenir comme l'ancê
 
 Cependant, ce souhait ne faisait que s'éloigner... Si ce n'était pour cette figure gravée dans son cœur, elle serait depuis longtemps devenue le « fourneau » de quelqu'un d'autre, sacrifiant son corps en échange de protection et du droit de continuer sa culture.
 
-Mais cette figure l'avait empêchée de s'humilier. Elle refusait de sombrer si bas. Bien que cet homme l'ait peut-être oubliée, ne se souvenant même plus de son nom, elle, elle se souvenait... Elle ne pouvait oublier cette silhouette menant les cultivateurs hors du Royaume Céleste du Tonnerre en plein effondrement... Elle ne pouvait oublier ce guerrier combattant les gens du Temple Céleste du Tonnerre qui gardaient la formation.
+Mais cette figure l'avait empêchée de s'humilier. Elle refusait de sombrer si bas. Bien que cet homme l'ait peut-être oubliée, ne se souvenant même plus de son nom, elle, elle se souvenait... Elle ne pouvait oublier cette silhouette menant les cultivateurs hors du Royaume Céleste du Tonnerre en plein effondrement... Elle ne pouvait oublier ce guerrier combattant les gens du Temple Lei Xian qui gardaient la formation.
 
 Plus encore, elle ne pouvait oublier celui qui, lors de la bataille pour le titre céleste, avait bouleversé Luotian et était devenu le Céleste du Tonnerre! Même si cet homme ignorait qu'elle se trouvait parmi les spectateurs, et même s'il ne connaissait pas la joie qu'elle ressentait... Au cours des huit cents dernières années, chaque fois qu'elle sombrait dans la tristesse, elle pensait à cette silhouette et puisait en elle le courage de continuer à lutter.
 

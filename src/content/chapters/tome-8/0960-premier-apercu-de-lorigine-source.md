@@ -32,7 +32,7 @@ Ce son résonnait avec clarté dans le silence de la nuit.
 
 « Le vent bouge, la montagne bouge, la flamme bouge... » Wang Lin leva la tête et fit un pas. Il disparut de la pièce pour réapparaître dans le ciel nocturne.
 
-Sous ses pieds se dressait le Mont Pourpre de la Secte Tian Yun!
+Sous ses pieds se dressait le Mont Zi de la Secte Tian Yun!
 
 Le vent soufflait fort cette nuit-là et les nuages emplissaient le ciel. Peu de lumière lunaire perçait la couche nuageuse pour atteindre la terre, plongeant tout ce qui l'entourait dans l'obscurité.
 
@@ -40,7 +40,7 @@ Tout en méditant, Wang Lin leva sa main droite et l'agita doucement. Une trace 
 
 Le vent se souleva dans le ciel couvert de nuages sombres. Les nuages chargés de pluie se transformèrent en une fine averse, puis se dissipèrent, laissant la lumière éclatante de la lune tomber sur la terre sans aucun obstacle.
 
-Sous la clarté lunaire, une zone d'ombre apparut derrière le Mont Pourpre.
+Sous la clarté lunaire, une zone d'ombre apparut derrière le Mont Zi.
 
 Le vent soufflait, faisant osciller la végétation de la montagne dans un bruissement continu.
 

@@ -6,17 +6,17 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1423 - Illustrious Individual
 slug: un-individu-illustre
 ---
-La lance de brouillard, entourée par l'âme du démon ancien, était d'une rapidité telle qu'elle fut instantanément sur Maître Simo, faisant se contracter ses pupilles. Il s'attendait déjà à ce que Wang Lin soit fort, mais il n'aurait jamais imaginé une telle puissance!
+La lance de brouillard, entourée par l'âme du démon ancien, était d'une rapidité telle qu'elle fut instantanément sur Maître Si Mo, faisant se contracter ses pupilles. Il s'attendait déjà à ce que Wang Lin soit fort, mais il n'aurait jamais imaginé une telle puissance!
 
 « Cet enfant n'a pas encore atteint le troisième niveau, et pourtant il peut déjà lutter contre moi. S'il brise la Porte Kong, je ne ferai plus du tout le poids. Il connaît également mon passé, il est donc évidemment issu du Royaume Intérieur! »
 
 « Cet homme doit mourir... Malheureusement, je ne peux pas l'éliminer tant que nous sommes sur la Planète du Grand Empereur! »
 
-Maître Simo ne recula pas; au contraire, une lueur de froideur traversa son regard. Cependant, à l'instant même où il la laissa paraître, son expression changea. Il cracha un jet de sang et fut contraint de battre en retraite.
+Maître Si Mo ne recula pas; au contraire, une lueur de froideur traversa son regard. Cependant, à l'instant même où il la laissa paraître, son expression changea. Il cracha un jet de sang et fut contraint de battre en retraite.
 
 « Maudit soit! Le Seigneur Souverain avait raison, tous les cultivateurs du Feu Éthéré devraient mourir!! Maudit soit!! Ce Feu Éthéré est impossible à esquiver, et tant qu'il subsistera la moindre émotion, il continuera de brûler. Prolonger ce combat est préjudiciable pour moi! »
 
-Maître Simo agita sa main droite et un rouleau de soie blanche apparut dans sa paume. Une tache de sang en forme de fleur de prunier y était apposée, une marque d'une intensité terrifiante.
+Maître Si Mo agita sa main droite et un rouleau de soie blanche apparut dans sa paume. Une tache de sang en forme de fleur de prunier y était apposée, une marque d'une intensité terrifiante.
 
 Il lança le rouleau qui se mit à flotter. La tache de sang en forme de fleur de prunier se mua en une brume rouge devant lui.
 
@@ -30,17 +30,17 @@ Tout cela se produisit en un instant. Wang Lin fit un pas en avant. Il agita sa 
 
 En un éclair, un fourneau gigantesque apparut devant Wang Lin. Ce fourneau était d'une taille prodigieuse et une aura antique s'en dégageait.
 
-Plus stupéfiant encore: dès son apparition, le fourneau encercla Maître Simo ainsi que la femme issue de la brume rouge.
+Plus stupéfiant encore: dès son apparition, le fourneau encercla Maître Si Mo ainsi que la femme issue de la brume rouge.
 
 Trésor de Dieu Ancien Royal, le Fourneau de l'Empereur!
 
-L'expression de Maître Simo changea et il leva les yeux. Il fit un pas, s'apprêtant à emmener la femme de la brume pour échapper au Fourneau de l'Empereur. Mais à cet instant précis, les yeux de Wang Lin virèrent au rouge et il pointa Maître Simo du doigt.
+L'expression de Maître Si Mo changea et il leva les yeux. Il fit un pas, s'apprêtant à emmener la femme de la brume pour échapper au Fourneau de l'Empereur. Mais à cet instant précis, les yeux de Wang Lin virèrent au rouge et il pointa Maître Si Mo du doigt.
 
 Il rugit: « Arrête! Arrête! Arrête! »
 
 Ces trois ordres retentirent comme trois coups de tonnerre, et Wang Lin cracha trois bouffées de sang. Il paraissait épuisé, mais la folie dans ses yeux ne fit que croître!
 
-En dépassant ses limites, il avait réussi à immobiliser le corps de Maître Simo un court instant.
+En dépassant ses limites, il avait réussi à immobiliser le corps de Maître Si Mo un court instant.
 
 Cette pause offrit une opportunité inespérée à Wang Lin!
 
@@ -60,11 +60,11 @@ Les cultivateurs environnants avaient été projetés en arrière, mais aucun ne
 
 Un tumulte empreint d'un choc sans précédent s'éleva.
 
-Au-delà d'eux, même le vieux Suzaku écarquilla les yeux. Il n'avait pas pour intention que Wang Lin l'emporte contre Maître Simo. Tant qu'ils atteignaient une égalité grâce à son aide secrète, cela aurait suffi pour que Wang Lin démontre sa puissance!
+Au-delà d'eux, même le vieux Suzaku écarquilla les yeux. Il n'avait pas pour intention que Wang Lin l'emporte contre Maître Si Mo. Tant qu'ils atteignaient une égalité grâce à son aide secrète, cela aurait suffi pour que Wang Lin démontre sa puissance!
 
-Être capable de tenir tête à un cultivateur du troisième niveau tout en étant au deuxième niveau suffisait à ébranler tout le Système Stellaire Antique. Même si cela impliquait son soutien occulte et qu'il dissuadait Maître Simo d'utiliser ses techniques mortelles, la réalité demeurait immuable!
+Être capable de tenir tête à un cultivateur du troisième niveau tout en étant au deuxième niveau suffisait à ébranler tout le Système Stellaire Antique. Même si cela impliquait son soutien occulte et qu'il dissuadait Maître Si Mo d'utiliser ses techniques mortelles, la réalité demeurait immuable!
 
-Cependant, Wang Lin s'apprêtait à affiner Maître Simo. Cette perspective fit suffoquer le vieux Suzaku.
+Cependant, Wang Lin s'apprêtait à affiner Maître Si Mo. Cette perspective fit suffoquer le vieux Suzaku.
 
 « Bien! Il est véritablement digne d'être un Junior de mon clan. Peu importe son succès ou son échec; avoir le courage d'entreprendre cela fait de lui un individu illustre! » Les yeux du vieux Suzaku se remplirent de soulagement.
 
@@ -74,35 +74,35 @@ Le Fourneau de l'Empereur étant un trésor de Dieu Ancien Royal, sa puissance �
 
 Les étoiles de Dieu Ancien entre les sourcils de Wang Lin tournèrent frénétiquement, injectant d'immenses quantités de pouvoir divin dans le Fourneau de l'Empereur!
 
-Maître Simo se trouvait à l'intérieur du fourneau. Il contempla son environnement plongé dans le chaos. Son expression était extrêmement sombre. Il avait été figé un instant, puis piégé par la ruse de Wang Lin.
+Maître Si Mo se trouvait à l'intérieur du fourneau. Il contempla son environnement plongé dans le chaos. Son expression était extrêmement sombre. Il avait été figé un instant, puis piégé par la ruse de Wang Lin.
 
-« Un simple fourneau ose me capturer? » Maître Simo forma un sceau et agita la main. Une lumière pourpre l'enveloppa, créant deux bras géants qui percutèrent violemment les parois du fourneau.
+« Un simple fourneau ose me capturer? » Maître Si Mo forma un sceau et agita la main. Une lumière pourpre l'enveloppa, créant deux bras géants qui percutèrent violemment les parois du fourneau.
 
 L'impact des deux bras colossaux provoqua un grondement tonitruant qui fit trembler l'intégralité de l'engin!
 
 Le corps de Wang Lin fut secoué par les vibrations et son regard se glaça. Il cracha du sang sur le fourneau, ferma les yeux, puis activa frénétiquement le pouvoir divin ancien en lui pour poursuivre l'affinage!
 
-« Quel genre de trésor est-ce là?! » Maître Simo multipliait les sorts à l'intérieur du Fourneau de l'Empereur, mais la robustesse de ce dernier le plongeait dans une profonde frustration!
+« Quel genre de trésor est-ce là?! » Maître Si Mo multipliait les sorts à l'intérieur du Fourneau de l'Empereur, mais la robustesse de ce dernier le plongeait dans une profonde frustration!
 
 Tandis qu'il bombardait l'enceinte de l'intérieur, une température toujours plus ardente commença à s'y condenser. À cette chaleur s'ajoutèrent des gémissements plaintifs émanant de toutes parts.
 
-Les yeux de Maître Simo s'illuminèrent et il tourna soudain la tête. Ce qu'il vit fit basculer son expression!
+Les yeux de Maître Si Mo s'illuminèrent et il tourna soudain la tête. Ce qu'il vit fit basculer son expression!
 
-Une multitude d'âmes illusoires apparurent autour de lui. Ces âmes étaient gigantesques; il s'agissait de démons anciens et de monstres anciens! Leur nombre était immense, et leurs cris lugubres lacérèrent l'esprit de Maître Simo, faisant se contracter ses pupilles.
+Une multitude d'âmes illusoires apparurent autour de lui. Ces âmes étaient gigantesques; il s'agissait de démons anciens et de monstres anciens! Leur nombre était immense, et leurs cris lugubres lacérèrent l'esprit de Maître Si Mo, faisant se contracter ses pupilles.
 
-Ces âmes illusoires encerclèrent Maître Simo, et leurs lamentations devinrent plus intenses encore!
+Ces âmes illusoires encerclèrent Maître Si Mo, et leurs lamentations devinrent plus intenses encore!
 
 Toutes ces âmes étaient des vies ayant été raffinées jusqu'à la mort à l'intérieur de ce fourneau!
 
 L'âme du démon ancien qui combattait la femme de la brume rouge bougea et fusionna avec les autres âmes, devenant indiscernable du reste.
 
-La brume rouge se rétracta, laissant la femme au voile blanc se tenir silencieusement aux côtés de Maître Simo. Son apparence restait invisible, mais la touche de tendresse qu'elle dégageait était manifeste.
+La brume rouge se rétracta, laissant la femme au voile blanc se tenir silencieusement aux côtés de Maître Si Mo. Son apparence restait invisible, mais la touche de tendresse qu'elle dégageait était manifeste.
 
-Maître Simo retira son regard et fixa froidement le haut du fourneau. Il lança d'une voix glaciale: « Ce petit bâtard possède bien des trésors, mais s'il pense pouvoir me piéger, il fait preuve d'une arrogance sans nom! » Il laissa échapper un ricanement glacial et agita sa main droite en rugissant: « Clous Divins du Vide aux Sept Couleurs! »
+Maître Si Mo retira son regard et fixa froidement le haut du fourneau. Il lança d'une voix glaciale: « Ce petit bâtard possède bien des trésors, mais s'il pense pouvoir me piéger, il fait preuve d'une arrogance sans nom! » Il laissa échapper un ricanement glacial et agita sa main droite en rugissant: « Clous Divins du Vide aux Sept Couleurs! »
 
 À l'instant où il parla, vingt-neuf rayons de lumière septicolore apparurent devant lui. La clarté chromatique emplit le fourneau. Les âmes environnantes reculèrent, comme terrifiées par ces vingt-neuf clous!
 
-« Clous aux sept couleurs, brisez ce fourneau pour moi! » Maître Simo agita ses manches. Les vingt-neuf clous rugirent en chargeant contre les parois!
+« Clous aux sept couleurs, brisez ce fourneau pour moi! » Maître Si Mo agita ses manches. Les vingt-neuf clous rugirent en chargeant contre les parois!
 
 Boum, boum, boum, boum!
 
@@ -120,7 +120,7 @@ Tenant la bouteille, Wang Lin mordit le bout de sa langue et cracha son sang de 
 
 Une énergie démoniaque jaillit de la bouteille. Des ombres de démons anciens s'en échappèrent et, après avoir absorbé le sang de Wang Lin, elles se précipitèrent dans le Fourneau de l'Empereur!
 
-À l'intérieur du fourneau, les yeux de Maître Simo étaient injectés de folie. Sa main droite plongea dans le vide et un objet apparut dans sa poigne: un os de bête. Cet os n'était pas grand, un peu moins de trois pieds, d'apparence banale, mais il portait une empreinte de paume distincte!
+À l'intérieur du fourneau, les yeux de Maître Si Mo étaient injectés de folie. Sa main droite plongea dans le vide et un objet apparut dans sa poigne: un os de bête. Cet os n'était pas grand, un peu moins de trois pieds, d'apparence banale, mais il portait une empreinte de paume distincte!
 
 Cette marque était profondément gravée dans l'os; on pouvait même y distinguer les détails de la main!
 
@@ -132,7 +132,7 @@ Contemplant l'os dans sa main, un regard complexe traversa ses yeux. Sa main dro
 
 « Sima... Accompagne-moi à la maison... D'accord... »
 
-La main droite de Maître Simo trembla et une lutte intérieure se lut dans ses yeux. La petite flamme entre ses sourcils vacilla violemment.
+La main droite de Maître Si Mo trembla et une lutte intérieure se lut dans ses yeux. La petite flamme entre ses sourcils vacilla violemment.
 
 « Nous pouvons lui rendre notre culture... Rentrons à la maison... D'accord... »
 

@@ -24,23 +24,23 @@ Après un long moment, une pointe de panique apparut dans les yeux du vieil homm
 
 Wang Lin s'assit sur la boussole stellaire et vola durant une très longue période. Bien que le sentiment de danger derrière lui eût disparu, il demeura extrêmement prudent et continua de voler pendant plusieurs jours avant de finalement s'arrêter.
 
-En observant le vide qui l'entourait, son regard était calme; aucune trace de panique n'y transparaissait. Il pointa son front, et la perle défiant le ciel s'en échappa.
+En observant le vide qui l'entourait, son regard était calme; aucune trace de panique n'y transparaissait. Il pointa son front, et la Perle Défiant le Ciel s'en échappa.
 
 Puis Wang Lin activa son énergie spirituelle et les lignes noires réapparurent sur son corps. Cependant, elles étaient moins nombreuses cette fois et ne s'étendaient que jusqu'à son cou.
 
-Au cours de ces huit mois de vol, Wang Lin avait utilisé la perle défiant le ciel à plusieurs reprises pour absorber la plante tatouée. Il en avait déjà absorbé la majeure partie à ce stade.
+Au cours de ces huit mois de vol, Wang Lin avait utilisé la Perle Défiant le Ciel à plusieurs reprises pour absorber la plante tatouée. Il en avait déjà absorbé la majeure partie à ce stade.
 
 Wang Lin laissa échapper un cri bref et afficha une expression de douleur. Les lignes noires qui s'étendaient jusqu'à son cou reculèrent lentement. Bientôt, elles se rassemblèrent toutes sur son front.
 
-La plante mystérieuse réapparut. La perle défiant le ciel brilla d'une lueur verte et commença à l'absorber.
+La plante mystérieuse réapparut. La Perle Défiant le Ciel brilla d'une lueur verte et commença à l'absorber.
 
 Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Enfin, toutes les plantes tatouées ont été expulsées. Ce sort du Clan Xian Yi est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
 
-Il saisit la perle défiant le ciel pour l'examiner. Neuf feuilles s'étaient déployées, et la dernière s'était partiellement ouverte.
+Il saisit la Perle Défiant le Ciel pour l'examiner. Neuf feuilles s'étaient déployées, et la dernière s'était partiellement ouverte.
 
 Une trace de satisfaction apparut dans les yeux de Wang Lin. La perle toucha alors son front et disparut.
 
-« La récolte est plutôt bonne cette fois. L'élément bois de la perle défiant le ciel est presque complet. Le plus important à présent est de trouver un moyen de quitter cet endroit. »
+« La récolte est plutôt bonne cette fois. L'élément bois de la Perle Défiant le Ciel est presque complet. Le plus important à présent est de trouver un moyen de quitter cet endroit. »
 
 Wang Lin réfléchit un instant. Il avait déjà une idée en mains lorsqu'il décida de couper la voie de fuite du vieil homme; c'est pourquoi il avait pu détruire sans hésitation le tatouage qui maintenait l'ouverture de la faille.
 

@@ -90,27 +90,27 @@ En hiver, Sima Mo descendit de la montagne une nouvelle fois. Utilisant un sort 
 
 Quelle haine pouvait pousser un homme à traquer un coupable jusque dans ses vies futures, par-delà le cycle de la réincarnation?
 
-Le temps passa... Wang Lin vit tout cela à travers les souvenirs de Maître Simo. Il resta silencieux, plongé en pleine réflexion.
+Le temps passa... Wang Lin vit tout cela à travers les souvenirs de Maître Si Mo. Il resta silencieux, plongé en pleine réflexion.
 
-Il vit également ce qui se passerait des dizaines de milliers d'années plus tard, quand Maître Simo verrait ses compagnons de secte périr dans le Royaume aux Sept Couleurs. Son corps serait frappé par le clou aux sept couleurs et il serait emmené par le Souverain... « Moi, Sima Mo, bien que banni de la Secte Po Tian, je reste un membre du Royaume Intérieur. Comment pourrais-je devenir le chien du Royaume Extérieur? Comment pourrais-je tout abandonner simplement pour survivre et céder à la tentation d'atteindre la troisième étape? »
+Il vit également ce qui se passerait des dizaines de milliers d'années plus tard, quand Maître Si Mo verrait ses compagnons de secte périr dans le Royaume aux Sept Couleurs. Son corps serait frappé par le clou aux sept couleurs et il serait emmené par le Souverain... « Moi, Sima Mo, bien que banni de la Secte Po Tian, je reste un membre du Royaume Intérieur. Comment pourrais-je devenir le chien du Royaume Extérieur? Comment pourrais-je tout abandonner simplement pour survivre et céder à la tentation d'atteindre la troisième étape? »
 
 « Si je dois mourir, alors que je meure! »
 
 Une voix antique émana du monde et pénétra l'esprit de Sima Mo. « Non seulement ce vieil homme peut t'empêcher de mourir... mais je peux aussi donner une forme à ta sœur... Je ne peux pas la ramener à la vie, mais je peux lui permettre de rester à tes côtés pour l'éternité... Si ta culture réussit, peut-être rencontreras-tu quelqu'un capable de la ressusciter... Si tu meurs maintenant, tout sera perdu... »
 
-L'esprit de Sima Mo trembla... « Viens avec ce vieil homme... Désormais, tu n'es plus le Sima Mo du Royaume Intérieur, mais le subordonné de ce vieil homme, celui du Souverain. Je te donne le nom de "Maître Simo"! »
+L'esprit de Sima Mo trembla... « Viens avec ce vieil homme... Désormais, tu n'es plus le Sima Mo du Royaume Intérieur, mais le subordonné de ce vieil homme, celui du Souverain. Je te donne le nom de "Maître Si Mo"! »
 
-À l'intérieur du Fourneau de l'Empereur, les yeux de Maître Simo se brouillèrent de larmes... Le feu de la taille d'un ongle situé entre ses sourcils se propagea progressivement pour occuper le sommet de son crâne.
+À l'intérieur du Fourneau de l'Empereur, les yeux de Maître Si Mo se brouillèrent de larmes... Le feu de la taille d'un ongle situé entre ses sourcils se propagea progressivement pour occuper le sommet de son crâne.
 
 À l'extérieur du Fourneau de l'Empereur, Wang Lin était assis au sommet de l'engin. Il ouvrit les yeux sous le regard de dizaines de milliers de cultivateurs. Son regard était empreint de confusion... Après un long moment, Wang Lin poussa un soupir et se leva. D'un geste de la main, il fit trembler le Fourneau de l'Empereur avant qu'il ne se dissipe.
 
-La silhouette de Maître Simo apparut.
+La silhouette de Maître Si Mo apparut.
 
-Grâce au Dao du Rêve, Wang Lin n'avait pas délibérément laissé quoi que ce soit dans les souvenirs de Maître Simo, mais il y avait glissé quelques pensées... Il avait renoncé à l'affiner.
+Grâce au Dao du Rêve, Wang Lin n'avait pas délibérément laissé quoi que ce soit dans les souvenirs de Maître Si Mo, mais il y avait glissé quelques pensées... Il avait renoncé à l'affiner.
 
-Ce raffinage aurait sans doute échoué, car Maître Simo possédait encore de nombreux trésors. Poursuivre cette bataille n'aurait eu aucun sens.
+Ce raffinage aurait sans doute échoué, car Maître Si Mo possédait encore de nombreux trésors. Poursuivre cette bataille n'aurait eu aucun sens.
 
-Maître Simo resta suspendu dans les airs, songeur. D'un mouvement de la main droite, il fit disparaître la femme dans sa manche.
+Maître Si Mo resta suspendu dans les airs, songeur. D'un mouvement de la main droite, il fit disparaître la femme dans sa manche.
 
 Grâce à son niveau de culture, il comprit vaguement ce qui venait de se passer. Il regarda Wang Lin avec un regard d'une extrême complexité.
 

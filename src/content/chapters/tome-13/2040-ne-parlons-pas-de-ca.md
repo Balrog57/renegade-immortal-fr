@@ -30,7 +30,7 @@ Wu Feng fut le premier du Clan Céleste à remarquer ce phénomène; il se tenai
 
 Au même moment, profondément sous le palais de la Cité Ancestrale Céleste, existait un espace superposé. À l'intérieur de cet espace se trouvait une montagne, métamorphose du fou, qui demeurait immobile.
 
-Outre les puissants membres du Clan Céleste, les gens du Clan Ancien portaient également une attention soutenue à l'ouverture du Royaume Divin Immémorial. Les Grands Empyréens des clans Anciens Ji et Shi observaient tous deux la scène.
+Outre les puissants membres du Clan Céleste, les gens du Clan Ancien portaient également une attention soutenue à l'ouverture du Royaume Divin Immémorial. Les Grands Empyréens des clans Ji Gu et Shi observaient tous deux la scène.
 
 Quant à Xuan Luo, il avait déjà pressenti une anomalie en observant la montagne désertée où Wang Lin s'était rendu, ainsi que les perturbations célestes. Même l'Empereur Saint, qui était retournée sous le palais, en sortit de nouveau. Elle se tint aux côtés de Xuan Luo et contempla le ciel avec stupeur.
 
@@ -96,7 +96,7 @@ La porte était close et n'était pas encore ouverte!
 
 « Hélas, ton massacre est insuffisant... Autrement, la porte pourrait s'ouvrir immédiatement, mais il faudra désormais 500 ans pour que la puissance nécessaire s'accumule afin de l'ouvrir... »
 
-« Ainsi, Wang Lin, rencontrons-nous dans 500 ans au sein du Royaume Divin Immémorial! Lors de nos retrouvailles, tu connaîtras la vérité! » Dans la montagne désertée à l'extérieur de la cité impériale du Dao Ancien, l'Ancien Maître Impérial du Dao disparut lentement de la formation scintillante.
+« Ainsi, Wang Lin, rencontrons-nous dans 500 ans au sein du Royaume Divin Immémorial! Lors de nos retrouvailles, tu connaîtras la vérité! » Dans la montagne désertée à l'extérieur de la cité impériale du Dao Gu, l'Ancien Maître Impérial du Dao disparut lentement de la formation scintillante.
 
 Wang Lin fixa la silhouette qui s'effaçait et dit soudainement: « C'est vous qui avez détruit la Secte Dong Lin. »
 
@@ -104,6 +104,6 @@ Mais il n'obtint aucune réponse. Un rire résonna tandis que la formation se di
 
 Wang Lin resta silencieux, pensif un long moment, puis se retourna. Il s'élança vers le ciel tel un rayon de lumière et disparut.
 
-Wang Lin n'avait plus aucune raison de rester au Dao Ancien. Tout appartenait désormais au passé. Pourtant, il restait ici une personne qu'il considérait toujours comme son maître, bien qu'il ait déjà rendu cette faveur en mourant une fois...
+Wang Lin n'avait plus aucune raison de rester au Dao Gu. Tout appartenait désormais au passé. Pourtant, il restait ici une personne qu'il considérait toujours comme son maître, bien qu'il ait déjà rendu cette faveur en mourant une fois...
 
 Un maître qu'il ne pouvait reconnaître publiquement, mais qui demeurerait à jamais son maître dans son cœur.

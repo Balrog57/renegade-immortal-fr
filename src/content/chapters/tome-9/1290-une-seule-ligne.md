@@ -6,15 +6,15 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1290 - One Line!"
 slug: une-seule-ligne
 ---
-Le vieil homme en noir afficha un sourire sardonique alors qu'il s'avançait pour lancer un sort! Les yeux du maître de la Secte Éternelle étaient également empreints d'une intention meurtrière tandis qu'il convergeait vers sa cible!
+Le vieil homme en noir afficha un sourire sardonique alors qu'il s'avançait pour lancer un sort! Les yeux du maître de la Secte Wu Ji étaient également empreints d'une intention meurtrière tandis qu'il convergeait vers sa cible!
 
 Les six cultivateurs du premier Fléau Céleste lancèrent tous leurs attaques simultanément. Il semblait qu’ils étaient déterminés à tuer Wang Lin!
 
-Le vieil homme en noir s'écria immédiatement: « Il prétend que l'Ancien en chef de la Secte Divine, Shui Daozi, a échoué à le tuer. Quelle absurdité! Cet homme a offensé la Secte Divine et a survécu à une calamité, pour ensuite venir provoquer notre Secte Éternelle. Nous allons le capturer et le livrer à la Secte Divine afin de toucher une récompense! »
+Le vieil homme en noir s'écria immédiatement: « Il prétend que l'Ancien en chef de la Secte Shen, Shui Daozi, a échoué à le tuer. Quelle absurdité! Cet homme a offensé la Secte Shen et a survécu à une calamité, pour ensuite venir provoquer notre Secte Wu Ji. Nous allons le capturer et le livrer à la Secte Shen afin de toucher une récompense! »
 
 Les six auras étaient assourdissantes. Il s'agissait d'une attaque combinée de six cultivateurs du premier Fléau Céleste. Seuls ceux atteignant le deuxième Fléau Céleste seraient capables de riposter; tous les autres périraient!
 
-Un éclair de froideur passa dans les yeux de Wang Lin, et les dix millions de rayons d'énergie d'épée hurlèrent autour de lui. Un grondement tonnerre retentit alors que les six Anciens de la Secte Éternelle attaquaient!
+Un éclair de froideur passa dans les yeux de Wang Lin, et les dix millions de rayons d'énergie d'épée hurlèrent autour de lui. Un grondement tonnerre retentit alors que les six Anciens de la Secte Wu Ji attaquaient!
 
 À cet instant, le monde sembla sur le point de s'effondrer et la terre trembla violemment. La montagne sous Wang Lin s'effondra davantage, et une puissance divine ancestrale toujours plus grande se précipita dans son corps.
 
@@ -36,15 +36,15 @@ Les yeux de Wang Lin s'illuminèrent d'une lueur sanglante et une aura terrassan
 
 Un Dieu Ancien à 6 étoiles! Un véritable Dieu Ancien Royal à 6 étoiles!
 
-Cependant, Wang Lin n'était pas joyeux. L'anxiété le rongeait. Li Qianmei ne disposait que de peu de temps, et il ne pouvait perdre un instant de plus avec la Secte Éternelle. Quiconque se mettrait en travers de sa route ne serait pas toléré!
+Cependant, Wang Lin n'était pas joyeux. L'anxiété le rongeait. Li Qianmei ne disposait que de peu de temps, et il ne pouvait perdre un instant de plus avec la Secte Wu Ji. Quiconque se mettrait en travers de sa route ne serait pas toléré!
 
-Les dix millions de rayons d'énergie d'épée résonnèrent alors que les six Anciens de la Secte Éternelle tentaient de percer la défense de Wang Lin. Ils étaient entourés de sorts imprégnés de lois, dont la puissance était stupéfiante!
+Les dix millions de rayons d'énergie d'épée résonnèrent alors que les six Anciens de la Secte Wu Ji tentaient de percer la défense de Wang Lin. Ils étaient entourés de sorts imprégnés de lois, dont la puissance était stupéfiante!
 
 « Vous cherchez tous la mort! » Le pied droit de Wang Lin s'abattit impitoyablement sur la montagne. Sa puissance divine ancestrale se mua en une force inimaginable et pénétra dans la montagne par ses pieds. La puissance se propagea avec une rapidité fulgurante, provoquant l'effondrement total du massif!
 
-La montagne et la porte de la Secte Éternelle s'écroulèrent. Une quantité massive de poussière fut soulevée et l'onde de choc engendra une tempête!
+La montagne et la porte de la Secte Wu Ji s'écroulèrent. Une quantité massive de poussière fut soulevée et l'onde de choc engendra une tempête!
 
-À l'origine, Wang Lin ne souhaitait pas en arriver là, car il ne voulait pas détruire la porte de la Secte Éternelle. C’est pourquoi il se contentait d’absorber doucement l’aura divine ancestrale, espérant récupérer le trésor tout en épargnant l'essentiel de la structure.
+À l'origine, Wang Lin ne souhaitait pas en arriver là, car il ne voulait pas détruire la porte de la Secte Wu Ji. C’est pourquoi il se contentait d’absorber doucement l’aura divine ancestrale, espérant récupérer le trésor tout en épargnant l'essentiel de la structure.
 
 Pourtant, il devait désormais détruire la montagne pour obtenir ce qui reposait en dessous!
 
@@ -62,13 +62,13 @@ Un chant d'épée s'éleva, contenant une pointe d'excitation et de joie, comme 
 
 C’était comme si cette épée de sang lui avait toujours appartenu, qu'elle était son essence même!
 
-Alors qu'il maniait l'épée de sang, les dix millions de rayons d'énergie d'épée environnants s'affaiblissaient, tandis que les six membres de la Secte Éternelle fonçaient à travers eux. Au moment où ils chargèrent, la puissance divine ancestrale de Wang Lin jaillit dans l'épée et il fendit l'espace autour de lui!
+Alors qu'il maniait l'épée de sang, les dix millions de rayons d'énergie d'épée environnants s'affaiblissaient, tandis que les six membres de la Secte Wu Ji fonçaient à travers eux. Au moment où ils chargèrent, la puissance divine ancestrale de Wang Lin jaillit dans l'épée et il fendit l'espace autour de lui!
 
 Un grondement tonnerre secoua le monde!
 
 Il était impossible de décrire ce coup. Cette entaille pouvait briser les cieux et la terre; elle pouvait percer la voûte céleste et ébranler toute forme de vie! Au moment où il frappa, le vieil homme en noir, le plus proche de Wang Lin, fut saisi d'horreur tandis que son corps s'effondrait en une masse sanglante. Son âme originelle lutta désespérément pour battre en retraite, le visage déformé par la terreur.
 
-Un autre Ancien de la Secte Éternelle à ses côtés vit également son corps voler en éclats!
+Un autre Ancien de la Secte Wu Ji à ses côtés vit également son corps voler en éclats!
 
 Les quatre autres crachèrent du sang et reculèrent précipitamment. Leurs corps furent transpercés par la lumière rouge et commencèrent à dégager une fumée écarlate. Puis, leurs chairs se flétrirent rapidement jusqu'à ne devenir que de simples sacs d'os!
 
@@ -82,8 +82,8 @@ Une seule entaille! Sur les six cultivateurs du premier Fléau Céleste, deux av
 
 Cette épée choqua tout le monde et provoqua un séisme dans leurs cœurs!
 
-Le corps de Wang Lin vacilla, puis il emporta directement la vieille femme abasourdie vers les cieux. Les six membres de la Secte Éternelle n'osèrent même pas tenter de l'arrêter!
+Le corps de Wang Lin vacilla, puis il emporta directement la vieille femme abasourdie vers les cieux. Les six membres de la Secte Wu Ji n'osèrent même pas tenter de l'arrêter!
 
-« Je reviendrai. Si la Secte Gui Yuan subit le moindre dommage, je rayerai votre Secte Éternelle de la Mer Yun! Vous tous les six, vous périrez! » Dans les airs, Wang Lin se retourna et lança un regard glacial aux six individus. Il avait tenté d'être poli et sincère; il avait même prêté serment, mais tout cela était vain! Dans le monde de la culture, seule la force est respectée!
+« Je reviendrai. Si la Secte Gui Yuan subit le moindre dommage, je rayerai votre Secte Wu Ji de la Mer Yun! Vous tous les six, vous périrez! » Dans les airs, Wang Lin se retourna et lança un regard glacial aux six individus. Il avait tenté d'être poli et sincère; il avait même prêté serment, mais tout cela était vain! Dans le monde de la culture, seule la force est respectée!
 
 Une épée et une phrase valaient dix mille fois plus qu'un serment de sang!

@@ -96,9 +96,9 @@ Tous les regards des cultivateurs environnants convergèrent vers Wang Lin. Il a
 
 Même certains vieux monstres de grande renommée commencèrent à prêter attention.
 
-« La puissance de l'esprit de foudre de ce lac n'est pas supportable pour un homme ordinaire. Même ce Xu Mu ne pourra tenir au maximum que 20 respirations. Après tout, même parmi les messagers du Temple Céleste du Tonnerre qui pratiquent la culture du tonnerre, peu peuvent tenir plus de 20 respirations! »
+« La puissance de l'esprit de foudre de ce lac n'est pas supportable pour un homme ordinaire. Même ce Xu Mu ne pourra tenir au maximum que 20 respirations. Après tout, même parmi les messagers du Temple Lei Xian qui pratiquent la culture du tonnerre, peu peuvent tenir plus de 20 respirations! »
 
-« Pour autant que je sache, ce lac est l'une des épreuves pour devenir messager du Temple Céleste du Tonnerre. Les messagers sont divisés en quatre rangs: si vous tenez 20 respirations, vous êtes de rang 4; 80 respirations vous placent au rang 1. Si vous dépassez les 100 respirations, vous pouvez devenir un messager du temple intérieur! J'ignore combien de temps ce Xu Mu pourra tenir, mais j'ai hâte de le voir! »
+« Pour autant que je sache, ce lac est l'une des épreuves pour devenir messager du Temple Lei Xian. Les messagers sont divisés en quatre rangs: si vous tenez 20 respirations, vous êtes de rang 4; 80 respirations vous placent au rang 1. Si vous dépassez les 100 respirations, vous pouvez devenir un messager du temple intérieur! J'ignore combien de temps ce Xu Mu pourra tenir, mais j'ai hâte de le voir! »
 
 « Ce lac teste la véritable culture, il n'y aura probablement aucun miracle pour lui! Je suis plus optimiste envers Xu Ting de la planète Dong Lin! »
 

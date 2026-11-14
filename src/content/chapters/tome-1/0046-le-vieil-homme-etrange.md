@@ -42,7 +42,7 @@ Wang Lin fut stupéfait. Puis, comme une réaction en chaîne, les autres objets
 
 Sous le choc, Wang Lin observa attentivement la zone pendant un long moment, mais ne trouva rien d'inhabituel.
 
-Une voix séculaire surgit soudainement: « Inutile d'observer davantage. Avec ton stade de Mouvement Spirituel à la fausse perfection, tenter de percer les secrets de cette perle défiant le ciel n'est qu'une chimère! »
+Une voix séculaire surgit soudainement: « Inutile d'observer davantage. Avec ton stade de Mouvement Spirituel à la fausse perfection, tenter de percer les secrets de cette Perle Défiant le Ciel n'est qu'une chimère! »
 
 Wang Lin sursauta et ses pupilles se rétractèrent. Il était dans l'espace de rêve depuis des dizaines d'années, et c'était la première fois qu'il entendait une autre voix.
 

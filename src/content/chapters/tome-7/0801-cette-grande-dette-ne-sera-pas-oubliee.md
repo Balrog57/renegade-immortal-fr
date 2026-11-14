@@ -18,7 +18,7 @@ Ce cri avait été poussé par Wang Lin. Juste après, il fit soudainement un pa
 
 Wang Lin n'était pas le seul à bouger. Tous les cultivateurs qui se précipitaient dans la zone firent de même. Bien que ces pas s'exécutassent dans le vide, ils produisirent un grondement terrifiant.
 
-C'était comme s'ils s'apprêtaient à briser le monde de leurs pas. Wang Lin ne s'arrêta pas; il continua, pas après pas. Chaque foulée faisait trembler l'univers alors qu'il avançait vers les six messagers du Temple Céleste du Tonnerre.
+C'était comme s'ils s'apprêtaient à briser le monde de leurs pas. Wang Lin ne s'arrêta pas; il continua, pas après pas. Chaque foulée faisait trembler l'univers alors qu'il avançait vers les six messagers du Temple Lei Xian.
 
 Cet élan était trop puissant; pour quiconque n'était pas sur place, il aurait été impossible d'en ressentir le choc. Plus de cent cultivateurs rugissaient en chargeant sur ce chemin vers la survie, les yeux injectés de sang, vers le réseau de transfert.
 
@@ -102,7 +102,7 @@ Alors que le faisceau de lumière s'éteignait, les ondulations de la formation 
 
 Tous les cultivateurs environnants se précipitèrent comme s'ils ne pourraient jamais repartir s'ils tardaient d'un seul instant.
 
-Shengong Hu était la seule personne qui n'avait pas attaqué durant tout ce temps. Il devait une dette au Temple Céleste du Tonnerre, bien qu'il fût isolé après avoir offert son âme dao.
+Shengong Hu était la seule personne qui n'avait pas attaqué durant tout ce temps. Il devait une dette au Temple Lei Xian, bien qu'il fût isolé après avoir offert son âme dao.
 
 Quoi qu'il en soit, il ne pouvait pas agir et, pour éviter les ennuis, il avait utilisé un sort de changement d'apparence lorsqu'il se trouvait à moins de cinq kilomètres du réseau de transfert. À cet instant, il chargea dans le faisceau de lumière.
 
@@ -110,7 +110,7 @@ Alors que davantage de cultivateurs s'engouffraient dans la lumière, celle-ci d
 
 L'effondrement des bords de la formation se propageait rapidement et, en un clin d'œil, avait presque atteint le cœur lumineux. Au prix de la destruction de la structure, ce transfert était sur le point de dépasser ses limites.
 
-Wang Lin entra dans le faisceau d'un pas décidé. Dans son cœur, il pensa: « Il est temps de partir... L'effondrement de la formation est une bonne chose. Même si elle ne s'était pas effondrée, je comptais la détruire au moment du transfert. De cette façon, un incident se serait forcément produit à l'arrivée, et j'aurais pu éviter d'apparaître au Temple Céleste du Tonnerre! »
+Wang Lin entra dans le faisceau d'un pas décidé. Dans son cœur, il pensa: « Il est temps de partir... L'effondrement de la formation est une bonne chose. Même si elle ne s'était pas effondrée, je comptais la détruire au moment du transfert. De cette façon, un incident se serait forcément produit à l'arrivée, et j'aurais pu éviter d'apparaître au Temple Lei Xian! »
 
 Lorsque le faisceau de lumière s'élança vers le ciel, une force puissante apparut. Alors que la lumière était sur le point de se dissiper, le cultivateur Yang Corporel qui s'était transformé en rayon argenté cria: « Senior, dites-nous votre nom! Cette grande dette ne sera jamais oubliée! »
 

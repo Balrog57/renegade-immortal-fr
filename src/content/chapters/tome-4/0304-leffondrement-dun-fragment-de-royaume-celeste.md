@@ -18,7 +18,7 @@ Les yeux de Wang Lin s'illuminèrent. Il était resté sur ses gardes face à Su
 
 Avancer fait partie du temps, reculer fait aussi partie du temps. C'est là toute la puissance d'un domaine temporel: la manipulation du temps selon sa propre volonté.
 
-Wang Lin avait cultivé longtemps dans la perle défiant le ciel et maîtrisait parfaitement l'art de manipuler le temps. C'était l'une des raisons pour lesquelles il avait pu reproduire ce domaine temporel dans la sculpture.
+Wang Lin avait cultivé longtemps dans la Perle Défiant le Ciel et maîtrisait parfaitement l'art de manipuler le temps. C'était l'une des raisons pour lesquelles il avait pu reproduire ce domaine temporel dans la sculpture.
 
 Une lumière mystérieuse émana de la gravure et se répandit dans la glace noire. Bien que la glace noire fût puissante, Wang Lin ne l'affrontait pas de front; le domaine temporel la rendit seulement un peu moins rigide, ce qui ne fut pas trop difficile.
 

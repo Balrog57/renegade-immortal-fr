@@ -28,7 +28,7 @@ La belle femme réfléchit un instant, puis demanda: « Daoïste Mo, Senior Lie 
 
 « Je sais seulement que cette personne est extrêmement arrogante et qu'aucun des félicitateurs précédents n'a vu son vrai visage. Les Quatre Sectes Divines gardent également son nom secret. » Lie Yunzi prit sa tasse, y jeta un coup d'œil, puis la reposa.
 
-Il était venu à la Secte Divine de Suzaku sur ordre du Temple Céleste du Tonnerre. Au-delà des félicitations, il avait une mission profonde qui exigeait d'entrer en contact direct avec le nouvel Empereur Divin.
+Il était venu à la Secte Divine de Suzaku sur ordre du Temple Lei Xian. Au-delà des félicitations, il avait une mission profonde qui exigeait d'entrer en contact direct avec le nouvel Empereur Divin.
 
 Cette affaire était capitale; sans quoi, il ne se serait pas déplacé personnellement.
 
@@ -88,7 +88,7 @@ Mo Zhi observa l'homme en armure, ses yeux brillant d'une lueur étrange, sans t
 
 Le regard de l'homme en armure balaya l'assemblée. Ses yeux s'arrêtèrent un instant sur Mo Zhi avant de se fixer sur Lie Yunzi.
 
-Lie Yunzi prit une profonde inspiration, se leva et déclara calmement: « Ce vieil homme est Lie Yunzi, de la famille Zhan de Luotian. Je suis venu ici au nom du Temple Céleste du Tonnerre pour vous féliciter de votre accession au trône d'Empereur Divin de Suzaku! »
+Lie Yunzi prit une profonde inspiration, se leva et déclara calmement: « Ce vieil homme est Lie Yunzi, de la famille Zhan de Luotian. Je suis venu ici au nom du Temple Lei Xian pour vous féliciter de votre accession au trône d'Empereur Divin de Suzaku! »
 
 Le regard de l'homme en armure s'attarda le plus sur Lie Yunzi, et un sourire sembla se dessiner sous son casque. Cependant, nul ne pouvait dire si ce sourire était empreint de bienveillance ou de malveillance...
 
@@ -118,7 +118,7 @@ La main droite de Wang Lin s'élança dans le vide pour saisir le petit drapeau.
 
 En entendant ces mots, les yeux de Mo Zhi brillèrent tandis qu'il fixait profondément Wang Lin, mais il garda le silence.
 
-Lie Yunzi, venu au nom du Temple Céleste du Tonnerre de Luotian, avait lui aussi apporté des présents. Bien que précieux, aucun ne retint l'attention de Wang Lin. Une fois les cadeaux reçus, Lie Yunzi prit la parole: « Empereur Divin, outre les missions pour lesquelles le Temple Céleste du Tonnerre m'a envoyé, j'ai également une requête personnelle. »
+Lie Yunzi, venu au nom du Temple Lei Xian de Luotian, avait lui aussi apporté des présents. Bien que précieux, aucun ne retint l'attention de Wang Lin. Une fois les cadeaux reçus, Lie Yunzi prit la parole: « Empereur Divin, outre les missions pour lesquelles le Temple Lei Xian m'a envoyé, j'ai également une requête personnelle. »
 
 Voyant le regard du nouvel Empereur se poser sur lui, Lie Yunzi réfléchit un instant et dit: « Il y a trois ans, la Secte Divine de Suzaku a emmené un homme nommé "Wang Lin". Si votre Secte n'a plus d'usage pour lui, pourriez-vous permettre à ce vieil homme de le récupérer? »
 

@@ -62,7 +62,7 @@ Cependant, lors de cet unique usage, il avait plongé dans le malheur tous les �
 
 Ces trois grandes familles se livraient des combats incessants, utilisant ces méthodes cruelles pour maintenir la vitalité de leurs lignées. Pourtant, seuls quelques vieux monstres savaient qu'en vérité, les Xu, les Lu et les Liu n'étaient que des branches de la famille Xiang!
 
-La famille Xiang était, parmi les familles de cultivateurs de Luotian héritées des temps antiques, la lignée la plus puissante! Elle pouvait rivaliser avec le Temple Céleste du Tonnerre, lequel serait même en position de faiblesse! Bien sûr, cela était entendu sans compter Maître Lu Fu.
+La famille Xiang était, parmi les familles de cultivateurs de Luotian héritées des temps antiques, la lignée la plus puissante! Elle pouvait rivaliser avec le Temple Lei Xian, lequel serait même en position de faiblesse! Bien sûr, cela était entendu sans compter Maître Lu Fu.
 
 La famille Xiang était tel un béhémoth assoupi. Dès son réveil, elle ébranlerait tout le système stellaire de Luotian!
 

@@ -48,7 +48,7 @@ Soudain, cette image tendre se fissura et s'effondra lentement. Elle fit place �
 
 « Même si le Ciel veut ta mort, je te ramènerai!!! »
 
-Dans la capitale impériale de l'Ancien Dao, au sein d'une chambre luxueuse du palais, une femme reposait sur un lit de soie. Elle n'était pas d'une beauté absolue, mais sa grâce était indéniable. Pourtant, elle se débattait, le visage livide. Ses cils tremblaient comme si elle luttait contre un cauchemar pour s'en extirper.
+Dans la capitale impériale du Dao Gu, au sein d'une chambre luxueuse du palais, une femme reposait sur un lit de soie. Elle n'était pas d'une beauté absolue, mais sa grâce était indéniable. Pourtant, elle se débattait, le visage livide. Ses cils tremblaient comme si elle luttait contre un cauchemar pour s'en extirper.
 
 Des larmes perlèrent au coin de ses yeux et coulèrent sur ses joues, mouillant l'oreiller blanc.
 
@@ -74,7 +74,7 @@ Tournant la tête vers la source de la voix, elle vit un homme aux longs cheveux
 
 « Qui... êtes-vous... Qui... suis-je... » La confusion s'accentua dans les yeux de la femme, doublée d'une douleur intense. C'était comme si une force invisible l'empêchait de se retrouver elle-même.
 
-« Je suis l'Empereur de l'Ancien Dao, l'existence suprême de l'Ancien Dao. Je suis ton mari! Tu t'appelles Song Zhi, tu es issue du clan de l'Ancien Shi et tu es mon impératrice! » L'homme sourit en parlant, tandis qu'une aura impériale émanait de son corps.
+« Je suis l'Empereur du Dao Gu, l'existence suprême du Dao Gu. Je suis ton mari! Tu t'appelles Song Zhi, tu es issue du clan du Shi Gu et tu es mon impératrice! » L'homme sourit en parlant, tandis qu'une aura impériale émanait de son corps.
 
 « Mari... » À l'écho de ce mot, une autre silhouette surgit dans son esprit. Cette figure contemplait le ciel en poussant un rugissement de douleur.
 
@@ -96,7 +96,7 @@ Des ondulations se formèrent derrière lui lorsqu'un vieil homme apparut et s'i
 
 L'homme en robe impériale déclara froidement: « Tu peux partir. »
 
-Le vieil homme hocha la tête prestement avant de se dissiper en fumée, laissant l'Empereur de l'Ancien Dao seul avec la femme.
+Le vieil homme hocha la tête prestement avant de se dissiper en fumée, laissant l'Empereur du Dao Gu seul avec la femme.
 
 L'Empereur s'assit aux côtés de la femme et la contempla avec une lueur étrange dans les yeux.
 

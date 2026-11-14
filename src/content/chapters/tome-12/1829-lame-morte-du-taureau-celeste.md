@@ -14,9 +14,9 @@ Ces huit piliers n'étaient pas statiques; ils tournaient autour de Wang Lin tel
 
 Les Anciens de la Secte Da Hun qui observaient la scène devinrent graves. Le sort de Wang Lin était tout simplement trop stupéfiant. Même eux sentirent leur cœur rater un battement en voyant cela.
 
-« C'est un pur sort du Dao Antique, totalement différent de celui de mon clan céleste! »
+« C'est un pur sort du Dao Gu, totalement différent de celui de mon clan céleste! »
 
-« La plupart des sorts du Dao Antique ne déploient pas toute leur puissance d'un coup, mais suivent une série de combinaisons avant que leur plein potentiel n'éclate au dernier moment. L'identité de cet homme est trop sensible. Pourquoi l'Ancêtre l'a-t-il ramené... »
+« La plupart des sorts du Dao Gu ne déploient pas toute leur puissance d'un coup, mais suivent une série de combinaisons avant que leur plein potentiel n'éclate au dernier moment. L'identité de cet homme est trop sensible. Pourquoi l'Ancêtre l'a-t-il ramené... »
 
 « La culture de cette personne semble ordinaire, mais avec un tel sort, même moi je devrais battre en retraite... Si j'avais été le moins prudent, je serais déjà mort! »
 
@@ -48,7 +48,7 @@ Il était impossible de distinguer le visage de cette ombre, et même son corps 
 
 Ce pas fit vibrer le monde entier, et une pression d'intention meurtrière se propagea dans toutes les directions. La tempête de feu autour de Yan Luan fut repoussée, comme incapable de supporter cette pression. Même Wang Lin fut stupéfait, ses yeux brillant d'un éclat vif.
 
-« Les sorts du Dao de la Secte Da Hun sont effectivement prodigieux! Le statut d'Ancien est un immense avantage pour moi! Que ce soit le Dao de la Déduction de l'Âme ou ce Retour du Fantôme de l'Âme, ils sont tous puissants. Je dois les apprendre! » Les yeux de Wang Lin s'illuminèrent et il recula de trois pas sous la pression terrifiante. Une aura du Dao Antique jaillit de son corps et une ombre géante apparut derrière lui. Cette silhouette se solidifia rapidement pour paraître extrêmement réelle: elle portait une armure antique et ressemblait trait pour trait à Wang Lin!
+« Les sorts du Dao de la Secte Da Hun sont effectivement prodigieux! Le statut d'Ancien est un immense avantage pour moi! Que ce soit le Dao de la Déduction de l'Âme ou ce Retour du Fantôme de l'Âme, ils sont tous puissants. Je dois les apprendre! » Les yeux de Wang Lin s'illuminèrent et il recula de trois pas sous la pression terrifiante. Une aura du Dao Gu jaillit de son corps et une ombre géante apparut derrière lui. Cette silhouette se solidifia rapidement pour paraître extrêmement réelle: elle portait une armure antique et ressemblait trait pour trait à Wang Lin!
 
 Tout en reculant, Wang Lin retira sa main droite et tendit son index!
 
@@ -104,9 +104,9 @@ Des grondements tonitruants éclatèrent. Bien que le Taureau d'aura mortelle et
 
 L'ombre de sang se distordit puis finit par disparaître; au même moment, le Tian Niu d'aura mortelle s'effondra et la brume se dissipa. Ce taureau ne contenait qu'une infime partie de la volonté originale et était loin de la puissance du véritable Tian Niu. Néanmoins, il n'en demeurait pas moins redoutable!
 
-« Dieu, Démon, Diable, Ancien Dao Sans Céleste! » murmura Wang Lin en tendant sa main comme une paume. Les trois auras des clans antiques fusionnèrent rapidement en lui. Il forma alors un poing et lança un coup dévastateur.
+« Dieu, Démon, Diable, Dao Gu Sans Céleste! » murmura Wang Lin en tendant sa main comme une paume. Les trois auras des clans antiques fusionnèrent rapidement en lui. Il forma alors un poing et lança un coup dévastateur.
 
-Sous l'effet de ce coup, le géant du Dao Antique en armure derrière Wang Lin laissa échapper un hurlement invisible et frappa de concert avec lui.
+Sous l'effet de ce coup, le géant du Dao Gu en armure derrière Wang Lin laissa échapper un hurlement invisible et frappa de concert avec lui.
 
 Ce coup percuta le vide, provoquant neuf ondulations résonnantes. Partout où les ondes passaient, des craquements retentissaient. Le ciel, les montagnes, l'herbe, les pavillons et tout ce qui se trouvait à portée furent frappés d'un éclat gris et commencèrent à se pétrifier.
 

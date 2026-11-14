@@ -76,7 +76,7 @@ Pendant ce processus, l'Empereur Saint Ye Wei remplaçait temporairement l'emper
 
 Il approchait de sa réincarnation et devait faire face à l'ouverture du Royaume Divin Immémorial. Ce n'était pas le moment idéal pour se réincarner; il devait contenir cette pulsion et attendre que les choses s'apaisent.
 
-Le clan Ancien Shi faisait face à un problème similaire. Le terme des dix mille ans du vieil empereur approchait, et selon l'accord ancestral, à moins que le Grand Empyréen Gu Dao ne l'autorise, il devrait abdiquer en faveur de ses descendants.
+Le clan Shi Gu faisait face à un problème similaire. Le terme des dix mille ans du vieil empereur approchait, et selon l'accord ancestral, à moins que le Grand Empyréen Gu Dao ne l'autorise, il devrait abdiquer en faveur de ses descendants.
 
 Il restait un peu plus d'un siècle avant cette abdication. Il demeurait silencieux, n'ayant aucun droit de choisir, ce qui poussait tous les princes à concentrer leurs espoirs sur le Grand Empyréen Song Tian.
 
@@ -88,7 +88,7 @@ Une jeune femme se tenait à ses côtés, le regardant de temps à autre avec un
 
 « Frère, le Senior Wang Lin est en culture fermée depuis cent ans... La date de l'abdication de Père approche. Selon la coutume, un nouvel empereur doit être choisi cent ans avant l'abdication. »
 
-« En termes de calendrier, tout devrait se décider au cours des prochaines années. Si tu ne sollicites pas l'aide du Senior Wang Lin, je crains qu'il ne soit trop tard... » soupira la jeune femme. C'était elle qui accompagnait Ji Du autrefois, avant d'épouser, il y a quelques dizaines d'années, l'un des génies de l'Ancien Shi — un homme considéré comme le plus puissant de sa génération et désormais un proche confident de Ji Du. Cet homme était assis à côté d'elle et observait toute la scène d'un œil froid.
+« En termes de calendrier, tout devrait se décider au cours des prochaines années. Si tu ne sollicites pas l'aide du Senior Wang Lin, je crains qu'il ne soit trop tard... » soupira la jeune femme. C'était elle qui accompagnait Ji Du autrefois, avant d'épouser, il y a quelques dizaines d'années, l'un des génies du Shi Gu — un homme considéré comme le plus puissant de sa génération et désormais un proche confident de Ji Du. Cet homme était assis à côté d'elle et observait toute la scène d'un œil froid.
 
 « La rumeur prétend que ce Senior est le dixième soleil, mais après avoir quitté le Dao Gu, il s'est immédiatement retiré en culture fermée. Il semble blessé... Peut-il vraiment faire changer d'avis le Seigneur Song? » C'était le mari de la jeune femme, un homme vêtu de pourpre.
 

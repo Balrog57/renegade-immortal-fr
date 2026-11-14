@@ -44,9 +44,9 @@ Le visage de la Grande Maîtresse Yun Luo devint livide. La cassure de l'encens 
 
 « Ce ne peut pas être lui, ce n'est pas possible... Ce ne peut pas être lui! »
 
-La bouche de Maître Simo était sèche après avoir été témoin de l'épreuve de Wang Lin; tout ce qui venait de se passer dépassait son imagination. Une trace de peur profondément enfouie envers Wang Lin naquit en lui.
+La bouche de Maître Si Mo était sèche après avoir été témoin de l'épreuve de Wang Lin; tout ce qui venait de se passer dépassait son imagination. Une trace de peur profondément enfouie envers Wang Lin naquit en lui.
 
-Il était normalement impossible pour un cultivateur du troisième niveau de craindre un cultivateur du deuxième niveau... Pourtant, à cet instant, cela se produisit chez Maître Simo.
+Il était normalement impossible pour un cultivateur du troisième niveau de craindre un cultivateur du deuxième niveau... Pourtant, à cet instant, cela se produisit chez Maître Si Mo.
 
 Miaoyin Daozun fixait l'encens de terre brisé. Ses yeux se plissèrent alors qu'il saisissait une pêche et en mordait dedans avec avidité. Un éclair de cupidité brilla dans son regard.
 

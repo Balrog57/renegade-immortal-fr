@@ -30,7 +30,7 @@ Il y a 50 ans, Wang Lin avait revêtu son armure d'âme et avait attaqué avec 9
 
 Même le Sens Divin du Grand Empyréen Dao Yi avait dû intervenir pour repousser le coup dévastateur de Wang Lin!
 
-Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 dernières années, avait assimilé pleinement la puissance soudainement acquise au Temple Lü Mo Xie et en avait pris le contrôle total. Même sans l'armure d'âme, il pouvait vaincre de nombreux Exaltés Empyréens. Même face à l'ancêtre de la Secte Dao Mo, Wang Lin pourrait l'emporter sans porter son armure!
+Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 dernières années, avait assimilé pleinement la puissance soudainement acquise au Temple Lu Mo Xie et en avait pris le contrôle total. Même sans l'armure d'âme, il pouvait vaincre de nombreux Exaltés Empyréens. Même face à l'ancêtre de la Secte Dao Mo, Wang Lin pourrait l'emporter sans porter son armure!
 
 Il était déjà extrêmement puissant et n'avait plus rien à voir avec l'homme d'il y a 50 ans. Désormais, après avoir revêtu l'armure d'âme et utilisé l'Art Magique Rapide pour fusionner 98 sorts en un seul, sa puissance était bien supérieure à celle de jadis!
 
@@ -54,7 +54,7 @@ Auparavant, c'était une troupe de soldats dispersés; désormais, il y avait un
 
 Après avoir immobilisé l'Exalté Empyréen Hai Zi, Wang Lin savait que cela ne durerait pas longtemps. Il se déplaça avec une vitesse fulgurante vers les abysses.
 
-Le temps s'écoula lentement. Au quatrième souffle, Wang Lin atteignit la partie la plus profonde de la mer. La pression ici était suffisante pour broyer le corps d'un cultivateur ordinaire, mais elle ne posait aucun problème au Corps du Dao Antique de Wang Lin.
+Le temps s'écoula lentement. Au quatrième souffle, Wang Lin atteignit la partie la plus profonde de la mer. La pression ici était suffisante pour broyer le corps d'un cultivateur ordinaire, mais elle ne posait aucun problème au Corps du Dao Gu de Wang Lin.
 
 Soudain, Wang Lin lança un coup de poing vers le fond marin. Ce coup provoqua une tempête dans les eaux, et 98 vortex apparurent devant lui pour charger vers le plancher océanique.
 
@@ -104,7 +104,7 @@ Cependant, le sceau entourant l'arbre brilla intensément alors que le fragment 
 
 Dès que la moitié fut libérée, les yeux de Wang Lin brillèrent d'un éclat plus intense encore. C'était comme si un fragment similaire dans ses propres yeux était sur le point de jaillir.
 
-« Comment l'Arbre Shan Hai peut-il posséder un fragment de l'Épée Xian Ji?! » Au cours des 50 dernières années, Wang Lin avait délibérément recherché les objets que le vieil homme du Temple Lü Mo Xie avait injectés dans son corps. Après tout, pour maîtriser son propre corps, il devait comprendre l'origine de ces substances.
+« Comment l'Arbre Shan Hai peut-il posséder un fragment de l'Épée Xian Ji?! » Au cours des 50 dernières années, Wang Lin avait délibérément recherché les objets que le vieil homme du Temple Lu Mo Xie avait injectés dans son corps. Après tout, pour maîtriser son propre corps, il devait comprendre l'origine de ces substances.
 
 La rumeur disait que l'Épée Xian Ji avait été brisée lors de la bataille contre le Lü Mo Xie par la queue du scorpion. Pourtant, Wang Lin avait entendu pas moins de dix légendes différentes à ce sujet!
 
@@ -118,7 +118,7 @@ Ces pensées traversèrent l'esprit de Wang Lin et il hésita.
 
 Depuis le début, 15 souffles s'étaient écoulés. Wang Lin, le regard déterminé, recula de plusieurs pas et ne fit pas bouger son corps original. Au lieu de cela, son Corps Véritable d'Essence de Tonnerre s'élança vers le fragment. Il chargea et saisit directement l'objet!
 
-« Le Temple Lü Mo Xie possédait également un sceau, mais ce n'était pas un problème majeur. Cependant, celui-ci est différent... Mais la richesse se trouve dans le danger, je ne peux repartir les mains vides! » Le Corps Véritable d'Essence de Tonnerre tendit la main et empoigna le fragment d'épée.
+« Le Temple Lu Mo Xie possédait également un sceau, mais ce n'était pas un problème majeur. Cependant, celui-ci est différent... Mais la richesse se trouve dans le danger, je ne peux repartir les mains vides! » Le Corps Véritable d'Essence de Tonnerre tendit la main et empoigna le fragment d'épée.
 
 Au moment même où sa main droite saisit l'objet, la force de scellement de l'Arbre Shan Hai explosa!
 

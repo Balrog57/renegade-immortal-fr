@@ -90,11 +90,11 @@ Le Luo Hou se manifesta dans sa totalité. Sa tête était une immense masse de 
 
 Xuan Luo sortit de sa méditation en porte close et s'élança aussitôt dans les airs. Il observa la scène, le souffle coupé.
 
-L'Ancien Shi Song Tian fixa les changements dans les 36 pays, stupéfait.
+Le Shi Gu Song Tian fixa les changements dans les 36 pays, stupéfait.
 
 « Ceci... Cela pourrait-il être lié à ce Wang Lin?! Impossible. Une telle scène ne peut décemment pas avoir de lien avec cet homme! »
 
-Dans l'Ancien Ji, le mystérieux Grand Empyréen, en pleine méditation isolée, perçut ce bouleversement d'un air sombre.
+Dans le Ji Gu, le mystérieux Grand Empyréen, en pleine méditation isolée, perçut ce bouleversement d'un air sombre.
 
 Wang Lin vit tout cela, et son regard finit par se poser sur le Mont Gu Dao. Il observa le sommet de la tour et la silhouette enveloppée de brume.
 

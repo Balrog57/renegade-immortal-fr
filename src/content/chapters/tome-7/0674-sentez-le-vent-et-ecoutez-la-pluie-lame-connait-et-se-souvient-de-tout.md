@@ -114,6 +114,6 @@ Assis en position du lotus sur le dragon d'argent, Wang Lin murmura pour lui-mê
 
 Une fois sa décision prise, Wang Lin cessa de songer à Liu Mei pour se concentrer sur la carte mentale qui l'habitait. Il se dirigeait vers la planète Yun Xia.
 
-« La veine de métal à flamme de la planète Yun Xia est crucial pour moi; c'est une opportunité parfaite pour achever la perle défiant le ciel. Je ne permettrai à personne de m'arrêter. Si quelqu'un ose tenter de la voler, je le tuerai! » Les yeux de Wang Lin devinrent glacials alors qu'il traversait les étoiles.
+« La veine de métal à flamme de la planète Yun Xia est crucial pour moi; c'est une opportunité parfaite pour achever la Perle Défiant le Ciel. Je ne permettrai à personne de m'arrêter. Si quelqu'un ose tenter de la voler, je le tuerai! » Les yeux de Wang Lin devinrent glacials alors qu'il traversait les étoiles.
 
 Tout au long du voyage, Wang Lin ne marqua aucun repos. Un mois plus tard, la planète Yun Xia apparut dans son sens divin, très loin à l'horizon.

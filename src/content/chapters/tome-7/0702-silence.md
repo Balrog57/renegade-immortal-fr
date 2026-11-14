@@ -10,7 +10,7 @@ Le cœur de Wang Lin se serra davantage. À côté de Wang Ping, Qing Yi lui pri
 
 Wang Ping réfléchit en silence et hocha la tête.
 
-L'expression de Lei Daozi était sombre alors qu'il fixait Wang Lin: « Ce vieil homme va te montrer ce qu'est un véritable messager du Temple Céleste du Tonnerre! » Il leva la main vers le ciel et hurla: « Bête de Tonnerre Céleste! »
+L'expression de Lei Daozi était sombre alors qu'il fixait Wang Lin: « Ce vieil homme va te montrer ce qu'est un véritable messager du Temple Lei Xian! » Il leva la main vers le ciel et hurla: « Bête de Tonnerre Céleste! »
 
 D’immenses quantités de tonnerre surgirent de toutes les directions, semblant saturer l'intégralité de la voûte céleste. La foudre se condensa frénétiquement en une sphère gigantesque au-dessus de Lei Daozi.
 
@@ -24,7 +24,7 @@ Cette Bête de Tonnerre était d'une splendeur éblouissante, dégageant deux é
 
 Pourtant, au moment où son regard croisa celui de Wang Lin, elle fut saisie d'effroi et laissa paraître une trace de confusion.
 
-Lei Daozi fixa Wang Lin et déclara calmement: « C’est grâce à la Bête de Tonnerre que l’on peut être nommé messager du Temple Céleste du Tonnerre. Le crime de prétendre l'être est l'extermination de toute ta lignée! »
+Lei Daozi fixa Wang Lin et déclara calmement: « C’est grâce à la Bête de Tonnerre que l’on peut être nommé messager du Temple Lei Xian. Le crime de prétendre l'être est l'extermination de toute ta lignée! »
 
 Wang Lin jeta un coup d'œil à la créature et dit lentement: « On ne peut appeler cela une Bête de Tonnerre sans corne de tonnerre! » Il frappa son sac de contenance, et le char de guerre en surgit avant de se transformer en une immense masse de foudre!
 
@@ -60,7 +60,7 @@ Le Temple Céleste possédait certes des Bêtes de Tonnerre à Corne d'Argent, m
 
 Une lueur d'avidité brilla dans ses yeux alors qu'il contemplait la corne. Il fixa ensuite Wang Lin et n'hésita plus. Ses mains tracèrent un sceau avant de se rejoindre brusquement. Lorsqu’il les écarta, une lumière intense jaillit et une épée de foudre argentée prit forme.
 
-Alors que l'électricité parcourait la lame, Lei Daozi forma un nouveau sceau de la main droite et pointa vers l'avant. L'épée longue argentée s'élança vers la marionnette du Gardien Céleste.
+Alors que l'électricité parcourait la lame, Lei Daozi forma un nouveau sceau de la main droite et pointa vers l'avant. L'épée longue argentée s'élança vers la marionnette du Garde Céleste.
 
 « Tant que je tue cet homme, cette Bête de Tonnerre sans maître sera mienne! » Après avoir lancé l'épée volante, Lei Daozi chargea. Ses mains s'ouvrirent et il hurla: « Tribulation Céleste du Tonnerre! »
 
@@ -102,7 +102,7 @@ Boum, boum, boum, boum! Chaque explosion correspondait à une portion de l'âme 
 
 Lorsque la dernière portion de l'âme finit de résonner, le visage de Lei Daozi était livide et il avait déjà reculé de mille pieds. L'effroi dans ses yeux était monstrueux.
 
-C'était la première fois de sa vie qu'il se faisait vaincre par un sort de tonnerre. Il en venait même à se demander si, comparé à son ennemi, ce Xu Mu n'était pas le véritable messager du Temple Céleste du Tonnerre et lui l'imposteur.
+C'était la première fois de sa vie qu'il se faisait vaincre par un sort de tonnerre. Il en venait même à se demander si, comparé à son ennemi, ce Xu Mu n'était pas le véritable messager du Temple Lei Xian et lui l'imposteur.
 
 Ce sentiment de confusion le fit reprendre une profonde inspiration, ses yeux devenant plus sombres encore.
 

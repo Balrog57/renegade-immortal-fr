@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1422 - Seal the Joss Flame Realm!"
 slug: scellez-le-royaume-de-la-flamme-joss
 ---
-L'expression du Maître Simo était sombre. Bien que ses paroles soient empreintes d'une intention meurtrière, il n'oserait pas réellement tuer Wang Lin devant le vieux Suzaku. S'il commettait un tel acte, il ferait face à la mort.
+L'expression du Maître Si Mo était sombre. Bien que ses paroles soient empreintes d'une intention meurtrière, il n'oserait pas réellement tuer Wang Lin devant le vieux Suzaku. S'il commettait un tel acte, il ferait face à la mort.
 
 S'il ne tuait pas Wang Lin, l'ancien Suzaku ne pourrait pas non plus être trop sévère envers lui. Après tout, il avait le Conseil Souverain et le Souverain derrière lui! Il avait utilisé le Culte de la Flamme d'Encens dans l'intention de blesser gravement Wang Lin pour le forcer à battre en retraite.
 
@@ -66,9 +66,9 @@ La tempête pourpre trembla également. La majeure partie de celle-ci s'effondra
 
 C'était comme une main invisible balayant le ciel, annihilant toutes les âmes de la Flamme d'Encens.
 
-Les vêtements du Maître Simo flottaient tandis que ses yeux s'illuminaient. Sous l'impact de l'onde de choc, il recula d'un pas, agita les mains et rugit: « Les âmes de la Flamme d'Encens de ce vieil homme sont infinies! Même si vous détruisez celles-ci, j'en ai d'autres. Disciples du Royaume des Flammes d'Encens, apparaissez à nouveau! »
+Les vêtements du Maître Si Mo flottaient tandis que ses yeux s'illuminaient. Sous l'impact de l'onde de choc, il recula d'un pas, agita les mains et rugit: « Les âmes de la Flamme d'Encens de ce vieil homme sont infinies! Même si vous détruisez celles-ci, j'en ai d'autres. Disciples du Royaume des Flammes d'Encens, apparaissez à nouveau! »
 
-Après son rugissement, une multitude d'âmes s'apprêtaient à jaillir de la gigantesque faille menant au Royaume des Flammes d'Encens du Maître Simo.
+Après son rugissement, une multitude d'âmes s'apprêtaient à jaillir de la gigantesque faille menant au Royaume des Flammes d'Encens du Maître Si Mo.
 
 Du coin de la bouche de Wang Lin coula un filet de sang. Son visage était pâle et il recula de plusieurs pas. Cependant, tout en reculant, il leva la tête et révéla une intention de combat monstrueuse!
 
@@ -76,7 +76,7 @@ Il se força à cesser sa retraite et chargea en avant tel un météore. Il agit
 
 À l'instant où la feuille se manifesta, les étoiles de l'Ancien Dieu de Wang Lin brillèrent entre ses sourcils. Il ouvrit la bouche et cracha du sang. C'était du sang d'Ancien Dieu!
 
-Le sang tomba sur la feuille flétrie, provoquant l'émission d'une lumière rouge. Wang Lin agita la main et la feuille rouge fonça vers le Maître Simo!
+Le sang tomba sur la feuille flétrie, provoquant l'émission d'une lumière rouge. Wang Lin agita la main et la feuille rouge fonça vers le Maître Si Mo!
 
 Elle était extrêmement rapide et se rapprocha en un instant. Telle un vent violent, elle grandit instantanément pour atteindre 1 000, puis 10 000, puis 100 000 pieds de large!
 
@@ -88,33 +88,33 @@ Mais en ce moment, Wang Lin l'utilisait en tant qu'Ancien Dieu après l'avoir no
 
 Une seule feuille pour couvrir le ciel!
 
-La Feuille Ancienne dépassa en un éclair Maître Simo et se matérialisa au-delà de son Royaume de Flamme d'Encens. Elle recouvrit la faille!
+La Feuille Ancienne dépassa en un éclair Maître Si Mo et se matérialisa au-delà de son Royaume de Flamme d'Encens. Elle recouvrit la faille!
 
-« Scellez! Scellez! Scellez! » Le rugissement de Wang Lin résonna et la feuille ancienne brilla comme une rune de scellement. Dès qu'elle se fixa sur le Royaume des Flammes d'Encens du Maître Simo, elle libéra une force de scellement colossale!
+« Scellez! Scellez! Scellez! » Le rugissement de Wang Lin résonna et la feuille ancienne brilla comme une rune de scellement. Dès qu'elle se fixa sur le Royaume des Flammes d'Encens du Maître Si Mo, elle libéra une force de scellement colossale!
 
 Sous la puissance de la Feuille Ancienne, le Royaume des Flammes d'Encens trembla, et pas une seule âme ne put s'en échapper!
 
-Ce changement soudain choqua le Maître Simo, et la peur apparut dans ses yeux. Il n'avait jamais entendu parler d'un trésor capable de sceller le Royaume des Flammes d'Encens d'un cultivateur du troisième pas!
+Ce changement soudain choqua le Maître Si Mo, et la peur apparut dans ses yeux. Il n'avait jamais entendu parler d'un trésor capable de sceller le Royaume des Flammes d'Encens d'un cultivateur du troisième pas!
 
 « Ceci... Quel genre de trésor est-ce là?! »
 
-Non seulement le Maître Simo était stupéfait, mais les pupilles du vieux Suzaku se rétractèrent également. Ses yeux étaient remplis d'incrédulité.
+Non seulement le Maître Si Mo était stupéfait, mais les pupilles du vieux Suzaku se rétractèrent également. Ses yeux étaient remplis d'incrédulité.
 
 « Ce petit gars possède un tel trésor?! »
 
 Le visage de la Grande Maîtresse Yun Luo devint encore plus pâle et la peur dans ses yeux ne pouvait plus être dissimulée. Son esprit vacilla et elle recula de quelques pas. Elle se souvenait clairement d'une image où une silhouette, d'un geste de la main, avait fait apparaître 99 de ces feuilles identiques qui scellaient le ciel et la terre. Elles avaient totalement scellé un sortilège du Dao Céleste extrêmement puissant lancé par de nombreux cultivateurs du système!
 
-Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé la Feuille Ancienne pour sceller le Royaume des Flammes d'Encens du Maître Simo, il ne recula pas, mais chargea au contraire vers lui!
+Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé la Feuille Ancienne pour sceller le Royaume des Flammes d'Encens du Maître Si Mo, il ne recula pas, mais chargea au contraire vers lui!
 
-Wang Lin arriva à moins de 1 000 pieds du Maître Simo et rugit: « Âme du démon ancien, sors! » Un brouillard noir commença à apparaître et se répandit immédiatement.
+Wang Lin arriva à moins de 1 000 pieds du Maître Si Mo et rugit: « Âme du démon ancien, sors! » Un brouillard noir commença à apparaître et se répandit immédiatement.
 
 Il prit la forme d'une petite silhouette identique à Wang Lin. C'était l'âme du démon ancien!
 
-Dès l'apparition de cette petite entité, elle poussa un rugissement strident vers le ciel. Une énergie démoniaque l'enveloppa et une lance éthérée apparut soudainement. Puis, la petite silhouette s'enroula autour de la lance et fonça sur le Maître Simo!
+Dès l'apparition de cette petite entité, elle poussa un rugissement strident vers le ciel. Une énergie démoniaque l'enveloppa et une lance éthérée apparut soudainement. Puis, la petite silhouette s'enroula autour de la lance et fonça sur le Maître Si Mo!
 
-Une lueur de froideur passa dans les yeux du Maître Simo, mais alors que son intention meurtrière montait, le Feu Éthéré en lui brûla une fois de plus. Il ignora le Feu Éthéré et fit un pas en avant. Puis, il agita sa main droite et une lumière violette brilla intensément.
+Une lueur de froideur passa dans les yeux du Maître Si Mo, mais alors que son intention meurtrière montait, le Feu Éthéré en lui brûla une fois de plus. Il ignora le Feu Éthéré et fit un pas en avant. Puis, il agita sa main droite et une lumière violette brilla intensément.
 
-« Ce vieil homme a accompli de grands mérites pour le Souverain et s'est vu offrir le Dao Violet issu du Dao aux Sept Couleurs. C'est la source de la folie; tant que votre trésor possédera un esprit, il deviendra fou sous l'effet de mon Dao Violet! » La main droite du Maître Simo sembla saisir toute la pourpre du monde, puis il fit un geste brusque.
+« Ce vieil homme a accompli de grands mérites pour le Souverain et s'est vu offrir le Dao Violet issu du Dao aux Sept Couleurs. C'est la source de la folie; tant que votre trésor possédera un esprit, il deviendra fou sous l'effet de mon Dao Violet! » La main droite du Maître Si Mo sembla saisir toute la pourpre du monde, puis il fit un geste brusque.
 
 Des grondements tonitruants retentirent et le brouillard violet se referma sur l'âme du démon ancien de Wang Lin!
 
@@ -122,4 +122,4 @@ L'âme démoniaque manifesta une immense excitation et poussa un cri de joie. Av
 
 L'excitation dans ses yeux devint plus intense encore.
 
-Le démon ancien étant le plus puissant démon au monde, comment pourrait-il craindre la folie? Plus il y avait de folie, plus la nature démoniaque s'affirmait. Après avoir dévoré une partie du brouillard violet, ses yeux devinrent rouges. Puis, il perça le brouillard pour foncer sur le Maître Simo!
+Le démon ancien étant le plus puissant démon au monde, comment pourrait-il craindre la folie? Plus il y avait de folie, plus la nature démoniaque s'affirmait. Après avoir dévoré une partie du brouillard violet, ses yeux devinrent rouges. Puis, il perça le brouillard pour foncer sur le Maître Si Mo!

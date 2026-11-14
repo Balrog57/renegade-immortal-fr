@@ -26,7 +26,7 @@ Un grondement intense résonna et la planète montra des signes de changement de
 
 Cet effondrement se propagea couche après couche dans son sens divin, et son âme originelle fut violemment repoussée dans son corps. Elle cracha du sang tandis que son corps tremblait; elle semblait incapable de tenir debout. Son visage était cendré et ses yeux s'étaient éteints.
 
-« Quel déchet! » Dans un reniflement froid, le messager du Temple Céleste du Tonnerre passa devant Xi Zifeng d'un vol rapide et agita ses manches. Son âme originelle forma un fil de sens divin qui se connecta à la planète. Dans un rugissement, il arracha la planète de sa trajectoire millénaire!
+« Quel déchet! » Dans un reniflement froid, le messager du Temple Lei Xian passa devant Xi Zifeng d'un vol rapide et agita ses manches. Son âme originelle forma un fil de sens divin qui se connecta à la planète. Dans un rugissement, il arracha la planète de sa trajectoire millénaire!
 
 La main de l'homme d'âge moyen s'étira comme s'il tenait la planète en main, et il hurla: « Déplacez la planète! »
 
@@ -38,9 +38,9 @@ Seul un vieil homme soupira en passant devant Xi Zifeng. Il sortit une fiole de 
 
 Xi Zifeng prit silencieusement les pilules, empreinte de gratitude. La fiole contenait des pilules précieuses capables d'accélérer sa convalescence. Au cours des 800 dernières années, sa famille et ses amis l'avaient moins aidée que ces personnes qui avaient été sauvées par Wang Lin dans le Royaume Céleste du Tonnerre. Sans eux, le chemin de Xi Zifeng aurait été bien plus ardu.
 
-« Pourquoi restes-tu là plantée? Viens ici et déplace cette planète. Un déchet reste un déchet; tu avais un si beau visage, mais il a fallu que tu le détruises. Si tu avais accepté ma requête, tu n'en serais pas arrivée là aujourd'hui! » ricana l'homme d'âge moyen du Temple Céleste du Tonnerre.
+« Pourquoi restes-tu là plantée? Viens ici et déplace cette planète. Un déchet reste un déchet; tu avais un si beau visage, mais il a fallu que tu le détruises. Si tu avais accepté ma requête, tu n'en serais pas arrivée là aujourd'hui! » ricana l'homme d'âge moyen du Temple Lei Xian.
 
-Le vieil homme qui lui avait donné les pilules ne put plus se retenir et répliqua: « Seigneur Messager, la Daoïste Xi Zi a également rejoint le Temple Céleste du Tonnerre. Bien que sa culture soit limitée, elle possède le même statut que nous. Elle a déjà dévié plusieurs planètes de leur trajectoire tout en étant blessée. Pourquoi la forcez-vous à continuer? Laissez-la se remettre un peu! »
+Le vieil homme qui lui avait donné les pilules ne put plus se retenir et répliqua: « Seigneur Messager, la Daoïste Xi Zi a également rejoint le Temple Lei Xian. Bien que sa culture soit limitée, elle possède le même statut que nous. Elle a déjà dévié plusieurs planètes de leur trajectoire tout en étant blessée. Pourquoi la forcez-vous à continuer? Laissez-la se remettre un peu! »
 
 Les yeux de l'homme d'âge moyen s'illuminèrent et il fixa le vieil homme.
 

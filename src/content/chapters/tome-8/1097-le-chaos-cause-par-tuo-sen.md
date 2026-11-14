@@ -58,15 +58,15 @@ Après avoir prononcé ces derniers mots, l'homme d'âge moyen fit un pas et dis
 
 La silhouette solitaire de Wang Lin resta pétrifiée parmi les étoiles. Ce qu'il venait d'entendre l'avait tant bouleversé qu'il en perdit toute capacité de réflexion. Il lui fallut un long moment pour reprendre ses esprits.
 
-À ce même instant, un rayon de lumière jaillit vers le colossal palais flottant appartenant au Temple Céleste du Tonnerre, dans la région occidentale.
+À ce même instant, un rayon de lumière jaillit vers le colossal palais flottant appartenant au Temple Lei Xian, dans la région occidentale.
 
 Une silhouette se trouvait à l'intérieur de ce rayon de lumière: il s'agissait d'une âme originelle. L'âme était presque transparente, parcourue de nombreuses lignes rouges qui lui donnaient un aspect terrifiant.
 
 Le visage de l'âme originelle affichait un sourire étrange, comme si elle savourait un immense plaisir. Pourtant, ses yeux étaient empreints de peur et de chaos.
 
-« Maître Yan Leizi, sauvez-moi! » À mesure qu'il approchait du Temple Céleste du Tonnerre, l'âme originelle projeta un message strident qui se mit à résonner à travers les étoiles.
+« Maître Yan Leizi, sauvez-moi! » À mesure qu'il approchait du Temple Lei Xian, l'âme originelle projeta un message strident qui se mit à résonner à travers les étoiles.
 
-En un instant, de nombreuses silhouettes émergèrent du palais. Celui qui menait la marche était enveloppé de flammes et avait les cheveux blancs: c'était le Maître Yan Leizi du Temple Céleste du Tonnerre!
+En un instant, de nombreuses silhouettes émergèrent du palais. Celui qui menait la marche était enveloppé de flammes et avait les cheveux blancs: c'était le Maître Yan Leizi du Temple Lei Xian!
 
 D'un pas, il arriva instantanément aux côtés de l'âme originelle. Son expression devint très grave alors qu'il formait un sceau de la main pour saisir l'âme.
 

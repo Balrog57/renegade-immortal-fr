@@ -8,13 +8,13 @@ slug: corps-originel-ta-sen-zhou-ru
 ---
 La quantité de jade céleste dans la sacoche de Lei Daozi fit haleter Wang Lin. Cette abondance était tout simplement stupéfiante; même une famille de cultivateurs ne pourrait s'en comparer.
 
-« Un simple messager du Temple Céleste du Tonnerre possède autant de jade céleste. Cela montre à quel point ce temple est puissant! » Aucune joie n'apparut dans l'esprit de Wang Lin face à cette richesse, seule la stupéfaction l'habitait.
+« Un simple messager du Temple Lei Xian possède autant de jade céleste. Cela montre à quel point ce temple est puissant! » Aucune joie n'apparut dans l'esprit de Wang Lin face à cette richesse, seule la stupéfaction l'habitait.
 
 Il réfléchit longuement, le regard brillant d'une lueur intense.
 
-« Le Temple Céleste du Tonnerre... »
+« Le Temple Lei Xian... »
 
-Wang Lin prit une profonde inspiration, puis son corps vacilla et il disparut dans la grotte, suivi de près par le gardien céleste.
+Wang Lin prit une profonde inspiration, puis son corps vacilla et il disparut dans la grotte, suivi de près par le garde céleste.
 
 Le corps de Wang Lin flottait dans les airs, dominant le ciel de la partie orientale de la planète. D'un geste de la main vers le bas, provoquant un grondement assourdissant, il aplatit tout sur un rayon de 5 000 kilomètres.
 

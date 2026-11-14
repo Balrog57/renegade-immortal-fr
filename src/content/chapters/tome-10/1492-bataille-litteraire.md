@@ -58,11 +58,11 @@ L'expression de Maître Lu Fu resta imperturbable et il hocha la tête, tout en 
 
 Il ne perdit plus de temps avec Wang Lin et agita la main. Le vortex autour de lui commença à tournoyer, libérant une brume infinie. Une tempête s'éleva et il jaillit du vortex pour apparaître au-dessus de la formation géante.
 
-Derrière lui, les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre levèrent les yeux. Leurs regards débordaient de ferveur et de respect. Maître Lu Fu, l'ancêtre de Luotian!
+Derrière lui, les dizaines de milliers de cultivateurs du Temple Lei Xian levèrent les yeux. Leurs regards débordaient de ferveur et de respect. Maître Lu Fu, l'ancêtre de Luotian!
 
 Même les trois personnes à l'intérieur du vortex devinrent respectueuses. Pour le peuple de Luotian, Maître Lu Fu était un dieu! Pouvoir observer personnellement leur ancêtre raffiner un trésor suffisait à faire battre leurs cœurs d'excitation.
 
-« Aujourd'hui, ce vieil homme va raffiner un trésor qui restera au Temple Céleste du Tonnerre. Une fois la bataille contre le Royaume Extérieur commencée, un Classement Céleste sera établi. Ceux qui tueront le plus grand nombre de cultivateurs ennemis durant les trois premiers mois recevront ce trésor! » Les paroles de Maître Lu Fu résonnèrent aux oreilles de tous les cultivateurs.
+« Aujourd'hui, ce vieil homme va raffiner un trésor qui restera au Temple Lei Xian. Une fois la bataille contre le Royaume Extérieur commencée, un Classement Céleste sera établi. Ceux qui tueront le plus grand nombre de cultivateurs ennemis durant les trois premiers mois recevront ce trésor! » Les paroles de Maître Lu Fu résonnèrent aux oreilles de tous les cultivateurs.
 
 Alors que sa voix s'éteignait, une onde sonore se propagea. Les dizaines de milliers de cultivateurs, exaltés, poussèrent des cris de joie!
 

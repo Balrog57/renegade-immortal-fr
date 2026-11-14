@@ -56,7 +56,7 @@ C'était comme si deux Wang Lin se superposaient, une superposition instable due
 
 Les silhouettes superposées se séparèrent et les craquements cessèrent. Le flou disparut et deux Wang Lin identiques se tenaient là!
 
-Celui qui était assis était le corps originel de Wang Lin. Celui qui unissait l'Ancien Dieu, l'Ancien Démon et l'Ancien Diable, possédant l'héritage du Dao Ancien! Celui qui se tenait debout était son corps de cultivateur!
+Celui qui était assis était le corps originel de Wang Lin. Celui qui unissait l'Ancien Dieu, l'Ancien Démon et l'Ancien Diable, possédant l'héritage du Dao Gu! Celui qui se tenait debout était son corps de cultivateur!
 
 Il y eut une période où Wang Lin agissait toujours ainsi. Son corps originel cultivait tandis que son avatar sortait. De cette manière, il progressait sur les deux fronts simultanément.
 

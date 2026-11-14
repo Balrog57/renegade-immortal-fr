@@ -1,12 +1,12 @@
 ---
 n: 1778
-title: "Ancien Dao, Aucun Céleste!"
+title: "Dao Gu, Aucun Céleste!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1778 - Ancient Dao, No Celestials!"
 slug: ancien-dao-aucun-celeste
 ---
-« C'est une bataille entre dieux et êtres célestes... » La culture de Wang Lin disparut lentement tandis que ses essences se dissimulaient. À cet instant, tout son corps dégageait l'aura dense de l'Ancien Dao.
+« C'est une bataille entre dieux et êtres célestes... » La culture de Wang Lin disparut lentement tandis que ses essences se dissimulaient. À cet instant, tout son corps dégageait l'aura dense du Dao Gu.
 
 « Autrefois, le Souverain Céleste aux Sept Couleurs combattit Ye Mo, et à la fin, Ye Mo mourut... Quel regret. Le combat d'aujourd'hui peut s'appeler le destin: je poursuivrai ce combat contre toi! »
 
@@ -24,7 +24,7 @@ Alors que ce rythme cardiaque rugissait violemment, le Vieux Fantôme Zhan laiss
 
 L'expression du Vieux Fantôme Zhan devint féroce et il serra sa poitrine. Celle-ci s'affaissa alors qu'il utilisait son pouvoir pour contraindre son cœur, l'empêchant de battre par la force.
 
-Les yeux de Wang Lin se rétrécirent et il fit un pas en avant. Sa main droite se crispa en un poing où convergeait l'aura de l'Ancien Dao. Les neuf étoiles entre ses sourcils et les dix-sept étoiles dans ses yeux se mirent à pivoter. Toute son aura de l'Ancien Dao se concentra dans ce coup de poing qui ouvrait le ciel et fendait la terre, puis vola vers le Vieux Fantôme Zhan.
+Les yeux de Wang Lin se rétrécirent et il fit un pas en avant. Sa main droite se crispa en un poing où convergeait l'aura du Dao Gu. Les neuf étoiles entre ses sourcils et les dix-sept étoiles dans ses yeux se mirent à pivoter. Toute son aura du Dao Gu se concentra dans ce coup de poing qui ouvrait le ciel et fendait la terre, puis vola vers le Vieux Fantôme Zhan.
 
 Des grondements tonitruants résonnèrent à travers le monde. Le ciel s'effondra et la terre se déchaîna; c'était comme si la fin du monde était arrivée. Le Vieux Fantôme Zhan traça un sceau, faisant apparaître sept caractères « Bataille » alignés!
 
@@ -36,7 +36,7 @@ Wang Lin laissa échapper un gémissement étouffé et du sang coula du coin de 
 
 « Après avoir absorbé le Daoïste aux Sept Couleurs, il est devenu bien plus puissant... Même si j'ai obtenu tous les héritages de Ye Mo, à l'exception de l'œil gauche, je ne suis toujours pas son égal... Cependant, je peux tenter le tout pour le tout, peu importe l'issue! » Wang Lin resta calme et songea au sortilège le plus puissant qu'il avait hérité de Ye Mo!
 
-Ye Mo l'avait appris au Temple Dao Gu; c'était un sort secret du clan de l'Ancien Dao! Lorsque Wang Lin était immergé dans la mémoire de l'héritage, il avait vu ce sort, et il était devenu impossible de l'oublier.
+Ye Mo l'avait appris au Temple Dao Gu; c'était un sort secret du clan du Dao Gu! Lorsque Wang Lin était immergé dans la mémoire de l'héritage, il avait vu ce sort, et il était devenu impossible de l'oublier.
 
 À présent, après avoir recueilli tous les héritages hormis l'œil gauche, sa compréhension de ce sort était immense. Il leva lentement le bras et forma un poing avant de frapper le vide devant lui. Ce qui jaillit avec son coup, c'étaient ses neuf étoiles de Dieu Ancien, qui fusionnèrent dans son poing.
 
@@ -74,19 +74,19 @@ En un instant, l'aura de mort envahit tout. Elle était si dense qu'elle formait
 
 Au sein de cette aura funeste, l'aura du diable ancien se propageait, et l'on pouvait vaguement entendre les hurlements des spectres.
 
-« Dieu, Démon, Diable, Ancien Dao, Aucun Céleste!! » murmura Wang Lin en ouvrant ses paumes pour pousser doucement vers l'avant. Les pouvoirs des trois anciens clans fusionnèrent rapidement dans son corps.
+« Dieu, Démon, Diable, Dao Gu, Aucun Céleste!! » murmura Wang Lin en ouvrant ses paumes pour pousser doucement vers l'avant. Les pouvoirs des trois anciens clans fusionnèrent rapidement dans son corps.
 
 Dieu Ancien à 9 étoiles!
 Diable Ancien à 9 étoiles!
 Démon Ancien à 8 étoiles!
 
-Ces puissances se fondirent en une seule au sein de Wang Lin pour former le pouvoir de l'Ancien Dao. C'était la force la plus absolue dont il disposait. Elles se rassemblèrent dans sa main droite et, au moment où il frappait ainsi, une ombre gigantesque apparut devant lui!
+Ces puissances se fondirent en une seule au sein de Wang Lin pour former le pouvoir du Dao Gu. C'était la force la plus absolue dont il disposait. Elles se rassemblèrent dans sa main droite et, au moment où il frappait ainsi, une ombre gigantesque apparut devant lui!
 
 Cette ombre était une tête. Une tête aussi vaste que le monde, occupant la majeure partie de l'horizon. Elle dégageait une aura lugubre et millénaire. Son apparence n'était ni celle de Ye Mo, ni celle de Wang Lin, mais celle d'un étranger. Wang Lin ne savait pas qui il était, mais un sentiment de familiarité l'envahit!
 
 Ce sentiment émanait de sa lignée, du sang de l'âme qu'il avait obtenu de l'Ancêtre Ancien!
 
-Si Wang Lin s'était rendu auprès du clan de l'Ancien Dao sur le Continent Xian Gang pour voir la statue imposante dressée dans la cité céleste, qui contemplait le monde avec mépris, il aurait réalisé que la tête apparue était identique à celle de cette statue!
+Si Wang Lin s'était rendu auprès du clan du Dao Gu sur le Continent Xian Gang pour voir la statue imposante dressée dans la cité céleste, qui contemplait le monde avec mépris, il aurait réalisé que la tête apparue était identique à celle de cette statue!
 
 « Ancêtre Ancien! » Au loin, le corps de Xuan Luo trembla. Il contempla la tête avec une immense révérence.
 
@@ -96,7 +96,7 @@ Le vent violent fit rage et la terre s'effondra. Des craquements déchirèrent l
 
 Cela ne toucha pas que cette couche. Lorsque l'aura se propagea, la dernière strate, celle qui n'avait plus de cœur, fut pétrifiée. Même la couche supérieure, voilée de brume, ses plates-formes comprises, ainsi que toute l'Ancienne Tombe, furent transformées en pierre par ce souffle!
 
-Les pupilles du Vieux Fantôme Zhan se rétractèrent, frappées de stupeur. Le visage pâle, il recula comme un fou, ignorant même la Poupée Yi Si qui le poursuivait. En battant en retraite, ses mains formèrent un sceau et une fumée aux sept couleurs émana de ses sept orifices pour former l'Âme aux Sept Couleurs. Simultanément, sa seconde âme apparut, enveloppée dans sa cape. Mais alors que la cape l'entourait, le souffle de l'Ancien Dao balaya tout sur son passage.
+Les pupilles du Vieux Fantôme Zhan se rétractèrent, frappées de stupeur. Le visage pâle, il recula comme un fou, ignorant même la Poupée Yi Si qui le poursuivait. En battant en retraite, ses mains formèrent un sceau et une fumée aux sept couleurs émana de ses sept orifices pour former l'Âme aux Sept Couleurs. Simultanément, sa seconde âme apparut, enveloppée dans sa cape. Mais alors que la cape l'entourait, le souffle du Dao Gu balaya tout sur son passage.
 
 L'Âme aux Sept Couleurs se changea immédiatement en pierre, suivie par la seconde âme. Enfin, le corps du Vieux Fantôme Zhan se pétrifia également dans un éclair de lumière grise!
 
@@ -108,6 +108,6 @@ La quatrième fleur noire s'effondra soudainement, se brisant en une tempête de
 
 Le sang jaillit du coin de la bouche de Wang Lin et il ne put le contenir. Il recula de plusieurs milliers de pieds dans les ruines de l'Ancienne Tombe. Ses yeux étaient empreints de regret et d'amertume.
 
-« J'ai utilisé le pouvoir de "l'Ancien Dao, Aucun Céleste" de force, mais il s'est quand même échappé... Je n'aurai pas la force de l'utiliser de nouveau de sitôt. Si j'avais eu l'œil gauche et que mon démon ancien avait été à neuf étoiles, cette bataille n'aurait pas été si difficile! »
+« J'ai utilisé le pouvoir de "le Dao Gu, Aucun Céleste" de force, mais il s'est quand même échappé... Je n'aurai pas la force de l'utiliser de nouveau de sitôt. Si j'avais eu l'œil gauche et que mon démon ancien avait été à neuf étoiles, cette bataille n'aurait pas été si difficile! »
 
 « Je ne suis toujours pas son égal... Peu importe, je me rendrai à la cinquième fleur pour trouver la véritable porte. J'ouvrirai alors la grande porte du monde caverneux et j'emprunterai la puissance du Continent Xian Gang pour le sceller! » Wang Lin poussa un long soupir et disparut de l'Ancienne Tombe en plein effondrement.

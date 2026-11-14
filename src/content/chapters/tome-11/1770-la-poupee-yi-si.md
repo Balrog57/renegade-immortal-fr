@@ -54,7 +54,7 @@ Après le temps d'un bâton d'encens, elle aperçut l'ancien réseau de transfer
 
 Dans l'avant-dernière couche de la Tombe Antique, le brouillard n'était pas aussi dense que dans les couches supérieures. Wang Lin progressait avec précaution. Bien qu'il y eût de la lumière, elle était rouge, semblable à du sang frais.
 
-Par intermittence, des rugissements provenaient du brouillard environnant et des paires d'yeux rouges fixaient Wang Lin. Cependant, face à l'aura du Dao Antique de Wang Lin, ils n'osaient s'approcher.
+Par intermittence, des rugissements provenaient du brouillard environnant et des paires d'yeux rouges fixaient Wang Lin. Cependant, face à l'aura du Dao Gu de Wang Lin, ils n'osaient s'approcher.
 
 Après tout, le Wang Lin actuel n'était plus celui d'autrefois. Tant qu'il restait vigilant, il n'y avait aucun danger immédiat.
 
@@ -72,7 +72,7 @@ Cette montagne n'était pas très haute, mais elle était enveloppée d'un broui
 
 Cette tête était chauve et dépourvue de cheveux. Sa forme était floue, rendant son apparence impossible à distinguer. Cependant, sa bouche était grande ouverte, laissant échapper ce rugissement terrifiant!
 
-Dès que le rugissement retentit, les mains de Wang Lin formèrent un sceau qu'il agita. Son essence apparut devant lui et la puissance de son Dao Antique emplit son corps pour résister à l'assaut sonore.
+Dès que le rugissement retentit, les mains de Wang Lin formèrent un sceau qu'il agita. Son essence apparut devant lui et la puissance de son Dao Gu emplit son corps pour résister à l'assaut sonore.
 
 À cet instant, il se trouvait pourtant à des centaines de milliers de pieds de distance, mais même ainsi, le rugissement l'atteignit avec une force brutale. Des bruits d'éclatement résonnèrent alors que les essences de Wang Lin étaient repoussées violemment dans son corps. Le visage de Wang Lin devint pâle et il fut projeté en arrière de 10 000 pieds avant que le rugissement ne s'éteigne. Du sang coula du coin de sa bouche. La tête formée par le brouillard rouge sembla fondre avant de se résorber sur la montagne.
 

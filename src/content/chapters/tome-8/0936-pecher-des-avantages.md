@@ -72,7 +72,7 @@ Des fluctuations de sorts emplissaient l'espace entre eux. Apparemment, un comba
 
 Wu Dongchan ne répondit pas, se contentant de fixer froidement Yi Muzi. Il leva la main et une bulle aux cinq couleurs flotta au-dessus de sa paume.
 
-Il posa son regard sur la bulle et dit calmement: « Peu m'importe ce que fait le vénérable Xuan Bao, mais tant que je serai ici, personne ne pourra entrer! »
+Il posa son regard sur la bulle et dit calmement: « Peu m'importe ce que fait le Estimé Xuan Bao, mais tant que je serai ici, personne ne pourra entrer! »
 
 Yi Muzi eut une expression sombre et laissa échapper un reniflement glacial avant de s'avancer. Sa main droite traça un sceau et une gigantesque bûche apparut devant lui. Cette énorme pièce de bois occupa tout l'espace disponible et s'élança avec fracas.
 

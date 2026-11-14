@@ -66,7 +66,7 @@ Ils se transformèrent à nouveau en une lueur diffuse pour rattraper rapidement
 
 À cet instant, un homme d'âge moyen au visage sombre se tenait sur un disque tout en poursuivant les épées célestes. Il suivait aussi près que possible, refusant de les perdre de vue. Soudain, il aperçut Wang Lin et Chi Hu au loin et remarqua la boussole stellaire sous eux. Ses yeux s'illuminèrent instantanément. D'un bond, le disque disparut alors qu'il se projetait vers eux.
 
-« Camarades cultivateurs, auriez-vous une place pour moi? » Bien que ses paroles fussent polies, son approche était extrêmement agressive.
+« Daoïstes, auriez-vous une place pour moi? » Bien que ses paroles fussent polies, son approche était extrêmement agressive.
 
 Les yeux de Chi Hu brillèrent et il murmura: « Stade avancé de la Formation de l'Âme! »
 

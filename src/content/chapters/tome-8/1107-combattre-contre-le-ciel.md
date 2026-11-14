@@ -50,7 +50,7 @@ En raison de l'encerclement par la rivière ardente, l'âme originelle de l'anci
 
 Wang Lin laissa échapper un froid reniflement, puis sa main droite prit la forme d'une paume et s'abattit sur l'âme originelle. L'énergie originelle du champ d'étoiles se rassembla furieusement pour former une empreinte de main gigantesque, qui s'écrasa sur l'âme originelle du vieil homme.
 
-L'expression de l'homme changea radicalement et il hurla: « C'est... l'Empreinte de l'Esprit Guerrier de la Secte Divine de Rang 9! » À peine eut-il prononcé ces mots que l'empreinte percuta son âme originelle et le renvoya violemment dans la rivière ardente.
+L'expression de l'homme changea radicalement et il hurla: « C'est... l'Empreinte de l'Esprit Guerrier de la Secte Shen de Rang 9! » À peine eut-il prononcé ces mots que l'empreinte percuta son âme originelle et le renvoya violemment dans la rivière ardente.
 
 Des grondements tonitruants résonnèrent et l'âme originelle du vieil homme s'effondra instantanément!
 

@@ -38,7 +38,7 @@ La puissance destructrice était dans les prévisions de Wang Lin, mais il avait
 
 Bien qu'elle n'ait effleuré son corps qu'un instant, Wang Lin eut l'impression d'entendre le craquement de ses os se brisant, de sa chair s'effondrant et de son âme originelle se désintégrer. Dès son arrivée ici, il n'avait pu contenir sa douleur; il avait craché du sang avant de se stabiliser rapidement.
 
-S'il avait été un cultivateur ordinaire, s'il n'était pas mort, il aurait dû chercher un autre corps. Cependant, grâce à son corps de Dao Antique, il n'était que blessé.
+S'il avait été un cultivateur ordinaire, s'il n'était pas mort, il aurait dû chercher un autre corps. Cependant, grâce à son corps de Dao Gu, il n'était que blessé.
 
 Le soir du troisième jour, Wang Lin ouvrit les yeux pour la première fois et prit quelques inspirations. Il fronça les sourcils, car la poussière en suspension rendait l'air amer. Il leva les yeux vers le ciel. Bien qu'au crépuscule, la poussière empêchait de distinguer le soleil ou la lune.
 

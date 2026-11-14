@@ -34,7 +34,7 @@ Hai Zi, assise à l'angle du Mont Di, levait les yeux vers le ciel avec un regar
 
 Au sein du clan Ancien, un tollé éclata sur la Montagne Yuan Shi du clan Ancien. Song Tian affichait une expression amère. Bien qu'il se soit préparé en envoyant le démon ancien, son cœur ne put s'empêcher de trembler.
 
-Dans la cité impériale de l'Ancien Dao, Xuan Luo ressentit l'aura de Wang Lin. Un sourire apparut sur ses lèvres; il était ivre de joie et éclata d'un rire sonore.
+Dans la cité impériale du Dao Gu, Xuan Luo ressentit l'aura de Wang Lin. Un sourire apparut sur ses lèvres; il était ivre de joie et éclata d'un rire sonore.
 
 Dans le pays de Luo Hou, dans le ciel surplombant le palais, Wang Lin fit un geste de la main et son Soleil de Grand Empyréen aux trois couleurs disparut. Cependant, l'ombre de ce soleil resterait à jamais gravée dans le ciel, tel un symbole de son ascension au rang de Grand Empyréen.
 
@@ -58,13 +58,13 @@ Devant la créature, Wang Lin leva la main droite et pointa l'espace entre les s
 
 Le corps de Ji Du frémit et il leva brusquement les yeux. Incapable de contenir son émotion, il regarda Wang Lin avec une immense gratitude.
 
-« Merci, parrain, de me l'accorder!! » Ji Du prit une profonde inspiration et rejoignit la tête du démon ancien. Il se tint respectueusement derrière Wang Lin, contemplant son dos. Ce n'était pas un dos imposant, mais il lui semblait aussi vaste qu'une montagne. Tant qu'il pouvait s'appuyer sur ce rempart, il pourrait devenir l'empereur des Anciens Shi!!
+« Merci, parrain, de me l'accorder!! » Ji Du prit une profonde inspiration et rejoignit la tête du démon ancien. Il se tint respectueusement derrière Wang Lin, contemplant son dos. Ce n'était pas un dos imposant, mais il lui semblait aussi vaste qu'une montagne. Tant qu'il pouvait s'appuyer sur ce rempart, il pourrait devenir l'empereur des Shi Gu!!
 
 Le colossal démon ancien n'attendit aucun ordre de Wang Lin. Il poussa un hurlement, fit volte-face avec Wang Lin et Ji Du sur son dos, et déchira la faille par laquelle il était apparu. Il s'engouffra dans le gouffre et disparut.
 
 Une fois la créature partie, la déchirure dans le ciel se referma lentement jusqu'à ne devenir qu'une ligne blanche avant de s'effacer totalement.
 
-À l'extérieur des Anciens Shi, sur la Montagne Yuan Shi, au moment où Wang Lin avait effacé le sens divin de Song Tian sur le démon ancien, Song Tian trembla. Son visage devint légèrement pâle, mais il reprit vite contenance.
+À l'extérieur des Shi Gu, sur la Montagne Yuan Shi, au moment où Wang Lin avait effacé le sens divin de Song Tian sur le démon ancien, Song Tian trembla. Son visage devint légèrement pâle, mais il reprit vite contenance.
 
 L'expression sombre, il serra la gigantesque hache de guerre dans sa main. Il leva les yeux vers le ciel et sa respiration se régularisa. Il savait que ses actes forceraient Wang Lin à venir ici.
 
@@ -100,7 +100,7 @@ Au premier geste, un grondement tonitruant s'éleva de l'armée qui se précipit
 
 Pour Chi Man et Ji Du, tel fut l'effet produit, mais aux yeux de Song Tian, les lois du monde s'étaient matérialisées devant les troupes.
 
-Une fois l'armée dissipée, le second geste de Wang Lin fit éclater la brume entourant la Montagne Yuan Shi. Le brouillard fut déchiré en d'innombrables fragments avant de s'évaporer. Toute la montagne trembla, et les membres puissants des Anciens Shi qui maintenaient la formation crachèrent du sang, affaiblis par le choc.
+Une fois l'armée dissipée, le second geste de Wang Lin fit éclater la brume entourant la Montagne Yuan Shi. Le brouillard fut déchiré en d'innombrables fragments avant de s'évaporer. Toute la montagne trembla, et les membres puissants des Shi Gu qui maintenaient la formation crachèrent du sang, affaiblis par le choc.
 
 Song Tian sentit son cuir chevelu picoter, mais il endura la douleur, le regard glacial. Il brandit à nouveau sa hache de guerre pour frapper Wang Lin.
 

@@ -8,7 +8,7 @@ slug: le-retour
 ---
 À l'intérieur de ce palais lugubre, une tempête éclata à la voix du garçon. Cette tempête fit tourbillonner le brouillard stellaire autour de la planète et provoqua des grondements tonitruants.
 
-« Maître, moi, Shui Daozi, je vous ai suivi dans vos campagnes à travers les cieux et la terre et j'ai failli mourir de nombreuses fois; je vous ai donc rendu votre dette pour m'avoir sauvé. Le karma entre nous est rompu. Après votre mort, bien que j'aie repris la Secte Divine, celui-ci avait naturellement besoin d'un chef, je n'ai donc pas eu tort de le faire! »
+« Maître, moi, Shui Daozi, je vous ai suivi dans vos campagnes à travers les cieux et la terre et j'ai failli mourir de nombreuses fois; je vous ai donc rendu votre dette pour m'avoir sauvé. Le karma entre nous est rompu. Après votre mort, bien que j'aie repris la Secte Shen, celui-ci avait naturellement besoin d'un chef, je n'ai donc pas eu tort de le faire! »
 
 « Cependant... Êtes-vous vraiment mort?! » L'expression du garçon devint soudainement hideuse alors qu'il levait les yeux vers le vide extérieur.
 
@@ -18,7 +18,7 @@ slug: le-retour
 
 Le visage du garçon aux cheveux blancs devint encore plus féroce, et ses yeux révélèrent une intention meurtrière monstrueuse.
 
-« Si vous vous étiez réincarné, alors ces cultivateurs du Royaume Céleste Antique qui ont sondé votre âme l'auraient su... Mais il y a quelques mois, j'ai ressenti votre aura, il n'y a aucun doute! » En repensant à cette aura, l'esprit du garçon aux cheveux blancs trembla. C'est à cause de cette aura qu'il avait, durant ces mois, eu l'impression que le ciel s'effondrait et vécu dans l'angoisse, et qu'il avait mobilisé la Secte Divine à tout prix pour enquêter frénétiquement. Même après avoir reçu le jade de la Sainte de Kun Xu, malgré sa cupidité pour l'héritage du Royaume Kun Xu, il avait envoyé son disciple à sa place.
+« Si vous vous étiez réincarné, alors ces cultivateurs du Royaume Céleste Antique qui ont sondé votre âme l'auraient su... Mais il y a quelques mois, j'ai ressenti votre aura, il n'y a aucun doute! » En repensant à cette aura, l'esprit du garçon aux cheveux blancs trembla. C'est à cause de cette aura qu'il avait, durant ces mois, eu l'impression que le ciel s'effondrait et vécu dans l'angoisse, et qu'il avait mobilisé la Secte Shen à tout prix pour enquêter frénétiquement. Même après avoir reçu le jade de la Sainte de Kun Xu, malgré sa cupidité pour l'héritage du Royaume Kun Xu, il avait envoyé son disciple à sa place.
 
 Il avait cultivé pendant d'innombrables années, et c'était la première fois qu'il ressentait une telle peur depuis la mort de son maître. Cette peur lui rappelait les instants précédant le trépas de son mentor.
 
@@ -32,13 +32,13 @@ Les yeux du garçon brillèrent et il s'assit lentement en tailleur. Après un m
 
 « Arrêter le corps, arrêter l'âme, arrêter l'énergie spirituelle céleste, arrêter l'énergie originelle, arrêter les cieux et la terre, arrêter le flux de la rivière des étoiles, et arrêter l'espace et le temps. Après la mort de Maître, personne ne connaissait ce sort mieux que moi! »
 
-« Vous êtes actuellement à la Secte Éternelle, alors je vous laisserai vivre un peu plus longtemps. Une fois que j'aurai fini de raffiner neuf Miroirs Antiques de Réincarnation et déployé la grande formation de réincarnation, que vous soyez réincarné ou caché dans la Perle Défiant le Ciel, vous ne pourrez pas échapper! » Le garçon aux cheveux blancs ouvrit les yeux, une lueur glaciale y brillant.
+« Vous êtes actuellement à la Secte Wu Ji, alors je vous laisserai vivre un peu plus longtemps. Une fois que j'aurai fini de raffiner neuf Miroirs Antiques de Réincarnation et déployé la grande formation de réincarnation, que vous soyez réincarné ou caché dans la Perle Défiant le Ciel, vous ne pourrez pas échapper! » Le garçon aux cheveux blancs ouvrit les yeux, une lueur glaciale y brillant.
 
 Il faisait preuve d'une prudence extrême lors de ce voyage. Ce qui le rendait prudent n'était pas Wang Lin, mais son maître! Il ne s'avancerait pas sans avoir fait tous les préparatifs nécessaires.
 
-À l'intérieur de la Secte Éternelle, au sommet de la Montagne Lu Su, Wang Lin était assis dans le pavillon et posa sa tasse de thé. L'aura d'ancien dieu pénétra par ses pieds avec frénésie pour se rassembler entre ses sourcils.
+À l'intérieur de la Secte Wu Ji, au sommet de la Montagne Lu Su, Wang Lin était assis dans le pavillon et posa sa tasse de thé. L'aura d'ancien dieu pénétra par ses pieds avec frénésie pour se rassembler entre ses sourcils.
 
-Le maître de la Secte Éternelle et le Grand Ancien discutaient avec Wang Lin, tentant de découvrir où il avait appris de telles techniques. Normalement, Wang Lin les aurait simplement ignorés tout en restant poli.
+Le maître de la Secte Wu Ji et le Grand Ancien discutaient avec Wang Lin, tentant de découvrir où il avait appris de telles techniques. Normalement, Wang Lin les aurait simplement ignorés tout en restant poli.
 
 Cependant, l'autre partie avait accepté de lui donner les âmes d'Yin extrême; plus important encore, Wang Lin absorbait l'aura d'ancien dieu avec acharnement. Plus il en absorbait, plus les changements de l'énergie originelle environnante étaient intenses. Afin de les distraire, il souriait et conversait avec eux.
 
@@ -50,7 +50,7 @@ Alors que Wang Lin parlait, deux rayons de lumière volèrent vers le pavillon e
 
 L'expression de Wang Lin était calme; il ne daigna même pas regarder l'extérieur du pavillon tout en continuant de parler. Ce n'est qu'au bout d'un demi-bâton d'encens, une fois son discours terminé, qu'il tourna le regard vers l'extérieur.
 
-Le maître de la Secte Éternelle, absorbé par les paroles de Wang Lin, laissa échapper un sourire amer. Ce que Wang Lin venait de dire semblait vide de sens, tout en paraissant pourtant signifiant. En somme, c'était très étrange.
+Le maître de la Secte Wu Ji, absorbé par les paroles de Wang Lin, laissa échapper un sourire amer. Ce que Wang Lin venait de dire semblait vide de sens, tout en paraissant pourtant signifiant. En somme, c'était très étrange.
 
 À ce moment-là, voyant le regard de Wang Lin dirigé vers l'extérieur, il toussa et dit: « Remettez-les au Daoïste Lu pour examen. »
 
@@ -58,7 +58,7 @@ Les deux hommes à l'extérieur du pavillon hochèrent respectueusement la tête
 
 Souriant, Wang Lin se leva et s'adressa au maître de la Secte et au Grand Ancien. Il joignit les mains en disant: « Je vous remercie tous les deux, je vous suis très reconnaissant! »
 
-Le maître de la Secte se leva et sourit. « Le Daoïste Lu est trop courtois. La compétition des sectes de rang 8 aura lieu dans cinq jours. J'espère que le Daoïste Lu donnera tout ce qu'il a pour aider la Secte Éternelle à remporter la victoire! »
+Le maître de la Secte se leva et sourit. « Le Daoïste Lu est trop courtois. La compétition des sectes de rang 8 aura lieu dans cinq jours. J'espère que le Daoïste Lu donnera tout ce qu'il a pour aider la Secte Wu Ji à remporter la victoire! »
 
 Le Grand Ancien se leva également et joignit les mains, souriant.
 
@@ -76,7 +76,7 @@ C'est pourquoi il devait partir précipitamment!
 
 En seulement un bâton d'encens passé sur cette montagne, la sixième étoile effondrée s'était reformée pour devenir un léger vortex. Bien qu'elle ne fût pas totalement restaurée, la différence avec son état antérieur était celle du ciel à la terre!
 
-« C'est dommage... Cependant, tant que personne ne s'en aperçoit, j'aurai de nombreuses occasions d'absorber davantage d'énergie d'ancien dieu en ce lieu! Même cette épée formée par une étoile finira entre mes mains! » L'expression de Wang Lin resta neutre tandis qu'il se calmait pour suivre le disciple de la Secte Éternelle.
+« C'est dommage... Cependant, tant que personne ne s'en aperçoit, j'aurai de nombreuses occasions d'absorber davantage d'énergie d'ancien dieu en ce lieu! Même cette épée formée par une étoile finira entre mes mains! » L'expression de Wang Lin resta neutre tandis qu'il se calmait pour suivre le disciple de la Secte Wu Ji.
 
 Après son départ, l'aura d'ancien dieu s'affaiblit à nouveau jusqu'à sombrer dans un sommeil profond.
 
@@ -84,13 +84,13 @@ Du début à la fin, Wang Lin avait absorbé l'énergie avec une prudence extrê
 
 Dans le pavillon de la Montagne Lu Su, le sourire du maître de la Secte disparut et il déclara: « Cet homme n'est pas ordinaire! Dès son arrivée, il a provoqué un changement dans l'énergie originelle de ce lieu. »
 
-Le Grand Ancien à ses côtés hocha la tête et dit doucement: « C'est exact. Puisqu'il est de la Secte Gui Yuan et qu'il est également membre de notre Secte Éternelle, il vaut mieux ne pas trop le presser. Qu'il accepte de participer à la compétition des sectes de rang 8 est une excellente nouvelle pour nous! »
+Le Grand Ancien à ses côtés hocha la tête et dit doucement: « C'est exact. Puisqu'il est de la Secte Gui Yuan et qu'il est également membre de notre Secte Wu Ji, il vaut mieux ne pas trop le presser. Qu'il accepte de participer à la compétition des sectes de rang 8 est une excellente nouvelle pour nous! »
 
 Le maître de la Secte réfléchit un instant avant d'agiter ses manches, transmettant un message par Sens Divin qui résonna sur toute la Montagne Lu Su:
 
 « Rassemblez tous les Grands Anciens, nous devons en discuter! »
 
-Wang Lin fendait l'atmosphère, suivant le disciple de la Secte Éternelle alors qu'il quittait cette planète pour retourner vers celle où la formation avait été activée. En chemin, le disciple se montrait extrêmement respectueux. Bien qu'il ouvrait la voie, il restait en réalité à demi-pas derrière Wang Lin, n'osant absolument pas le dépasser.
+Wang Lin fendait l'atmosphère, suivant le disciple de la Secte Wu Ji alors qu'il quittait cette planète pour retourner vers celle où la formation avait été activée. En chemin, le disciple se montrait extrêmement respectueux. Bien qu'il ouvrait la voie, il restait en réalité à demi-pas derrière Wang Lin, n'osant absolument pas le dépasser.
 
 En pénétrant sur la planète de culture scellée, le disciple sortit immédiatement un jade. Après avoir localisé la Secte Gui Yuan, il reprit la direction.
 

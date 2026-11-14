@@ -20,7 +20,7 @@ Cela faisait quelques mois que la première étape du raffinage corporel avait c
 
 En observant la marionnette devant lui, Wang Lin fronça les sourcils. Selon le jade, diverses matières devaient être ajoutées durant le processus de raffinage. Ce n'est qu'une fois que tous ces matériaux se seraient fusionnés avec le corps que la première étape serait achevée.
 
-« Parmi les quatre rangs des gardiens célestes — or, argent, cuivre et fer — celui-ci ne possède même pas le rang de fer. » Après une courte réflexion, Wang Lin frappa son sac de rangement et une grande quantité de trésors magiques de faible qualité s'envolèrent.
+« Parmi les quatre rangs des gardes célestes — or, argent, cuivre et fer — celui-ci ne possède même pas le rang de fer. » Après une courte réflexion, Wang Lin frappa son sac de rangement et une grande quantité de trésors magiques de faible qualité s'envolèrent.
 
 Il y avait là des trésors que Wang Lin n'utilisait plus, mais qu'il regrettait de simplement jeter.
 
@@ -48,7 +48,7 @@ Wang Lin ouvrit les yeux, laissant paraître une trace de fatigue. Il contempla 
 
 « Force du rang cuivre... Tant pis, cela devrait être à peine utilisable. »
 
-Bien que la première étape du gardien céleste fût terminée, si la seconde étape — le broyage de l'âme originelle — échouait, alors tout serait instantanément perdu. En cas d'échec, ce corps ne pourrait plus être possédé, et il ne lui serait pas possible de tenter de raffiner une autre âme originelle.
+Bien que la première étape du garde céleste fût terminée, si la seconde étape — le broyage de l'âme originelle — échouait, alors tout serait instantanément perdu. En cas d'échec, ce corps ne pourrait plus être possédé, et il ne lui serait pas possible de tenter de raffiner une autre âme originelle.
 
 Wang Lin prit une profonde inspiration, affichant un rare regard d'hésitation. Il regarda vers l'extérieur de la fissure. Depuis plus de six mois, l'aspiration extérieure n'avait jamais cessé et semblait même s'intensifier.
 
@@ -72,7 +72,7 @@ Le fantôme céleste poussa un rugissement dans la main de Wang Lin. Il ouvrit l
 
 Le fantôme céleste fut contraint de reculer, fixant Wang Lin tout en continuant de grogner sourdement.
 
-« Le corps de la marionnette n'est pas assez robuste, il sera donc très difficile pour l'âme originelle de survivre à la seconde étape. Cependant, si je récupère la férocité et le corps spirituel du fantôme céleste et que j'échoue tout de même, alors je renoncerai définitivement au raffinage de gardiens célestes! » Wang Lin se montra décisif en pressant le fantôme céleste entre les sourcils de la marionnette.
+« Le corps de la marionnette n'est pas assez robuste, il sera donc très difficile pour l'âme originelle de survivre à la seconde étape. Cependant, si je récupère la férocité et le corps spirituel du fantôme céleste et que j'échoue tout de même, alors je renoncerai définitivement au raffinage de gardes célestes! » Wang Lin se montra décisif en pressant le fantôme céleste entre les sourcils de la marionnette.
 
 « Puisque je m'apprête à raffiner un trésor, je veux un trésor de qualité supérieure. S'il ne s'agit que de la grande perfection du stade avancé de l'Ascendant, cela ne vaudra pas tous mes trésors ni ce fantôme céleste! » Le regard de Wang Lin devint glacial et sa main gauche forma un sceau. Il toucha le point entre ses sourcils et en extirpa un filament d'éclair. Cet éclair, chargé de feu, fut projeté dans le corps de la marionnette.
 
@@ -90,15 +90,15 @@ C'était la condition critique pour la seconde étape. Presque tous les échecs 
 
 Même sans se relâcher, la plupart n'atteignaient pas cet état où l'âme restait connectée malgré la fragmentation.
 
-Seuls ceux dotés d'une volonté de fer pouvaient endurer ce processus; cela s'apparentait à une révolte contre le Ciel! Voilà pourquoi les cultivateurs ayant trouvé leur propre Dao avaient un taux de réussite bien plus élevé pour devenir des gardiens célestes.
+Seuls ceux dotés d'une volonté de fer pouvaient endurer ce processus; cela s'apparentait à une révolte contre le Ciel! Voilà pourquoi les cultivateurs ayant trouvé leur propre Dao avaient un taux de réussite bien plus élevé pour devenir des gardes célestes.
 
 En employant plus de six mois, Wang Lin raffina sa première marionnette céleste. Bien que le taux de réussite fût infime, l'ajout du fantôme céleste faisait que la réussite du raffinage de l'âme originelle ne dépendait plus de la chance.
 
-Même pour Wang Lin, à moins d'utiliser l'âme du démon dispersé, il ne serait pas capable de raffiner un second gardien céleste.
+Même pour Wang Lin, à moins d'utiliser l'âme du démon dispersé, il ne serait pas capable de raffiner un second garde céleste.
 
 Une lueur d'excitation traversa le regard de Wang Lin. Il prit une profonde inspiration pour calmer son esprit. Il observa la marionnette chétive qui émettait une lumière jaune devant lui. Il pouvait sentir une connexion lui permettant de la contrôler à sa guise.
 
-L'Empereur Céleste Qing Lin n'aurait naturellement jamais permis qu'un gardien céleste se rebelle. Durant le processus de raffinage, d'innombrables méthodes de contrôle avaient été intégrées. Wang Lin l'ayant affinée avec son énergie originelle pendant longtemps, sa maîtrise sur la marionnette avait déjà atteint son apogée.
+L'Empereur Céleste Qing Lin n'aurait naturellement jamais permis qu'un garde céleste se rebelle. Durant le processus de raffinage, d'innombrables méthodes de contrôle avaient été intégrées. Wang Lin l'ayant affinée avec son énergie originelle pendant longtemps, sa maîtrise sur la marionnette avait déjà atteint son apogée.
 
 Bien que le fantôme céleste fût indiscipliné, il avait été scellé durant le raffinage et fusionné avec la marionnette.
 
@@ -110,21 +110,21 @@ C'était une paire d'yeux vides. Pourtant, on y percevait une lueur acérée.
 
 Wang Lin laissa échapper un rire, admirant profondément l'Empereur Céleste Qing Lin. Cet homme avait fait preuve d'une intelligence remarquable en créant une telle méthode de fabrication.
 
-Bien que l'âme originelle du gardien céleste, fusionnée avec son corps, ne puisse utiliser que peu de sorts et ne puisse égaler un véritable cultivateur du Yin et du Yang, il existait plusieurs techniques spécialement conçues pour les gardiens célestes! Les yeux de Wang Lin brillèrent.
+Bien que l'âme originelle du garde céleste, fusionnée avec son corps, ne puisse utiliser que peu de sorts et ne puisse égaler un véritable cultivateur du Yin et du Yang, il existait plusieurs techniques spécialement conçues pour les gardes célestes! Les yeux de Wang Lin brillèrent.
 
-« De plus, j'ai préparé un cadeau pour ce gardien céleste! » La main droite de Wang Lin toucha le point entre ses sourcils et une vaste quantité de gaz gris en jaillit. Un million de filaments d'énergie du massacre pénétrèrent instantanément dans la marionnette.
+« De plus, j'ai préparé un cadeau pour ce garde céleste! » La main droite de Wang Lin toucha le point entre ses sourcils et une vaste quantité de gaz gris en jaillit. Un million de filaments d'énergie du massacre pénétrèrent instantanément dans la marionnette.
 
 Les yeux de la marionnette dégagèrent soudainement une intention de massacre. Après quelques éclats, cette lueur s'estompa progressivement, mais ses yeux devinrent encore plus féroces.
 
-Une fois cela terminé, Wang Lin frappa son sac de rangement et le jade s'envola. Il pressa le jade entre les sourcils de la marionnette. Une explosion de lumière survint et d'innombrables symboles semblèrent scintiller dans les yeux du gardien céleste.
+Une fois cela terminé, Wang Lin frappa son sac de rangement et le jade s'envola. Il pressa le jade entre les sourcils de la marionnette. Une explosion de lumière survint et d'innombrables symboles semblèrent scintiller dans les yeux du garde céleste.
 
 Après un long moment, le jade retomba et revint vers Wang Lin.
 
 Wang Lin dit calmement: « Cache-toi! »
 
-Le corps du gardien céleste vacilla, puis il disparut soudainement pour se positionner derrière Wang Lin. Il n'y avait aucune lumière, donc naturellement aucune ombre ne fut projetée. Pourtant, Wang Lin savait que le gardien céleste se cachait dans son ombre.
+Le corps du garde céleste vacilla, puis il disparut soudainement pour se positionner derrière Wang Lin. Il n'y avait aucune lumière, donc naturellement aucune ombre ne fut projetée. Pourtant, Wang Lin savait que le garde céleste se cachait dans son ombre.
 
-« J'ai 60 % de chances de quitter cet endroit grâce aux capacités du gardien céleste. Bien que ce lieu soit périlleux, c'est précisément parce qu'il est dangereux qu'il est aussi sûr! »
+« J'ai 60 % de chances de quitter cet endroit grâce aux capacités du garde céleste. Bien que ce lieu soit périlleux, c'est précisément parce qu'il est dangereux qu'il est aussi sûr! »
 
 Wang Lin commença à réfléchir. Peu après, il frappa son sac de rangement et une grande épée s'envola. Cette épée était aussi imposante qu'un panneau de porte!
 

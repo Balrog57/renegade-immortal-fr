@@ -28,9 +28,9 @@ Wang Lin vit également Qian Kuizi. Ses pupilles se rétractèrent légèrement 
 
 « Voyageur, arrête-toi! » La voix de Qian Kuizi était faible au début, mais elle résonna comme un sortilège qui se propagea rapidement tel un coup de tonnerre. Le regard de Wang Lin devint glacial alors qu'il fixait Qian Kuizi.
 
-« Des paroles chargées de lois! » La lumière argentée provenant de la boussole stellaire de Wang Lin sembla faiblir sous la pression de ces paroles. Naturellement, il ne pouvait pas percer le niveau de culture de cet homme avec son propre Sens Divin. Cependant, grâce à la fusion du gardien céleste, il pouvait aisément déduire que cet homme se trouvait au stade Yin Illusoire de l'étape Yin et Yang.
+« Des paroles chargées de lois! » La lumière argentée provenant de la boussole stellaire de Wang Lin sembla faiblir sous la pression de ces paroles. Naturellement, il ne pouvait pas percer le niveau de culture de cet homme avec son propre Sens Divin. Cependant, grâce à la fusion du garde céleste, il pouvait aisément déduire que cet homme se trouvait au stade Yin Illusoire de l'étape Yin et Yang.
 
-« Bien que la marionnette du gardien céleste soit également au stade Yin Illusoire, elle ne peut rivaliser avec un véritable cultivateur à ce niveau. » Wang Lin connaissait la faiblesse du gardien céleste. Toutefois, en raison des sorts qui lui étaient propres, il n'en demeurait pas moins puissant.
+« Bien que la marionnette du garde céleste soit également au stade Yin Illusoire, elle ne peut rivaliser avec un véritable cultivateur à ce niveau. » Wang Lin connaissait la faiblesse du garde céleste. Toutefois, en raison des sorts qui lui étaient propres, il n'en demeurait pas moins puissant.
 
 Les yeux de Qian Kuizi restaient calmes lorsqu'il demanda lentement: « Es-tu venu à cause de la famille Huan? » Son ton était empreint d'un certain dédain.
 
@@ -54,21 +54,21 @@ Les yeux de Qian Kuizi s'illuminèrent et il dit lentement: « Remets-moi ta mar
 
 Le regard de Wang Lin devint plus glacial encore. Il lui restait deux rayons d'énergie d'épée de Ling Tianhou. Avant d'entrer dans l'Abîme Chao Xi, il en possédait deux. Puis, il en avait utilisé un pour aider le démon ancien et en avait gagné deux autres à l'intérieur de l'Abîme, soit un total de trois rayons.
 
-L'ombre sous les pieds de Wang Lin vacilla et le gardien céleste apparut. Une lueur d'intention de combat traversa ses yeux alors qu'il fixait Qian Kuizi.
+L'ombre sous les pieds de Wang Lin vacilla et le garde céleste apparut. Une lueur d'intention de combat traversa ses yeux alors qu'il fixait Qian Kuizi.
 
-Wang Lin poussa un cri: « Tuez! » Les yeux du gardien céleste brillèrent intensément et il fit un pas en avant. Simultanément, ses deux mains s'activèrent et déchirèrent l'espace, créant plusieurs fissures.
+Wang Lin poussa un cri: « Tuez! » Les yeux du garde céleste brillèrent intensément et il fit un pas en avant. Simultanément, ses deux mains s'activèrent et déchirèrent l'espace, créant plusieurs fissures.
 
-Les pupilles de Qian Kuizi se rétractèrent soudainement, mais il ne se leva pas et resta assis. Sa main droite traça des sceaux devant lui tandis qu'il commençait à murmurer. Il cracha ensuite rune après rune qui l'entourèrent immédiatement. Chaque rune dégageait une aura puissante et convergea rapidement vers le gardien céleste.
+Les pupilles de Qian Kuizi se rétractèrent soudainement, mais il ne se leva pas et resta assis. Sa main droite traça des sceaux devant lui tandis qu'il commençait à murmurer. Il cracha ensuite rune après rune qui l'entourèrent immédiatement. Chaque rune dégageait une aura puissante et convergea rapidement vers le garde céleste.
 
-Le gardien céleste avait été créé par l'Empereur Céleste Qing Lin dans le but d'imiter un dieu ancien; la plupart de ses capacités résidaient donc dans la puissance brute de son corps. À cet instant, la main du gardien forma un sceau et une explosion de lumière dorée jaillit de sa paume. Bientôt, cette lumière enveloppa tout son corps, le transformant en un colosse d'or. Il fit un pas en avant et lança un coup de poing.
+Le garde céleste avait été créé par l'Empereur Céleste Qing Lin dans le but d'imiter un dieu ancien; la plupart de ses capacités résidaient donc dans la puissance brute de son corps. À cet instant, la main du gardien forma un sceau et une explosion de lumière dorée jaillit de sa paume. Bientôt, cette lumière enveloppa tout son corps, le transformant en un colosse d'or. Il fit un pas en avant et lança un coup de poing.
 
 Ce coup provoqua une série de détonations soniques parmi les étoiles. D'innombrables fissures apparurent également, et l'impact brisa toutes les runes sur son passage.
 
 Une lueur étrange passa dans les yeux de Qian Kuizi et il sourit: « C'est même une marionnette spécialisée dans le raffinement corporel. Ce vieil homme obtiendra absolument cette marionnette! » Il changea alors d'incantation. Cette fois, le chant devint plus vigoureux, résonnant comme des morceaux de métal s'entrechoquant.
 
-En un instant, toutes les runes libérèrent des éclairs. En un clin d'œil, elles se transformèrent en dizaines de milliers de foudres qui foncèrent sur le gardien céleste.
+En un instant, toutes les runes libérèrent des éclairs. En un clin d'œil, elles se transformèrent en dizaines de milliers de foudres qui foncèrent sur le garde céleste.
 
-Ces éclairs semblaient s'attirer mutuellement pour former un réseau, comme si la toile de foudre cherchait à illuminer l'espace lui-même avant de s'abattre sur le gardien céleste.
+Ces éclairs semblaient s'attirer mutuellement pour former un réseau, comme si la toile de foudre cherchait à illuminer l'espace lui-même avant de s'abattre sur le garde céleste.
 
 Toujours debout sur sa boussole stellaire, les yeux de Wang Lin brillèrent. Il frappa son sac de rangement et le Char de Guerre Divin en sortit. Le char se transforma en Bête du Tonnerre, qui poussa un rugissement et chargea férocement.
 
@@ -78,38 +78,38 @@ Le corps de la Bête du Tonnerre doubla soudainement de volume. Elle laissa éch
 
 « C'est... c'est... la Bête du Tonnerre!! » Qian Kuizi se leva brusquement, son expression changée radicalement. Il fixa la créature en haletant.
 
-« C'est donc cela! Voilà pourquoi tu possèdes une énergie d'épée si féroce et une marionnette Yin Illusoire! C'est parce que tu es un membre du Temple Céleste du Tonnerre! » Qian Kuizi prit une inspiration glacée. Il retira immédiatement toutes ses runes; son cœur ne convoitait plus la marionnette.
+« C'est donc cela! Voilà pourquoi tu possèdes une énergie d'épée si féroce et une marionnette Yin Illusoire! C'est parce que tu es un membre du Temple Lei Xian! » Qian Kuizi prit une inspiration glacée. Il retira immédiatement toutes ses runes; son cœur ne convoitait plus la marionnette.
 
 Le visage de Qian Kuizi était pâle lorsqu'il dit rapidement: « Jeune ami, pardonne-moi; ce vieil homme a été imprudent. C'est un malentendu, un simple malentendu! » Il n'avait plus rien de l'attitude d'un puissant cultivateur.
 
-« J'ai effectivement tenté de voler quelque chose au Temple Céleste du Tonnerre, c'est vraiment... » Le visage de Qian Kuizi était empreint d'amertume.
+« J'ai effectivement tenté de voler quelque chose au Temple Lei Xian, c'est vraiment... » Le visage de Qian Kuizi était empreint d'amertume.
 
-Il pouvait provoquer n'importe quelle famille du Système Stellaire de Luotian, mais il n'oserait jamais provoquer le Temple Céleste du Tonnerre. Il n'osait même pas leur témoigner la moindre marque d'irrespect. Pour lui, les trois mots « Temple Céleste du Tonnerre » désignaient une existence intouchable.
+Il pouvait provoquer n'importe quelle famille du Système Stellaire de Luotian, mais il n'oserait jamais provoquer le Temple Lei Xian. Il n'osait même pas leur témoigner la moindre marque d'irrespect. Pour lui, les trois mots « Temple Lei Xian » désignaient une existence intouchable.
 
-À l'origine, compte tenu de son niveau de culture et de sa force mentale, il n'aurait pas cru aussi fermement que Wang Lin appartenait au Temple Céleste du Tonnerre. En fin de compte, ce qui lui avait donné cette certitude, c'était la Bête du Tonnerre!
+À l'origine, compte tenu de son niveau de culture et de sa force mentale, il n'aurait pas cru aussi fermement que Wang Lin appartenait au Temple Lei Xian. En fin de compte, ce qui lui avait donné cette certitude, c'était la Bête du Tonnerre!
 
-Dans le Système Stellaire de Luotian, seul le Temple Céleste du Tonnerre possédait des Bêtes du Tonnerre; c'était une loi quasi immuable! De même, une Bête du Tonnerre était le symbole d'un messager du Temple Céleste du Tonnerre!
+Dans le Système Stellaire de Luotian, seul le Temple Lei Xian possédait des Bêtes du Tonnerre; c'était une loi quasi immuable! De même, une Bête du Tonnerre était le symbole d'un messager du Temple Lei Xian!
 
-Qian Kuizi cultivait depuis dix mille ans, mais il n'avait jamais entendu parler d'un individu n'appartenant pas au Temple Céleste du Tonnerre qui possédait une telle bête. La Bête du Tonnerre était un attribut exclusif aux membres de ce temple. Cela était devenu une vérité absolue dans son esprit.
+Qian Kuizi cultivait depuis dix mille ans, mais il n'avait jamais entendu parler d'un individu n'appartenant pas au Temple Lei Xian qui possédait une telle bête. La Bête du Tonnerre était un attribut exclusif aux membres de ce temple. Cela était devenu une vérité absolue dans son esprit.
 
 L'expression de Wang Lin ne changea pas. Il fixa Qian Kuizi et demanda calmement: « Un malentendu? »
 
-Qian Kuizi eut un sourire amer, mais la colère lui serrait le cœur. Avec sa culture, même en découvrant que cet enfant venait du Temple Céleste du Tonnerre, il n'aurait pas parlé ainsi. Il ne tenait ce langage que face à un messager du Temple Céleste du Tonnerre ayant atteint la deuxième étape.
+Qian Kuizi eut un sourire amer, mais la colère lui serrait le cœur. Avec sa culture, même en découvrant que cet enfant venait du Temple Lei Xian, il n'aurait pas parlé ainsi. Il ne tenait ce langage que face à un messager du Temple Lei Xian ayant atteint la deuxième étape.
 
-Cependant, en l'occurrence, c'était lui qui avait provoqué l'autre en premier et qui avait tenté de voler un bien du Temple Céleste du Tonnerre. Dans son esprit, cet enfant devait jouir d'un certain statut au sein du temple, sans quoi ils ne lui auraient pas fourni une marionnette Yin Illusoire pour le protéger.
+Cependant, en l'occurrence, c'était lui qui avait provoqué l'autre en premier et qui avait tenté de voler un bien du Temple Lei Xian. Dans son esprit, cet enfant devait jouir d'un certain statut au sein du temple, sans quoi ils ne lui auraient pas fourni une marionnette Yin Illusoire pour le protéger.
 
-Après une courte hésitation, Qian Kuizi eut un sourire forcé. « Jeune ami, je ne peux pas t'aider contre la famille Huan car nous appartenons à la même planète. De plus, puisque tu viens du Temple Céleste du Tonnerre, tu n'auras de toute façon pas besoin de mon aide. Mais sache que ma famille Qian ne participera pas à cette affaire et rompra tout lien avec la famille Huan! »
+Après une courte hésitation, Qian Kuizi eut un sourire forcé. « Jeune ami, je ne peux pas t'aider contre la famille Huan car nous appartenons à la même planète. De plus, puisque tu viens du Temple Lei Xian, tu n'auras de toute façon pas besoin de mon aide. Mais sache que ma famille Qian ne participera pas à cette affaire et rompra tout lien avec la famille Huan! »
 
 « Je veux des jades célestes », dit Wang Lin en regardant calmement Qian Kuizi.
 
-Qian Kuizi fut surpris: « Votre Temple Céleste du Tonnerre manque encore de jades célestes? Soit, je te les donnerai! » Il sourit amèrement intérieurement, pensant que c'était là le prix de sa cupidité. On ne provoquait pas les gens du Temple Céleste du Tonnerre. Même en ignorant le fait que chacun d'eux possédait un sortilège de protection vitale, s'il tuait cet individu, il n'y aurait plus une seule place dans tout le Système Stellaire de Luotian pour que sa famille Qian puisse exister!
+Qian Kuizi fut surpris: « Votre Temple Lei Xian manque encore de jades célestes? Soit, je te les donnerai! » Il sourit amèrement intérieurement, pensant que c'était là le prix de sa cupidité. On ne provoquait pas les gens du Temple Lei Xian. Même en ignorant le fait que chacun d'eux possédait un sortilège de protection vitale, s'il tuait cet individu, il n'y aurait plus une seule place dans tout le Système Stellaire de Luotian pour que sa famille Qian puisse exister!
 
 « Si ce garçon veut des jades célestes, je parie qu'il en veut une quantité astronomique. Il n'a pas précisé le nombre, il compte donc sur moi pour décider... » Qian Kuizi serra les dents et sortit un sac de rangement. Le cœur lourd, il lança le sac à Wang Lin, le salua brièvement, puis fit volte-face pour s'envoler vers la planète Qianhuan.
 
 Son expression était extrêmement sombre lorsqu'il pénétra sur la planète. Dès son arrivée, il déploya son Sens Divin pour envelopper tout le territoire de la famille Huan et envoya un message divin sinistre:
 
-« Huan Wuqing, tu m'as fait provoquer quelqu'un du Temple Céleste du Tonnerre! Je ne l'oublierai pas. Une fois ta famille anéantie, je me vengerai sur tes descendants! »
+« Huan Wuqing, tu m'as fait provoquer quelqu'un du Temple Lei Xian! Je ne l'oublierai pas. Une fois ta famille anéantie, je me vengerai sur tes descendants! »
 
-L'ancêtre de la famille Huan fronça les sourcils au sein de la demeure ancestrale et envoya un message divin: « Il ne vient pas du Temple Céleste du Tonnerre, il vient du Système Stellaire de l'Alliance, tout comme ma fille adoptive, Huan Mei! »
+L'ancêtre de la famille Huan fronça les sourcils au sein de la demeure ancestrale et envoya un message divin: « Il ne vient pas du Temple Lei Xian, il vient du Système Stellaire de l'Alliance, tout comme ma fille adoptive, Huan Mei! »
 
-« C'est n'importe quoi! Ton Sens Divin était présent toi aussi; n'as-tu pas vu cette Bête du Tonnerre? La Bête du Tonnerre n'existe que dans le Royaume Céleste du Tonnerre et elle est le symbole des messagers du Temple Céleste du Tonnerre! » Qian Kuizi était furieux et pensa: « Huan Wuqing, Huan Wuqing, les choses en sont arrivées là et tu essaies encore de me cacher la vérité. Je m'en souviendrai! »
+« C'est n'importe quoi! Ton Sens Divin était présent toi aussi; n'as-tu pas vu cette Bête du Tonnerre? La Bête du Tonnerre n'existe que dans le Royaume Céleste du Tonnerre et elle est le symbole des messagers du Temple Lei Xian! » Qian Kuizi était furieux et pensa: « Huan Wuqing, Huan Wuqing, les choses en sont arrivées là et tu essaies encore de me cacher la vérité. Je m'en souviendrai! »

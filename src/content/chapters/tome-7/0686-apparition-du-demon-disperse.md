@@ -26,7 +26,7 @@ Huan Feng Shen haleta, se réjouissant intérieurement de sa décision prise plu
 
 Le cœur de Qian Kuizi, de la famille Qian, s'emballa sauvagement. Ce Démon Dispersé était trop puissant. Malgré son niveau de culture, il en frissonna réellement à sa vue.
 
-« Trop terrifiant. Qu'est-ce que c'est donc que ce... démon! Pas étonnant qu'il vienne du Temple Céleste du Tonnerre, il possède une telle panoplie de capacités. Bête du Tonnerre, marionnettes, arts de l'épée, et maintenant ceci... un démon! Cet homme doit être une figure extrêmement importante du Temple Céleste du Tonnerre; autrement, comment pourrait-il posséder tout cela?! »
+« Trop terrifiant. Qu'est-ce que c'est donc que ce... démon! Pas étonnant qu'il vienne du Temple Lei Xian, il possède une telle panoplie de capacités. Bête du Tonnerre, marionnettes, arts de l'épée, et maintenant ceci... un démon! Cet homme doit être une figure extrêmement importante du Temple Lei Xian; autrement, comment pourrait-il posséder tout cela?! »
 
 Le vieil homme de la famille Xu fut ému pour la première fois. Son sens divin laissa même paraître une pointe d'excitation alors qu'il contemplait la silhouette du Démon Dispersé.
 

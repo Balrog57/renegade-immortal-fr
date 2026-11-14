@@ -22,7 +22,7 @@ L'expression de Wang Lin devint incertaine tandis qu'il contemplait la stèle de
 
 « Ce plan est très facile à briser, mais pourquoi le ferais-je? La Secte Da Hun veut que je devienne un Ancien, et de mon côté, je compte utiliser la Secte Da Hun pour en apprendre davantage sur le Continent Xian Gang! » Wang Lin fit un pas en arrière. Des ondulations se propagèrent et il disparut.
 
-La neige bleue tombait sur la Montagne Céleste comme si elle ne connaissait point de lassitude. La neige des cimes était frappée par les rayons du soleil, dont la lumière se diffusait pour créer une sensation indescriptible, liant la terre aux cieux.
+La neige bleue tombait sur la Montagne Tian comme si elle ne connaissait point de lassitude. La neige des cimes était frappée par les rayons du soleil, dont la lumière se diffusait pour créer une sensation indescriptible, liant la terre aux cieux.
 
 Le véritable corps d'essence du Très Respecté Qing Niu était assis dans la neige. Ses cheveux ne bougeaient nullement sous le vent, ce qui paraissait très étrange.
 
@@ -98,7 +98,7 @@ L'aura d'un cultivateur de la Tribulation du Vide émanait du phénix, mais sa c
 
 Les yeux de Wang Lin brillèrent d'un éclat vif. Plutôt que de reculer, il laissa échapper un rire qui se propagea dans toutes les directions. Puisqu'il avait décidé de rejoindre la Secte Da Hun et d'en devenir un Ancien, il lui fallait démontrer sa puissance!
 
-L'Ancêtre de la Secte Da Hun savait que Wang Lin venait du Monde des Grottes et devait aussi connaître son sang du Dao Antique; Wang Lin n'avait donc pas besoin de se retenir. Quant à la manière de régler les suites, c'était à l'Ancêtre d'y réfléchir.
+L'Ancêtre de la Secte Da Hun savait que Wang Lin venait du Monde des Grottes et devait aussi connaître son sang du Dao Gu; Wang Lin n'avait donc pas besoin de se retenir. Quant à la manière de régler les suites, c'était à l'Ancêtre d'y réfléchir.
 
 Après avoir pris sa décision, Wang Lin fit un pas en avant et leva la main droite. Il ferma le poing et lança un coup dans le vide.
 
@@ -112,12 +112,12 @@ Lorsque Wang Lin avait utilisé ce sort contre le Vieux Fantôme Zhan, celui-ci 
 
 À l'instant où ce sort se manifesta, les expressions de tous les Anciens de la Secte Da Hun changèrent. Même les pupilles de Yan Luan se rétractèrent. Elle avait combattu Wang Lin durant quelques échanges, mais n'avait jamais vu ce sort.
 
-« L'aura du Dao Antique! »
+« L'aura du Dao Gu! »
 
 « C'est l'aura d'un cultivateur des pays Antiques! Cet homme... cet homme n'appartient pas à mon clan céleste! »
 
 « Il est issu des pays Antiques! »
 
-Le Très Respecté Qing Niu fronça les sourcils et agita la main droite dans un soupir. Une force puissante enveloppa la zone, dissimulant l'aura du Dao Antique de Wang Lin pour que les autres ne puissent plus la percevoir.
+Le Très Respecté Qing Niu fronça les sourcils et agita la main droite dans un soupir. Une force puissante enveloppa la zone, dissimulant l'aura du Dao Gu de Wang Lin pour que les autres ne puissent plus la percevoir.
 
 « Sort Démoniaque, Montagne de Feux de Signal! » Tandis que Wang Lin se tenait là, ses cheveux blancs flottaient au vent, lui conférant une allure majestueuse. Il ouvrit la main pour former une paume et l'abattit d'un geste.

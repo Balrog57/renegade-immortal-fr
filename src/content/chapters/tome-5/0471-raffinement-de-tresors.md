@@ -108,7 +108,7 @@ Les yeux de Wang Lin brillèrent; il sentait une étrangeté émaner du fouet. A
 
 D'un geste de la main droite, un autre objet apparut: le parchemin!
 
-En fixant le parchemin, Wang Lin réfléchit un instant avant de le ranger. Parmi tous ses trésors, c'était le plus mystérieux après la perle défiant le ciel, bien que le Fouet Kunji vienne désormais rejoindre cette liste.
+En fixant le parchemin, Wang Lin réfléchit un instant avant de le ranger. Parmi tous ses trésors, c'était le plus mystérieux après la Perle Défiant le Ciel, bien que le Fouet Kunji vienne désormais rejoindre cette liste.
 
 Wang Lin leva les yeux vers le ciel, l'air pensif. Il toucha son sac de rangement et un char de guerre couvert d'épines en sortit pour s'immobiliser au sol.
 
@@ -146,7 +146,7 @@ Wang Lin ouvrit les yeux, toucha le piège à bêtes sur son poignet et afficha 
 
 « Je suis encore trop faible, et la planète Tian Yun dépasse certainement de loin la planète Suzaku, avec bien plus de maîtres. Il y aura sûrement là-bas des cultivateurs encore plus puissants; je devrai donc être extrêmement prudent! »
 
-« Hélas, la perle défiant le ciel manque toujours de l'élément métal. Qian Feng avait absorbé les quatre esprits des cinq éléments de Hongdie; j'ai réussi à capturer l'esprit du métal, mais cela n'a fourni qu'un tiers de l'élément nécessaire à la perle... » Wang Lin soupira et s'envola vers l'horizon, se dirigeant vers le lieu où Situ Nan menait sa vie de roi.
+« Hélas, la Perle Défiant le Ciel manque toujours de l'élément métal. Qian Feng avait absorbé les quatre esprits des cinq éléments de Hongdie; j'ai réussi à capturer l'esprit du métal, mais cela n'a fourni qu'un tiers de l'élément nécessaire à la perle... » Wang Lin soupira et s'envola vers l'horizon, se dirigeant vers le lieu où Situ Nan menait sa vie de roi.
 
 Dans le pays de culture de rang 4 de Zhou, dans la capitale de la famille royale mortelle, au sein d'un immense manoir, on pouvait entendre la voix de Situ Nan:
 

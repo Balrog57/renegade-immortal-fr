@@ -6,43 +6,43 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1381 - Young Emperor
 slug: le-jeune-empereur
 ---
-Les ondulations causées par l'effondrement de la pilule dorée étaient encore présentes et les grondements tonitruants résonnaient toujours. Maître Simo, blessé par l'impact précédent, laissait couler le sang au coin de sa bouche. À cet instant, ses yeux étaient emplis de terreur.
+Les ondulations causées par l'effondrement de la pilule dorée étaient encore présentes et les grondements tonitruants résonnaient toujours. Maître Si Mo, blessé par l'impact précédent, laissait couler le sang au coin de sa bouche. À cet instant, ses yeux étaient emplis de terreur.
 
 Il reculait comme un fou, envahi par un sentiment de mort imminente. C'était comme une pression invisible qui cherchait à broyer tout son corps!
 
 L'effondrement du Cristal de Mutation de Feu Déchaîné fut encore plus intense que celui de la Pilule d'Effondrement du Dragon. Il contenait le feu céleste et, sous le contrôle de Wang Lin, avait été compressé d'innombrables fois. Sa puissance était suffisante pour menacer un cultivateur du Cinquième Fléau Céleste.
 
-Alors que le blessé Maître Simo reculait, le rugissement de Wang Lin résonna et le cristal émit soudain une lumière aveuglante. Cette lueur enveloppa la planète entière et illumina le monde.
+Alors que le blessé Maître Si Mo reculait, le rugissement de Wang Lin résonna et le cristal émit soudain une lumière aveuglante. Cette lueur enveloppa la planète entière et illumina le monde.
 
-Maître Simo poussa un cri déchirant tandis que son corps commençait à brûler. Ces flammes bleu foncé ne consumaient pas ses vêtements, mais sa chair et son âme originelle. Ses hurlements étaient à faire trembler le cœur de n'importe qui!
+Maître Si Mo poussa un cri déchirant tandis que son corps commençait à brûler. Ces flammes bleu foncé ne consumaient pas ses vêtements, mais sa chair et son âme originelle. Ses hurlements étaient à faire trembler le cœur de n'importe qui!
 
-Après avoir subi deux attaques directes de Wang Lin, Maître Simo était gravement blessé mais n'était pas mort. Sa vision se brouillait et il était parcouru d'une peur qu'il n'avait jamais manifestée auparavant. Une seule pensée occupait son esprit: s'échapper! S'échapper! S'échapper!
+Après avoir subi deux attaques directes de Wang Lin, Maître Si Mo était gravement blessé mais n'était pas mort. Sa vision se brouillait et il était parcouru d'une peur qu'il n'avait jamais manifestée auparavant. Une seule pensée occupait son esprit: s'échapper! S'échapper! S'échapper!
 
-Cependant, juste au moment où cette pensée germa dans son esprit, une lueur sanglante jaillit du feu. Une épée capable de secouer le monde jaillit de cette lumière pour foncer sur Maître Simo.
+Cependant, juste au moment où cette pensée germa dans son esprit, une lueur sanglante jaillit du feu. Une épée capable de secouer le monde jaillit de cette lumière pour foncer sur Maître Si Mo.
 
-Cette épée était d'une rapidité telle qu'il était impossible de la suivre à l'œil nu, et même le Sens Divin ne pouvait la suivre. Sa vitesse semblait ne plus être soumise aux lois du ciel, et elle atteignit instantanément Maître Simo.
+Cette épée était d'une rapidité telle qu'il était impossible de la suivre à l'œil nu, et même le Sens Divin ne pouvait la suivre. Sa vitesse semblait ne plus être soumise aux lois du ciel, et elle atteignit instantanément Maître Si Mo.
 
-Le gravement blessé Maître Simo ne put esquiver alors que l'épée de sang lui transperçait la poitrine. Des bruits de craquements résonnèrent dans son corps, mais il ne mourut toujours pas!
+Le gravement blessé Maître Si Mo ne put esquiver alors que l'épée de sang lui transperçait la poitrine. Des bruits de craquements résonnèrent dans son corps, mais il ne mourut toujours pas!
 
-L'avatar de Maître Simo était, après tout, celui d'un cultivateur du Cinquième Fléau Céleste; il n'était donc pas aisé de le tuer. Wang Lin s'y était pleinement préparé: Pilule d'Effondrement du Dragon, Cristal de Mutation de Feu Déchaîné, dix millions de rayons d'énergie d'épée et, au moment critique, l'épée de sang. En un laps de temps très court, Wang Lin avait déployé tous ses coups mortels, mais il n'avait tout de même pas réussi à terrasser un cultivateur du Cinquième Fléau Céleste.
+L'avatar de Maître Si Mo était, après tout, celui d'un cultivateur du Cinquième Fléau Céleste; il n'était donc pas aisé de le tuer. Wang Lin s'y était pleinement préparé: Pilule d'Effondrement du Dragon, Cristal de Mutation de Feu Déchaîné, dix millions de rayons d'énergie d'épée et, au moment critique, l'épée de sang. En un laps de temps très court, Wang Lin avait déployé tous ses coups mortels, mais il n'avait tout de même pas réussi à terrasser un cultivateur du Cinquième Fléau Céleste.
 
 Cependant, le blesser à ce point ferait de Wang Lin une légende dans les Royaumes Intérieur et Extérieur. Après tout, il n'avait accompli qu'une seule essence. S'il complétait sa deuxième, troisième, quatrième et cinquième essence, même s'il n'avait pas encore ouvert la Porte Kong, il pourrait affronter un cultivateur de la troisième étape!
 
-Voyant que Maître Simo ne succombait toujours pas, l'expression de Wang Lin devint sombre. Il leva son index vers le ciel, prêt à lancer un sort pour le poursuivre, quand soudain, cette voix issue du vide résonna une fois de plus:
+Voyant que Maître Si Mo ne succombait toujours pas, l'expression de Wang Lin devint sombre. Il leva son index vers le ciel, prêt à lancer un sort pour le poursuivre, quand soudain, cette voix issue du vide résonna une fois de plus:
 
 « Comment ma Terre Déchue peut-elle être un endroit où vous pouvez venir et partir comme bon vous semble? »
 
-Alors que ces mots résonnaient, Maître Simo s'était déjà enfui vers l'horizon et était sur le point de disparaître dans des ondulations spatiales. À cet instant, le ciel commença à se distordre et un courant d'air invisible forma un vortex.
+Alors que ces mots résonnaient, Maître Si Mo s'était déjà enfui vers l'horizon et était sur le point de disparaître dans des ondulations spatiales. À cet instant, le ciel commença à se distordre et un courant d'air invisible forma un vortex.
 
-Juste au moment où la silhouette de Maître Simo allait s'évanouir, un doigt jaillit du vortex et s'abattit impitoyablement sur lui!
+Juste au moment où la silhouette de Maître Si Mo allait s'évanouir, un doigt jaillit du vortex et s'abattit impitoyablement sur lui!
 
 Ce doigt était colossal; il semblait aussi vaste que le ciel lui-même. Formé par les courants d'air, il était transparent, bien qu'on puisse encore le distinguer de l'azur. Sa vitesse était indescriptible lorsqu'il descendit du vortex.
 
-C'était comme s'il allait percer la terre et effondrer le firmament. Maître Simo poussa un cri désespéré lorsque l'impact frappa son corps.
+C'était comme s'il allait percer la terre et effondrer le firmament. Maître Si Mo poussa un cri désespéré lorsque l'impact frappa son corps.
 
 Il ne put ni esquiver, ni s'échapper. C'était comme si une force inimaginable était apparue dans ce monde pour tout figer. Même la téléportation avait été stoppée.
 
-Alors que le doigt se refermait, Maître Simo trembla et cracha du sang. De multiples fissures apparurent sur sa chair et se propagèrent sur tout son corps. Finalement, il vola en éclats en d'innombrables fragments et son âme originelle fut déchiquetée.
+Alors que le doigt se refermait, Maître Si Mo trembla et cracha du sang. De multiples fissures apparurent sur sa chair et se propagèrent sur tout son corps. Finalement, il vola en éclats en d'innombrables fragments et son âme originelle fut déchiquetée.
 
 Le vent souffla et l'odeur du sang persista longtemps dans l'air.
 
@@ -56,19 +56,19 @@ Le visage du jeune maître du Clan Long Jia était extrêmement disgracieux, mar
 
 Son père, le Patriarche du Dragon Blindé, affichait un visage sombre. Il interrompit son fils d'un ton lugubre:
 
-« Pourquoi paniquer? Le fait d'avoir pu blesser et forcer l'avatar de Maître Simo, un cultivateur du Cinquième Fléau Céleste, à battre en retraite prouve qu'il est très puissant. Ton père n'est certes pas son égal, mais je suis le neuvième Ancien du Conseil Déchu et j'ai été loyal envers le Grand Empereur, tandis qu'il n'est qu'un simple étranger. Le Grand Empereur n'a pas confirmé sa parole sur les cinq respirations, mais même si c'était le cas, s'il m'avait provoqué, le Grand Empereur l'aurait tout de même tué! Hmph, il n'osera pas me chercher des ennuis. À sa place, je partirais immédiatement pour trouver un endroit où guérir. »
+« Pourquoi paniquer? Le fait d'avoir pu blesser et forcer l'avatar de Maître Si Mo, un cultivateur du Cinquième Fléau Céleste, à battre en retraite prouve qu'il est très puissant. Ton père n'est certes pas son égal, mais je suis le neuvième Ancien du Conseil Déchu et j'ai été loyal envers le Grand Empereur, tandis qu'il n'est qu'un simple étranger. Le Grand Empereur n'a pas confirmé sa parole sur les cinq respirations, mais même si c'était le cas, s'il m'avait provoqué, le Grand Empereur l'aurait tout de même tué! Hmph, il n'osera pas me chercher des ennuis. À sa place, je partirais immédiatement pour trouver un endroit où guérir. »
 
-Wang Lin flottait dans les airs et poussa un profond soupir. Bien que son combat contre l'avatar de Maître Simo eût été bref, il avait été chargé de danger et il était blessé. Ce qui le rendait encore plus prudent était l'attitude du Grand Empereur.
+Wang Lin flottait dans les airs et poussa un profond soupir. Bien que son combat contre l'avatar de Maître Si Mo eût été bref, il avait été chargé de danger et il était blessé. Ce qui le rendait encore plus prudent était l'attitude du Grand Empereur.
 
-« Bien que Maître Simo ait été gravement blessé, pouvoir tuer son avatar d'un seul doigt signifie qu'il est bien plus fort que le Shui Daozi. J'ignore seulement comment il se compare à Lanmeng Daozun. De plus, il m'aide manifestement... » Les yeux de Wang Lin s'illuminèrent. Il devait partir maintenant; après tout, il était blessé et devait trouver un lieu pour récupérer.
+« Bien que Maître Si Mo ait été gravement blessé, pouvoir tuer son avatar d'un seul doigt signifie qu'il est bien plus fort que le Shui Daozi. J'ignore seulement comment il se compare à Lanmeng Daozun. De plus, il m'aide manifestement... » Les yeux de Wang Lin s'illuminèrent. Il devait partir maintenant; après tout, il était blessé et devait trouver un lieu pour récupérer.
 
 Cependant, lorsque le regard de Wang Lin retomba sur la planète, ses yeux devinrent glacials.
 
-« Le neuvième Ancien du Conseil Déchu... Vous avez osé aider Maître Simo, vous êtes donc mon ennemi! Neuvième Ancien... j'aimerais bien voir quelle est la limite du Grand Empereur! » Wang Lin provoquait rarement les autres, mais une fois provoqué, il laissait rarement ses adversaires impunis.
+« Le neuvième Ancien du Conseil Déchu... Vous avez osé aider Maître Si Mo, vous êtes donc mon ennemi! Neuvième Ancien... j'aimerais bien voir quelle est la limite du Grand Empereur! » Wang Lin provoquait rarement les autres, mais une fois provoqué, il laissait rarement ses adversaires impunis.
 
 Il laissa échapper un reniflement glacial et se projeta comme une météorite vers le territoire du Clan Long Jia!
 
-Sa vitesse était fulgurante; il traversait le ciel tel un rayon de lumière, provoquant des grondements tonitruants. L'expression de tous les cultivateurs spectateurs changea radicalement. Après avoir assisté au combat entre Wang Lin et Maître Simo, personne n'osait l'intercepter.
+Sa vitesse était fulgurante; il traversait le ciel tel un rayon de lumière, provoquant des grondements tonitruants. L'expression de tous les cultivateurs spectateurs changea radicalement. Après avoir assisté au combat entre Wang Lin et Maître Si Mo, personne n'osait l'intercepter.
 
 Le visage du jeune maître du Clan Long Jia devint livide alors qu'il reculait inconsciemment de quelques pas en s'exclamant: « Père, il... il... »
 

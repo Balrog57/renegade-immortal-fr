@@ -1,6 +1,6 @@
 ---
 n: 2003
-title: "Ambassadeurs de l'Ancien Dao"
+title: "Ambassadeurs du Dao Gu"
 book: 13
 bookTitle: Light of the coming end
 en: Chapter 2003 - Ancient Dao Ambassadors
@@ -12,7 +12,7 @@ Cet endroit différait de la beauté délicate du clan Céleste; ici, tout n'ét
 
 Mais simultanément, l'immensité du monde faisait que cette oppression se propageait à mesure que le regard embrassait l'horizon. C'était comme si respirer l'aura du clan Ancien permettait de fusionner avec ce lieu.
 
-Contrairement au clan Céleste, le clan Ancien était une monarchie absolue. Il était divisé en trois nations: l'Ancien Shi, l'Ancien Dao et l'Ancien Ji.
+Contrairement au clan Céleste, le clan Ancien était une monarchie absolue. Il était divisé en trois nations: le Shi Gu, le Dao Gu et le Ji Gu.
 
 La puissance des trois empereurs de l'Ancien n'avait aucune comparaison avec celle de l'Empereur Céleste. Ici, l'autorité de la famille royale régnait en maître, créant une pression invisible qui enveloppait la terre et le cœur de chaque membre du clan Ancien.
 
@@ -39,9 +39,9 @@ Au centre de ces trois nations se trouvait la terre sainte du clan Ancien, là o
 
 Wang Lin avait appris l'existence du clan Ancien par l'intermédiaire de Xuan Luo dans le monde caverneux et grâce aux archives de la Secte Zi Yang des Grands Empyréens jumeaux. Par conséquent, Wang Lin n'était pas aussi désemparé qu'à son arrivée dans le clan Céleste.
 
-Cependant, le clan Ancien était tout simplement trop vaste, et Wang Lin ne possédait aucune carte de l'Ancien Dao. Il lui fallait trouver une pierre de jade cartographique avant de pouvoir s'y rendre.
+Cependant, le clan Ancien était tout simplement trop vaste, et Wang Lin ne possédait aucune carte du Dao Gu. Il lui fallait trouver une pierre de jade cartographique avant de pouvoir s'y rendre.
 
-« Les trois nations du clan Ancien sont: l'Ancien Shi, la plus puissante; l'Ancien Ji, la plus unie; et l'Ancien Dao, qui possède le plus grand nombre d'habitants mais qui est également la plus faible. » Wang Lin marchait sur la terre noire en prenant une profonde inspiration.
+« Les trois nations du clan Ancien sont: le Shi Gu, la plus puissante; le Ji Gu, la plus unie; et le Dao Gu, qui possède le plus grand nombre d'habitants mais qui est également la plus faible. » Wang Lin marchait sur la terre noire en prenant une profonde inspiration.
 
 Il s'agenouilla et saisit une poignée de terre qu'il porta à son nez. Il sentait une force émaner du sol, faisant trembler son propre lignage Ancien.
 
@@ -119,16 +119,16 @@ L'homme fut surpris mais ne posa aucune question. Il frappa sa poitrine de la ma
 
 La pierre était effectivement très rudimentaire, comme l'homme l'avait affirmé. Elle ne détaillait que les nations voisines; plus on s'éloignait, plus les tracés devenaient flous.
 
-Cependant, grâce à la carte et à sa propre compréhension, Wang Lin comprit désormais que les douze nations du nord appartenaient à l'Ancien Shi. En descendant vers le sud, le territoire se scindait en deux directions pour former un triangle composé de l'Ancien Ji et de l'Ancien Dao.
+Cependant, grâce à la carte et à sa propre compréhension, Wang Lin comprit désormais que les douze nations du nord appartenaient àu Shi Gu. En descendant vers le sud, le territoire se scindait en deux directions pour former un triangle composé du Ji Gu et du Dao Gu.
 
-La cité Hei Shi se situait à la périphérie du pays Mu Sang, au sein de l'Ancien Shi.
+La cité Hei Shi se situait à la périphérie du pays Mu Sang, au sein du Shi Gu.
 
 Wang Lin tint la pierre de jade et demanda lentement: « Je me demande pourquoi la ville est ainsi scellée? »
 
-L'un des deux gardes répondit sans rien lui cacher: « Je rapporte au Seigneur Dieu: j'ai reçu l'ordre du seigneur de la ville de libérer les accès de Hei Shi en un bâton d'encens, afin de préparer l'arrivée du Prince Ji Du et des ambassadeurs de l'Ancien Dao. »
+L'un des deux gardes répondit sans rien lui cacher: « Je rapporte au Seigneur Dieu: j'ai reçu l'ordre du seigneur de la ville de libérer les accès de Hei Shi en un bâton d'encens, afin de préparer l'arrivée du Prince Ji Du et des ambassadeurs du Dao Gu. »
 
-« Les ambassadeurs de l'Ancien Dao? Je sors tout juste de ma retraite et j'ignore tout de cela. Donne-moi plus de détails. » Les yeux de Wang Lin s'illuminèrent imperceptiblement.
+« Les ambassadeurs du Dao Gu? Je sors tout juste de ma retraite et j'ignore tout de cela. Donne-moi plus de détails. » Les yeux de Wang Lin s'illuminèrent imperceptiblement.
 
 Le garde répondit avec respect et sans hésiter:
 
-« Cette humble personne ne sait que peu de choses sur ces ambassadeurs. Mais la rumeur veut que la famille royale de l'Ancien Dao envoie des émissaires depuis des centaines d'années à la recherche de femmes magnifiques. Il paraît que... l'Empereur de l'Ancien Dao cherche à choisir une concubine. »
+« Cette humble personne ne sait que peu de choses sur ces ambassadeurs. Mais la rumeur veut que la famille royale du Dao Gu envoie des émissaires depuis des centaines d'années à la recherche de femmes magnifiques. Il paraît que... l'Empereur du Dao Gu cherche à choisir une concubine. »

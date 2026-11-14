@@ -8,7 +8,7 @@ slug: comme-il-se-doit
 ---
 « Vous? » Cang Songzi regarda Wang Lin. Tandis qu'il l'observait, la folie qui hantait son regard s'estompa progressivement. Il pensa: « Le corps de cet homme est véritablement étrange. Plus tôt, il a pu résister au dragon par sa seule force physique. Peut-être pourra-t-il briser la formation grâce à la puissance de son corps. »
 
-« Très bien, je vais compter sur le camarade cultivateur Lu. » Cang Songzi joignit les mains et son expression retrouva son calme habituel.
+« Très bien, je vais compter sur le Daoïste Lu. » Cang Songzi joignit les mains et son expression retrouva son calme habituel.
 
 Le vieil homme nommé Pang ricana. Il se disait que si même Cang Songzi, muni de l'armure démoniaque, n'avait pu franchir que neuf pas, combien de pas cet homme appelé Lu pourrait-il espérer parcourir?
 
@@ -56,7 +56,7 @@ Le corps de Wang Lin, à l'intérieur du rocher, sembla se tordre. Il leva le pi
 
 Le corps de Wang Lin trembla violemment et les veines de son visage gonflèrent. Ses yeux étaient injectés de sang, mais il parvint à se stabiliser!
 
-L'esprit de Cang Songzi vacilla et il s'écria: « Camarade cultivateur Lu, encore un seul pas! »
+L'esprit de Cang Songzi vacilla et il s'écria: « Daoïste Lu, encore un seul pas! »
 
 La femme en vert afficha une expression complexe. Elle observa longuement sans voir le moindre signe que Wang Lin ne simulait; tout semblait terriblement réel.
 
@@ -64,7 +64,7 @@ La femme en vert afficha une expression complexe. Elle observa longuement sans v
 
 « Camarades Cang Songzi et Zhao, j'ai déjà fait mon possible lors de ce voyage. Si je suis gravement blessé, vous tous... » La voix faible de Wang Lin parvint de l'intérieur du rocher.
 
-« Le camarade cultivateur Lu peut être rassuré. Ce vieil homme n'oubliera pas sa promesse! » lança Cang Songzi par transmission de pensée.
+« Le Daoïste Lu peut être rassuré. Ce vieil homme n'oubliera pas sa promesse! » lança Cang Songzi par transmission de pensée.
 
 Wang Lin sembla hésiter au sein du rocher, mais bientôt, il leva le pied droit et fit le dixième pas! À l'instant où ce dixième pas fut posé, la montagne entière rugit et trembla violemment. Des pans entiers de roche s'effondrèrent, alertant les bêtes de brume qui trônaient au sommet.
 
@@ -86,7 +86,7 @@ Cang Songzi reposa Wang Lin avec émotion et joignit les mains. « Le frère Lu 
 
 Le visage de Wang Lin était livide et une trace de sang maculait le coin de ses lèvres. Il fit un geste de la main avec un sourire amer. « Cette formation était très étrange. Après mon sixième pas, une force est apparue derrière moi; je n'avais d'autre choix que d'avancer... »
 
-« Quoi qu'il en soit, le camarade cultivateur Lu a grandement contribué à notre entrée ici! » Cang Songzi parut très sincère et continua de joindre les mains. Voyant la fatigue sur le visage de Wang Lin, il sortit immédiatement des pilules et les lui tendit.
+« Quoi qu'il en soit, le Daoïste Lu a grandement contribué à notre entrée ici! » Cang Songzi parut très sincère et continua de joindre les mains. Voyant la fatigue sur le visage de Wang Lin, il sortit immédiatement des pilules et les lui tendit.
 
 « Frère Lu, reposez-vous et reprenez des forces. Une fois rétabli, nous pourrons reprendre notre marche. »
 
@@ -112,9 +112,9 @@ Bientôt, sous la direction de Cang Songzi, les quatre arrivèrent dans une vall
 
 La paroi de cette demeure était recouverte d'herbe, signe qu'elle n'avait pas été habitée depuis longtemps. Elle n'était pas très vaste et ne comptait que trois pièces. Le sol était jonché de pilules éparpillées; la plupart s'étaient altérées avec le temps et tomberaient en poussière au moindre contact.
 
-L'esprit de Cang Songzi n'était manifestement pas tourné vers la grotte. Il regarda la femme en vert et déclara: « Je ne prendrai rien ici. Tout appartient aux camarades cultivateurs Zhao et Lu. »
+L'esprit de Cang Songzi n'était manifestement pas tourné vers la grotte. Il regarda la femme en vert et déclara: « Je ne prendrai rien ici. Tout appartient aux Daoïstes Zhao et Lu. »
 
-La femme en vert déploya son sens divin et secoua la tête: « Le camarade cultivateur Lu a payé un prix bien trop lourd, comment pourrais-je prendre quoi que ce soit? Laissez le camarade cultivateur Lu tout récupérer. »
+La femme en vert déploya son sens divin et secoua la tête: « Le Daoïste Lu a payé un prix bien trop lourd, comment pourrais-je prendre quoi que ce soit? Laissez le Daoïste Lu tout récupérer. »
 
 Wang Lin observa les lieux et soupira. « Je ne peux pas continuer votre voyage avec vous deux. Cet endroit est calme et propice à la guérison. »
 

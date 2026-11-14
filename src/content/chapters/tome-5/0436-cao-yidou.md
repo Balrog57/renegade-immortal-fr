@@ -114,7 +114,7 @@ C'était une jeune fille. Elle paraissait ordinaire, mais l'expression de son vi
 
 Wang Lin apparut à l'intérieur de la grotte, observa la jeune fille, puis se transforma en une volute de fumée pour s'engouffrer dans l'une des petites fissures du mur.
 
-Lorsqu'il était encore au stade de l'Établissement des Fondations, son corps ne pouvait pas franchir ces interstices. Il ne pouvait y pénétrer qu'en utilisant son Sens Divin, ce qui exigeait une énergie colossale; il avait dû boire la rosée de la perle défiant le ciel pour étendre progressivement son Sens Divin jusqu'à atteindre l'endroit où se trouvait le géant.
+Lorsqu'il était encore au stade de l'Établissement des Fondations, son corps ne pouvait pas franchir ces interstices. Il ne pouvait y pénétrer qu'en utilisant son Sens Divin, ce qui exigeait une énergie colossale; il avait dû boire la rosée de la Perle Défiant le Ciel pour étendre progressivement son Sens Divin jusqu'à atteindre l'endroit où se trouvait le géant.
 
 Une fois à l'intérieur du conduit, avant même qu'il n'ait pu progresser, un appel monta des profondeurs:
 

@@ -8,7 +8,7 @@ slug: deux-batons-dencens
 ---
 Tenant l'âme originelle de l'homme d'âge moyen, Wang Lin regarda froidement les deux individus qui fuyaient dans des directions opposées. Il ne les poursuivit pas personnellement, mais une ombre surgit derrière lui: Ta Shan s'élança pour les traquer.
 
-Il n'y eut aucune difficulté à éliminer ces deux cultivateurs de l'Yin Illusoire terrifiés, grâce au corps de Gardien Céleste de Ta Shan, au stade du Yang Corporel.
+Il n'y eut aucune difficulté à éliminer ces deux cultivateurs de l'Yin Illusoire terrifiés, grâce au corps de Garde Céleste de Ta Shan, au stade du Yang Corporel.
 
 « Senior, ayez pitié; la culture de ce junior n'a pas été facile à acquérir. Senior, pardonnez-moi... » L'homme d'âge moyen était mort de peur. Son âme originelle implorait sans cesse la clémence dans la main de Wang Lin.
 
@@ -34,9 +34,9 @@ Naturellement, il ne laisserait pas partir les âmes originelles de ceux qui l'a
 
 Quant aux sacs des trois hommes, Wang Lin les inspecta et y trouva quelques trésors magiques. Il les sortit un par un et les broya. Puis, il cracha l'essence de son âme originelle pour les transformer en liquide avant de les fusionner dans le corps de Ta Shan.
 
-La puissance d'un corps de Gardien Céleste provenait principalement de rares trésors célestes mentionnés dans le jade céleste de l'Empereur Céleste Qing Lin. Cependant, ces trésors avaient disparu depuis bien longtemps.
+La puissance d'un corps de Garde Céleste provenait principalement de rares trésors célestes mentionnés dans le jade céleste de l'Empereur Céleste Qing Lin. Cependant, ces trésors avaient disparu depuis bien longtemps.
 
-Wang Lin ne pouvait donc que faire au mieux: il extrayait les matériaux contenus dans divers trésors afin de rendre le corps du Gardien Céleste de plus en plus puissant.
+Wang Lin ne pouvait donc que faire au mieux: il extrayait les matériaux contenus dans divers trésors afin de rendre le corps du Garde Céleste de plus en plus puissant.
 
 Il y avait également deux morceaux de jade dans leurs sacs. D'après leurs souvenirs, ces jades servaient à contacter la famille Yao. On pouvait dire que la famille Yao avait déployé des forces considérables pour s'en prendre à lui.
 

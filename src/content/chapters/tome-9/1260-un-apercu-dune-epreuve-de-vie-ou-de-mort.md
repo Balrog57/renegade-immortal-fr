@@ -24,7 +24,7 @@ Profond et mystérieux!
 
 Seuls ces mots pouvaient décrire le choc que Wang Lin avait provoqué chez tout le monde. Nul ne savait quels autres sorts il n'avait pas encore dégainés. C'est précisément pour cette raison que l'impression qu'ils avaient de lui devint encore plus forte.
 
-De plus, des rumeurs sur lui s'étaient propagées avant même son apparition. Puis, une fois présent, il fut confirmé qu'il était celui qui avait franchi les régions de rang 6 et 7 en utilisant l'Empreinte de l'Esprit Guerrier de la Secte Divine.
+De plus, des rumeurs sur lui s'étaient propagées avant même son apparition. Puis, une fois présent, il fut confirmé qu'il était celui qui avait franchi les régions de rang 6 et 7 en utilisant l'Empreinte de l'Esprit Guerrier de la Secte Shen.
 
 Tout cela rendait Wang Lin encore plus impénétrable et mystérieux aux yeux de tous.
 
@@ -52,9 +52,9 @@ Pourtant, Mu Bingmei comprenait que rien de tout cela n'avait de lien avec elle.
 
 Il semblait que leur destin était d'être ni familiers, ni inconnus. Ce sentiment d'indifférence entre eux existerait pour toujours.
 
-Nul ne réalisa que Wang Shanshan, de la Secte Divine, avait un éclat étrange dans les yeux en fixant Wang Lin. Elle sortit délicatement une pierre de jade et enregistra tout ce dont elle avait été témoin. Puis, elle pressa le jade qui disparut dans sa main.
+Nul ne réalisa que Wang Shanshan, de la Secte Shen, avait un éclat étrange dans les yeux en fixant Wang Lin. Elle sortit délicatement une pierre de jade et enregistra tout ce dont elle avait été témoin. Puis, elle pressa le jade qui disparut dans sa main.
 
-Par cette méthode singulière, Wang Shanshan transmit tout ce qu'elle avait vu à son maître de la Secte Divine. Elle l'avait fait sans préméditation; elle voulait simplement montrer un génie de la Mer Yun à son mentor. Elle pensait même que celui-ci chercherait certainement à recruter cet homme au sein de la Secte Divine après avoir vu cela!
+Par cette méthode singulière, Wang Shanshan transmit tout ce qu'elle avait vu à son maître de la Secte Shen. Elle l'avait fait sans préméditation; elle voulait simplement montrer un génie de la Mer Yun à son mentor. Elle pensait même que celui-ci chercherait certainement à recruter cet homme au sein de la Secte Shen après avoir vu cela!
 
 Cependant, elle n'aurait jamais pu imaginer l'immense onde de choc qui serait déclenchée lorsque son maître verrait ce qui était gravé dans ce petit morceau de jade!
 

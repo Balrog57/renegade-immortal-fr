@@ -8,15 +8,15 @@ slug: recolte
 ---
 Wang Lin fronça les sourcils et s'apprêta à parler.
 
-« Quoi? Le camarade cultivateur Lu n'est pas satisfait? » L'expression de Cang Songzi se durcit alors qu'il fixait Wang Lin.
+« Quoi? Le Daoïste Lu n'est pas satisfait? » L'expression de Cang Songzi se durcit alors qu'il fixait Wang Lin.
 
 Wang Lin resta silencieux.
 
-« Puisque le camarade cultivateur Lu est d'accord, je m'en remets au camarade cultivateur Pang. » Une fois son discours terminé, Cang Songzi jeta un regard à la vieille femme en vert et tous deux quittèrent la grotte. Ils se dirigèrent droit vers la chaîne de montagnes qui se dressait au loin, semblable à une muraille.
+« Puisque le Daoïste Lu est d'accord, je m'en remets au Daoïste Pang. » Une fois son discours terminé, Cang Songzi jeta un regard à la vieille femme en vert et tous deux quittèrent la grotte. Ils se dirigèrent droit vers la chaîne de montagnes qui se dressait au loin, semblable à une muraille.
 
 Cependant, avant de partir, la vieille femme en vert lança un dernier regard à Wang Lin. De même, Cang Songzi observa l'homme âgé nommé Pang.
 
-Une fois les deux partis, l'homme nommé Pang afficha un sourire sinistre et fixa Wang Lin. Il fit tourner la bague à son doigt et dit d'une voix lente: « Camarade cultivateur Lu, continuez votre culture. Ce vieil homme veillera bien sur vous. »
+Une fois les deux partis, l'homme nommé Pang afficha un sourire sinistre et fixa Wang Lin. Il fit tourner la bague à son doigt et dit d'une voix lente: « Daoïste Lu, continuez votre culture. Ce vieil homme veillera bien sur vous. »
 
 Après avoir parlé, il sonda présomptueusement Wang Lin avec son sens divin. Après s'être assuré que les blessures de Wang Lin étaient réelles, il ne lui accorda même plus un regard et commença à piller la grotte.
 
@@ -24,7 +24,7 @@ Wang Lin ferma les yeux et ignora l'homme âgé.
 
 Le temps passa lentement. Lorsque l'homme eut fini de fouiller les trois pièces de pierre, un air d'extase illumina son visage. De retour dans la pièce principale, il fixa froidement Wang Lin et éclata soudainement de rire.
 
-« Camarade cultivateur Lu, ce vieil homme se souvient que vous avez dit quelque chose une fois. »
+« Daoïste Lu, ce vieil homme se souvient que vous avez dit quelque chose une fois. »
 
 Wang Lin ouvrit les yeux. Son regard était d'un calme olympien alors qu'il observait l'homme nommé Pang.
 

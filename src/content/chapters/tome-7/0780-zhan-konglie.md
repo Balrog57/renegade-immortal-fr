@@ -74,7 +74,7 @@ Zhan Konglie était très célèbre, et certains cultivateurs environnants le re
 
 « Qui est cet homme? Son niveau de culture semble similaire à celui de Zhan Konglie. Comment le célèbre Zhan Konglie du domaine Sud peut-il l'appeler "Senior"?! »
 
-« J'ai entendu dire que Zhan Konglie est déjà devenu un messager du Temple Céleste du Tonnerre. S'il appelle quelqu'un ainsi, cet homme pourrait-il être un Ancien du Temple Céleste du Tonnerre? »
+« J'ai entendu dire que Zhan Konglie est déjà devenu un messager du Temple Lei Xian. S'il appelle quelqu'un ainsi, cet homme pourrait-il être un Ancien du Temple Lei Xian? »
 
 Diverses pensées traversèrent l'esprit des cultivateurs alentour.
 
@@ -90,7 +90,7 @@ Le respect de Zhan Konglie était sincère et venait du plus profond de son êtr
 
 Lorsqu'il était reparti autrefois, il était resté mélancolique et éprouvait une immense envie envers Shengong Hu. Après son retour chez lui, il avait hésité, se demandant s'il n'aurait pas dû faire comme Shengong Hu et saisir cette chance inouïe.
 
-Fort de cette réflexion, lorsqu'il apprit que Shengong Hu avait été puni par sa famille et abandonné par le Temple Céleste du Tonnerre, il ressentit un sentiment complexe. S'il n'avait pas vécu cela lui-même, il se serait moqué ouvertement de la situation de Shengong Hu.
+Fort de cette réflexion, lorsqu'il apprit que Shengong Hu avait été puni par sa famille et abandonné par le Temple Lei Xian, il ressentit un sentiment complexe. S'il n'avait pas vécu cela lui-même, il se serait moqué ouvertement de la situation de Shengong Hu.
 
 Cependant, après avoir traversé l'épreuve au lac du tonnerre, il s'était trouvé en accord avec Shengong Hu et en était même venu à éprouver de la tristesse. Dans son cœur, il éprouvait une véritable admiration pour ce dernier.
 
@@ -112,7 +112,7 @@ Zhan Konglie hésita, puis dit avec déférence: « Le junior n'est pas certain 
 
 Wang Lin fronça les sourcils plus profondément: « J'ai d'autres affaires importantes à régler! Si j'ai le temps, je viendrai voir. »
 
-Zhan Konglie hocha immédiatement la tête, un air d'excitation sur le visage. Hormis Wang Lin, seule une poignée de membres de sa famille et du Temple Céleste du Tonnerre pouvaient provoquer une telle réaction chez lui.
+Zhan Konglie hocha immédiatement la tête, un air d'excitation sur le visage. Hormis Wang Lin, seule une poignée de membres de sa famille et du Temple Lei Xian pouvaient provoquer une telle réaction chez lui.
 
 Zhan Konglie pensa: « Puisque le Senior a dit cela, alors je suis certain de pouvoir obtenir le trésor cette fois! » Il adressa ses respects respectueusement avant de rejoindre son groupe pour s'envoler en tête.
 

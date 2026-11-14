@@ -20,7 +20,7 @@ Inconsciemment, après mille ans de culture, Wang Lin avait atteint un tel état
 
 Après mille ans de culture, non seulement sa puissance avait progressé, mais ses horizons s'étaient également élargis. Peu de trésors pouvaient désormais attirer son attention. Même les objets faibles qu'il conservait dans son sac ne l'étaient que par affection particulière ou parce qu'ils l'avaient accompagné durant ses mille ans de culture.
 
-Peu importe la faiblesse d'un objet, il devait au moins être un trésor céleste pour captiver l'attention d'un messager du Temple Céleste du Tonnerre; et pourtant, Wang Lin l'avait broyé avec désinvolture. Même détruit, cela ne lui aurait causé aucun regret.
+Peu importe la faiblesse d'un objet, il devait au moins être un trésor céleste pour captiver l'attention d'un messager du Temple Lei Xian; et pourtant, Wang Lin l'avait broyé avec désinvolture. Même détruit, cela ne lui aurait causé aucun regret.
 
 Tout en fixant le liquide doré entre ses doigts, les yeux de Wang Lin brillèrent intensément. Une fissure s'ouvrit soudainement entre ses sourcils et son troisième œil apparut. Une lumière rouge se propagea rapidement pour envelopper le liquide doré.
 

@@ -94,7 +94,7 @@ Simultanément, un fracas retentit et le bouclier lumineux entourant Mu Bingmei 
 
 « L'amante du Seigneur du Royaume Scellé saura sans aucun doute ravir ce jeune maître! »
 
-Le regard de Mu Bingmei ne trahissait qu'une détermination de martyr. Les membres de la Secte Divine se ruèrent en avant, prêts à mourir avec le Royaume Intérieur!
+Le regard de Mu Bingmei ne trahissait qu'une détermination de martyr. Les membres de la Secte Shen se ruèrent en avant, prêts à mourir avec le Royaume Intérieur!
 
 À cet instant précis, à l'extérieur de la formation planétaire, Qing Lin, la femme de Zhao He et le Maître Hong Shan, qui combattaient les cultivateurs du Vide Arcanique du Royaume Extérieur, affrontaient eux aussi leurs plus grands combats pour la survie!
 

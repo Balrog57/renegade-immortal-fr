@@ -8,7 +8,7 @@ slug: chapitre-359
 ---
 « Situ... » Les yeux de Wang Lin devinrent graves alors qu'il pointait le milieu de son front. Une lumière multicolore enveloppa son corps et il disparut.
 
-À l'intérieur de l'espace de la perle défiant le ciel, les orbes de lumière étaient toujours là. Wang Lin ne daigna même pas les regarder en avançant.
+À l'intérieur de l'espace de la Perle Défiant le Ciel, les orbes de lumière étaient toujours là. Wang Lin ne daigna même pas les regarder en avançant.
 
 Peu après, il atteignit l'endroit où se trouvait l'Âme Naissante de Situ Nan.
 
@@ -20,7 +20,7 @@ Wang Lin regarda Situ Nan et murmura: « L'Âme Naissante de Situ est bien ici. 
 
 Wang Lin réfléchit un instant avant que son expression ne devienne soudainement solennelle.
 
-« Situ avait dit qu'il avait combattu plusieurs cultivateurs de l'extérieur de Suzaku pour la perle défiant le ciel et que son corps avait été brisé. Il avait dû l'abandonner et cacher son Âme Naissante à l'intérieur de la perle pour échapper à ce désastre! »
+« Situ avait dit qu'il avait combattu plusieurs cultivateurs de l'extérieur de Suzaku pour la Perle Défiant le Ciel et que son corps avait été brisé. Il avait dû l'abandonner et cacher son Âme Naissante à l'intérieur de la perle pour échapper à ce désastre! »
 
 Les yeux de Wang Lin devinrent de plus en plus brillants en se remémorant la silhouette qui se faisait appeler Situ Nan. Elle était formée de gaz noir, et ce gaz émanait de ce bras.
 
@@ -30,9 +30,9 @@ Wang Lin secoua la tête. En fin de compte, il n'était toujours pas certain des
 
 À moins que Situ Nan n'ait été le Suzaku de l'époque, il ne pouvait prétendre être le plus grand expert.
 
-De plus, Situ Nan était resté à l'intérieur de la perle défiant le ciel pendant tant d'années que, même s'il revenait aujourd'hui, il ne serait probablement plus à la hauteur.
+De plus, Situ Nan était resté à l'intérieur de la Perle Défiant le Ciel pendant tant d'années que, même s'il revenait aujourd'hui, il ne serait probablement plus à la hauteur.
 
-Après avoir songé encore un moment, Wang Lin soupira de nouveau avant de quitter la perle défiant le ciel.
+Après avoir songé encore un moment, Wang Lin soupira de nouveau avant de quitter la Perle Défiant le Ciel.
 
 Pays de Xue Yu.
 

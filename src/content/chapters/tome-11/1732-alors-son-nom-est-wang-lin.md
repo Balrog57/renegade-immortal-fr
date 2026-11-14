@@ -94,7 +94,7 @@ Cependant, à cet instant précis, une voix glaciale retentit derrière lui.
 
 « Je suis là. »
 
-L'expression du Général de l'Eau changea radicalement et il se retourna. Wang Lin surgit des eaux et sa main droite frappa le Général de l'Eau de plein fouet. Une force d'essence et l'aura destructrice du Dao Antique s'engouffrèrent dans le corps du général. Ses cinq organes s'effondrèrent, tous ses os furent brisés et sa chair fut presque arrachée à son squelette. Le Général de l'Eau cracha un flot de sang et fut projeté au loin par l'onde de choc!
+L'expression du Général de l'Eau changea radicalement et il se retourna. Wang Lin surgit des eaux et sa main droite frappa le Général de l'Eau de plein fouet. Une force d'essence et l'aura destructrice du Dao Gu s'engouffrèrent dans le corps du général. Ses cinq organes s'effondrèrent, tous ses os furent brisés et sa chair fut presque arrachée à son squelette. Le Général de l'Eau cracha un flot de sang et fut projeté au loin par l'onde de choc!
 
 Des bruits de craquements résonnèrent dans son corps et des fissures apparurent sur son armure. Pourtant, l'armure ne céda pas! Au contraire, une immense quantité de force vitale jaillit des fêlures, aidant le Général de l'Eau à se remettre de ses blessures mortelles.
 

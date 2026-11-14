@@ -55,7 +55,7 @@ Des marques semblables à des feuilles de thé apparurent sur son visage. À cha
 
 À ce moment-là, l'ancêtre du Clan Ju Mo rattrapa la scène et baissa les yeux vers Wang Lin.
 
-« Nous avons déjà perdu trop de temps. Une fois cet homme tué, j'aurai d'autres affaires à régler. Camarade cultivateur Li, allez-y. »
+« Nous avons déjà perdu trop de temps. Une fois cet homme tué, j'aurai d'autres affaires à régler. Daoïste Li, allez-y. »
 
 Les yeux de l'homme d'âge moyen s'illuminèrent et il sourit: « Tu hésites à agir par peur du Mont Suzaku. Très bien, puisque c'est mon plan, je vais m'en charger! »
 
@@ -75,7 +75,7 @@ L'expression de Sun Tai était sombre alors qu'il observait l'homme d'âge moyen
 
 Sun Tai déclara: « Je vais emporter cet homme! »
 
-« Camarade cultivateur... » L'homme d'âge moyen de Xue Yu s'apprêta à intervenir.
+« Daoïste... » L'homme d'âge moyen de Xue Yu s'apprêta à intervenir.
 
 Sun Tai le coupa d'un cri: « Ferme ta sale gueule et dégage! Un simple cultivateur au début de la Transformation de l'Âme, et qui l'a atteint par la force en plus, n'a pas les compétences pour me parler! »
 

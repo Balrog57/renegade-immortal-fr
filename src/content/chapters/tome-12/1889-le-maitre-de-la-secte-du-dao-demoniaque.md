@@ -32,7 +32,7 @@ Parmi ces centaines de personnes figuraient quatre experts du stade intermédiai
 
 Ils utilisaient la force d'une secte entière pour tuer un seul homme! Un tel massacre pouvait sembler lié à des rancunes personnelles, mais ce n'en était pas la seule raison. Aucun maître de secte ou ancêtre des neuf sectes et treize factions ne serait aussi aveugle!
 
-Les yeux de Wang Lin étaient injectés de sang. Tandis que les centaines de poursuivants se rapprochaient, il savait qu'il lui serait impossible de franchir les 500 kilomètres restants. Divers sorts et trésors volèrent vers lui. Alors que les cinq experts de la Tribulation du Vide se resserraient, Wang Lin leva sa main droite et toute la puissance de l'Ancien Dao en lui explosa. Une ombre gigantesque de l'Ancien Dao apparut derrière lui.
+Les yeux de Wang Lin étaient injectés de sang. Tandis que les centaines de poursuivants se rapprochaient, il savait qu'il lui serait impossible de franchir les 500 kilomètres restants. Divers sorts et trésors volèrent vers lui. Alors que les cinq experts de la Tribulation du Vide se resserraient, Wang Lin leva sa main droite et toute la puissance du Dao Gu en lui explosa. Une ombre gigantesque du Dao Gu apparut derrière lui.
 
 Cette ombre était quelque peu floue. Il était évident qu'elle avait été endommagée par l'autodestruction des deux Messagers du Démon Vert. Cependant, elle imposait toujours un sentiment de suppression absolue au plus profond du cœur!
 
@@ -48,19 +48,19 @@ C'était la formation d'armée! La puissance du Tremblement Divin résonna comme
 
 Le poing de Wang Lin s'ouvrit en une paume et une fumée s'échappa de la tête des cultivateurs. Cette fumée se condensa pour former une montagne au-dessus d'eux. Cette montagne de fumée s'abattit lourdement sur eux!
 
-La paume se transforma ensuite en un doigt pointé. La vie et la mort basculèrent tandis que les cultivateurs poussaient des cris déchirants. La plupart d'entre eux s'effondrèrent, mais le seul vieux monstre du stade avancé de la Tribulation du Vide qui n'était pas entravé se jeta sur Wang Lin. À cet instant, la puissance totale de l'Ancien Dao Sans Céleste de Wang Lin éclata!
+La paume se transforma ensuite en un doigt pointé. La vie et la mort basculèrent tandis que les cultivateurs poussaient des cris déchirants. La plupart d'entre eux s'effondrèrent, mais le seul vieux monstre du stade avancé de la Tribulation du Vide qui n'était pas entravé se jeta sur Wang Lin. À cet instant, la puissance totale du Dao Gu Sans Céleste de Wang Lin éclata!
 
-« Dieu, Démon, Diable, Ancien Dao Sans Céleste! »
+« Dieu, Démon, Diable, Dao Gu Sans Céleste! »
 
-Ce sort de l'Ancien Dao Sans Céleste fut lancé alors que son niveau de culture avait été porté au stade précoce de la Tribulation du Vide par l'armure d'âme. Sa puissance était phénoménale et, bien que différente de Nuit Brisée, sa force destructrice était identique!
+Ce sort du Dao Gu Sans Céleste fut lancé alors que son niveau de culture avait été porté au stade précoce de la Tribulation du Vide par l'armure d'âme. Sa puissance était phénoménale et, bien que différente de Nuit Brisée, sa force destructrice était identique!
 
 Des grondements tonitruants retentirent et une ondulation grise se propagea. Les centaines de cultivateurs périrent tous. L'expression du vieux monstre du stade avancé de la Tribulation du Vide changea et il battit en retraite précipitamment. Cependant, il fut tout de même touché par les ondes grises.
 
-Le visage du vieil homme devint instantanément livide et ses jambes commencèrent à se pétrifier. Il pressa son propre corps de ses mains, tentant à chaque fois d'injecter une rafale d'énergie pour résister à la puissance de l'Ancien Dao qui envahissait son corps.
+Le visage du vieil homme devint instantanément livide et ses jambes commencèrent à se pétrifier. Il pressa son propre corps de ses mains, tentant à chaque fois d'injecter une rafale d'énergie pour résister à la puissance du Dao Gu qui envahissait son corps.
 
 Hormis lui, tous les cultivateurs de la Secte Dao Mo à la frontière des deux continents furent exterminés!
 
-Du sang coula du coin de la bouche de Wang Lin. Il avait épuisé toute sa puissance de l'Ancien Dao et l'armure autour de lui faiblissait. Certaines parties commençaient déjà à se transformer en fils et elle était sur le point de se dissiper.
+Du sang coula du coin de la bouche de Wang Lin. Il avait épuisé toute sa puissance du Dao Gu et l'armure autour de lui faiblissait. Certaines parties commençaient déjà à se transformer en fils et elle était sur le point de se dissiper.
 
 Wang Lin serra les dents et s'élança. En un éclair, les 500 kilomètres ne devinrent plus que 200!
 

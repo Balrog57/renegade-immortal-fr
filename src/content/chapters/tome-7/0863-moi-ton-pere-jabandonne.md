@@ -112,4 +112,4 @@ Le silence fut total. Tandis que Shengong Hu observait la scène, son regard ét
 
 Les cultivateurs alentour fixèrent Wang Lin, mais finalement, personne ne s'avança.
 
-Le vieil homme en robe violette déclara d'une voix lente: « Xu Mu, premier parmi les 108 choisis du Domaine Sud. Dans sept jours, suis-moi jusqu'au Temple Céleste du Tonnerre avec les 107 autres qui seront sélectionnés! »
+Le vieil homme en robe violette déclara d'une voix lente: « Xu Mu, premier parmi les 108 choisis du Domaine Sud. Dans sept jours, suis-moi jusqu'au Temple Lei Xian avec les 107 autres qui seront sélectionnés! »

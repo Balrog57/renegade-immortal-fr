@@ -50,7 +50,7 @@ Le basculement entre le ciel et la terre s'acheva en un instant. À cet instant 
 
 Le firmament et le sol s'étaient métamorphosés en un fourneau gigantesque! Le ciel servait de couvercle tandis que la terre constituait le corps du réceptacle! C'était là la puissance d'un sortilège d'énergie originelle!
 
-À ce moment, la Bête du Tonnerre issue du Temple Céleste du Tonnerre poussa un rugissement. Traînant son corps blessé, elle se mua en un éclair de foudre et atterrit sur le fourneau. Peu à peu, d'innombrables gravures apparurent sur la surface jusque-là vierge du réceptacle.
+À ce moment, la Bête du Tonnerre issue du Temple Lei Xian poussa un rugissement. Traînant son corps blessé, elle se mua en un éclair de foudre et atterrit sur le fourneau. Peu à peu, d'innombrables gravures apparurent sur la surface jusque-là vierge du réceptacle.
 
 C'étaient des gravures de la Bête du Tonnerre!
 
@@ -68,7 +68,7 @@ L'épée fendit l'air et les filaments bleus s'effondrèrent rapidement. Un gém
 
 Peu de temps après, des éclairs du Dao encore plus puissants descendirent. Chaque coup qui frappait Wang Lin faisait trembler son être. Sans la mutation de son âme originelle, n'importe quel cultivateur Ascendant aurait été instantanément réduit en poussière sous une telle foudre.
 
-Le regard de Wang Lin devint plus glacial encore. À cet instant, la marionnette du Gardien Céleste, également enfermée dans le fourneau, commença à asséner des coups de poing frénétiques. Elle bombardait toute la zone, faisant trembler l'univers entier.
+Le regard de Wang Lin devint plus glacial encore. À cet instant, la marionnette du Garde Céleste, également enfermée dans le fourneau, commença à asséner des coups de poing frénétiques. Elle bombardait toute la zone, faisant trembler l'univers entier.
 
 Bien que le tonnerre fût puissant, la chair de la marionnette était bien plus résistante; la foudre ne pouvait donc lui infliger le moindre dommage. Chaque coup porté par la marionnette équivalait à un sortilège d'Yin Illusoire frappant les parois du fourneau. C'était là la menace la plus directe pour Lei Daozi!
 

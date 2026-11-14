@@ -20,7 +20,7 @@ Après un moment de silence, les cultivateurs environnants commencèrent à chuc
 
 Même les yeux de certains vieux monstres s'illuminèrent. Une pointe d'admiration se lisait dans leurs regards alors qu'ils observaient Wang Lin. Ce dont leur Système Stellaire de Luotian avait besoin, c'étaient des cultivateurs juniors comme lui!
 
-En particulier, l'ancêtre de la famille Xiang hocha la tête. Plus il regardait Wang Lin, plus il l'appréciait. Il se souciait peu de la perte subie par le Temple Céleste du Tonnerre; il pensait simplement que ce Xu Mu ressemblait beaucoup aux membres de son propre clan: il dégageait une aura maléfique!
+En particulier, l'ancêtre de la famille Xiang hocha la tête. Plus il regardait Wang Lin, plus il l'appréciait. Il se souciait peu de la perte subie par le Temple Lei Xian; il pensait simplement que ce Xu Mu ressemblait beaucoup aux membres de son propre clan: il dégageait une aura maléfique!
 
 Les messagers célestes restèrent sans voix et cessèrent de battre le tambour. Dans leur esprit, si Xu Mu persistait, même s'ils battaient du tambour jusqu'à ce qu'il soit réduit en miettes, cela ne servirait à rien. Ils se regardèrent avec un sourire amer. Cependant, leurs regards envers Wang Lin ne contenaient aucune jalousie, mais plutôt une trace d'admiration.
 
@@ -36,7 +36,7 @@ Même les pierres qui s'étaient transformées en cendres et s'étaient dissipé
 
 Après avoir observé ce spectacle, Wang Lin sembla atteindre une forme d'illumination.
 
-« La suivante sera la dernière des trois épreuves: l'épreuve céleste! » Maître Yan Leizi se tourna vers Lie Yunzi et dit: « Cher Camarade Cultivateur Lie Yunzi, je vous en prie! »
+« La suivante sera la dernière des trois épreuves: l'épreuve céleste! » Maître Yan Leizi se tourna vers Lie Yunzi et dit: « Cher Daoïste Lie Yunzi, je vous en prie! »
 
 Lie Yunzi leva sa main droite et tendit le bras vers le vide. Une fissure apparut, d'où jaillit un air glacial. Puis, Lie Yunzi plongea la main dans la brèche et en retira un parchemin. Ce parchemin était vieux et dégageait une aura antique.
 
@@ -122,7 +122,7 @@ Cette anticipation était palpable; même certains ancêtres de grandes familles
 
 Seul Xue Shenzi laissa échapper un reniflement froid. Après réflexion, il posa également son regard sur Wang Lin.
 
-Maître Yan Leizi sourit intérieurement. Il avait un mal de tête concernant ce Wang Lin. Quoi qu'il en soit, ce junior était lié à lui et, compte tenu des relations entre Wang Lin et Qing Shui, il n'était pas sage de l'opprimer. Wang Lin avait fait subir une lourde perte au Temple Céleste du Tonnerre lors des deux premières épreuves. Cependant, puisque Lie Yunzi était responsable de l'épreuve céleste, quel que soit l'incident qui surviendrait, ce ne serait pas lui qui en pâtirait, mais Lie Yunzi.
+Maître Yan Leizi sourit intérieurement. Il avait un mal de tête concernant ce Wang Lin. Quoi qu'il en soit, ce junior était lié à lui et, compte tenu des relations entre Wang Lin et Qing Shui, il n'était pas sage de l'opprimer. Wang Lin avait fait subir une lourde perte au Temple Lei Xian lors des deux premières épreuves. Cependant, puisque Lie Yunzi était responsable de l'épreuve céleste, quel que soit l'incident qui surviendrait, ce ne serait pas lui qui en pâtirait, mais Lie Yunzi.
 
 À cet instant, une lueur d'attente brilla dans ses yeux alors qu'il contemplait Wang Lin.
 

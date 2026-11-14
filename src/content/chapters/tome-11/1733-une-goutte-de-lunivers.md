@@ -104,6 +104,6 @@ C'était bel et bien la réalité. Dès que l'élément métal arriva, l'eau aut
 
 À cet instant, à l'extérieur de la planète des Cinq Éléments, les yeux du Grand Empyréen Xuan Luo brillèrent d'une lumière étrange. Face au spectacle qui se déroulait, il restait sans voix. Hormis cette lueur inhabituelle, il ne savait s'il devait pleurer ou rire.
 
-« Comment cela pourrait-il le raffiner? C'est clairement en train de l'aider à comprendre l'essence de l'eau... Cet enfant possède le lignage du Dao Antique mais aussi les sorts des Célestes. C'est extrêmement rare! »
+« Comment cela pourrait-il le raffiner? C'est clairement en train de l'aider à comprendre l'essence de l'eau... Cet enfant possède le lignage du Dao Gu mais aussi les sorts des Célestes. C'est extrêmement rare! »
 
 « Et il porte réellement sept essences dans son corps, c'est extraordinaire!! Utiliser les lignes de sang dans les yeux pour contenir l'essence de la restriction... je n'ai jamais vu personne faire cela auparavant! Une double culture, ancienne et céleste... »

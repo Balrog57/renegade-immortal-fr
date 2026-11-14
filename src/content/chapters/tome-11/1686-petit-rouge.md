@@ -32,9 +32,9 @@ Cependant, à cet instant, cette pression n'eut aucun effet sur Wang Lin. Le cor
 
 Wang Lin dissipa le sceau de sa main droite et, en un clin d'œil, se tint au sommet de la tête du dragon. La créature voulut lutter, mais le souvenir de l'agonie qu'elle venait de subir la fit frissonner de peur. Trop terrifiée pour résister, ses yeux s'embuèrent de larmes et de ressentiment.
 
-Elle regarda au loin, vers la Secte du Dragon Céleste, et ses yeux se remplirent d'encore plus de larmes.
+Elle regarda au loin, vers la Secte Xian Long, et ses yeux se remplirent d'encore plus de larmes.
 
-« Adieu, ma Secte du Dragon Céleste... Maudit soit ce destin, je n'aurais pas dû prendre cette route... Si j'avais su que cela finirait ainsi, hélas... »
+« Adieu, ma Secte Xian Long... Maudit soit ce destin, je n'aurais pas dû prendre cette route... Si j'avais su que cela finirait ainsi, hélas... »
 
 Wang Lin était assis sur la tête du dragon. Des vagues d'énergie brûlante émanaient de la créature et l'entouraient tandis qu'il scrutait l'horizon. Sa propre vision se trouvait même déformée par ces ondes de chaleur.
 
@@ -44,7 +44,7 @@ Si Wang Lin n'avait pas su qu'il s'agissait d'un monde de grotte, il aurait tout
 
 Ce dragon différait de toutes les bêtes démoniaques que Wang Lin avait rencontrées jusqu'alors. Non seulement il pouvait parler, mais il faisait preuve d'une grande intelligence; même la Bête des Limbes ne lui arrivait pas à la cheville.
 
-Il se surnommait lui-même « Dragon Céleste » et avait fondé la Secte du Dragon Céleste. Il avait également asservi des cultivateurs pour les servir; cela prouvait déjà son caractère extraordinaire!
+Il se surnommait lui-même « Dragon Céleste » et avait fondé la Secte Xian Long. Il avait également asservi des cultivateurs pour les servir; cela prouvait déjà son caractère extraordinaire!
 
 Plus important encore, le corps de ce dragon contenait une infime trace de lignée céleste. C'était si ténu qu'il était difficile de le remarquer, mais Wang Lin possédant la goutte de sang du Corps Céleste Immortel, il parvint à percevoir cette présence.
 
@@ -60,7 +60,7 @@ Wang Lin le fixa froidement en levant la main droite, où apparut l'aura d'un so
 
 « Avec votre intelligence, vous connaissez les effets du sort que je tiens dans ma main. Je vous le demande une dernière fois: venez-vous du Continent Xian Gang? »
 
-L'horreur se lut dans les yeux de la créature, mais pour une raison obscure, elle jeta un regard vers le millier et plus de cultivateurs de la Secte du Dragon Céleste au loin. Elle serra les dents et secoua la tête.
+L'horreur se lut dans les yeux de la créature, mais pour une raison obscure, elle jeta un regard vers le millier et plus de cultivateurs de la Secte Xian Long au loin. Elle serra les dents et secoua la tête.
 
 Wang Lin fronça les sourcils. Il ne pouvait pas utiliser le sort de recherche d'âme pour l'instant. Ils étaient dans le Système Stellaire Antique, et les sens divins de plusieurs cultivateurs puissants rôdaient. S'il utilisait ce sort, il leur donnerait une occasion de l'attaquer.
 
@@ -78,9 +78,9 @@ Dès qu'il vit l'accord de Wang Lin, le dragon fut transporté par la joie. Il r
 
 Ses yeux brillaient d'un éclat majestueux. Ses grandes griffes pointèrent vers Wang Lin tandis que sa voix puissante résonnait:
 
-« Vous avez dit vouloir rejoindre ma Secte du Dragon Céleste. Ce dragon ne tiendra pas rigueur de vos actes et vous permettra d'intégrer la secte, euh... » Tandis qu'il parlait, le dragon surveillait l'expression de Wang Lin. En voyant les sourcils de ce dernier se froncer, il trembla et s'empressa de dire:
+« Vous avez dit vouloir rejoindre ma Secte Xian Long. Ce dragon ne tiendra pas rigueur de vos actes et vous permettra d'intégrer la secte, euh... » Tandis qu'il parlait, le dragon surveillait l'expression de Wang Lin. En voyant les sourcils de ce dernier se froncer, il trembla et s'empressa de dire:
 
-« Euh... Qu'un être aussi puissant que vous rejoigne ma Secte du Dragon Céleste est pour moi une immense chance! Hehe, hehe, vous pourrez être le vice-maître de la secte... »
+« Euh... Qu'un être aussi puissant que vous rejoigne ma Secte Xian Long est pour moi une immense chance! Hehe, hehe, vous pourrez être le vice-maître de la secte... »
 
 Après ces paroles, les cultivateurs qui assistaient à la scène, stupéfaits par ce qui venait de se passer, restèrent interdits un instant.
 

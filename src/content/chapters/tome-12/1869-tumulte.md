@@ -14,7 +14,7 @@ Avec la force de Wang Lin, il pouvait combattre des cultivateurs au stade préco
 
 Même s'il possédait neuf essences et atteignait le stade précoce du Vide Arcanique, la différence resterait immense. Au mieux, il gagnerait la capacité de riposter.
 
-Pour véritablement résister aux anciens monstres du stade intermédiaire de la Tribulation du Vide, Wang Lin devrait atteindre le stade avancé du Vide Arcanique, ou son Dao Antique devrait traverser la dernière épreuve!
+Pour véritablement résister aux anciens monstres du stade intermédiaire de la Tribulation du Vide, Wang Lin devrait atteindre le stade avancé du Vide Arcanique, ou son Dao Gu devrait traverser la dernière épreuve!
 
 Mais Wang Lin avait passé sa vie dans le danger. Parfois, tuer ne dépendait pas seulement de la culture — d'autres facteurs entraient parfois en jeu!
 

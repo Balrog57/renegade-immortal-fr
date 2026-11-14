@@ -22,7 +22,7 @@ L'homme qui n'avait pas prononcé un seul mot depuis sept jours, celui dont l'at
 
 Sa voix était empreinte d'incertitude, car même lui n'en était pas certain.
 
-Un vieil homme aux côtés de Jiang Tianzun déclara d'un ton grave: « Camarade cultivateur Jiang, pourrait-il s'agir véritablement du légendaire Démon Ancestral qui apparut jadis? »
+Un vieil homme aux côtés de Jiang Tianzun déclara d'un ton grave: « Daoïste Jiang, pourrait-il s'agir véritablement du légendaire Démon Ancestral qui apparut jadis? »
 
 Jiang Tianzun réfléchit un instant avant de répondre: « C'est très similaire! »
 

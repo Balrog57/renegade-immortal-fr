@@ -20,7 +20,7 @@ Wang Lin n'utilisa pas la Distorsion Spatiale pour se précipiter vers le Clan A
 
 « Malheureusement, dans le clan Céleste, je n'ai trouvé ni Qing Shui, ni Situ Nan... Et je n'ai pas trouvé non plus... Li Qianmei. Quel dommage. Peu importe. Lorsque je retournerai au clan Céleste, j'en trouverai peut-être la trace. » Wang Lin soupira de nouveau. Avant de partir, il avait déployé son Sens Divin pour les chercher, mais sans succès.
 
-« Je ne me rendrai ni vers l'Ancien Shi, ni vers l'Ancien Ji, mais vers la cité impériale du Dao Gu. Je me demande comment elle se compare à la cité ancestrale du clan Céleste. » Wang Lin fixa silencieusement l'horizon.
+« Je ne me rendrai ni vers le Shi Gu, ni vers le Ji Gu, mais vers la cité impériale du Dao Gu. Je me demande comment elle se compare à la cité ancestrale du clan Céleste. » Wang Lin fixa silencieusement l'horizon.
 
 « Ma culture est encore insuffisante; je dois donc entrer en culture fermée au sein du clan Ancien et m'efforcer de devenir un Grand Empyréen. Une fois ma promesse au Maître accomplie, j'irai chercher l'âme de Wan Er... » En pensant à Li Muwan, les yeux de Wang Lin se remplirent de tristesse.
 

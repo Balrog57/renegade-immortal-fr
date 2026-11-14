@@ -124,7 +124,7 @@ Wang Lin réfléchit un instant et, d'un geste de la main gauche, s'entailla le 
 
 Il ferma les yeux et, après avoir inspecté son âme, constata qu'elle n'avait subi aucun changement. Dans sa Mer des Âmes, l'éclair rouge formé par le sens divin du Royaume Ji tournoyait autour du noyau d'âme du dévoreur d'âmes, et à chaque tour, de grandes vagues se levaient et se propageaient alentour.
 
-Dans toute sa Mer des Âmes, que ce soit la perle défiant le ciel ou le sens divin du Royaume Ji, rien n'était anormal.
+Dans toute sa Mer des Âmes, que ce soit la Perle Défiant le Ciel ou le sens divin du Royaume Ji, rien n'était anormal.
 
 Après avoir soigneusement exploré son corps, il ouvrit les yeux et serra les poings.
 

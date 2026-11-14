@@ -44,7 +44,7 @@ Wang Lin avait spéculé depuis longtemps que le sort « Arrêt » était lié a
 
 Ce qui fut stoppé par le regard de Wang Lin n'était pas seulement le démon ancien, mais aussi le Sens Divin de Song Tian. Ce dernier trembla et ne put plus bouger d'un iota.
 
-Simultanément, au loin, sur la Montagne Yuan Shi, hors de la capitale impériale du clan Ancien Shi, Song Tian était assis quand il ouvrit soudainement les yeux. Son visage était pâle, marqué par une trace de peur. Son Sens Divin avait été gelé, ce qui avait légèrement ébranlé son âme originelle.
+Simultanément, au loin, sur la Montagne Yuan Shi, hors de la capitale impériale du clan Shi Gu, Song Tian était assis quand il ouvrit soudainement les yeux. Son visage était pâle, marqué par une trace de peur. Son Sens Divin avait été gelé, ce qui avait légèrement ébranlé son âme originelle.
 
 « Activez la formation d'origine! » Song Tian n'hésita pas et poussa un rugissement immédiat. Tandis que l'écho de son cri se propageait, tous les êtres puissants qui suivaient Song Tian furent surpris et s'envolèrent rapidement pour mettre en place la formation.
 
@@ -84,7 +84,7 @@ Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Bei, dans la Se
 
 Peu après, dans le palais impérial de la cité ancestrale, un soleil doré apparut, formant le cinquième soleil du Clan Céleste!
 
-Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du lieu où il était en retraite de culture. Dans l'Ancien Ji, l'extrêmement mystérieux Grand Empyréen vit également son propre soleil apparaître dans le ciel!
+Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du lieu où il était en retraite de culture. Dans le Ji Gu, l'extrêmement mystérieux Grand Empyréen vit également son propre soleil apparaître dans le ciel!
 
 Et le soleil de Song Tian apparut lui aussi, échappant à tout contrôle, pour s'envoler vers les cieux.
 

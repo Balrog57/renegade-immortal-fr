@@ -86,7 +86,7 @@ Sept personnes apparurent derrière lui, le regard brillant de cupidité. Ils ne
 
 Il y avait au moins cent cultivateurs aux alentours, tous au stade de la Formation de l'Âme au minimum. Ce n'était pas une situation qu'il pouvait gérer seul.
 
-Un homme d'âge moyen en robe bleue s'avança à son tour. Il lança un regard méprisant à la Secte Hun Yuan et déclara: « La Secte Hun Yuan n'est que de la vermine! Cher compagnon, donnez-moi une épée et ma Secte Tian Mo assurera votre sécurité! »
+Un homme d'âge moyen en robe bleue s'avança à son tour. Il lança un regard méprisant à la Secte Hun Yuan et déclara: « La Secte Hun Yuan n'est que de la vermine! Cher Daoïste, donnez-moi une épée et ma Secte Tian Mo assurera votre sécurité! »
 
 « Les sectes Hun Yuan et Tian Mo ne sont que des tas de clowns. Ces deux épées célestes appartiennent à ma Secte Tian Di Liu He! » Un rire tonitruant retentit au milieu de la foule avant qu'un homme ne charge vers Wang Lin.
 

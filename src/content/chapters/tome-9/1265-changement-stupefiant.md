@@ -12,7 +12,7 @@ Elle était venue informer Wang Lin de ce qui s'était passé au sein de l'Allia
 
 Avant de s'en aller, la silhouette de Mu Bingmei, baignée par la lumière lunaire, s'arrêta devant la cour. Elle marqua une pause, sans se retourner, puis murmura:
 
-« Li Qianmei est plutôt douée... Cependant, tu ne peux toujours pas oublier la petite sœur Wan Er... Je crois que si la petite sœur Wan Er se réveillait, elle ne voudrait pas te voir solitaire pendant des milliers d'années... Je ne veux pas non plus te voir ainsi. Après aujourd'hui, je me rendrai à la Secte Divine pour me rétablir et je ne quitterai probablement pas la culture en ermitage pendant mille ans. J'ignore si nous nous reverrons dans un millénaire. Pourtant, Wang Lin... j'ai quelque chose que je veux te dire.
+« Li Qianmei est plutôt douée... Cependant, tu ne peux toujours pas oublier la petite sœur Wan Er... Je crois que si la petite sœur Wan Er se réveillait, elle ne voudrait pas te voir solitaire pendant des milliers d'années... Je ne veux pas non plus te voir ainsi. Après aujourd'hui, je me rendrai à la Secte Shen pour me rétablir et je ne quitterai probablement pas la culture en ermitage pendant mille ans. J'ignore si nous nous reverrons dans un millénaire. Pourtant, Wang Lin... j'ai quelque chose que je veux te dire.
 
 "Je suis Liu Mei, la mère de Wang Ping... Lorsque je me libérerai du Royaume Kun Xu, j'accompagnerai Wang Ping à travers d'innombrables cycles de réincarnation et je serai une véritable mère", murmura Mu Bingmei en s'éloignant progressivement. Son cœur dao tendait vers la complétion après avoir prononcé ces mots.
 
@@ -36,31 +36,31 @@ Dans la cour, sous la lune, flottaient les fragrances des deux femmes qui avaien
 
 Le temps passa lentement. En un clin d'œil, plusieurs jours s'écoulèrent. La compétition entre les sectes de rang 8 approchait; l'heure du départ avait sonné.
 
-Trois jours plus tôt, Mu Bingmei avait quitté la Secte Éternelle avec Wang Shanshan. Cette dernière avait reçu l'ordre de son maître de regagner rapidement la Secte Divine. Naturellement, la Secte Éternelle n'osa pas s'y opposer. Avant de partir, Mu Bingmei ne se retourna pas. Elle était fière, elle était la Saintesse de Kun Xu!
+Trois jours plus tôt, Mu Bingmei avait quitté la Secte Wu Ji avec Wang Shanshan. Cette dernière avait reçu l'ordre de son maître de regagner rapidement la Secte Shen. Naturellement, la Secte Wu Ji n'osa pas s'y opposer. Avant de partir, Mu Bingmei ne se retourna pas. Elle était fière, elle était la Saintesse de Kun Xu!
 
 Le Royaume Kun Xu avait été détruit, et elle seule en subsistait. Dès cet instant, elle n'appartenait plus à elle-même. Il lui incombait de cultiver pour restaurer le Royaume Kun Xu, d'assumer ses responsabilités de Saintesse. C'était une charge qu'elle avait fuie longtemps, mais elle choisissait désormais de l'affronter sans plus jamais s'en dérober.
 
 Sa conversation avec Wang Lin avait dénoué les attaches mortelles de son cœur. Elle enfouit ce souvenir au plus profond de son âme et le scella.
 
-Li Qianmei allait également partir. Elle avait reçu un appel urgent de son maître. Le message de jade ne précisait pas la nature du problème, mais d'un ton sévère, il ordonnait à Li Qianmei d'utiliser la formation de transfert de la Secte Éternelle pour regagner la Secte Po Tian!
+Li Qianmei allait également partir. Elle avait reçu un appel urgent de son maître. Le message de jade ne précisait pas la nature du problème, mais d'un ton sévère, il ordonnait à Li Qianmei d'utiliser la formation de transfert de la Secte Wu Ji pour regagner la Secte Po Tian!
 
 On aurait dit que la tempête approchait.
 
 Li Qianmei ne pouvait désobéir aux ordres de son maître. La Secte Po Tian lui avait tout donné et son maître l'avait élevée. Bien qu'il n'en eût pas dicté la raison, elle ne l'avait jamais vu employer des paroles aussi brusques.
 
-Elle n'eut que le temps de dire adieu, avec sa sérénité habituelle, avant d'entrer dans la formation de transfert de la Secte Éternelle. Après plusieurs transferts successifs, elle atteignit la Secte Po Tian.
+Elle n'eut que le temps de dire adieu, avec sa sérénité habituelle, avant d'entrer dans la formation de transfert de la Secte Wu Ji. Après plusieurs transferts successifs, elle atteignit la Secte Po Tian.
 
 Son cœur était troublé. Elle ignorait pourquoi son maître avait envoyé une telle requête empreinte d'anxiété. Dans ses souvenirs, son maître avait toujours été calme; il n'avait jamais agi ainsi. Elle ne savait pas pourquoi, mais elle pressentait que le malheur approchait.
 
-Après le départ de Mu Bingmei et de Li Qianmei, Wang Lin quitta la Secte Éternelle en compagnie du Maître de la Secte et des Grands Anciens. Ils se dirigèrent vers le lieu de la compétition entre les sectes de rang 8. C'était là que se déroulerait le véritable événement principal!
+Après le départ de Mu Bingmei et de Li Qianmei, Wang Lin quitta la Secte Wu Ji en compagnie du Maître de la Secte et des Grands Anciens. Ils se dirigèrent vers le lieu de la compétition entre les sectes de rang 8. C'était là que se déroulerait le véritable événement principal!
 
-Le Maître de la Secte Éternelle était extrêmement confiant pour cette bataille. Il était convaincu que les autres sectes de rang 8 échoueraient sans aucun doute, permettant à la Secte Éternelle de s'emparer de la première place!
+Le Maître de la Secte Wu Ji était extrêmement confiant pour cette bataille. Il était convaincu que les autres sectes de rang 8 échoueraient sans aucun doute, permettant à la Secte Wu Ji de s'emparer de la première place!
 
-Car avec l'arrivée de Wang Lin, la compétition n'était plus équilibrée. La Secte Éternelle disposait d'un avantage écrasant. Aux yeux du Maître de la Secte et des Grands Anciens, l'issue du combat importait peu; ce qui comptait, c'était de voir les visages pétrifiés de choc sur les membres des autres sectes une fois la victoire acquise.
+Car avec l'arrivée de Wang Lin, la compétition n'était plus équilibrée. La Secte Wu Ji disposait d'un avantage écrasant. Aux yeux du Maître de la Secte et des Grands Anciens, l'issue du combat importait peu; ce qui comptait, c'était de voir les visages pétrifiés de choc sur les membres des autres sectes une fois la victoire acquise.
 
 Cependant, comme Wang Lin et Mu Bingmei l'avaient pressenti, le monde est imprévisible!
 
-Une demi-heure avant le départ de la Secte Éternelle, un rayon de lumière jaillit de la secte. Ce rayon portait une aura capable de faire trembler les cieux et fonça droit sur le Maître de la Secte.
+Une demi-heure avant le départ de la Secte Wu Ji, un rayon de lumière jaillit de la secte. Ce rayon portait une aura capable de faire trembler les cieux et fonça droit sur le Maître de la Secte.
 
 Un vieil homme se trouvait à l'intérieur de ce faisceau lumineux. Wang Lin n'avait jamais vu cet homme auparavant, mais d'après l'aura qui émanait de son corps, il était lui aussi au stade du Fléau Céleste!
 
@@ -70,31 +70,31 @@ Puis, son expression devint lugubre et des craquements résonnèrent dans son co
 
 Il laissa échapper un reniflement glacial et remit le jade aux deux Grands Anciens qui l'accompagnaient. Après examen, les visages de ces derniers s'obscurcirent également. C'était comme si le ciel tout entier s'était assombri.
 
-Le Grand Ancien qui avait combattu Wang Lin serra les dents et rugit comme un vent glacial: « Quelle arrogance de la part de la Secte Divine!! »
+Le Grand Ancien qui avait combattu Wang Lin serra les dents et rugit comme un vent glacial: « Quelle arrogance de la part de la Secte Shen!! »
 
-« D'un seul mot, la Secte Divine annule la grande compétition qui opposait les sectes de rang 8 depuis des dizaines de milliers d'années. Je me demande ce qui a bien pu rendre la Secte Divine si fou pour qu'il en arrive là! Ma Secte Éternelle s'est préparée durant de longues années, et maintenant, avec la présence du Daoïste Lu, nous aurions facilement pu décrocher la première place. Nous aurions pu effacer toute la honte des compétitions passées. De quel droit la Secte Divine l'annule-t-il?! » Un autre Grand Ancien ricana, les yeux injectés de colère.
+« D'un seul mot, la Secte Shen annule la grande compétition qui opposait les sectes de rang 8 depuis des dizaines de milliers d'années. Je me demande ce qui a bien pu rendre la Secte Shen si fou pour qu'il en arrive là! Ma Secte Wu Ji s'est préparée durant de longues années, et maintenant, avec la présence du Daoïste Lu, nous aurions facilement pu décrocher la première place. Nous aurions pu effacer toute la honte des compétitions passées. De quel droit la Secte Shen l'annule-t-il?! » Un autre Grand Ancien ricana, les yeux injectés de colère.
 
-Pourtant, un sentiment d'injustice et d'impuissance surpassait cette rage. Ils étaient tous des cultivateurs puissants et la Secte Éternelle n'était pas une petite secte. Pourtant, par ce simple jade de la Secte Divine, ils devaient accepter l'humiliation!
+Pourtant, un sentiment d'injustice et d'impuissance surpassait cette rage. Ils étaient tous des cultivateurs puissants et la Secte Wu Ji n'était pas une petite secte. Pourtant, par ce simple jade de la Secte Shen, ils devaient accepter l'humiliation!
 
-Le Maître de la Secte resta silencieux très longtemps, avant de paraître soudainement épuisé. Il poussa un soupir et secoua la tête. « Puisque la Secte Divine a ordonné l'annulation de la compétition, il doit en avoir des raisons. Des raisons qui nous échappent. »
+Le Maître de la Secte resta silencieux très longtemps, avant de paraître soudainement épuisé. Il poussa un soupir et secoua la tête. « Puisque la Secte Shen a ordonné l'annulation de la compétition, il doit en avoir des raisons. Des raisons qui nous échappent. »
 
-Tout en éprouvant de l'amertume, le Maître de la Secte regarda Wang Lin et joignit les mains. « Daoïste Lu, la compétition de rang 8 a été annulée par la Secte Divine; nous n'avons plus besoin de nous y rendre. Je dois convoquer et en discuter avec le reste des anciens. Que diriez-vous de ramener la Secte Gui Yuan dans la région de rang 5 et de préparer leur transfert vers la région de rang 7? »
+Tout en éprouvant de l'amertume, le Maître de la Secte regarda Wang Lin et joignit les mains. « Daoïste Lu, la compétition de rang 8 a été annulée par la Secte Shen; nous n'avons plus besoin de nous y rendre. Je dois convoquer et en discuter avec le reste des anciens. Que diriez-vous de ramener la Secte Gui Yuan dans la région de rang 5 et de préparer leur transfert vers la région de rang 7? »
 
-L'expression de Wang Lin resta calme, mais il ressentit un frisson, comme si un événement cataclysmique était sur le point de s'abattre. Après une courte réflexion, ses yeux s'illuminèrent: « Puis-je examiner le jade de la Secte Divine? »
+L'expression de Wang Lin resta calme, mais il ressentit un frisson, comme si un événement cataclysmique était sur le point de s'abattre. Après une courte réflexion, ses yeux s'illuminèrent: « Puis-je examiner le jade de la Secte Shen? »
 
 Le Grand Ancien tenant le jade fit un geste de la main droite et l'objet vola vers Wang Lin. Ce dernier le saisit et le scanna de son Sens Divin.
 
 Il n'y avait qu'une seule phrase inscrite dans le jade!
 
-« Il n'est plus nécessaire de poursuivre la compétition des sectes de rang 8. Elle prend fin maintenant! Édit de la Secte Divine! »
+« Il n'est plus nécessaire de poursuivre la compétition des sectes de rang 8. Elle prend fin maintenant! Édit de la Secte Shen! »
 
 Dès que le Sens Divin de Wang Lin s'y propagea, il sentit une puissance indescriptible jaillir de ces mots. Celle-ci semblait prendre la forme d'une immense empreinte de main.
 
-Choqué, Wang Lin retira son Sens Divin. Il rendit le jade à la Secte Éternelle avant de joindre les mains et de partir.
+Choqué, Wang Lin retira son Sens Divin. Il rendit le jade à la Secte Wu Ji avant de joindre les mains et de partir.
 
-Les membres de la Secte Éternelle étaient tous partagés par des sentiments complexes. Beaucoup étaient furieux, mais impuissants, contraints à l'acceptation.
+Les membres de la Secte Wu Ji étaient tous partagés par des sentiments complexes. Beaucoup étaient furieux, mais impuissants, contraints à l'acceptation.
 
-« Li Qianmei a répondu à la convocation de la Secte Po Tian et est partie précipitamment... Mu Bingmei est partie tout aussi précipitamment, et ni l'une ni l'autre ne connaissait la raison. Ces événements isolés ne sont pas suspects, mais l'annulation simultanée de la compétition de rang 8 par la Secte Divine... Tout cela est trop étrange! »
+« Li Qianmei a répondu à la convocation de la Secte Po Tian et est partie précipitamment... Mu Bingmei est partie tout aussi précipitamment, et ni l'une ni l'autre ne connaissait la raison. Ces événements isolés ne sont pas suspects, mais l'annulation simultanée de la compétition de rang 8 par la Secte Shen... Tout cela est trop étrange! »
 
 « Se pourrait-il qu'un événement majeur se prépare dans la Mer Yun? » Wang Lin fronça les sourcils, profondément perplexe.
 

@@ -44,7 +44,7 @@ Wang Lin ne ressentit aucune satisfaction face aux paroles de Qing Niu. Il le re
 
 À ces mots, le cœur de Wang Lin trembla et il réfléchit. Il avait effectivement l'intention de partir sur son chemin du retour. Il s'était préparé à aider la Secte Da Hun autant que possible avant de partir afin d'éviter la guerre.
 
-Après tout, ses objectifs étaient la Secte Dong Lin et la lointaine lignée du Dao Antique; il ne pouvait donc pas rester longtemps sur le Continent Tian Niu. De plus, il avait ses propres spéculations concernant cette guerre et n'était pas disposé à s'y impliquer trop profondément.
+Après tout, ses objectifs étaient la Secte Dong Lin et la lointaine lignée du Dao Gu; il ne pouvait donc pas rester longtemps sur le Continent Tian Niu. De plus, il avait ses propres spéculations concernant cette guerre et n'était pas disposé à s'y impliquer trop profondément.
 
 Qing Niu l'avait manifestement compris, mais il ne força pas Wang Lin à rester. Au lieu de cela, il posa trois conditions, ce qui rappela à Wang Lin les trois cadeaux.
 

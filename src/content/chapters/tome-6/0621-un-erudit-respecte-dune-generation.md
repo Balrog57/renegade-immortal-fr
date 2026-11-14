@@ -74,7 +74,7 @@ Un chemin rectiligne menant au château se libéra devant lui.
 
 À cet ordre, les visages des cultivateurs pâlirent et l'hésitation s'installa. Heureusement, à cet instant précis, une silhouette noire jaillit du château et chargea directement Wang Lin.
 
-L'un des spectateurs s'exclama: « Un Gardien Céleste! » On ne savait s'il l'avait fait exprès ou s'il était réellement stupéfait.
+L'un des spectateurs s'exclama: « Un Garde Céleste! » On ne savait s'il l'avait fait exprès ou s'il était réellement stupéfait.
 
 Wang Lin resta impassible et ne daigna même pas regarder l'assaillant. Il fit un pas en avant et commença à marcher vers le château. Bien que sa vitesse fût modérée, elle força tout le monde à plisser les yeux. À cet instant, pour ces cultivateurs, contempler Wang Lin revenait à contempler les Grands Anciens de leurs propres sectes. Cette aura et cette sérénité n'étaient pas l'apanage d'un cultivateur ordinaire!
 

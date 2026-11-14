@@ -42,7 +42,7 @@ Le bombardement dura plusieurs jours consécutifs... Si une troisième personne 
 
 « Petite Rose, reçois mon attaque! » Le fou leva la main droite. Le monde trembla et une empreinte de paume gigantesque apparut. Cependant, l'empreinte semblait manquer de puissance et s'effondra dès qu'elle toucha le corps.
 
-Pourtant, la paume était empreinte de force et de majesté. C'était l'Empreinte de l'Esprit Guerrier la plus authentique! Elle ressemblait à celle que le Seigneur du Royaume Scellé avait laissée à la Secte Divine, mais celle utilisée par ce fou était encore plus juste!
+Pourtant, la paume était empreinte de force et de majesté. C'était l'Empreinte de l'Esprit Guerrier la plus authentique! Elle ressemblait à celle que le Seigneur du Royaume Scellé avait laissée à la Secte Shen, mais celle utilisée par ce fou était encore plus juste!
 
 « Petit Argent, regarde comment ce roi te frappe! » rugit le fou, puis il pointa le ciel. Le firmament se transforma soudainement en une voûte et un pilier gigantesque soutenant la voûte céleste apparut. C'était un parapluie colossal!
 

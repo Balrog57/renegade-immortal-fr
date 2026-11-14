@@ -1,6 +1,6 @@
 ---
 n: 2019
-title: "Le Vent Balaye l'Ancien Dao"
+title: "Le Vent Balaye le Dao Gu"
 book: 13
 bookTitle: Light of the coming end
 en: Chapter 2019 - Wind Swept Across the Ancient Dao
@@ -28,9 +28,9 @@ Toute la cité impériale Dao Gu était en fête et magnifiquement parée. À la
 
 L'Empereur Dao Gu accordait une importance capitale à cette cérémonie, tout comme l'ensemble de la famille impériale. Après tout, il allait nommer son impératrice. Tous les membres puissants du Dao Gu s'étaient rassemblés, et des délégations d'autres nations étaient également venues pour assister personnellement à cet événement grandiose.
 
-Les émissaires de l'Ancien Ji et de l'Ancien Shi étaient déjà arrivés pour participer aux célébrations.
+Les émissaires du Ji Gu et du Shi Gu étaient déjà arrivés pour participer aux célébrations.
 
-L'Ancien Shi avait préparé de nombreux présents, mené par le Prince Ji Du. Ce dernier avait personnellement accompagné les ambassadeurs du Dao Gu lors du choix de Song Zhi; il n'était donc pas surprenant qu'il soit présent. De plus, l'impératrice s'appelait Song et était une descendante éloignée du Grand Empyréen de l'Ancien Shi; un messager avait donc été envoyé pour apporter un présent.
+Le Shi Gu avait préparé de nombreux présents, mené par le Prince Ji Du. Ce dernier avait personnellement accompagné les ambassadeurs du Dao Gu lors du choix de Song Zhi; il n'était donc pas surprenant qu'il soit présent. De plus, l'impératrice s'appelait Song et était une descendante éloignée du Grand Empyréen du Shi Gu; un messager avait donc été envoyé pour apporter un présent.
 
 L'afflux massif de visiteurs rendait la cité impériale extrêmement animée. La sécurité y fut renforcée afin de garantir le bon déroulement de la cérémonie. Le palais, en particulier, était sous une garde stricte. Presque toutes les figures puissantes du Dao Gu étaient là: les divers rois issus des lignées royales s'étaient réunis, faisant de la cité un lieu d'une effervescence sans pareille.
 
@@ -48,7 +48,7 @@ L'Empereur Dao Gu déclara lentement: « À l'avenir, je ferai en sorte que la c
 
 « Comment progressent les préparatifs? » demanda l'Empereur avec un sourire.
 
-« Les ambassadeurs de l'Ancien Shi et de l'Ancien Ji sont arrivés et leurs logements ont été aménagés. Les messagers des deux Grands Empyréens sont également là. Le chef de la délégation de la Montagne Gu Dao a également reçu une place dans la cité », répondit rapidement l'un d'eux.
+« Les ambassadeurs du Shi Gu et du Ji Gu sont arrivés et leurs logements ont été aménagés. Les messagers des deux Grands Empyréens sont également là. Le chef de la délégation de la Montagne Gu Dao a également reçu une place dans la cité », répondit rapidement l'un d'eux.
 
 Un second ajouta aussitôt: « J'ai réparti les membres de notre clan et les puissants des deux autres clans sur les 99 plateformes environnantes. Malgré la foule, l'espace est suffisant pour tous les accueillir. »
 

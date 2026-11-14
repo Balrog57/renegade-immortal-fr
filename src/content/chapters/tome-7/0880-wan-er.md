@@ -14,7 +14,7 @@ Des ondulations apparurent au centre du bassin céleste et l'énergie spirituell
 
 Maître Yan Leizi ne les força pas, mais observa calmement les jeunes devant lui.
 
-Non seulement lui, mais tous les observateurs alentour ainsi que les messagers du Temple Céleste du Tonnerre regardaient attentivement. Tous les cultivateurs du Système Stellaire de Luotian observaient également la scène avec ferveur.
+Non seulement lui, mais tous les observateurs alentour ainsi que les messagers du Temple Lei Xian regardaient attentivement. Tous les cultivateurs du Système Stellaire de Luotian observaient également la scène avec ferveur.
 
 C'était comme si tout le Système Stellaire de Luotian était tombé dans un silence de mort. Tous les cultivateurs s'étaient tus.
 
@@ -40,7 +40,7 @@ Qing Shui regarda calmement Wang Lin. Il espérait que Wang Lin entrerait dans l
 
 Xu Ting réfléchit un instant et fixa Wang Lin. Il serra les dents et marcha vers le bassin céleste. Il avait été arrogant toute sa vie, et parmi ses pairs, nul n'était digne de lui. Après avoir quitté la planète Dong Lin, personne ne l'avait égalé!
 
-Cependant, lors de la compétition céleste du Temple Céleste du Tonnerre, il avait été battu à plusieurs reprises par Wang Lin. Puis, lors de l'épreuve Une Ligne vers les Cieux, il avait été tué. Il ne pouvait l'accepter!
+Cependant, lors de la compétition céleste du Temple Lei Xian, il avait été battu à plusieurs reprises par Wang Lin. Puis, lors de l'épreuve Une Ligne vers les Cieux, il avait été tué. Il ne pouvait l'accepter!
 
 Xu Ting éprouvait une pointe d'admiration pour Wang Lin. Toutefois, cette admiration était insignifiante face à son sentiment d'injustice. S'il continuait ainsi, il savait qu'il lui serait difficile de surpasser Wang Lin. Il devait emprunter une autre voie et réaliser un bond qualitatif!
 
@@ -80,7 +80,7 @@ Des vagues de pression écrasante descendirent du ciel et enveloppèrent les lie
 
 Tous les cultivateurs du Système Stellaire de Luotian observaient la scène avec attention.
 
-Un instant plus tard, l'un des dragons célestes descendit des cieux et cracha une pierre. Cette pierre ne mesurait que cinq pieds de long, mais lorsqu'elle toucha le sol, elle fit trembler inlassablement tout le Temple Céleste du Tonnerre.
+Un instant plus tard, l'un des dragons célestes descendit des cieux et cracha une pierre. Cette pierre ne mesurait que cinq pieds de long, mais lorsqu'elle toucha le sol, elle fit trembler inlassablement tout le Temple Lei Xian.
 
 Une puissante énergie spirituelle céleste balaya la zone et commença à se propager avec frénésie.
 
@@ -122,7 +122,7 @@ Les yeux de Maître Yan Leizi se plissèrent et il lança un regard significatif
 
 « Ce Xu Mu est bel et bien un membre du Système Stellaire de l'Alliance. Il n'est pas avide et fait preuve de prudence! » Maître Yan Leizi détourna le regard.
 
-« À présent, voici la dernière récompense pour le Tonnerre Céleste, le Vice-Tonnerre Céleste et les 36 Célestes du Ciel. Vous trente-huit pouvez chacun formuler un vœu. Le Temple Céleste du Tonnerre, la famille Xiang et la famille Gongsun feront de notre mieux pour vous aider! Toutefois, si quelqu'un formule délibérément une requête impossible, sa récompense sera annulée! »
+« À présent, voici la dernière récompense pour le Tonnerre Céleste, le Vice-Tonnerre Céleste et les 36 Célestes du Ciel. Vous trente-huit pouvez chacun formuler un vœu. Le Temple Lei Xian, la famille Xiang et la famille Gongsun feront de notre mieux pour vous aider! Toutefois, si quelqu'un formule délibérément une requête impossible, sa récompense sera annulée! »
 
 L'esprit de Wang Lin trembla violemment. Il prit une profonde inspiration et força son cœur qui battait la chamade à se calmer. Ses yeux brillaient comme jamais auparavant. La raison pour laquelle il était venu participer à cette bénédiction céleste était précisément pour cette ultime récompense!
 

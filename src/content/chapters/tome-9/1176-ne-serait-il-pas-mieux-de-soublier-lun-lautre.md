@@ -36,7 +36,7 @@ Le vieil homme en rouge se montra très poli. Il n'osait sous-estimer ce jeune h
 
 Il avait ensuite rapporté ses observations au Maître de la Secte. Après une longue réflexion, celui-ci avait envoyé un ordre: aucun disciple de la secte ne devait offenser cet homme sur Peng Lai.
 
-« Qu'il appartienne ou non à la Secte Divine n'a aucune importance pour ma Secte Bao Yu. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta: « Daoïste Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
+« Qu'il appartienne ou non à la Secte Shen n'a aucune importance pour ma Secte Bao Yu. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta: « Daoïste Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
 
 Wang Lin réfléchit un instant. Il possédait effectivement quelques objets qu'il souhaitait mettre en vente pour obtenir autant de cristaux d'origine que possible. Après un moment, il sourit: « Très bien. J'ai justement deux trésors que je souhaite mettre aux enchères. »
 

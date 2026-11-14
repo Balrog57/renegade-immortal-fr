@@ -12,7 +12,7 @@ Elle fit un geste invitant Wang Lin, tel un aîné appelant un enfant. Le mouvem
 
 Aucune aura de danger ne se dégageait de ce bras gigantesque; il paraissait tout à fait ordinaire. Il se contentait de faire signe à Wang Lin, comme pour l'inviter à franchir cette porte monumentale.
 
-Cependant, Wang Lin était sur ses gardes, les poils de son corps dressés par la tension. La scène qui s'offrait à lui était d'une étrangeté absolue. Il n'aurait jamais imaginé qu'un tel phénomène se produise une fois la perle défiant le ciel complétée.
+Cependant, Wang Lin était sur ses gardes, les poils de son corps dressés par la tension. La scène qui s'offrait à lui était d'une étrangeté absolue. Il n'aurait jamais imaginé qu'un tel phénomène se produise une fois la Perle Défiant le Ciel complétée.
 
 Wang Lin resta immobile, fixant cette main qui l'appelait, tandis qu'une lueur froide traversait son regard.
 
@@ -46,7 +46,7 @@ Ce geste n'utilisait pas la force brute, mais quelque chose de similaire à la l
 
 Après un long moment, le bras gigantesque finit par se dissiper. Il maintint pourtant son geste d'invitation jusqu'au bout. La porte monumentale derrière lui disparut en même temps que le bras...
 
-La lumière violette entourant la zone se condensa de nouveau. En un clin d'œil, toute la lueur se rassembla et disparut lentement pour redevenir la perle défiant le ciel.
+La lumière violette entourant la zone se condensa de nouveau. En un clin d'œil, toute la lueur se rassembla et disparut lentement pour redevenir la Perle Défiant le Ciel.
 
 Comme si elle avait libéré toute sa puissance, la perle tomba du ciel. Wang Lin hésita un instant avant de tendre la main droite. La perle vola immédiatement vers lui et atterrit dans sa paume.
 
@@ -56,9 +56,9 @@ Le Sens Divin de Wang Lin pénétra dans la perle. Les âmes de Li Muwan, de Wan
 
 Comparées à auparavant, elles semblaient plus vivantes, en particulier l'âme de Li Muwan, qui semblait désormais plus condensée et raffinée.
 
-« Quelle est donc la véritable puissance de la perle défiant le ciel... Où cette immense porte mène-t-elle... Et ce bras derrière la porte... » Wang Lin songea.
+« Quelle est donc la véritable puissance de la Perle Défiant le Ciel... Où cette immense porte mène-t-elle... Et ce bras derrière la porte... » Wang Lin songea.
 
-Il n'était pas difficile de deviner qu'il n'avait pas été le premier à obtenir la perle défiant le ciel, compte tenu de son ancienneté. Quelqu'un d'autre avait certainement réussi à compléter les cinq éléments de la perle par le passé.
+Il n'était pas difficile de deviner qu'il n'avait pas été le premier à obtenir la Perle Défiant le Ciel, compte tenu de son ancienneté. Quelqu'un d'autre avait certainement réussi à compléter les cinq éléments de la perle par le passé.
 
 Cependant, après avoir vu cette porte, ces individus avaient probablement choisi d'entrer, que ce soit lors de la première apparition ou des suivantes.
 
@@ -68,11 +68,11 @@ Avant que la perle ne soit complète, Wang Lin était déjà perplexe. Mais main
 
 « Cette porte pourrait-elle mener à l'ancien Royaume Céleste... Mais si c'est le cas, pourquoi ce bras est-il là? Bien qu'il semble inviter, en réalité, il est là pour écraser... »
 
-« Quelle est donc cette perle défiant le ciel... » Wang Lin fixa l'objet avec perplexité. Après un long moment, il la plaqua contre son front et elle disparut dans son âme originelle.
+« Quelle est donc cette Perle Défiant le Ciel... » Wang Lin fixa l'objet avec perplexité. Après un long moment, il la plaqua contre son front et elle disparut dans son âme originelle.
 
 Ne pouvant comprendre pour l'instant, Wang Lin décida de cesser d'y réfléchir. Il était évident que la clé résidait dans la porte, mais il ignorait simplement ce qui se cachait derrière!
 
-« Les cinq énergies élémentaires de la perle défiant le ciel ont disparu et doivent être rassemblées à nouveau! » Wang Lin regarda autour de lui. Après ce qui venait de se passer, cette planète était totalement dévastée. Il n'y avait plus aucun intérêt à rester ici.
+« Les cinq énergies élémentaires de la Perle Défiant le Ciel ont disparu et doivent être rassemblées à nouveau! » Wang Lin regarda autour de lui. Après ce qui venait de se passer, cette planète était totalement dévastée. Il n'y avait plus aucun intérêt à rester ici.
 
 « Malheureusement, ce lieu précieux a disparu, mais l'endroit qui apporte du confort à mon âme originelle se trouve plus profondément dans le champ d'astéroïdes. Mon corps étant rétabli, autant aller voir : s'il y a davantage de tonnerre, je pourrai alors cultiver le sortilège d'origine du tonnerre. »
 
@@ -90,11 +90,11 @@ La Bête du Tonnerre était extrêmement rapide dans sa traversée du champ d'as
 
 Cet environnement ne causait aucun inconfort ni à Wang Lin, ni à la Bête du Tonnerre. La créature était ravie et continuait de rugir joyeusement.
 
-Tout en chevauchant la bête, Wang Lin restait pensif au sujet de la perle défiant le ciel. Au fond de son cœur, il ressentait une pointe de déception. Après tout, il avait passé près de mille ans à rassembler les cinq éléments, et son voyage vers le Serpent aux yeux de lune avait failli lui coûter la vie. Il espérait obtenir un pouvoir immense qui lui serait d'une aide précieuse.
+Tout en chevauchant la bête, Wang Lin restait pensif au sujet de la Perle Défiant le Ciel. Au fond de son cœur, il ressentait une pointe de déception. Après tout, il avait passé près de mille ans à rassembler les cinq éléments, et son voyage vers le Serpent aux yeux de lune avait failli lui coûter la vie. Il espérait obtenir un pouvoir immense qui lui serait d'une aide précieuse.
 
 Cependant, l'écart entre la réalité et ses espoirs était trop grand.
 
-« Qu'est-ce que cette perle défiant le ciel... » Wang Lin toucha son front en méditant.
+« Qu'est-ce que cette Perle Défiant le Ciel... » Wang Lin toucha son front en méditant.
 
 La Bête du Tonnerre étant très sensible à l'énergie électrique, elle continua de s'enfoncer au cœur du champ d'astéroïdes.
 

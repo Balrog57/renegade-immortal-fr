@@ -42,15 +42,15 @@ Il semblait que l'origine de cet objet remontait à une époque très reculée..
 
 Après réflexion, Wang Lin rangea la couronne et son regard se posa sur l'os du Serpent aux yeux de lune, non loin de là.
 
-Le métal à flamme contenu dans l'os du Serpent aux yeux de lune diminuait progressivement après des jours d'absorption par la perle défiant le ciel...
+Le métal à flamme contenu dans l'os du Serpent aux yeux de lune diminuait progressivement après des jours d'absorption par la Perle Défiant le Ciel...
 
 Le temps passa lentement. Wang Lin était resté vigilant durant toute cette période, refusant que quiconque ne vienne perturber ce processus. Bien que cet endroit fût reculé, il devait rester prudent.
 
 Trois mois passèrent en un éclair. Personne n'était venu durant ce laps de temps. À cet instant, tout le métal à flamme avait disparu de l'os du Serpent aux yeux de lune.
 
-Wang Lin craignait initialement que la moitié de l'os ne suffise pas à achever la perle défiant le ciel, mais désormais, l'image représentant l'élément métallique était complète.
+Wang Lin craignait initialement que la moitié de l'os ne suffise pas à achever la Perle Défiant le Ciel, mais désormais, l'image représentant l'élément métallique était complète.
 
-L'élément métallique de la perle défiant le ciel fut parachevé sous les yeux de Wang Lin!
+L'élément métallique de la Perle Défiant le Ciel fut parachevé sous les yeux de Wang Lin!
 
 La perle émit une lueur éclatante et se transforma en un objet semblable à un cristal. Une aura ancienne jaillit soudainement de la perle.
 
@@ -60,13 +60,13 @@ Les yeux de Wang Lin révélèrent une lumière étrange. Il mordit l'extrémit�
 
 Au moment où le sang fut absorbé, l'esprit de Wang Lin trembla. C'était comme si quelque chose de nouveau s'était manifesté dans son âme originelle.
 
-Simultanément, un symbole imprégné d'une aura ancienne apparut dans son esprit. Wang Lin regarda la perle défiant le ciel avec un regard déterminé.
+Simultanément, un symbole imprégné d'une aura ancienne apparut dans son esprit. Wang Lin regarda la Perle Défiant le Ciel avec un regard déterminé.
 
-Il avait attendu près de mille ans pour enfin achever la perle défiant le ciel, mais au lieu d'être excité, il restait prudent et calme.
+Il avait attendu près de mille ans pour enfin achever la Perle Défiant le Ciel, mais au lieu d'être excité, il restait prudent et calme.
 
 Ce trésor l'avait accompagné durant une très longue période, mais en fin de compte, sa compréhension de celui-ci était trop superficielle.
 
-« Qu'est-ce que cette perle défiant le ciel exactement... Pourrait-elle vraiment provenir de l'ancien Royaume Céleste comme la femme du rouleau l'a affirmé? » La main de Wang Lin bougea. Ses deux doigts formèrent un pinceau et dessinèrent le symbole apparu dans son esprit.
+« Qu'est-ce que cette Perle Défiant le Ciel exactement... Pourrait-elle vraiment provenir de l'ancien Royaume Céleste comme la femme du rouleau l'a affirmé? » La main de Wang Lin bougea. Ses deux doigts formèrent un pinceau et dessinèrent le symbole apparu dans son esprit.
 
 Ce symbole était extrêmement complexe, et chaque trait dégageait une aura ancienne. Sous le regard attentif de Wang Lin, ce symbole prit progressivement forme.
 
@@ -74,7 +74,7 @@ L'aura ancienne devint extrêmement dense à cet instant. L'aura que le démon d
 
 À mesure que l'aura ancienne se propageait, la planète entière en fut affectée. Toute la vitalité de la planète fut progressivement réprimée et des fissures apparurent partout, la terre se réduisant peu à peu en poussière.
 
-Wang Lin prit une profonde inspiration. Au moment où le symbole fut achevé, il frappa du plat de la main. Le symbole flotta alors lentement vers la perle défiant le ciel qui levitait dans les airs.
+Wang Lin prit une profonde inspiration. Au moment où le symbole fut achevé, il frappa du plat de la main. Le symbole flotta alors lentement vers la Perle Défiant le Ciel qui levitait dans les airs.
 
 Un rayon de lumière violette jaillit de la perle. Cette lueur était si intense que Wang Lin peinait à garder les yeux ouverts. Tout le corps de la garde céleste dégagea une odeur de décomposition; son corps commença même à se désintégrer à vue d'œil.
 
@@ -90,11 +90,11 @@ Cette lumière violette ne s'arrêta pas et continua de s'étendre. Même certai
 
 C'était comme si Wang Lin et la perle étaient les seules choses subsistant au monde; tout le reste n'était que cette terrifiante lumière violette.
 
-Cette scène étrange fit violemment trembler le cœur de Wang Lin. Bien qu'il eût eu de nombreuses spéculations sur la perle défiant le ciel, il n'aurait jamais imaginé qu'elle changerait ainsi une fois achevée.
+Cette scène étrange fit violemment trembler le cœur de Wang Lin. Bien qu'il eût eu de nombreuses spéculations sur la Perle Défiant le Ciel, il n'aurait jamais imaginé qu'elle changerait ainsi une fois achevée.
 
 La diffusion de la lumière violette cessa alors que Wang Lin était encore sous le choc. La majorité des forces élémentaires qui s'étaient rassemblées se dissipèrent à cet instant. Plus de la moitié de l'énergie accumulée au cours des mille dernières années fut libérée d'un coup.
 
-La lumière violette restait dense autour de la perle défiant le ciel, et une immense porte apparut lentement dans un fracas assourdissant!
+La lumière violette restait dense autour de la Perle Défiant le Ciel, et une immense porte apparut lentement dans un fracas assourdissant!
 
 Cette porte était si démesurée que Wang Lin n'était qu'une insignifiante fourmi face à elle.
 
@@ -128,11 +128,11 @@ Tout comme autrefois à la Secte Heng Yue, lorsqu'il était animé d'une persév
 
 À cet instant, l'effroi émanant de son âme tentait de le submerger comme une marée, voulant que Wang Lin se soumette. Cependant, Wang Lin ne pouvait pas, et ne voulait pas!
 
-Car ce qui le soutenait, c'étaient les âmes de Wan Er et de Wang Ping à l'intérieur de la perle défiant le ciel!
+Car ce qui le soutenait, c'étaient les âmes de Wan Er et de Wang Ping à l'intérieur de la Perle Défiant le Ciel!
 
 Il n'autoriserait jamais personne à blesser ces deux âmes!
 
-« Perle défiant le ciel, c'est moi qui t'ai achevée. Si les cieux tuent, je détruirai les cieux. Si tu te retournes contre moi, alors je te briserai! » Bien que la voix de Wang Lin tremblât, elle possédait une aura d'indomptabilité alors qu'il hurlait chaque mot!
+« Perle Défiant le Ciel, c'est moi qui t'ai achevée. Si les cieux tuent, je détruirai les cieux. Si tu te retournes contre moi, alors je te briserai! » Bien que la voix de Wang Lin tremblât, elle possédait une aura d'indomptabilité alors qu'il hurlait chaque mot!
 
 Sa conviction inflexible du Dao fit s'agiter le dragon de tonnerre ancien à l'intérieur de son âme originelle, parcourant son corps avec frénésie. Des éclairs et le tonnerre remplirent également son corps fait d'électricité.
 

@@ -64,11 +64,11 @@ Au loin, Xuan Luo sourit en observant la scène. Son regard dépassa Wang Lin po
 
 « Je vous accorderai tout le temps dont vous avez besoin. » Xuan Luo sourit et s'assit. Cette fois, il ne regardait pas Wang Lin, mais la femme Ancien Dieu.
 
-« Peu importe votre origine, vous appartenez finalement à mon clan de l'Ancien Dao... Mon clan n'a pas beaucoup de femmes, et cette femme mérite d'être cultivée. Elle pourra devenir la concubine de mon unique disciple... C'est un bon mariage. » Xuan Luo se frotta le menton, une telle pensée traversant son esprit.
+« Peu importe votre origine, vous appartenez finalement à mon clan du Dao Gu... Mon clan n'a pas beaucoup de femmes, et cette femme mérite d'être cultivée. Elle pourra devenir la concubine de mon unique disciple... C'est un bon mariage. » Xuan Luo se frotta le menton, une telle pensée traversant son esprit.
 
 La goutte de sang de Ye Mo se propagea rapidement dans tout l'être de Wang Lin. Son cœur trembla tandis que des bruits de craquements résonnaient en lui, et son corps s'étendit pour atteindre plus de mille pieds.
 
-La puissance de l'Ancien Dao contenue dans le sang agissait comme un puissant nutriment pour Wang Lin. C'était particulièrement bénéfique vu ses blessures. Elle remplit lentement son corps, le rendant encore plus puissant!
+La puissance du Dao Gu contenue dans le sang agissait comme un puissant nutriment pour Wang Lin. C'était particulièrement bénéfique vu ses blessures. Elle remplit lentement son corps, le rendant encore plus puissant!
 
 Une fois ses os fusionnés avec le sang, sa constitution devint encore plus robuste et résiliente; il était désormais bien plus difficile de le briser qu'auparavant.
 
@@ -106,11 +106,11 @@ Au moment où Ye Mo entra, Wang Lin ouvrit les yeux, mais son expression resta s
 
 L'âme originelle de Ye Mo pénétra ainsi dans le corps de Wang Lin. Après trois heures, Wang Lin expira profondément. Son corps rétrécit progressivement sous une lumière fantomatique jusqu'à retrouver la taille d'un homme ordinaire.
 
-Ses yeux étaient aussi profonds que les étoiles. L'âme originelle de Ye Mo s'était dissipée à l'intérieur de lui. Ye Mo n'avait pu résister au sang d'âme de l'Ancêtre Ancien et était devenu, lentement, une partie de l'héritage de l'Ancien Dao de Wang Lin.
+Ses yeux étaient aussi profonds que les étoiles. L'âme originelle de Ye Mo s'était dissipée à l'intérieur de lui. Ye Mo n'avait pu résister au sang d'âme de l'Ancêtre Ancien et était devenu, lentement, une partie de l'héritage du Dao Gu de Wang Lin.
 
 Les blessures de Wang Lin étaient totalement guéries. Cette goutte de sang et l'âme originelle de Ye Mo avaient eu un effet prodigieux. Autrement, il lui aurait fallu plusieurs mois, voire plus, pour se remettre.
 
-À cet instant, l'héritage de l'Ancien Dao de Wang Lin était accompli pour plus de la moitié. Il lui restait encore l'œil gauche et le cœur enfouis dans la Tombe Antique!
+À cet instant, l'héritage du Dao Gu de Wang Lin était accompli pour plus de la moitié. Il lui restait encore l'œil gauche et le cœur enfouis dans la Tombe Antique!
 
 Ou encore la main gauche.
 

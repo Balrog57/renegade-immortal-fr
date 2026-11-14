@@ -12,9 +12,9 @@ La voix de Xue Zu était empreinte d'une intention meurtrière qui emplissait to
 
 C'était comme si une flamme noire dévorait l'espace de stockage derrière lui. Cette flamme, féroce, cherchait à engloutir Xue Zu.
 
-Alors que Xue Zu s'apprêtait à franchir le réseau de transfert pour s'échapper, l'expression de Wang Lin, qui était poursuivi par l'aiguille rouge, s'assombrit instantanément. Bien que son âme originelle à l'intérieur du gardien céleste ait été détruite, le gardien n'avait pas encore été totalement raffiné par la mer de sang.
+Alors que Xue Zu s'apprêtait à franchir le réseau de transfert pour s'échapper, l'expression de Wang Lin, qui était poursuivi par l'aiguille rouge, s'assombrit instantanément. Bien que son âme originelle à l'intérieur du garde céleste ait été détruite, le gardien n'avait pas encore été totalement raffiné par la mer de sang.
 
-Grâce au lien qu'il entretenait avec le gardien céleste, Wang Lin put voir le réseau de transfert scintiller et la silhouette de Xue Zu se condenser rapidement.
+Grâce au lien qu'il entretenait avec le garde céleste, Wang Lin put voir le réseau de transfert scintiller et la silhouette de Xue Zu se condenser rapidement.
 
 Wang Lin savait que s'il laissait Xue Zu s'échapper, il mourrait sans aucun doute, sans aucune chance de survie.
 
@@ -22,13 +22,13 @@ Face à cette crise imminente, il poussa un soupir et prit une décision radical
 
 « Je n'ai pas pu tenir ma promesse. Je me rattraperai dans le futur! »
 
-À l'extérieur du réseau de transfert, les yeux du gardien céleste, piégé au sein de la mer de sang, brillèrent intensément. Cette lumière fut si éclatante qu'elle enveloppa tout son corps avant d'éclater dans une aura destructrice.
+À l'extérieur du réseau de transfert, les yeux du garde céleste, piégé au sein de la mer de sang, brillèrent intensément. Cette lumière fut si éclatante qu'elle enveloppa tout son corps avant d'éclater dans une aura destructrice.
 
-C'était comme si une tempête se déclenchait dans le corps du gardien céleste, des rayons de lumière dorée jaillissant de lui tels des épées. L'auto-explosion d'un cultivateur de l'Yin Illusoire créa une force destructrice terrifiante qui permit au gardien céleste de s'extraire de l'emprise du sort de Xue Zu.
+C'était comme si une tempête se déclenchait dans le corps du garde céleste, des rayons de lumière dorée jaillissant de lui tels des épées. L'auto-explosion d'un cultivateur de l'Yin Illusoire créa une force destructrice terrifiante qui permit au garde céleste de s'extraire de l'emprise du sort de Xue Zu.
 
-Bien que le sort de Xue Zu n'ait plus le contrôle total sur le gardien céleste, il demeurait extraordinaire. En le raffinant, il parvint à réduire la puissance de l'auto-explosion de près de 60 %.
+Bien que le sort de Xue Zu n'ait plus le contrôle total sur le garde céleste, il demeurait extraordinaire. En le raffinant, il parvint à réduire la puissance de l'auto-explosion de près de 60 %.
 
-Le gardien céleste chargea avec les 40 % de puissance restants et atteignit le réseau de transfert. Au moment où Xue Zu apparut, le gardien céleste brilla comme un soleil.
+Le garde céleste chargea avec les 40 % de puissance restants et atteignit le réseau de transfert. Au moment où Xue Zu apparut, le garde céleste brilla comme un soleil.
 
 Une explosion colossale éclata à cet instant précis.
 

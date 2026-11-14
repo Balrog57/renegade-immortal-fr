@@ -14,7 +14,7 @@ Au moment où le passage vers le Système Stellaire de l'Alliance s'ouvrit, la f
 
 La voix de Maître Yan Leizi tonna soudainement: « Quatre grandes armées de culture de l'est, du sud, de l'ouest et du nord, frayez-vous un chemin dans le Système Stellaire de l'Alliance! En trois jours, prenez chacune possession de trois planètes de culture pour notre Système Stellaire de Luotian afin de les utiliser comme bases! »
 
-Alors que sa voix résonnait, l'armée de 10 000 cultivateurs située sur le flanc est du Temple Céleste du Tonnerre leva silencieusement les yeux. Sous le commandement de l'homme en armure, ils se précipitèrent tous vers la fissure tels des météores.
+Alors que sa voix résonnait, l'armée de 10 000 cultivateurs située sur le flanc est du Temple Lei Xian leva silencieusement les yeux. Sous le commandement de l'homme en armure, ils se précipitèrent tous vers la fissure tels des météores.
 
 Ils étaient imprégnés d'une intention meurtrière alors qu'ils chargeaient dans le Système Stellaire de l'Alliance!
 
@@ -24,7 +24,7 @@ Les armées de l'ouest et du sud suivirent le mouvement. Le ciel fut couvert d'�
 
 « Tonnerre Céleste, Vice-Tonnerre Céleste et les 108 Célestes. Prenez tous vos propres drapeaux de commandement et entrez dans le Système Stellaire de l'Alliance! »
 
-À l'intérieur du Temple Céleste du Tonnerre, les 108 Célestes se précipitèrent immédiatement vers la fissure dans le ciel avec la foudre. Une puissante intention meurtrière emplit rapidement la zone!
+À l'intérieur du Temple Lei Xian, les 108 Célestes se précipitèrent immédiatement vers la fissure dans le ciel avec la foudre. Une puissante intention meurtrière emplit rapidement la zone!
 
 « Tuez! » On ne sut qui avait crié, mais cela fit atteindre l'intention de combat des cultivateurs environnants à son paroxysme.
 
@@ -78,7 +78,7 @@ Lorsqu'il se retourna vers Qing Shui, celui-ci se leva et rejoignit Wang Lin. Il
 
 En voyant cela, Lie Yunzi hésita un instant, avant de porter à nouveau son regard vers la fissure céleste.
 
-La culture du vieux Xiang était puissante, il était donc manifestement rapide. En quelques enjambées, il quitta le Temple Céleste du Tonnerre pour se diriger vers le Domaine Est. Qing Shui suivait tranquillement derrière. Des vents noirs entouraient Wang Lin, ce qui lui permettait de ne pas être lent.
+La culture du vieux Xiang était puissante, il était donc manifestement rapide. En quelques enjambées, il quitta le Temple Lei Xian pour se diriger vers le Domaine Est. Qing Shui suivait tranquillement derrière. Des vents noirs entouraient Wang Lin, ce qui lui permettait de ne pas être lent.
 
 En chemin, le vieux Xiang ne prononça pas un mot. Ce n'est que plusieurs jours plus tard, alors qu'ils approchaient de la planète Dong Lin, qu'il prit la parole: « Xu Mu, il n'est pas facile d'atteindre ton niveau de culture actuel. Tu dois t'assurer que tout cela en vaut la peine! De plus, je ne suis pas pleinement certain que mon ancêtre acceptera de t'aider, alors sois prêt à toute éventualité. »
 

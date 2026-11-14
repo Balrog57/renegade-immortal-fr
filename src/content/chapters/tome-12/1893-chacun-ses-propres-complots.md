@@ -64,7 +64,7 @@ Le corps véritable formé par le tonnerre ne portait plus la volonté d'aucun a
 
 Après un long moment, une étincelle de sagesse brilla dans les yeux du vieil homme. Il n'avait pas besoin de prononcer ces mots devant Wang Lin: tout cela n'était qu'un test!
 
-Le fait d'avoir obtenu le titre de Ji Si du Temple Lü Mo Xie avec un corps mortel prouvait sa grande intelligence. Il ne croirait pas aveuglément ce qu'il voyait et remettrait tout en question.
+Le fait d'avoir obtenu le titre de Ji Si du Temple Lu Mo Xie avec un corps mortel prouvait sa grande intelligence. Il ne croirait pas aveuglément ce qu'il voyait et remettrait tout en question.
 
 Il avait d'abord utilisé ses paroles, puis effacé la volonté du maître de la Secte du corps de tonnerre. Il tentait de provoquer Wang Lin pour voir si son esprit avait été totalement anéanti.
 

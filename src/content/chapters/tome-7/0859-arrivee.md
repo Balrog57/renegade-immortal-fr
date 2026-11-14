@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 859 - Arrival
 slug: arrivee
 ---
-Le Temple Céleste du Tonnerre allait octroyer 108 titres célestes! Les quatre domaines allaient devenir l'arène d'une compétition féroce!
+Le Temple Lei Xian allait octroyer 108 titres célestes! Les quatre domaines allaient devenir l'arène d'une compétition féroce!
 
 C'était la première fois que des titres célestes étaient attribués depuis l'effondrement du Royaume Céleste. Le Seigneur Céleste Qing Shui serait également présent pour enseigner des sorts célestes. De plus, les deux familles ancestrales et la mystérieuse famille de l'ère primordiale avaient promis d'accorder le droit d'utiliser le bassin céleste.
 
@@ -14,7 +14,7 @@ Tout cela avait porté la compétition pour les titres célestes à son apogée!
 
 Ils utilisaient cette compétition pour porter l'intention de bataille de tout le Système Stellaire de Luotian à son paroxysme avant l'affrontement contre le Système Stellaire de l'Alliance!
 
-D'innombrables familles de cultivateurs des quatre domaines enverraient leurs représentants dans les arènes désignées. Ensuite, sous la direction d'un Messager du Temple Céleste du Tonnerre agissant comme juge, 108 personnes seraient choisies dans chaque domaine pour être envoyées au Temple Céleste du Tonnerre pour la compétition finale!
+D'innombrables familles de cultivateurs des quatre domaines enverraient leurs représentants dans les arènes désignées. Ensuite, sous la direction d'un Messager du Temple Lei Xian agissant comme juge, 108 personnes seraient choisies dans chaque domaine pour être envoyées au Temple Lei Xian pour la compétition finale!
 
 Domaine Sud, l'une des trois planètes principales: la Planète Diyan. L'espace situé dans un rayon de 500 kilomètres autour de la planète était enveloppé d'une lumière éclatante.
 
@@ -28,7 +28,7 @@ Leurs niveaux de culture variaient considérablement, bien que la plupart fussen
 
 Parmi l'innombrable mer de pierres bleues, on distinguait de nombreuses pierres rouges; chaque cultivateur assis sur l'une d'elles avait le regard brillant, empreint d'une intense intention de bataille. C'étaient les participants ayant obtenu le droit de lutter pour un titre céleste dans le Domaine Sud!
 
-Il y avait environ 300 à 400 pierres rouges. Les 108 lauréats qui auraient le droit de se rendre au Temple Céleste du Tonnerre seraient choisis parmi eux.
+Il y avait environ 300 à 400 pierres rouges. Les 108 lauréats qui auraient le droit de se rendre au Temple Lei Xian seraient choisis parmi eux.
 
 À cet instant, au sein de ce champ de bataille s'étendant sur 500 kilomètres, deux cultivateurs s'affrontaient. Divers sorts saturaient l'espace et les deux camps étaient d'égale force. Tous les spectateurs observaient attentivement, en particulier ceux qui devaient combattre prochainement, dont le regard était plus intense encore.
 
@@ -70,11 +70,11 @@ Sur une autre pierre rouge siégeait Tang Yanfeng. En observant la scène, il la
 
 Zhan Konglie, Shengong Hu et Tang Yanfeng étaient célèbres dans le Domaine Sud. On les surnommait les Trois Héros du Domaine Sud!
 
-Outre les spectateurs des diverses familles de cultivateurs, plusieurs personnes étaient présentes pour superviser les combats. Trois d'entre elles provenaient du Temple Céleste du Tonnerre.
+Outre les spectateurs des diverses familles de cultivateurs, plusieurs personnes étaient présentes pour superviser les combats. Trois d'entre elles provenaient du Temple Lei Xian.
 
 Deux des trois portaient des robes vertes et observaient la scène d'un regard glacial. Le troisième était un vieillard vêtu d'une robe violette; il gardait les yeux clos, comme s'il n'accordait aucune importance à ce qui se déroulait devant lui.
 
-Les deux messagers en robes vertes du Temple Céleste du Tonnerre témoignaient d'un respect immense envers l'Ancien à la robe violette. Même les ancêtres environnants du Domaine Sud le traitaient avec une grande déférence.
+Les deux messagers en robes vertes du Temple Lei Xian témoignaient d'un respect immense envers l'Ancien à la robe violette. Même les ancêtres environnants du Domaine Sud le traitaient avec une grande déférence.
 
 Outre ce trio, divers ancêtres des familles de cultivateurs du Domaine Sud étaient présents. Ces personnes siégeaient sur des pierres blanches! Il y en avait très peu, moins d'une douzaine, mais chacun d'eux était une figure illustre!
 
@@ -86,7 +86,7 @@ Un instant plus tard, le corps de l'un des combattants fut secoué par l'impact 
 
 Un rire jaillit de l'assaillant qui cessa immédiatement sa poursuite.
 
-Une ombre apparut au milieu de l'arène; c'était l'un des messagers en robe verte du Temple Céleste du Tonnerre. Il surgit dans un éclair de tonnerre, balaya la zone d'un regard et déclara calmement: « Li Yesheng est vainqueur! »
+Une ombre apparut au milieu de l'arène; c'était l'un des messagers en robe verte du Temple Lei Xian. Il surgit dans un éclair de tonnerre, balaya la zone d'un regard et déclara calmement: « Li Yesheng est vainqueur! »
 
 Alors que le combat se déroulait aux abords de la Planète Diyan, la silhouette de Wang Lin apparut dans le vide, à des centaines de milliers de kilomètres de là.
 

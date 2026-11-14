@@ -48,7 +48,7 @@ Le visage de Zhang Hu tressaillit et il répondit respectueusement: « Maître, 
 
 L'expression de Wang Lin resta calme. Il projeta son Sens Divin et fut stupéfait: cet homme d'âge moyen avait déjà atteint le sommet du 15e niveau.
 
-L'homme sourit et dit à Wang Lin: « Camarade cultivateur, connais-tu mon disciple? »
+L'homme sourit et dit à Wang Lin: « Daoïste, connais-tu mon disciple? »
 
 Le visage de Wang Lin ne trahit aucune émotion. Il répondit: « Et qu'est-ce que cela changerait que je le connaisse ou non? »
 

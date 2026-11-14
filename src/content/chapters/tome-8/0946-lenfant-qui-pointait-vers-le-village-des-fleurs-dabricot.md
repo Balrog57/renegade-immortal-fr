@@ -25,11 +25,11 @@ Bien que cette aura fût encore faible aujourd'hui, avec le temps, elle croîtra
 
 Une fois de retour, le sceau qui entravait la culture de Qing Shui se dissipa rapidement. Après tout, son énergie d'origine céleste n'avait jamais disparu; elle était simplement supprimée par le sceau. Après avoir recouvré sa pleine puissance, Qing Shui ne resta pas auprès du Maître Yan Leizi. Il disparut parmi les étoiles, laissant son emplacement inconnu.
 
-En apparence, lors de leur départ, il semblait qu'ils n'avaient eu aucun contact, mais Wang Lin savait que Qing Shui viendrait le retrouver. Après tout, ce dernier n'avait pas encore exploré les souvenirs de l'Illustre Xuan Bao.
+En apparence, lors de leur départ, il semblait qu'ils n'avaient eu aucun contact, mais Wang Lin savait que Qing Shui viendrait le retrouver. Après tout, ce dernier n'avait pas encore exploré les souvenirs de l'Estimé Xuan Bao.
 
-En songeant à ce qui s'était passé dans le vide, Wang Lin ressentit une profonde émotion. Qu'il s'agisse de la vie de Luo Chen, des vagues à l'extérieur du sceau ou des secrets du Royaume Céleste, tout cela restait gravé dans son esprit. Ce qui l'avait le plus choqué, c'était la perle défiant le ciel!
+En songeant à ce qui s'était passé dans le vide, Wang Lin ressentit une profonde émotion. Qu'il s'agisse de la vie de Luo Chen, des vagues à l'extérieur du sceau ou des secrets du Royaume Céleste, tout cela restait gravé dans son esprit. Ce qui l'avait le plus choqué, c'était la Perle Défiant le Ciel!
 
-Wang Lin n'aurait jamais imaginé que la perle défiant le ciel déclencherait inopinément une guerre monumentale entre les quatre Royaumes Célestes!
+Wang Lin n'aurait jamais imaginé que la Perle Défiant le Ciel déclencherait inopinément une guerre monumentale entre les quatre Royaumes Célestes!
 
 « La grande guerre entre les quatre Royaumes Célestes fut certainement infiniment plus féroce que la bataille entre Luotian et l'Alliance... » Wang Lin soupira en traversant la nébuleuse. À un moment donné, il se retourna et resta immobile.
 
@@ -45,13 +45,13 @@ La réalité était conforme à ses explications. Le Royaume Sha Yu de l'Allianc
 
 Hélas, ce Royaume Sha Yu avait une chance déplorable: l'un de ses groupes tomba nez à nez avec Qing Shui. Tous furent exécutés, et même leur chef fut dévoré par Qing Shui.
 
-Wang Lin frappa son sac de rangement, et l'âme originelle de l'Illustre Xuan Bao s'en échappa. Il la lança vers Qing Shui. Ce dernier l'attrapa et plaça sa main droite sur le sommet du crâne de l'Illustre Xuan Bao. L'énergie d'origine céleste afflua dans sa main, et l'âme de l'illustre s'éveilla. Des hurlements de détresse résonnèrent tandis que son âme originelle se convulsait.
+Wang Lin frappa son sac de rangement, et l'âme originelle de l'Estimé Xuan Bao s'en échappa. Il la lança vers Qing Shui. Ce dernier l'attrapa et plaça sa main droite sur le sommet du crâne de l'Estimé Xuan Bao. L'énergie d'origine céleste afflua dans sa main, et l'âme de l'illustre s'éveilla. Des hurlements de détresse résonnèrent tandis que son âme originelle se convulsait.
 
-L'expression de Qing Shui devint sombre et il ferma les yeux. Après un long moment, il les rouvrit, le visage marqué par une couche de givre. Il renvoya l'âme originelle de l'Illustre Xuan Bao vers Wang Lin.
+L'expression de Qing Shui devint sombre et il ferma les yeux. Après un long moment, il les rouvrit, le visage marqué par une couche de givre. Il renvoya l'âme originelle de l'Estimé Xuan Bao vers Wang Lin.
 
-Sans mot dire, Wang Lin réceptionna l'âme. Celle-ci avait perdu toute conscience et n'était plus qu'une simple source d'énergie d'origine céleste. L'ancien illustre, le Junior frère de l'Illustre Tian Bao, en était arrivé là. On ne pouvait que constater que, qu'on soit un Céleste ou un cultivateur, la moindre négligence pouvait mener à un tel dénouement. Pour faire exception, il fallait devenir le plus fort.
+Sans mot dire, Wang Lin réceptionna l'âme. Celle-ci avait perdu toute conscience et n'était plus qu'une simple source d'énergie d'origine céleste. L'ancien illustre, le Junior frère de l'Estimé Tian Bao, en était arrivé là. On ne pouvait que constater que, qu'on soit un Céleste ou un cultivateur, la moindre négligence pouvait mener à un tel dénouement. Pour faire exception, il fallait devenir le plus fort.
 
-Wang Lin rangea cette âme dans son sac de rangement et regarda Qing Shui. L'expression de ce dernier était revenue à la normale, mais une lueur de férocité y persistait. Il avait trouvé un indice ténu dans l'âme originelle de l'Illustre Xuan Bao!
+Wang Lin rangea cette âme dans son sac de rangement et regarda Qing Shui. L'expression de ce dernier était revenue à la normale, mais une lueur de férocité y persistait. Il avait trouvé un indice ténu dans l'âme originelle de l'Estimé Xuan Bao!
 
 Qing Shui fixa Wang Lin et dit lentement: « Xu Mu, je dois me rendre au Royaume Sha Yu de l'Alliance pour récupérer un objet. Es-tu prêt à m'accompagner? »
 
@@ -59,7 +59,7 @@ Wang Lin réfléchit un instant avant de répondre: « Senior frère peut-il m'a
 
 Qing Shui hocha la tête: « D'accord, je reviendrai te chercher dans dix jours! » Sans perdre de temps, il fit un pas et disparut dans le vide. Au moment même de sa disparition, une intention meurtrière monstrueuse s'évanouit instantanément!
 
-Wang Lin poussa un soupir. Il savait que Qing Shui avait dû découvrir quelque chose au sein de l'âme originelle de l'illustre Xuan Bao. Après réflexion, il fit un pas et des ondulations apparurent sous ses pieds; il fusionna avec le monde.
+Wang Lin poussa un soupir. Il savait que Qing Shui avait dû découvrir quelque chose au sein de l'âme originelle de l'Estimé Xuan Bao. Après réflexion, il fit un pas et des ondulations apparurent sous ses pieds; il fusionna avec le monde.
 
 S'il demandait dix jours, c'était parce qu'il avait deux affaires à régler!
 

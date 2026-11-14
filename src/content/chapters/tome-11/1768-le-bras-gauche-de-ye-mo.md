@@ -10,11 +10,11 @@ Xuan Luo s'exclama. À cet instant, le regard de Wang Lin croisa le sien, comme 
 
 Cependant, bientôt, le regard de Wang Lin passa son chemin, comme s'il ne s'agissait que d'une simple coïncidence.
 
-La respiration de Wang Lin était calme. À présent, non seulement ses blessures étaient guéries, mais il avait l'impression de détenir la puissance du monde entier. C'était comme s'il pouvait fendre le néant d'un seul coup de poing. La puissance du Dao Antique le mettait très à l'aise.
+La respiration de Wang Lin était calme. À présent, non seulement ses blessures étaient guéries, mais il avait l'impression de détenir la puissance du monde entier. C'était comme s'il pouvait fendre le néant d'un seul coup de poing. La puissance du Dao Gu le mettait très à l'aise.
 
 C'était là le véritable héritage. Si chaque héritage devait être extrêmement douloureux, cela ne conviendrait manifestement pas.
 
-La puissance du Dao Antique résonnait dans tout son corps. Elle parcourait chaque centimètre de sa chair et de son sang, donnant à Wang Lin le sentiment qu'il contrôlait le monde. Son âme originelle semblait avoir reçu une nourriture suffisante de son propre corps. Ce dernier émanait une douce lumière, comme s'il était prêt à déclencher un sort à tout instant.
+La puissance du Dao Gu résonnait dans tout son corps. Elle parcourait chaque centimètre de sa chair et de son sang, donnant à Wang Lin le sentiment qu'il contrôlait le monde. Son âme originelle semblait avoir reçu une nourriture suffisante de son propre corps. Ce dernier émanait une douce lumière, comme s'il était prêt à déclencher un sort à tout instant.
 
 L'effet d'une seule goutte de sang ne suffirait pas à produire un tel résultat, mais si cette goutte lui permettait d'atteindre un niveau de perfection, alors la situation était totalement différente.
 
@@ -24,7 +24,7 @@ Wang Lin ressentait vaguement un appel provenant des profondeurs de ce monde gel
 
 Wang Lin n'avait rien remarqué avant d'avoir absorbé la dernière goutte de sang.
 
-Tandis que Wang Lin calmait sa puissance du Dao Antique pour qu'aucune ne s'en échappe, la femme Ancien Dieu, qui s'était prosternée au sol, se redressa lentement. Elle regarda Wang Lin avec une admiration profonde dans les yeux.
+Tandis que Wang Lin calmait sa puissance du Dao Gu pour qu'aucune ne s'en échappe, la femme Ancien Dieu, qui s'était prosternée au sol, se redressa lentement. Elle regarda Wang Lin avec une admiration profonde dans les yeux.
 
 À cet instant, Wang Lin lui parut être l'ancêtre des trois anciens clans, ce qui fit trembler son cœur.
 
@@ -80,13 +80,13 @@ Wang Lin s'assit sur la surface gelée et son regard perça la couche de glace p
 
 Xuan Luo, les mains derrière le dos, flottait au-dessus du bassin. Il observait également la glace et, en entendant les paroles de Wang Lin, il sourit, une lueur étrange dans les yeux.
 
-Impossible de pénétrer ou de briser cette couche. Wang Lin fronça les sourcils, laissa échapper un reniflement froid et contracta ses cinq doigts en griffe. La puissance du Dao Antique se concentra au bout de ses doigts, qui émettaient une lueur spectrale accompagnée d'une aura dense du Dao Antique.
+Impossible de pénétrer ou de briser cette couche. Wang Lin fronça les sourcils, laissa échapper un reniflement froid et contracta ses cinq doigts en griffe. La puissance du Dao Gu se concentra au bout de ses doigts, qui émettaient une lueur spectrale accompagnée d'une aura dense du Dao Gu.
 
-« Dao Antique Immortel! » rugit Wang Lin alors que d'innombrables ombres superposées surgissaient de sa main droite. Des milliers d'ombres semblèrent apparaître et, au moment où elles fusionnèrent en une seule, la main droite de Wang Lin s'abattit sur la glace.
+« Dao Gu Immortel! » rugit Wang Lin alors que d'innombrables ombres superposées surgissaient de sa main droite. Des milliers d'ombres semblèrent apparaître et, au moment où elles fusionnèrent en une seule, la main droite de Wang Lin s'abattit sur la glace.
 
 Des grondements tonitruants résonnèrent à travers le monde. Tandis que la main de Wang Lin saisissait la glace, les innombrables ombres disparues réapparurent soudainement.
 
-Cette attaque était comme si Wang Lin frappait une multitude de fois simultanément. Armé du Dao Antique Immortel, il attaqua la glace en pleine régénération. Dans un rugissement, ses doigts griffèrent la surface et arrachèrent un morceau de glace de la taille d'une paume.
+Cette attaque était comme si Wang Lin frappait une multitude de fois simultanément. Armé du Dao Gu Immortel, il attaqua la glace en pleine régénération. Dans un rugissement, ses doigts griffèrent la surface et arrachèrent un morceau de glace de la taille d'une paume.
 
 Tenant le fragment, Wang Lin l'examina avec soin et tenta de le consumer avec son essence de feu, mais il fut incapable de le faire fondre. Ses yeux se plissèrent; il sentait une force étrange à l'intérieur de ce bloc. Il trouva cette force similaire à une essence.
 
@@ -100,11 +100,11 @@ La culture du Souverain Céleste aux Sept Couleurs étant limitée, il n'avait p
 
 Après une réflexion, Wang Lin rangea la glace dans son espace de stockage. Elle restait très étrange et ne fondait pas; elle continuait d'émaner une aura glaciale.
 
-Fixant le fragment, Wang Lin prit une profonde inspiration et leva sa main droite. Alors que le Dao Antique Immortel imprégnait sa main, il griffa à nouveau la glace. Des grondements tonitruants se succédèrent. Par cette méthode brute et laborieuse, Wang Lin mit plusieurs heures à creuser une cavité dans la glace.
+Fixant le fragment, Wang Lin prit une profonde inspiration et leva sa main droite. Alors que le Dao Gu Immortel imprégnait sa main, il griffa à nouveau la glace. Des grondements tonitruants se succédèrent. Par cette méthode brute et laborieuse, Wang Lin mit plusieurs heures à creuser une cavité dans la glace.
 
 Un demi-bâton d'encens plus tard, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo!
 
-Seule une petite zone de peau, de la taille d'une paume, était visible. Elle était grise mais dégageait une puissante aura du Dao Antique qui pénétra l'esprit de Wang Lin. Il prit une profonde inspiration et s'assit, pressant sa main gauche contre la peau exposée.
+Seule une petite zone de peau, de la taille d'une paume, était visible. Elle était grise mais dégageait une puissante aura du Dao Gu qui pénétra l'esprit de Wang Lin. Il prit une profonde inspiration et s'assit, pressant sa main gauche contre la peau exposée.
 
 Au moment où il appuya, le bras gauche de Ye Mo émit une lumière spectrale qui traversa la glace, conférant à cette dernière une étrange beauté.
 

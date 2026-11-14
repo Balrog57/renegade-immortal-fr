@@ -114,7 +114,7 @@ Cela rendit la tâche de Mo Lihai bien plus ardue. Il devait sans cesse utiliser
 
 L'épée de l'Empereur remarqua Mo Lihai, mais comme ce dernier avait déployé une quantité massive d'énergie spirituelle démoniaque, l'épée ne fit que passer. En vérité, même si l'épée de l'Empereur avait regardé de plus près, elle n'aurait tout de même pas pu trouver Wang Lin.
 
-Wang Lin avait totalement dissimulé son aura et était entré dans la perle défiant le ciel. Il se tenait assis face à l'Âme Naissante de Li Muwan.
+Wang Lin avait totalement dissimulé son aura et était entré dans la Perle Défiant le Ciel. Il se tenait assis face à l'Âme Naissante de Li Muwan.
 
 Tout au long de la nuit, la colère de l'épée ne fit que croître. Elle passa la nuit entière à fouiller toute la Cité Tian Yao sans trouver la moindre trace de cette proie méprisable!
 

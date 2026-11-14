@@ -40,7 +40,7 @@ Qing Shui n'hésita pas et fit un pas en avant lui aussi.
 
 À cet instant précis, Wang Lin serra les dents et cria depuis la distance: « Puisque le Senior a fini de raffiner la Formation Céleste, j'espère qu'il pourra me rendre ma Bête du Tonnerre! »
 
-Le Maître Yan Leizi marqua une pause avant de se tourner vers Wang Lin avec un sourire. « Je dois encore utiliser ta Bête du Tonnerre pour un certain temps. Une fois le passage ouvert et notre entrée dans le Système Stellaire de l'Alliance effectuée, je te la rendrai. Tu es un être dont le destin est lié à ce vieil homme. Si tu parviens à quitter le Royaume Céleste du Tonnerre par tes propres forces et que tu atteins le Temple Céleste du Tonnerre en moins d'un an grâce à mon jeton, alors je t'offrirai une autre opportunité: je t'emmènerai avec moi dans le Système Stellaire de l'Alliance! »
+Le Maître Yan Leizi marqua une pause avant de se tourner vers Wang Lin avec un sourire. « Je dois encore utiliser ta Bête du Tonnerre pour un certain temps. Une fois le passage ouvert et notre entrée dans le Système Stellaire de l'Alliance effectuée, je te la rendrai. Tu es un être dont le destin est lié à ce vieil homme. Si tu parviens à quitter le Royaume Céleste du Tonnerre par tes propres forces et que tu atteins le Temple Lei Xian en moins d'un an grâce à mon jeton, alors je t'offrirai une autre opportunité: je t'emmènerai avec moi dans le Système Stellaire de l'Alliance! »
 
 Tout en parlant, il frappa son sac de stockage et une corne de trois pouces, de couleur or et pourpre, s'envola immédiatement vers Wang Lin.
 
@@ -66,16 +66,16 @@ La silhouette de Wang Lin vacilla alors qu'il esquivait une faille spatiale, pui
 
 Shengong Hu traversait rapidement le Royaume Céleste. Bien que la porte céleste fût détruite, il connaissait un autre moyen de quitter ces lieux.
 
-Il s'agissait du seul réseau de transfert installé ici par le Temple Céleste du Tonnerre. C'était la raison pour laquelle les messagers du Temple pouvaient pénétrer dans ce lieu sans passer par la porte céleste.
+Il s'agissait du seul réseau de transfert installé ici par le Temple Lei Xian. C'était la raison pour laquelle les messagers du Temple pouvaient pénétrer dans ce lieu sans passer par la porte céleste.
 
-Cependant, bien que ce réseau permette de partir, il comportait de grandes restrictions. Premièrement, chaque transfert ne pouvait transporter qu'un nombre limité d'individus. Deuxièmement, seuls les messagers du Temple Céleste du Tonnerre pouvaient l'utiliser; les autres n'étaient pas autorisés à y pénétrer. Quiconque tentait l'intrusion était immédiatement tué!
+Cependant, bien que ce réseau permette de partir, il comportait de grandes restrictions. Premièrement, chaque transfert ne pouvait transporter qu'un nombre limité d'individus. Deuxièmement, seuls les messagers du Temple Lei Xian pouvaient l'utiliser; les autres n'étaient pas autorisés à y pénétrer. Quiconque tentait l'intrusion était immédiatement tué!
 
-C'était une règle strictement appliquée depuis la mise en place du réseau par le Temple Céleste du Tonnerre. Même un intrus accidentel subissait généralement une mort immédiate.
+C'était une règle strictement appliquée depuis la mise en place du réseau par le Temple Lei Xian. Même un intrus accidentel subissait généralement une mort immédiate.
 
-L'autorité du Temple Céleste du Tonnerre ne souffre aucune atteinte!
+L'autorité du Temple Lei Xian ne souffre aucune atteinte!
 
 Actuellement, ses relations avec le Temple étaient tendues, c'est pourquoi il n'avait pas choisi ce réseau plus tôt et avait privilégié la porte céleste.
 
-Toutefois, la porte étant fermée et le Royaume Céleste subissant un effondrement généralisé, Shengong Hu fut non seulement ralenti, mais contraint de se diriger vers le réseau de transfert du Temple Céleste du Tonnerre.
+Toutefois, la porte étant fermée et le Royaume Céleste subissant un effondrement généralisé, Shengong Hu fut non seulement ralenti, mais contraint de se diriger vers le réseau de transfert du Temple Lei Xian.
 
 « Je me demande où se trouve mon seigneur... » songea silencieusement Shengong Hu. Il restait fermement convaincu que son seigneur ne pourrait pas perdre.

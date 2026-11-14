@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1867 - Rapid Spell Art!"
 slug: art-magique-rapide
 ---
-Une lueur sanglante jaillit. Cette entaille contenait toute la culture de Wang Lin et il utilisa son pouvoir du Dao Antique sans aucune retenue.
+Une lueur sanglante jaillit. Cette entaille contenait toute la culture de Wang Lin et il utilisa son pouvoir du Dao Gu sans aucune retenue.
 
-Dans les terres célestes du Continent Xian Gang, Wang Lin était extrêmement prudent avec son pouvoir du Dao Antique. Il ne voulait pas que trop de personnes le reconnaissent, car cela compliquerait ses mouvements dans ces contrées.
+Dans les terres célestes du Continent Xian Gang, Wang Lin était extrêmement prudent avec son pouvoir du Dao Gu. Il ne voulait pas que trop de personnes le reconnaissent, car cela compliquerait ses mouvements dans ces contrées.
 
-Après tout, par ses racines, il appartenait au Dao Antique et n'était pas l'un des êtres célestes. Il devait se montrer prudent sur les terres célestes.
+Après tout, par ses racines, il appartenait au Dao Gu et n'était pas l'un des êtres célestes. Il devait se montrer prudent sur les terres célestes.
 
-Mais à l'intérieur de cette Pierre Spatiale, il n'avait aucune inquiétude à avoir. Tandis que l'épée tranchait, une ombre gigantesque du Dao Antique apparut derrière lui. Cette ombre était vêtue d'une armure et dégageait une aura antique.
+Mais à l'intérieur de cette Pierre Spatiale, il n'avait aucune inquiétude à avoir. Tandis que l'épée tranchait, une ombre gigantesque du Dao Gu apparut derrière lui. Cette ombre était vêtue d'une armure et dégageait une aura antique.
 
 La lumière sanglante flamba alors que Wang Lin tranchait prestement l'espace entre la lanterne et l'âme originelle de Xu Decai. L'âme originelle de Xu Decai recracha un grand flot de souffle d'âme et se flétrit. La lanterne suspendue au-dessus de sa tête fut frappée par cette force puissante et projetée au loin, son feu s'éteignant instantanément.
 

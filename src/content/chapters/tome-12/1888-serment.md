@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1888 - Oath!"
 slug: serment
 ---
-La terrifiante force destructrice fut totalement contenue par l'ombre de son Dao Antique, son puissant corps physique et la mystérieuse armure élémentaire de terre à forme humaine.
+La terrifiante force destructrice fut totalement contenue par l'ombre de son Dao Gu, son puissant corps physique et la mystérieuse armure élémentaire de terre à forme humaine.
 
 Malgré cela, Wang Lin sentit son âme originelle trembler; repoussé de dizaines de milliers de pieds, du sang s’écoula au coin de sa bouche. Une fissure de la taille d'une paume apparut sur le torse de l'armure de terre, mais celle-ci ne se brisa pas.
 

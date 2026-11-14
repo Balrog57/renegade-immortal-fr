@@ -76,7 +76,7 @@ Lanmeng Daozun sentit son doigt engourdi et se retira, sous le choc. Il connaiss
 
 « Il ira bien! »
 
-Maître Simo observait la scène, stupéfait. Il avait vu les deux puissances s'élancer pour sauver Wang Lin, mais il n'aurait jamais imaginé qu'ils soient ainsi repoussés!
+Maître Si Mo observait la scène, stupéfait. Il avait vu les deux puissances s'élancer pour sauver Wang Lin, mais il n'aurait jamais imaginé qu'ils soient ainsi repoussés!
 
 L'expression de la Grande Maîtresse Yun Luo devint plus sombre encore et ses mains s'activèrent avec précipitation. Elle sentait qu'elle était sur le point de percer les secrets qui se jouaient là.
 

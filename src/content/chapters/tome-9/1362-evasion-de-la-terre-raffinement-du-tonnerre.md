@@ -138,7 +138,7 @@ Wang Lin lança un regard à Zhong Dahong. Puis il se retourna et agita ses manc
 
 Les sortilèges fusaient de toutes parts. À l'apparition de Wang Lin, ses yeux brillèrent d'un rouge vif. Son Royaume Ji jaillit comme un éclair rouge, d'une rapidité fulgurante. Il pénétra dans le corps d'un cultivateur de la première étape du Fléau Céleste, fit s'effondrer son âme originelle et ressortit par son dos, au niveau du cœur. Puis il entra entre les sourcils d'un cultivateur de la deuxième étape du Fléau Céleste, faisant exploser sa tête avant de la traverser.
 
-« Compagnon Daoïste Esprit Dispersé, prends soin de toi. Je m'en vais! » Wang Lin fit un pas de plus, rétracta son Royaume Ji et disparut sans laisser de trace!
+« Daoïste Esprit Dispersé, prends soin de toi. Je m'en vais! » Wang Lin fit un pas de plus, rétracta son Royaume Ji et disparut sans laisser de trace!
 
 Son apparition et ses deux morts instantanées terrifièrent ceux qui combattaient le Daoïste Esprit Dispersé. Ce dernier éclata d'un rire sonore.
 

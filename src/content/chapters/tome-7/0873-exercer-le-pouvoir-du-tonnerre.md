@@ -28,13 +28,13 @@ En un clin d'œil, hormis la pierre sur laquelle Wang Lin était assis, toutes l
 
 Au cours de ce processus, une force de tonnerre colossale, cachée sous terre, jaillit vers l'esprit du tonnerre.
 
-On aurait dit que la tribulation céleste descendait sur le Temple Céleste du Tonnerre. Les expressions de tous les cultivateurs environnants changèrent et ils se retirèrent rapidement. Même les yeux de certains ancêtres s'illuminèrent.
+On aurait dit que la tribulation céleste descendait sur le Temple Lei Xian. Les expressions de tous les cultivateurs environnants changèrent et ils se retirèrent rapidement. Même les yeux de certains ancêtres s'illuminèrent.
 
 Alors que la tempête se propageait à nouveau, les vieux monstres sur les tapis de prière plissèrent les yeux. Maître Yan Leizi afficha un sourire amer avant de lever sa main droite et l'abaisser. La tempête qui jaillissait s'y heurta dans un grondement et disparut.
 
 À cet instant, un tonnerre infini se précipitait vers l'esprit du tonnerre. L'âme originelle du dragon de tonnerre antique de Wang Lin, qui avait dévoré la moitié de l'esprit, ressentit soudain une pulsion irrésistible. Wang Lin n'avait jamais ressenti un tel élan auparavant. Cependant, alors que la moitié de l'esprit du tonnerre qu'il avait consommée se transformait en un tonnerre infini au sein de son âme originelle, il ne put plus contenir cette pulsion. C'était comme si un rugissement grondait en lui et qu'il ne pouvait plus le retenir.
 
-Ce fut le premier rugissement de tonnerre que Wang Lin laissa échapper depuis l'obtention de l'âme originelle du dragon de tonnerre antique. C'était comme si ce cri avait transpercé le Temple Céleste du Tonnerre pour devenir une existence immuable dans le monde: le son même du tonnerre!
+Ce fut le premier rugissement de tonnerre que Wang Lin laissa échapper depuis l'obtention de l'âme originelle du dragon de tonnerre antique. C'était comme si ce cri avait transpercé le Temple Lei Xian pour devenir une existence immuable dans le monde: le son même du tonnerre!
 
 À cet instant, ce son était la voix du tonnerre, et tout le tonnerre devait lui obéir!
 

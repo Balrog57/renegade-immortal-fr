@@ -48,7 +48,7 @@ L'expression de Zhou Wutai était sombre. Très peu des cultivateurs survolant l
 
 Heureusement, bien que ces cultivateurs appartenaient à de nombreuses factions différentes, aucune n'importuna les locaux. Tous fonçaient vers la Mer Xiu Mo.
 
-Le ciel fut bientôt saturé de traînées lumineuses et, un instant plus tard, une ombre gigantesque apparut. Le soleil fut occulté par cette masse immense; peu à peu, la surface de la planète fut plongée dans la demi-obscurité. Ces ombres étaient les palais du Temple Céleste du Tonnerre. Ils ne descendirent pas sur la planète Suzaku, mais restèrent en orbite. Après tout, la planète Suzaku était à moitié dévastée et ne pouvait supporter les puissantes fluctuations émanant de ces palais.
+Le ciel fut bientôt saturé de traînées lumineuses et, un instant plus tard, une ombre gigantesque apparut. Le soleil fut occulté par cette masse immense; peu à peu, la surface de la planète fut plongée dans la demi-obscurité. Ces ombres étaient les palais du Temple Lei Xian. Ils ne descendirent pas sur la planète Suzaku, mais restèrent en orbite. Après tout, la planète Suzaku était à moitié dévastée et ne pouvait supporter les puissantes fluctuations émanant de ces palais.
 
 Peu après l'apparition des ombres, des cercueils commencèrent à descendre. Il y avait des cercueils de toutes tailles, entourés par une multitude de cultivateurs.
 

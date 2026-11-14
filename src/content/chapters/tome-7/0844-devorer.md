@@ -6,31 +6,31 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 844 - Devour
 slug: devorer
 ---
-Une tempête qui ébranla la quasi-totalité des cultivateurs balaya le système stellaire de Luotian. La bête féroce et gigantesque qui avait massacré d'innombrables cultivateurs avait été capturée vivante par le Temple Céleste du Tonnerre!
+Une tempête qui ébranla la quasi-totalité des cultivateurs balaya le système stellaire de Luotian. La bête féroce et gigantesque qui avait massacré d'innombrables cultivateurs avait été capturée vivante par le Temple Lei Xian!
 
 Très peu de gens savaient comment cela avait été accompli, mais le résultat stupéfia tous les cultivateurs du système stellaire de Luotian!
 
-À cet instant précis, la renommée du Temple Céleste du Tonnerre atteignit son apogée! Elle surpassait même les quelques lignées possédant des héritages de l'Antiquité, devenant un symbole de puissance pour le système stellaire de Luotian.
+À cet instant précis, la renommée du Temple Lei Xian atteignit son apogée! Elle surpassait même les quelques lignées possédant des héritages de l'Antiquité, devenant un symbole de puissance pour le système stellaire de Luotian.
 
 Profitant de cet émoi, la compétition officielle des 36 Tian Gang et 72 Di Sha pour les titres célestes commença!
 
-« Le Royaume Céleste s'est effondré et les êtres célestes ont disparu, mais des êtres célestes renaîtront. Les titres que le Temple Céleste du Tonnerre attribuera feront de ces individus des êtres célestes! Les familles de ces 108 personnes seront considérées comme des clans célestes! Il s'agit d'un titre permanent! »
+« Le Royaume Céleste s'est effondré et les êtres célestes ont disparu, mais des êtres célestes renaîtront. Les titres que le Temple Lei Xian attribuera feront de ces individus des êtres célestes! Les familles de ces 108 personnes seront considérées comme des clans célestes! Il s'agit d'un titre permanent! »
 
 « Chaque être céleste lors de la guerre contre le Système Stellaire de l'Alliance sera un leader, et leurs familles recevront leurs propres planètes de culture! »
 
-La nouvelle concernant l'attribution de titres célestes par le Temple Céleste du Tonnerre circulait depuis longtemps, mais elle ne commençait à se concrétiser qu'à présent. Cela plongea tous les cultivateurs du système stellaire de Luotian dans une véritable frénésie.
+La nouvelle concernant l'attribution de titres célestes par le Temple Lei Xian circulait depuis longtemps, mais elle ne commençait à se concrétiser qu'à présent. Cela plongea tous les cultivateurs du système stellaire de Luotian dans une véritable frénésie.
 
 Tous les membres principaux de nombreuses familles de culture se mirent en route!
 
-Le nombre de prétendants aux titres célestes étant trop élevé, le Temple Céleste du Tonnerre annonça des tours préliminaires dans chacun des quatre domaines. Un messager du Temple Céleste du Tonnerre serait envoyé pour sélectionner 108 candidats dans chaque domaine afin qu'ils s'affrontent lors de la bataille finale pour les titres!
+Le nombre de prétendants aux titres célestes étant trop élevé, le Temple Lei Xian annonça des tours préliminaires dans chacun des quatre domaines. Un messager du Temple Lei Xian serait envoyé pour sélectionner 108 candidats dans chaque domaine afin qu'ils s'affrontent lors de la bataille finale pour les titres!
 
-La zone située dans un rayon de 50 000 kilomètres autour du Temple Céleste du Tonnerre devint une zone de paix. Quiconque oserait déclencher un combat dans ce périmètre verrait sa famille entière anéantie!
+La zone située dans un rayon de 50 000 kilomètres autour du Temple Lei Xian devint une zone de paix. Quiconque oserait déclencher un combat dans ce périmètre verrait sa famille entière anéantie!
 
 La date de la compétition fut fixée dans quatre mois.
 
-Si cette nouvelle était une tempête, l'annonce suivante du Temple Céleste du Tonnerre fut un événement capable de faire trembler les cieux!
+Si cette nouvelle était une tempête, l'annonce suivante du Temple Lei Xian fut un événement capable de faire trembler les cieux!
 
-Une fois que le Temple Céleste du Tonnerre aura choisi les 108 êtres célestes, il ouvrira le passage vers le Système Stellaire de l'Alliance. La guerre contre le Système Stellaire de l'Alliance pourra alors commencer!
+Une fois que le Temple Lei Xian aura choisi les 108 êtres célestes, il ouvrira le passage vers le Système Stellaire de l'Alliance. La guerre contre le Système Stellaire de l'Alliance pourra alors commencer!
 
 Le système stellaire de Luotian tout entier entra en émoi. Tous les cultivateurs n'attendaient qu'une chose: le jour où ils pourraient se frayer un chemin par le carnage jusqu'au Système Stellaire de l'Alliance! Une intention meurtrière dense imprégna le système stellaire de Luotian!
 
@@ -48,7 +48,7 @@ Cependant, ce passage était semblable à un gouffre. Ce n'était pas par manque
 
 « Rien au monde ne peut échapper au karma. Le karma est partout, mais tout ceci n'est qu'une illusion. Dès que je tente de saisir la vérité, tout est enveloppé de brume. » Alors qu'il raffinait l'énergie originelle de Yao Bingyun, Wang Lin laissa échapper un soupir. Puis son regard se posa sur Yao Bingyun.
 
-« Karma... Lorsque j'ai obtenu la perle défiant le ciel, c'était la cause karmique; rencontrer Situ Nan était l'effet karmique. Tuer Teng Li était la cause karmique, et le fait que Teng Huayuan ait massacré mes parents fut l'effet karmique... De même, l'action de Teng Huayuan était la cause karmique, et mon massacre du clan Teng en fut l'effet... Il semble que les causes et les effets karmiques s'entrecroisent. Peut-être qu'une cause karmique aujourd'hui deviendra l'effet karmique de quelqu'un d'autre demain... »
+« Karma... Lorsque j'ai obtenu la Perle Défiant le Ciel, c'était la cause karmique; rencontrer Situ Nan était l'effet karmique. Tuer Teng Li était la cause karmique, et le fait que Teng Huayuan ait massacré mes parents fut l'effet karmique... De même, l'action de Teng Huayuan était la cause karmique, et mon massacre du clan Teng en fut l'effet... Il semble que les causes et les effets karmiques s'entrecroisent. Peut-être qu'une cause karmique aujourd'hui deviendra l'effet karmique de quelqu'un d'autre demain... »
 
 Wang Lin fronça les sourcils et la confusion dans son regard s'intensifia. Le domaine du karma contenait trop de complexités; à ce jour, Wang Lin ne le comprenait toujours pas pleinement. Cela différait du domaine de la vie et de la mort qu'il parvenait à appréhender clairement.
 

@@ -102,7 +102,7 @@ Le dragon était revenu, mais il ignorait si ses compagnons étaient morts ou vi
 
 Aucun signe de vie ne régnait sur ce pilier. Après un long moment, Wang Lin se détendit, s'assit et prit une gorgée de liquide spirituel tout en scrutant l'abîme sous ses pieds.
 
-Une fois que le dragon rouge regagnerait son corps, il remarquerait certainement l'anomalie. Wang Lin s'enfonça dans le pilier de pierre et toucha son front pour invoquer la perle défiant le ciel. Ses yeux brillèrent avant qu'il ne pénètre rapidement dans l'espace de la perle.
+Une fois que le dragon rouge regagnerait son corps, il remarquerait certainement l'anomalie. Wang Lin s'enfonça dans le pilier de pierre et toucha son front pour invoquer la Perle Défiant le Ciel. Ses yeux brillèrent avant qu'il ne pénètre rapidement dans l'espace de la perle.
 
 Peu après son entrée, un hurlement de rage retentit en bas. Le dragon rouge s'élança comme l'éclair et fracassa coup sur coup plusieurs piliers larges de plusieurs milliers de pieds. Son regard était glacial tandis qu'il commençait ses recherches.
 
@@ -116,7 +116,7 @@ Une série de grondements secoua les profondeurs et, simultanément, divers écl
 
 Cette bataille épique dura environ une journée avant de s'essouffler. L'ombre qui avait été provoquée par le dragon finit par être vaincue et contrainte à la retraite. Le dragon était également gravement blessé; il poussa quelques rugissements avant de s'allonger sur son pilier.
 
-Dix jours plus tard, Wang Lin sortit de la perle défiant le ciel et atterrit au sommet du pilier. Il déploya immédiatement son sens divin pour observer les environs.
+Dix jours plus tard, Wang Lin sortit de la Perle Défiant le Ciel et atterrit au sommet du pilier. Il déploya immédiatement son sens divin pour observer les environs.
 
 Il était évident qu'il y avait moins de piliers à proximité et beaucoup plus de débris rocheux. Ce n'est qu'après un long moment que Wang Lin poussa un soupir de soulagement. Il réfléchit un instant avant de s'envoler vers le haut.
 

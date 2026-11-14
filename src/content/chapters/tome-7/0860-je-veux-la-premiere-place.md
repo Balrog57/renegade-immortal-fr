@@ -44,7 +44,7 @@ Cette puissante intention de combat se propagea sauvagement, résonnant dans un 
 
 À cet instant, les deux cultivateurs qui se livraient bataille sous la barrière lumineuse de la planète pâlirent immédiatement, envahis par la terreur; ils en oublièrent même de s'entretuer. Ils tournèrent la tête vers la source de cette effroi!
 
-À ce moment-là, non seulement ces deux-là, mais l'expression de presque tous les êtres dans un rayon de 5 000 kilomètres changea en regardant au loin. Même les deux messagers aux robes vertes du Temple Céleste du Tonnerre sentirent leur cœur cogner contre leur poitrine, et le sang sembla se figer dans leurs veines. Seule leur énergie originelle circulait avec frénésie à l'intérieur de leurs corps, comme s'ils ne pourraient survivre sans cette circulation!
+À ce moment-là, non seulement ces deux-là, mais l'expression de presque tous les êtres dans un rayon de 5 000 kilomètres changea en regardant au loin. Même les deux messagers aux robes vertes du Temple Lei Xian sentirent leur cœur cogner contre leur poitrine, et le sang sembla se figer dans leurs veines. Seule leur énergie originelle circulait avec frénésie à l'intérieur de leurs corps, comme s'ils ne pourraient survivre sans cette circulation!
 
 Les ancêtres des grandes familles de culture sortirent de leur méditation. Ils fixèrent l'horizon et leurs yeux s'illuminèrent de choc.
 
@@ -80,7 +80,7 @@ Sous cette pression, ces trois hommes ne furent pas les seuls à voir leur inten
 
 Cette scène stupéfia tous les cultivateurs environnants!
 
-Seul le vieil homme en robe violette du Temple Céleste du Tonnerre demeurait calme. Ses yeux étaient clos et son visage impassible.
+Seul le vieil homme en robe violette du Temple Lei Xian demeurait calme. Ses yeux étaient clos et son visage impassible.
 
 Diverses tempêtes formées par l'intention de combat chargèrent et entrèrent en collision avec celle de Wang Lin. Des explosions se produisirent lors des impacts, donnant l'impression que tout l'espace dans un rayon de dizaines de milliers de kilomètres tremblait. Wang Lin, vêtu de blanc, s'approchait lentement, pas après pas!
 

@@ -16,17 +16,17 @@ Tout en pleurant, Li Qianmei s'inclina une troisième fois devant son maître.
 
 « Une autre femme occupe déjà son esprit. Cette femme est profondément gravée dans son cœur et personne ne peut la remplacer... Je ne sais pas quels sont mes sentiments pour lui, je ne les comprends pas moi-même. Pourtant, depuis cent ans, pour une raison inconnue, son ombre a toujours été là. Comme si, dans une vie antérieure, j'avais été un poisson sous l'eau et lui un oiseau dans le ciel. Je l'ignore... Même si je comprends que son cœur n'acceptera jamais personne d'autre, cela ne se mesure pas en termes de mérite ou non. Je sais seulement que si je savais tout et que je ne partais pas, je ne serais jamais heureuse... » La voix de Li Qianmei était calme, mais ses larmes semblaient déborder de son âme.
 
-Le maître de Li Qianmei réfléchit silencieusement, puis, après un long moment, il dit lentement: « Le concours des sectes de rang 8 a été annulé par la Secte Divine. »
+Le maître de Li Qianmei réfléchit silencieusement, puis, après un long moment, il dit lentement: « Le concours des sectes de rang 8 a été annulé par la Secte Shen. »
 
-Cette phrase fit trembler le corps de Li Qianmei. En tant que disciple d'une secte de rang 9, elle savait naturellement que les seuls capables d'annuler le concours des sectes de rang 8 étaient... la Secte Divine!
+Cette phrase fit trembler le corps de Li Qianmei. En tant que disciple d'une secte de rang 9, elle savait naturellement que les seuls capables d'annuler le concours des sectes de rang 8 étaient... la Secte Shen!
 
-Le maître de Li Qianmei reprit doucement: « Les membres de la Secte Divine enquêtaient déjà sur Lu Zihao il y a plusieurs années, jusqu'à ce qu'il apparaisse! Veux-tu toujours y aller? »
+Le maître de Li Qianmei reprit doucement: « Les membres de la Secte Shen enquêtaient déjà sur Lu Zihao il y a plusieurs années, jusqu'à ce qu'il apparaisse! Veux-tu toujours y aller? »
 
 L'amertume sur le visage de Li Qianmei s'intensifia, mais sa détermination devint tout aussi inébranlable. Elle regarda son maître et hocha la tête.
 
 « Je veux y aller... »
 
-« Un membre ordinaire de la Secte Divine ne pourrait pas faire annuler un concours de rang 8. Cet ordre a été émis par le Grand Ancien de la Secte Divine, Shui Daozi! Avec ton niveau de culture, peux-tu faire quoi que ce soit face à Shui Daozi? Peux-tu l'arrêter? Sans parler de toi, même si toute ma Secte Po Tian s'y rendait, cela servirait-il à quelque chose? » Le maître de Li Qianmei ferma les yeux.
+« Un membre ordinaire de la Secte Shen ne pourrait pas faire annuler un concours de rang 8. Cet ordre a été émis par le Grand Ancien de la Secte Shen, Shui Daozi! Avec ton niveau de culture, peux-tu faire quoi que ce soit face à Shui Daozi? Peux-tu l'arrêter? Sans parler de toi, même si toute ma Secte Po Tian s'y rendait, cela servirait-il à quelque chose? » Le maître de Li Qianmei ferma les yeux.
 
 Li Qianmei se mordit la lèvre inférieure jusqu'au sang... La détermination dans ses yeux ne faiblit pas, elle devint plus ardente encore.
 
@@ -72,13 +72,13 @@ Li Qianmei fixa longuement son maître. Des larmes coulèrent une dernière fois
 
 Après le départ de Li Qianmei, son maître ferma les yeux. La douleur qui lui serrait le cœur envahit tout son corps.
 
-Un ancien, projeté au loin, rugit: « Maître de Secte! Si Li Qianmei offense le Senior Shui Daozi et met la Secte Divine en colère, notre Secte Po Tian n'en pourra pas subir les conséquences! Je dois informer la Secte Divine de cette affaire. Si la Secte Divine se fâche, vous devrez en payer le prix! »
+Un ancien, projeté au loin, rugit: « Maître de Secte! Si Li Qianmei offense le Senior Shui Daozi et met la Secte Shen en colère, notre Secte Po Tian n'en pourra pas subir les conséquences! Je dois informer la Secte Shen de cette affaire. Si la Secte Shen se fâche, vous devrez en payer le prix! »
 
 Le maître de Li Qianmei se retourna brusquement et hurla vers l'ancien braillard: « Dégage, dégage, dégage!! » Sa culture du Fléau Céleste éclata, forçant l'ancien à cracher sans cesse du sang tandis qu'il était renvoyé comme un cerf-volant brisé. Dans un fracas, son corps s'effondra et son âme originelle s'échappa en hurlant.
 
-« La Secte Po Tian a été l'esclave de la Secte Divine pendant dix-huit mille ans. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Divine, alors sachez que si Li Qianmei provoque la colère du Senior Shui Daozi, j'en assumerai seul la responsabilité! » Le maître de Li Qianmei agita sa manche et disparut.
+« La Secte Po Tian a été l'esclave de la Secte Shen pendant dix-huit mille ans. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Shen, alors sachez que si Li Qianmei provoque la colère du Senior Shui Daozi, j'en assumerai seul la responsabilité! » Le maître de Li Qianmei agita sa manche et disparut.
 
-Sa voix résonna comme le tonnerre à travers toute la Secte Po Tian. Cependant, ses paroles ne purent ébranler le cœur des cultivateurs de la secte qui avaient été asservis par la Secte Divine pendant des dizaines de milliers d'années!
+Sa voix résonna comme le tonnerre à travers toute la Secte Po Tian. Cependant, ses paroles ne purent ébranler le cœur des cultivateurs de la secte qui avaient été asservis par la Secte Shen pendant des dizaines de milliers d'années!
 
 Tout comme le brouillard dans la Mer Yun, combien de personnes pouvaient réellement percer les brumes?
 

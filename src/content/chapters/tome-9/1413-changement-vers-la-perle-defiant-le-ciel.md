@@ -26,7 +26,7 @@ La Planète du Grand Empereur commença à tourner lentement!
 
 D'une rotation presque imperceptible, elle s'accéléra de plus en plus jusqu'à ressembler à une aiguille pivotant frénétiquement sur une boussole!
 
-Ce changement modifia immédiatement l'expression des cultivateurs aux alentours. Les yeux du Maître Simo se remplirent de terreur alors qu'il levait soudainement les yeux vers le ciel.
+Ce changement modifia immédiatement l'expression des cultivateurs aux alentours. Les yeux du Maître Si Mo se remplirent de terreur alors qu'il levait soudainement les yeux vers le ciel.
 
 La main de la Grande Maîtresse Yun Luo était encore en train de former des sceaux quand, dans un fracas assourdissant, sa main droite fut réduite en une masse sanglante. Son corps fut projeté en arrière, son visage pâlit et elle cracha une bouchée de sang.
 
@@ -78,7 +78,7 @@ De loin, la scène était terrifiante. C'était comme si l'encens terrestre éta
 
 Les yeux du vieux Suzaku se remplirent de choc et il laissa échapper un halètement inconscient.
 
-« Ceci est... » L'expression du Maître Simo trahissait une terreur pure. Il était hébété, incapable de comprendre ce qui se jouait à l'intérieur de l'encens terrestre!
+« Ceci est... » L'expression du Maître Si Mo trahissait une terreur pure. Il était hébété, incapable de comprendre ce qui se jouait à l'intérieur de l'encens terrestre!
 
 Quant à la pâle Grande Maîtresse Yun Luo, lorsqu'elle vit le brouillard magnétique pénétrer l'encens, la peur dans ses yeux redoubla d'intensité!
 

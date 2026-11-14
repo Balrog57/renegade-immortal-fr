@@ -110,4 +110,4 @@ Dans la Secte Dao Yi, au Mont Di, dans la Secte Zi Yang et sur le glacier du Con
 
 Quatre rayons de lumière jaillirent du clan Céleste en direction du vaste bassin.
 
-Simultanément, au sein du clan Ancien, Xuan Luo, Song Tian et le mystérieux Grand Empyréen de l'Ancien Ji ressentirent tous le changement du monde et les tremblements de la terre. Sans plus attendre, les trois s'élancèrent dans le ciel en direction du vaste bassin.
+Simultanément, au sein du clan Ancien, Xuan Luo, Song Tian et le mystérieux Grand Empyréen du Ji Gu ressentirent tous le changement du monde et les tremblements de la terre. Sans plus attendre, les trois s'élancèrent dans le ciel en direction du vaste bassin.

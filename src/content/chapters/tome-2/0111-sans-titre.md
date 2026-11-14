@@ -18,7 +18,7 @@ Il songea d'abord à ses grains de riz cyan. Après avoir reconstitué celui con
 
 Après avoir soigneusement rangé les trois grains, Wang Lin réfléchit encore un instant avant de fouiller dans ses sacs de rangement. Ayant tué de nombreux individus récemment, il lui restait encore une grande quantité d'objets à examiner.
 
-Après de longues recherches, Wang Lin sortit une perle ronde. Bien plus petite que la perle défiant le ciel, elle ne mesurait qu'un dixième de la taille d'un poing. Elle était parfaitement lisse, sans aucun motif, bien que quelques fissures marquent ses flancs.
+Après de longues recherches, Wang Lin sortit une perle ronde. Bien plus petite que la Perle Défiant le Ciel, elle ne mesurait qu'un dixième de la taille d'un poing. Elle était parfaitement lisse, sans aucun motif, bien que quelques fissures marquent ses flancs.
 
 En tenant la perle, il ne put s'empêcher de penser à l'étrange homme nommé Adai. C'était le premier trésor magique qu'Adai lui avait offert. Il soupira légèrement, chassa ses pensées et contempla la perle, le regard brillant d'une lueur particulière.
 
@@ -72,4 +72,4 @@ Le Royaume Ji ne révélerait sa véritable puissance que lorsque Wang Lin brise
 
 L'épée actuelle, petite et verte, était encore plus délicate. Des éclats de glace bleue apparaissaient et disparaissaient sur sa surface, lui conférant un aspect singulier.
 
-Wang Lin rangea à nouveau l'épée volante. Ses yeux s'illuminèrent lorsqu'il calcula le temps écoulé: il avait passé un mois à la raffiner. Il décida de consacrer le mois restant à cultiver à l'intérieur de la perle défiant le ciel. Il était confiant de pouvoir atteindre le stade intermédiaire de l'Établissement des Fondations d'ici la fin du mois.
+Wang Lin rangea à nouveau l'épée volante. Ses yeux s'illuminèrent lorsqu'il calcula le temps écoulé: il avait passé un mois à la raffiner. Il décida de consacrer le mois restant à cultiver à l'intérieur de la Perle Défiant le Ciel. Il était confiant de pouvoir atteindre le stade intermédiaire de l'Établissement des Fondations d'ici la fin du mois.

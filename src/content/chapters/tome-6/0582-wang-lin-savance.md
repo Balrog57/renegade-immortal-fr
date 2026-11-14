@@ -96,7 +96,7 @@ Shi Xiao retira sa main et déclara calmement: « Je l'ai dit, tu n'es pas à la
 
 À peine eut-il fini de parler que le sol se mit à trembler et qu'un individu émergea de la foule des généraux démons. Ce colosse pesait au moins plusieurs centaines de kilos. Son torse était nu et chacun de ses pas faisait vaciller la terre.
 
-Il atteignit Shi Xiao en trois enjambées et grimaça: « Petite poupée, moi, le vénérable Tian Kui de la Secte Ju Ling, je suis l'adjoint du général démon Mu Yun! »
+Il atteignit Shi Xiao en trois enjambées et grimaça: « Petite poupée, moi, le Estimé Tian Kui de la Secte Ju Ling, je suis l'adjoint du général démon Mu Yun! »
 
 Wang Lin observa l'homme massif. La Secte Ju Ling était une puissance majeure de la planète Tian Yun, semblable au Clan Ju Mo par son culte de la force brute!
 

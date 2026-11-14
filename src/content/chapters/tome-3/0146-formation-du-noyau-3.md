@@ -22,25 +22,25 @@ Wang Lin marcha calmement vers l'escalier. L'employé le suivit rapidement pour 
 
 Une fois arrivé au deuxième étage, l'employé alla rapidement parler à un homme d'âge moyen dans une pièce sur la droite, avant de redescendre précipitamment.
 
-L'homme d'âge moyen était imberbe et ses yeux brillaient par intermittence. Il se leva, joignit les mains et dit: « De quelle qualité de four à pilules le camarade cultivateur souhaite-t-il disposer? »
+L'homme d'âge moyen était imberbe et ses yeux brillaient par intermittence. Il se leva, joignit les mains et dit: « De quelle qualité de four à pilules le Daoïste souhaite-t-il disposer? »
 
 Wang Lin observa l'homme et constata que son niveau de culture était au sommet de l'Établissement des Fondations, tout comme le sien. Il fut surpris par cette découverte. Si le premier étage accueillait un cultivateur de la Condensation de Qi et le deuxième un cultivateur de l'Établissement des Fondations, cela signifiait-il qu'un expert de la Formation du Noyau dirigeait le troisième étage?
 
 Gardant une expression sereine, Wang Lin demanda: « Pourriez-vous m'en présenter quelques-uns? »
 
-L'homme d'âge moyen rit et désigna une chaise sur le côté. « Camarade cultivateur, je vous en prie, asseyez-vous, je vais vous les chercher. » Sur ce, il versa une tasse de thé avant de s'approcher d'un mur et de le frapper. Des ondulations apparurent à la surface, puis le mur devint de plus en plus illusoire.
+L'homme d'âge moyen rit et désigna une chaise sur le côté. « Daoïste, je vous en prie, asseyez-vous, je vais vous les chercher. » Sur ce, il versa une tasse de thé avant de s'approcher d'un mur et de le frapper. Des ondulations apparurent à la surface, puis le mur devint de plus en plus illusoire.
 
 Soudain, trois magnifiques jeunes femmes vêtues de fines gazes sortirent, chacune portant un plateau de jade blanc. Sur chaque plateau reposait une grande boîte rouge d'environ deux pieds carrés. Ces trois coffrets étaient de taille identique, mais les motifs gravés sur eux différaient. Chaque boîte était également protégée par des sceaux.
 
 Les trois jeunes femmes s'arrêtèrent à quelques pas de Wang Lin et fixèrent sans cesse sa cape noire.
 
-L'homme d'âge moyen prit l'une des boîtes en bois, la posa sur la table et déclara: « Camarade cultivateur, celle-ci est forgée à partir de Roche Étoile Verte et de Cristal de Brume Mystérieuse provenant des profondeurs de la Mer Xiu Mo. Il a fallu quarante-neuf mois de raffinage pour créer ce Four à Pilules Vert Mystérieux. C'est un four de rang 3. » Sur ces mots, il tapota la boîte, qui s'ouvrit pour révéler un four de la taille d'un poing.
+L'homme d'âge moyen prit l'une des boîtes en bois, la posa sur la table et déclara: « Daoïste, celle-ci est forgée à partir de Roche Étoile Verte et de Cristal de Brume Mystérieuse provenant des profondeurs de la Mer Xiu Mo. Il a fallu quarante-neuf mois de raffinage pour créer ce Four à Pilules Vert Mystérieux. C'est un four de rang 3. » Sur ces mots, il tapota la boîte, qui s'ouvrit pour révéler un four de la taille d'un poing.
 
 L'expression de Wang Lin resta impassible. Il se souvenait que Li Muwan lui avait dit que le four qu'elle transportait n'était que de rang 2, et qu'elle aurait besoin d'un instrument de rang 4 ou supérieur pour garantir le succès de la Pilule du Ciel Lointain.
 
 Après un bref examen, Wang Lin détourna les yeux sans dire un mot.
 
-L'homme d'âge moyen esquissa un léger sourire. D'un geste de la main, il fit revenir la boîte sur le plateau de jade. Il passa devant la deuxième jeune femme et saisit directement la boîte tenue par la troisième. Il la posa délicatement sur la table en souriant: « Je présume que le camarade cultivateur raffine une pilule de qualité supérieure. Ce four est forgé à partir des cœurs de quatre-vingt-dix-neuf bêtes spirituelles de faible qualité de la Mer Xiu Mo. On l'appelle le Four à Pilules des Cent Bêtes. Si vous l'utilisez, il y a de fortes chances que la pilule absorbe une partie de l'aura des cœurs de bêtes, ce qui en augmentera la qualité. » Il tapota alors la boîte en bois. Celle-ci s'ouvrit lentement, révélant un four rouge sang. En y regardant de près, on pouvait distinguer les visages de quatre-vingt-dix-neuf bêtes spirituelles.
+L'homme d'âge moyen esquissa un léger sourire. D'un geste de la main, il fit revenir la boîte sur le plateau de jade. Il passa devant la deuxième jeune femme et saisit directement la boîte tenue par la troisième. Il la posa délicatement sur la table en souriant: « Je présume que le Daoïste raffine une pilule de qualité supérieure. Ce four est forgé à partir des cœurs de quatre-vingt-dix-neuf bêtes spirituelles de faible qualité de la Mer Xiu Mo. On l'appelle le Four à Pilules des Cent Bêtes. Si vous l'utilisez, il y a de fortes chances que la pilule absorbe une partie de l'aura des cœurs de bêtes, ce qui en augmentera la qualité. » Il tapota alors la boîte en bois. Celle-ci s'ouvrit lentement, révélant un four rouge sang. En y regardant de près, on pouvait distinguer les visages de quatre-vingt-dix-neuf bêtes spirituelles.
 
 Ces créatures semblaient si vivantes que de faibles ondulations d'énergie spirituelle s'en échappaient, et ce n'était là que ce qui filtrait malgré le sceau; si on le levait, l'énergie spirituelle s'élèverait aussitôt jusqu'au ciel.
 

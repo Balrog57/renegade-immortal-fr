@@ -78,7 +78,7 @@ En conséquence, le vieillard nommé Lu, qui s'apprêtait à récolter les fruit
 
 Les autres subirent le même sort. Seuls les yeux de Qian Qin restaient calmes tandis qu'elle contemplait le cadavre de son Senior frère. C'était comme si tout ce qui se passait autour d'elle ne la concernait plus.
 
-Shi Fang réfléchit un instant, puis cria: « Camarade cultivateur qui vient d'arriver, nul besoin de feindre ou de se cacher! Je suis l'un des anciens de la Secte Da Luo Jian, Shi Fang. Je vous prie de bien vouloir sortir pour converser! » Les deux anciens échangèrent un regard où transparaissait leur choc mutuel.
+Shi Fang réfléchit un instant, puis cria: « Daoïste qui vient d'arriver, nul besoin de feindre ou de se cacher! Je suis l'un des anciens de la Secte Da Luo Jian, Shi Fang. Je vous prie de bien vouloir sortir pour converser! » Les deux anciens échangèrent un regard où transparaissait leur choc mutuel.
 
 Au moment où ce vent souffla, la sensation précédente s'intensifia de manière démesurée. Au début, on aurait dit qu'une bête féroce se trouvait au loin, mais en un battement de cils, cette bête était là, sous leurs yeux.
 

@@ -6,25 +6,25 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1266 - A Chance of Survival
 slug: une-chance-de-survie
 ---
-Un courant sous-jacent agitait la Mer Yun, provoqué par la Secte Divine. Il interférait avec une série de personnes et d'événements!
+Un courant sous-jacent agitait la Mer Yun, provoqué par la Secte Shen. Il interférait avec une série de personnes et d'événements!
 
 Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa culture en isolement de dix mille ans pour empêcher sa disciple la plus chère de s'échapper.
 
 Il traversait ses propres difficultés; il devait agir ainsi pour la sécurité de Li Qianmei!
 
-Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue à la Secte Divine avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante de la Secte Divine: le Grand Ancien, Shui Daozi!
+Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue à la Secte Shen avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante de la Secte Shen: le Grand Ancien, Shui Daozi!
 
-Dès son entrée à la Secte Divine, elle avait été placée dans une salle de culture isolée. La Secte Divine fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir!
+Dès son entrée à la Secte Shen, elle avait été placée dans une salle de culture isolée. La Secte Shen fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir!
 
 Si elle avait su que la compétition entre sectes de rang 8 avait été annulée, son intelligence l'aurait poussée à la suspicion. Même sans trouver la véritable cause, elle aurait perçu des indices.
 
 Cependant, pour l'instant, Mu Bingmei n'en savait rien.
 
-Même Li Qianmei ignorait que la compétition entre sectes de rang 8 avait été annulée par la Secte Divine!
+Même Li Qianmei ignorait que la compétition entre sectes de rang 8 avait été annulée par la Secte Shen!
 
 Ce courant sous-jacent se propageait à travers toute la Mer Yun.
 
-Sur le continent de Mo Luo, tous les disciples de la Secte Gui Yuan emballaient précipitamment leurs affaires sur ordre de Lu Yanfei. Il leur avait fallu trois jours pour tout ranger. Ils étaient désormais prêts à quitter cette région de rang 5 où ils avaient vécu d'innombrables années pour rejoindre le nouveau siège de la Secte Gui Yuan, préparé par la Secte Éternelle dans la région de rang 7.
+Sur le continent de Mo Luo, tous les disciples de la Secte Gui Yuan emballaient précipitamment leurs affaires sur ordre de Lu Yanfei. Il leur avait fallu trois jours pour tout ranger. Ils étaient désormais prêts à quitter cette région de rang 5 où ils avaient vécu d'innombrables années pour rejoindre le nouveau siège de la Secte Gui Yuan, préparé par la Secte Wu Ji dans la région de rang 7.
 
 Wang Lin était assis dans une pièce secrète de la Secte Gui Yuan. Son esprit était fusionné avec l'âme de Tian Yunzi, contenue dans le Sceau Céleste. À cet instant, il semblait être devenu Tian Yunzi lui-même.
 

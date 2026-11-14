@@ -84,7 +84,7 @@ Peut-être que d'autres ne reconnaîtraient pas cette femme magnifique, mais dè
 
 Comment pouvait-il ne pas la reconnaître...
 
-Wang Ping était toujours à l'intérieur de la perle défiant le ciel. Comment Wang Lin aurait-il pu oublier cette femme aussi vicieuse qu'odieuse? Il voulait l'oublier, mais certaines douleurs de la vie sont tout simplement impossibles à effacer!
+Wang Ping était toujours à l'intérieur de la Perle Défiant le Ciel. Comment Wang Lin aurait-il pu oublier cette femme aussi vicieuse qu'odieuse? Il voulait l'oublier, mais certaines douleurs de la vie sont tout simplement impossibles à effacer!
 
 La vue de cette femme et de Zhou Ru provoqua le réveil de Wang Lin. Au moment où il reprit ses esprits, l'expression de la femme froide et magnifique changea radicalement.
 
@@ -92,7 +92,7 @@ Sa froideur s'effondra instantanément et elle leva soudainement la tête vers l
 
 « Liu Mei... » À cet instant, comme si une voix vague émergeait du néant pour s'insinuer dans ses oreilles, son corps trembla et elle recula inconsciemment de quelques pas.
 
-Dès que Wang Lin se réveilla, son esprit fut violemment rappelé par la perle défiant le ciel à une vitesse bien supérieure à celle d'auparavant. En un clin d'œil, il fut extirpé du Royaume Kun Xu.
+Dès que Wang Lin se réveilla, son esprit fut violemment rappelé par la Perle Défiant le Ciel à une vitesse bien supérieure à celle d'auparavant. En un clin d'œil, il fut extirpé du Royaume Kun Xu.
 
 C'était comme un cercle qui se contractait rapidement. En un instant, il balaya tous les lieux qu'il avait parcourus.
 
@@ -112,14 +112,14 @@ Parmi les étoiles, une silhouette mince vêtue de vert progressait. Cette perso
 
 Derrière elle se trouvaient d'innombrables crânes sanglants, et une odeur de sang imprégnait la zone. En avançant, ses yeux s'illuminèrent et il regarda au loin. Son expression s'adoucit et un sourire d'admiration apparut sur son visage.
 
-« Wang Lin... La culture de cet enfant a franchi un nouveau cap. Cette aura doit être celle de la perle défiant le ciel... Il a réussi à utiliser la perle pour comprendre les lois. Grâce à cela, je peux partir pour le siège de l'Alliance sans regrets. J'irai là-bas pour découvrir le secret de l'effondrement du Royaume Céleste. Alors, je trouverai la véritable cause de ma folie! »
+« Wang Lin... La culture de cet enfant a franchi un nouveau cap. Cette aura doit être celle de la Perle Défiant le Ciel... Il a réussi à utiliser la perle pour comprendre les lois. Grâce à cela, je peux partir pour le siège de l'Alliance sans regrets. J'irai là-bas pour découvrir le secret de l'effondrement du Royaume Céleste. Alors, je trouverai la véritable cause de ma folie! »
 
 L'esprit de Wang Lin se contracta frénétiquement. Il ne fallut qu'un instant pour que tout revienne à la normale, comme si tout ce qui s'était produit avait été inversé. Il retourna dans la Terre Yao Ling, vers la Grotte Xian Di, et finit par réintégrer son propre corps.
 
-Le corps de Wang Lin trembla, comme si son âme venait de regagner sa demeure. Devant lui flottait la perle défiant le ciel. Celle-ci glissa lentement vers lui avant de disparaître entre ses sourcils.
+Le corps de Wang Lin trembla, comme si son âme venait de regagner sa demeure. Devant lui flottait la Perle Défiant le Ciel. Celle-ci glissa lentement vers lui avant de disparaître entre ses sourcils.
 
 Tout en réfléchissant, Wang Lin ferma lentement les yeux et une aura de Scruteur du Nirvana au sommet jaillit de son corps. En chemin, il avait contemplé tant de lois qu'il avait atteint l'apogée du stade du Scruteur du Nirvana!
 
-Après un long moment, Wang Lin ouvrit lentement les yeux. Il leva le regard vers le ciel avec une expression complexe et froide. Grâce à la perle défiant le ciel, il avait vu trop de choses. Pourtant, la silhouette de cette femme vue à la fin venait troubler la sérénité de son cœur.
+Après un long moment, Wang Lin ouvrit lentement les yeux. Il leva le regard vers le ciel avec une expression complexe et froide. Grâce à la Perle Défiant le Ciel, il avait vu trop de choses. Pourtant, la silhouette de cette femme vue à la fin venait troubler la sérénité de son cœur.
 
 « La Liu Mei d'autrefois ne devait être que son avatar. »

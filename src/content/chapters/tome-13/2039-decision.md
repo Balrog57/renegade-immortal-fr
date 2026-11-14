@@ -32,7 +32,7 @@ Normalement, c'était un lieu propice à la culture pour le peuple de Ji Antique
 
 Cependant, une vague gigantesque surgit alors de sa Mer Si. Cette vague se propagea dans toutes les directions tandis qu'un hurlement retentissait. La mer s'affaissa et un pilier colossal jaillit vers le ciel avant de disparaître. Le niveau de la Mer Si chuta, comme si la moitié de ses eaux s'était volatilisée.
 
-Alors que ce pilier s'élevait dans les cieux, un autre pilier immense jaillit également vers le ciel, à la frontière entre l'Ancien Dao et l'Ancien Shi. Des ondulations massives se propagèrent dans toutes les directions, attirant l'attention de tous ceux qui purent le voir. Pourtant, hormis quelques rares individus, nul ne savait ce qui se tramait.
+Alors que ce pilier s'élevait dans les cieux, un autre pilier immense jaillit également vers le ciel, à la frontière entre le Dao Gu et le Shi Gu. Des ondulations massives se propagèrent dans toutes les directions, attirant l'attention de tous ceux qui purent le voir. Pourtant, hormis quelques rares individus, nul ne savait ce qui se tramait.
 
 « Toutes les réponses que vous cherchez se trouvent dans le Royaume Divin Immémorial. Une fois sur place, vous saurez! » À l'intérieur de la formation, l'Ancien Maître Impérial du Dao essuya le sang au coin de sa bouche.
 

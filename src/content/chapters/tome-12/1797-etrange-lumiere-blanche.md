@@ -22,7 +22,7 @@ La lumière rouge entre ses sourcils avait disparu il y a six mois. Il ne pouvai
 
 Dix ans passés dans ce vide obscur suffisaient à rendre n'importe qui fou de solitude. Wang Lin serra les dents et continua sa progression. S'il n'avait pas eu cette volonté, son esprit se serait effondré depuis longtemps.
 
-En vérité, il n'aurait pas tenu aussi longtemps sans la rencontre fortuite qu'il avait faite après la disparition de la lumière rouge six mois plus tôt. Après tout, il ne lui restait que peu de sa culture du Dao Antique.
+En vérité, il n'aurait pas tenu aussi longtemps sans la rencontre fortuite qu'il avait faite après la disparition de la lumière rouge six mois plus tôt. Après tout, il ne lui restait que peu de sa culture du Dao Gu.
 
 À cet instant précis, un rayon de lumière apparut dans le vide. Cette lueur était très faible et semblait émaner d'un cadavre.
 
@@ -34,13 +34,13 @@ Dès que le cadavre à la lumière blanche apparut, les yeux ternes de Wang Lin 
 
 La lueur entourant le corps se concentra dans la main de Wang Lin avant de disparaître rapidement. La force mystérieuse contenue dans le cadavre pénétra également le corps de Wang Lin.
 
-Wang Lin sentit que cette puissance était glaciale, mais c'était précisément ce froid qui purifiait son esprit. Après avoir absorbé cette force, ses essences montrèrent des signes de récupération, et même sa puissance du Dao Antique se rétablit légèrement.
+Wang Lin sentit que cette puissance était glaciale, mais c'était précisément ce froid qui purifiait son esprit. Après avoir absorbé cette force, ses essences montrèrent des signes de récupération, et même sa puissance du Dao Gu se rétablit légèrement.
 
 Wang Lin relâcha sa main droite et laissa le corps du vieil homme, désormais privé de lumière, continuer sa dérive. L'expression de Wang Lin s'améliora un peu.
 
 Wang Lin ignorait la nature de cette force. Il y a six mois, il avait également rencontré un cadavre semblable. C'est seulement après avoir absorbé une telle énergie qu'il avait trouvé la force de poursuivre.
 
-Cette puissance était extrêmement mystérieuse. Elle pouvait aider ses essences et sa culture du Dao Antique à se régénérer. Une telle chose ne devrait pas exister, et pourtant, elle était apparue dans le vide devant lui.
+Cette puissance était extrêmement mystérieuse. Elle pouvait aider ses essences et sa culture du Dao Gu à se régénérer. Une telle chose ne devrait pas exister, et pourtant, elle était apparue dans le vide devant lui.
 
 Au cours de ces dix années, Wang Lin n'avait rencontré que deux corps de ce genre.
 
@@ -82,7 +82,7 @@ Simultanément, un autre soleil surgit dans une autre direction; Dao Yi, à l'in
 
 Xuan Luo comprit qu'il devait partir.
 
-« Disciple, toi… Prends soin de toi… Si tu n'es pas mort, viens me chercher au clan du Dao Antique… » Xuan Luo soupira et agita sa manche. Un monstrueux soleil de sang apparut et il s'élança dans le ciel.
+« Disciple, toi… Prends soin de toi… Si tu n'es pas mort, viens me chercher au clan du Dao Gu… » Xuan Luo soupira et agita sa manche. Un monstrueux soleil de sang apparut et il s'élança dans le ciel.
 
 Xuan Luo partit. Désormais, plus personne n'attendrait l'arrivée de Wang Lin. Ce dernier flottait toujours dans le vide, mais sa trajectoire avait changé. On ignorait vers où il dérivait; il était devenu l'un de ces corps errants dans le néant.
 
@@ -100,7 +100,7 @@ Cependant, lorsqu'un escroc devient célèbre, ce n'est guère une bonne chose p
 
 Le temps s'écoula lentement, sur une très longue période.
 
-Xuan Luo était depuis longtemps retourné au clan du Dao Antique avec une expression sombre et s'était retiré en culture fermée. Lorsque l'Empereur du Dao Antique vit Xuan Luo revenir seul, il ricana intérieurement. Il finit par oublier pourquoi Xuan Luo était parti chercher quelqu'un.
+Xuan Luo était depuis longtemps retourné au clan du Dao Gu avec une expression sombre et s'était retiré en culture fermée. Lorsque l'Empereur du Dao Gu vit Xuan Luo revenir seul, il ricana intérieurement. Il finit par oublier pourquoi Xuan Luo était parti chercher quelqu'un.
 
 Il semblait que beaucoup de gens ne pensaient plus à cet homme nommé Wang Lin. Le Continent Xian Gang était ainsi, et le monde des grottes en était de même. Pourtant, quelques âmes ne pouvaient oublier ce nom dès qu'elles se remémoraient le passé.
 

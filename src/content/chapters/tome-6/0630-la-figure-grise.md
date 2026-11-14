@@ -22,13 +22,13 @@ Ce cycle se poursuivit jusqu'à ce que Wang Lin ait reculé de plus de mille pie
 
 Le visage de Wang Lin était extrêmement pâle et, en raison de sa perte de sang massive, sa respiration était courte. Cependant, au lieu de s'arrêter pour se reposer, il se précipita rapidement.
 
-Il fonçait vers la Vallée Démoniaque, au centre de la capitale!
+Il fonçait vers la Vallée Yao, au centre de la capitale!
 
 La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de cinq cents pieds de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Luo. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet où était logé le Sens Divin de ce dernier!
 
-Wang Lin n'avait pas le loisir de regarder le combat entre les deux anciens démons dans l'écran démoniaque du ciel. Il se déplaça tel un éclair et pénétra dans la terre sacrée du Pays Huo Yao: la Vallée Démoniaque!
+Wang Lin n'avait pas le loisir de regarder le combat entre les deux anciens démons dans l'écran démoniaque du ciel. Il se déplaça tel un éclair et pénétra dans la terre sacrée du Pays Huo Yao: la Vallée Yao!
 
-La Vallée Démoniaque était d'un calme absolu. Dans les profondeurs de la vallée se dressait une statue gigantesque, saturée d'énergie spirituelle démoniaque. Des quantités massives de cette énergie s'élevaient vers le ciel, rejoignant le corps de l'ancien démon pour l'aider dans son combat contre Bei Luo.
+La Vallée Yao était d'un calme absolu. Dans les profondeurs de la vallée se dressait une statue gigantesque, saturée d'énergie spirituelle démoniaque. Des quantités massives de cette énergie s'élevaient vers le ciel, rejoignant le corps de l'ancien démon pour l'aider dans son combat contre Bei Luo.
 
 Wang Lin fit un pas, puis s'arrêta brusquement. Une ondulation se propagea depuis la statue et, à mesure qu'elle s'étendait, l'énergie spirituelle démoniaque qui s'en échappait cessa de monter vers le ciel. Cette énergie fusionna pour former un avatar de l'ancien démon de la même taille que Wang Lin!
 
@@ -44,13 +44,13 @@ Wang Lin observa l'avatar et, après une courte réflexion, recula. Bien qu'il n
 
 La voix de Bei Luo résonna dans le cœur de Wang Lin. Il réfléchit un instant puis poussa un soupir. Au-delà de tous les avantages promis par Bei Luo, le simple fait qu'il l'ait aidé à traverser deux situations de vie ou de mort suffisait pour que Wang Lin agisse.
 
-Le regard de Wang Lin devint glacial et il fit passer l'une des énergies d'épée de Ling Tianhou sur son doigt. La lueur dorée de cette énergie fut libérée, illuminant toute la Vallée Démoniaque.
+Le regard de Wang Lin devint glacial et il fit passer l'une des énergies d'épée de Ling Tianhou sur son doigt. La lueur dorée de cette énergie fut libérée, illuminant toute la Vallée Yao.
 
 L'avatar de l'ancien démon se fit sérieux. Il mobilisa ses deux mains et traça des formes dans les airs. Divers symboles démoniaques, exsudant une puissante énergie spirituelle, apparurent devant lui.
 
-Wang Lin prit une profonde inspiration et, sans plus hésiter, projeta l'énergie de l'épée de Ling Tianhou. À cet instant, toute la Vallée Démoniaque fut saturée d'énergie de l'épée, et l'énergie spirituelle démoniaque s'effondra sous cette pression.
+Wang Lin prit une profonde inspiration et, sans plus hésiter, projeta l'énergie de l'épée de Ling Tianhou. À cet instant, toute la Vallée Yao fut saturée d'énergie de l'épée, et l'énergie spirituelle démoniaque s'effondra sous cette pression.
 
-L'intention tyrannique de l'énergie de l'épée de Ling Tianhou explosa, se transformant en une tempête qui balaya la Vallée Démoniaque. Des craquements stridents retentirent alors que la tempête ravageait les environs, et d'innombrables fissures apparurent instantanément sur le sol.
+L'intention tyrannique de l'énergie de l'épée de Ling Tianhou explosa, se transformant en une tempête qui balaya la Vallée Yao. Des craquements stridents retentirent alors que la tempête ravageait les environs, et d'innombrables fissures apparurent instantanément sur le sol.
 
 Le ciel fut recouvert d'énergie de l'épée, déchiquetant l'énergie spirituelle démoniaque.
 

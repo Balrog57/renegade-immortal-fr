@@ -92,7 +92,7 @@ De fines lignes rouges reliaient la boule de feu à l'anneau flamboyant.
 
 Dès que la sphère ardente apparut, les seize géantes poussèrent un grondement sourd. L'une après l'autre, elles bondirent hors du lac de lave pour s'agenouiller sur un genou. Au même moment, toutes les petites bêtes de feu alentour se mirent à grogner doucement, bondirent à leur tour et s'agenouillèrent sur le magma.
 
-Alors qu'il observait la scène, Wang Lin ressentit soudain un choc cérébral: la perle défiant le ciel, fusionnée à son corps, jaillit de son front de sa propre initiative pour la première fois. S'il ne l'avait pas arrêtée à temps, elle aurait aussitôt percé la sphère de terre.
+Alors qu'il observait la scène, Wang Lin ressentit soudain un choc cérébral: la Perle Défiant le Ciel, fusionnée à son corps, jaillit de son front de sa propre initiative pour la première fois. S'il ne l'avait pas arrêtée à temps, elle aurait aussitôt percé la sphère de terre.
 
 À cet instant précis, une bête de feu saisit la sphère sous elle et la lança vers la boule de feu. La sphère de terre s'immobilisa net en plein vol, et la boule de feu pénétra rapidement à l'intérieur. Le bruit d'aspiration résonna distinctement dans le silence de la grotte.
 
@@ -102,4 +102,4 @@ La sphère de terre tomba dans le vide et s'enfonça dans la lave. Le cœur de W
 
 Par la suite, quatre autres sphères furent projetées vers la boule de feu. Des cris déchirants retentirent à chaque absorption. Les hurlements durèrent plus d'une demi-heure. Lorsque la cinquième sphère s'enfonça dans la lave, la sphère de Wang Lin fut brusquement expulsée.
 
-La perle défiant le ciel trembla violemment et, avec une impulsion sans précédent, elle brisa le contrôle de Wang Lin. C'est à ce moment précis que la boule de feu pénétra dans la sphère de terre où il se trouvait.
+La Perle Défiant le Ciel trembla violemment et, avec une impulsion sans précédent, elle brisa le contrôle de Wang Lin. C'est à ce moment précis que la boule de feu pénétra dans la sphère de terre où il se trouvait.

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 729 - Im So Badass
 slug: je-suis-tellement-badass
 ---
-Shengong Hu laissa échapper un rugissement. Sa main tremblait légèrement sous l'effet de ses blessures. Bien qu'il se soit partiellement rétabli et qu'il ait utilisé une pilule du Temple Céleste du Tonnerre pour en contenir les effets, lui permettant d'atteindre son apogée un court instant, cela ne suffisait toujours pas pour exécuter ce sort.
+Shengong Hu laissa échapper un rugissement. Sa main tremblait légèrement sous l'effet de ses blessures. Bien qu'il se soit partiellement rétabli et qu'il ait utilisé une pilule du Temple Lei Xian pour en contenir les effets, lui permettant d'atteindre son apogée un court instant, cela ne suffisait toujours pas pour exécuter ce sort.
 
 Il serra les dents et sa main droite s'abattit soudainement. La foudre de la Tribulation Céleste apparut et descendit avec une puissance inimaginable.
 
@@ -30,7 +30,7 @@ Bien que cette personne puisse percer les secrets de la technique et donner des 
 
 Wang Lin se trouvait actuellement dans cet état. Ses yeux brillèrent et il dit: « Shengong Hu, ton sort originel contient le pouvoir du tonnerre, mais pas l'âme du tonnerre. Bien que ton cœur dao soit fusionné avec lui, cela ne suffit pas. Ta foi manque de la puissance du tonnerre! »
 
-Shengong Hu fut stupéfait. Ce n'était pas la première fois qu'il entendait ces mots. Le seigneur du Temple Céleste du Tonnerre et les anciens de sa famille lui avaient également dit la même chose. Cependant, l'entendre de la bouche de Wang Lin le rendit nerveux, et il dit respectueusement: « Veuillez me guider, mon Seigneur. »
+Shengong Hu fut stupéfait. Ce n'était pas la première fois qu'il entendait ces mots. Le seigneur du Temple Lei Xian et les anciens de sa famille lui avaient également dit la même chose. Cependant, l'entendre de la bouche de Wang Lin le rendit nerveux, et il dit respectueusement: « Veuillez me guider, mon Seigneur. »
 
 Non seulement Shengong Hu, mais le lointain Zhan Konglie fut également saisi de stupeur. Il se sentait de plus en plus enclin à cette spéculation absurde qui l'habitait. Il souffrait du même problème que Shengong Hu.
 
@@ -70,13 +70,13 @@ La voix de Zhan Konglie était teintée d'amertume lorsqu'il joignit les mains e
 
 Shengong Hu ne répondit pas et le regarda froidement.
 
-Zhan Konglie n'en fut pas affecté et rit: « Frère Shengong, j'ai déjà reçu un parchemin d'appel du Temple Céleste du Tonnerre. À l'avenir, nous serons tous deux des messagers du Temple Céleste du Tonnerre! » Il s'inclina une dernière fois devant Wang Lin avant de se retourner et de partir.
+Zhan Konglie n'en fut pas affecté et rit: « Frère Shengong, j'ai déjà reçu un parchemin d'appel du Temple Lei Xian. À l'avenir, nous serons tous deux des messagers du Temple Lei Xian! » Il s'inclina une dernière fois devant Wang Lin avant de se retourner et de partir.
 
 Shengong Hu ne l'arrêta pas, mais son regard devint glacial.
 
 Wang Lin demanda calmement: « Qu'est-ce qu'un parchemin d'appel? »
 
-Shengong Hu se retourna rapidement et répondit respectueusement: « Le parchemin d'appel est un ordre de convocation du Temple Céleste du Tonnerre. Tout candidat au rang de messager reçoit un tel parchemin. Trois mois avant chaque ouverture du Temple Céleste du Tonnerre, le Temple réorganisera ses messagers. Si des postes sont vacants, les candidats s'affronteront pour les obtenir. Avec la culture de Zhan Konglie, si rien n'intervient, je crains qu'il ne l'emporte cette fois! »
+Shengong Hu se retourna rapidement et répondit respectueusement: « Le parchemin d'appel est un ordre de convocation du Temple Lei Xian. Tout candidat au rang de messager reçoit un tel parchemin. Trois mois avant chaque ouverture du Temple Lei Xian, le Temple réorganisera ses messagers. Si des postes sont vacants, les candidats s'affronteront pour les obtenir. Avec la culture de Zhan Konglie, si rien n'intervient, je crains qu'il ne l'emporte cette fois! »
 
 Wang Lin hocha légèrement la tête. Il ne dit plus rien et continua d'absorber le tonnerre pour le convertir en énergie originelle.
 

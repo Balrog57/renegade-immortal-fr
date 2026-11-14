@@ -66,7 +66,7 @@ Devant, derrière, à gauche, à droite et en haut! Au total, 15 assaillants ét
 
 Tous possédaient une culture d'Exalté Empyréen, et leur attaque survint précisément au moment où la culture de Wang Lin était scellée!
 
-Les yeux de Wang Lin se plissèrent et il poussa un rugissement en cette heure critique. Sans hésiter, il déchaîna toute la puissance de son armure de l'âme; la force du Dao Ancien satura son corps, le rendant incroyablement puissant. Son pied droit frappa le sol avec une violence inouïe.
+Les yeux de Wang Lin se plissèrent et il poussa un rugissement en cette heure critique. Sans hésiter, il déchaîna toute la puissance de son armure de l'âme; la force du Dao Gu satura son corps, le rendant incroyablement puissant. Son pied droit frappa le sol avec une violence inouïe.
 
 Un fracas assourdissant retentit, semblable à l'effondrement d'une montagne. Grâce à la force empruntée, Wang Lin se déplaça à une vitesse indescriptible. Au lieu de charger, il recula brusquement, son dos percutant les mains levées des trois assaillants.
 

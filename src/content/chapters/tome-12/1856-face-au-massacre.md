@@ -64,7 +64,7 @@ Ce vieil homme était celui qui avait discuté avec Wang Lin dans la Prairie Ji 
 
 En vérité, compte tenu de son identité, Wang Lin aurait pu choisir un palais s'il l'avait souhaité, mais cela ne l'intéressait pas. Il préférait la tranquillité de cet endroit plutôt que de subir les murmures et les regards indiscrets s'il avait occupé un palais.
 
-Assis là, il cultivait lentement, laissant son Sens Divin se répandre tout autour de lui. Profitant de ce temps, il affina le parapluie bleu et l'Origine de la Fantaisie de l'Âme à un niveau plus profond.
+Assis là, il cultivait lentement, laissant son Sens Divin se répandre tout autour de lui. Profitant de ce temps, il affina le parapluie bleu et le Retour de l'Âme Guidée à un niveau plus profond.
 
 Il sortit également la restriction du compas et la déploya sur la prairie. Cet objet était d'un mystère extrême; même en le dispersant, nul ne s'en aperçut, pas même Lu Wenran, qui possédait le niveau de culture le plus élevé ici.
 

@@ -172,11 +172,11 @@ L'homme ne s'en offensa pas et versa lui-même deux tasses de thé. En sirotant 
 
 Wang Lin sourit: « Wang Lin! »
 
-Le vieillard posa sa tasse et eut un sourire discret: « Confrère Wang, mon nom est Zhou Wude. »
+Le vieillard posa sa tasse et eut un sourire discret: « Daoïste Wang, mon nom est Zhou Wude. »
 
 Wang Lin fut stupéfait en fixant l'homme.
 
-Voyant son expression, le vieillard demanda: « Le confrère Wang aurait-il déjà entendu parler de moi? »
+Voyant son expression, le vieillard demanda: « Le Daoïste Wang aurait-il déjà entendu parler de moi? »
 
 Wang Lin secoua la tête et répondit calmement: « Non, c'est simplement que vous portez le même nom qu'un ami, j'en ai été déconcerté un instant. »
 
@@ -184,7 +184,7 @@ Le vieillard éclata de rire, mais pensa intérieurement: « Que veut-il dire pa
 
 Ne parvenant pas à cerner les pensées de Wang Lin, l'homme rit et dit: « Si l'occasion se présente, j'aimerais beaucoup rencontrer cet ami. »
 
-Sur ce, il frappa son sac de rangement et en sortit un jade, déclarant: « Confrère Wang, voici la carte dont je parlais. Je vais vous la présenter. Une fois que vous l'aurez examinée et que vous aurez constaté qu'elle ne présente aucun défaut, nous pourrons discuter de notre accord. »
+Sur ce, il frappa son sac de rangement et en sortit un jade, déclarant: « Daoïste Wang, voici la carte dont je parlais. Je vais vous la présenter. Une fois que vous l'aurez examinée et que vous aurez constaté qu'elle ne présente aucun défaut, nous pourrons discuter de notre accord. »
 
 Le jade émit une douce lumière alors que le vieillard y injectait un peu de puissance spirituelle. Immédiatement, une carte gigantesque s'afficha devant Wang Lin.
 
@@ -216,7 +216,7 @@ L'homme répondit promptement: « Stade avancé de l'Âme Naissante, Grande Perf
 
 Wang Lin se leva et dit d'un ton calme: « Maintenant? Montrez-moi le chemin! »
 
-Le vieillard fut stupéfait. Après une hésitation, il finit par dire: « Très bien. Confrère Wang, suivez-moi. »
+Le vieillard fut stupéfait. Après une hésitation, il finit par dire: « Très bien. Daoïste Wang, suivez-moi. »
 
 En un clin d'œil, les deux quittèrent la ville de Lian Mo. À mille cinq cents kilomètres de là se trouvait un bassin. Peu après, ils arrivèrent sur place. Wang Lin déploya son Sens Divin et laissa échapper un ricanement intérieur. Il avait déjà compris que quelque chose clochait: le vieillard semblait trop bien le connaître, et la jeune femme de la boutique s'était avancée vers lui dès qu'elle l'avait vu. Tout cela n'était qu'une machination.
 

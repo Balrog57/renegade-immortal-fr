@@ -22,13 +22,13 @@ Tout cela s'était effondré face à la nécessité de survivre.
 
 Si un seul cultivateur Ascendant avait été ainsi, cela n'aurait rien changé. Cependant, s'il y en avait 10, 20, 50, 100… alors cela devenait une force capable d'inspirer la peur même aux cultivateurs Yang Corporel.
 
-Bien qu'il ne fût pas difficile pour un cultivateur Yang Corporel de tuer plus de cent Ascendants, leur puissance résidait dans leur élan! Face à l'élan déferlant de ces cultivateurs, les expressions des sept messagers du Temple Céleste du Tonnerre changèrent radicalement.
+Bien qu'il ne fût pas difficile pour un cultivateur Yang Corporel de tuer plus de cent Ascendants, leur puissance résidait dans leur élan! Face à l'élan déferlant de ces cultivateurs, les expressions des sept messagers du Temple Lei Xian changèrent radicalement.
 
 En particulier, parmi les cent Ascendants, plusieurs cultivateurs Yin Illusoires aux yeux injectés de sang étaient présents. Ils étaient bien plus puissants que les Ascendants et, avec eux en tête, la force du groupe était terrifiante.
 
-Cependant, ces éléments ne firent que faire changer les visages des messagers du Temple Céleste du Tonnerre. Parmi ces cultivateurs, deux étaient de niveau Yang Corporel. Ces deux-là s'étaient extrêmement bien dissimulés, mais dès qu'ils pénétrèrent l'écran de lumière, ils révélèrent leur niveau de culture. Leur apparition fit sursauter les messagers.
+Cependant, ces éléments ne firent que faire changer les visages des messagers du Temple Lei Xian. Parmi ces cultivateurs, deux étaient de niveau Yang Corporel. Ces deux-là s'étaient extrêmement bien dissimulés, mais dès qu'ils pénétrèrent l'écran de lumière, ils révélèrent leur niveau de culture. Leur apparition fit sursauter les messagers.
 
-Pourtant, ce qui fit véritablement retenir le souffle des messagers du Temple Céleste du Tonnerre, ce fut Wang Lin!
+Pourtant, ce qui fit véritablement retenir le souffle des messagers du Temple Lei Xian, ce fut Wang Lin!
 
 Bien que Wang Lin fût lui aussi un cultivateur Yang Corporel, ces messagers pouvaient ressentir une aura meurtrière émanant de lui. C'était une aura née de l'assassinat de nombreux individus de même niveau de culture.
 
@@ -44,7 +44,7 @@ D'innombrables sorts sillonnèrent l'air et une multitude de trésors magiques a
 
 Une offensive déchaînée et incontrôlable venait d'éclater.
 
-« Tuez! » Un cultivateur Ascendant contrôlant une centaine d'épées volantes chargea sans hésitation vers un messager du Temple Céleste du Tonnerre. Les lames foncèrent sur lui, portées par son rugissement. À ses côtés, une quinzaine d'autres Ascendants aux yeux rouges lançaient leurs attaques simultanément.
+« Tuez! » Un cultivateur Ascendant contrôlant une centaine d'épées volantes chargea sans hésitation vers un messager du Temple Lei Xian. Les lames foncèrent sur lui, portées par son rugissement. À ses côtés, une quinzaine d'autres Ascendants aux yeux rouges lançaient leurs attaques simultanément.
 
 De l'autre côté, sous les ordres d'un cultivateur Yin Illusoire, six ou sept autres fusionnèrent leur puissance pour frapper un messager du Temple Céleste.
 
@@ -60,7 +60,7 @@ Les cultivateurs restants se divisèrent en deux groupes pour charger les deux d
 
 Une tempête pour la survie!
 
-À cet instant, nul ne se souciait de savoir qu'ils combattaient les messagers du Temple Céleste du Tonnerre. Peu importait leur rang! La majesté des messagers n'avait aucun poids face à ces gens luttant pour leur propre existence! Cela n'avait absolument aucun effet!
+À cet instant, nul ne se souciait de savoir qu'ils combattaient les messagers du Temple Lei Xian. Peu importait leur rang! La majesté des messagers n'avait aucun poids face à ces gens luttant pour leur propre existence! Cela n'avait absolument aucun effet!
 
 Quiconque tenterait de les arrêter serait tué! Si un céleste fait obstacle, tuez le céleste; si un diable fait obstacle, tuez le diable!
 

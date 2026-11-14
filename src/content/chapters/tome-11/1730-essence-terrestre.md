@@ -36,7 +36,7 @@ L'homme d'âge mûr sourit également. Il regarda vers l'extérieur de la tour e
 
 À l'intérieur des cinq anneaux, Wang Lin avançait calmement. Les anneaux émettaient des hurlements tonitruants, mais rien de tout cela ne pouvait blesser Wang Lin.
 
-Son Corps du Dao Antique était extrêmement puissant; de simples sorts ne pourraient l'atteindre. Les cinq éléments continuaient de se manifester. Parfois, c'était un feu monstrueux, parfois une tempête de sable, tantôt une mer en furie couvrait le ciel, parfois des milliers de fragments de métal hurlaient, et parfois des esprits du bois se jetaient sur lui en grondant.
+Son Corps du Dao Gu était extrêmement puissant; de simples sorts ne pourraient l'atteindre. Les cinq éléments continuaient de se manifester. Parfois, c'était un feu monstrueux, parfois une tempête de sable, tantôt une mer en furie couvrait le ciel, parfois des milliers de fragments de métal hurlaient, et parfois des esprits du bois se jetaient sur lui en grondant.
 
 Wang Lin ne ralentit pas sa marche. Il était venu sur la planète des Cinq Éléments pleinement préparé. Même si cet endroit était un repaire de tigres, il comptait bien tenter une percée!
 

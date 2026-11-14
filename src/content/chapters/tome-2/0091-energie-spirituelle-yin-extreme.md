@@ -131,6 +131,6 @@ Ces trois royaumes de l'énergie spirituelle étaient tous insaisissables et, su
 
 Wang Lin ignorait que, à force de mutations Yin extrêmes et de dévorations répétées, son énergie spirituelle évoluait déjà vers le Royaume Ji. Tout cela était dû à la Méthode d'Ascension des Enfers, l'un des rares moyens capables de générer une telle énergie. Cependant, la méthode transmise par Situ Nan n'était pas identique à celle de l'Antiquité; avec les siècles, des fragments s'étaient perdus et ses successeurs avaient dû réorganiser les informations restantes.
 
-Quant au fait que son énergie spirituelle ait touché le seuil du Royaume Ji, la raison la plus déterminante en revenait à la perle défiant le ciel...
+Quant au fait que son énergie spirituelle ait touché le seuil du Royaume Ji, la raison la plus déterminante en revenait à la Perle Défiant le Ciel...
 
 Wang Lin fixa le bout de ses doigts, les yeux brillants. À cet instant précis, il leva la tête et s'élança hors du gouffre. Il vit l'homme à la peau bleue se rapprocher rapidement de lui.

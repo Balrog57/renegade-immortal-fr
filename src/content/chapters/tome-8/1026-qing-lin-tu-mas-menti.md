@@ -6,17 +6,17 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1026 - Qing Lin, You Lied to Me
 slug: qing-lin-tu-mas-menti
 ---
-Ta Shan s'approcha de la femme, mais son regard demeurait glacial. Bien qu'en tant que Gardien Céleste il conservât sa conscience, toutes ses émotions s'étaient éteintes, ne laissant place qu'à une froide indifférence.
+Ta Shan s'approcha de la femme, mais son regard demeurait glacial. Bien qu'en tant que Garde Céleste il conservât sa conscience, toutes ses émotions s'étaient éteintes, ne laissant place qu'à une froide indifférence.
 
-La femme leva la main et posa délicatement sa paume entre les sourcils de Ta Shan. Une puissante déferlante d'énergie s'y infiltra et brisa le sceau du Gardien Céleste.
+La femme leva la main et posa délicatement sa paume entre les sourcils de Ta Shan. Une puissante déferlante d'énergie s'y infiltra et brisa le sceau du Garde Céleste.
 
 Alors que Ta Shan tremblait, d'importantes quantités de liquide doré s'échappèrent de son corps. Ce précieux fluide contenait tous les trésors magiques qui avaient servi à raffiner sa chair.
 
-En un instant, toute trace du sceau du Gardien Céleste disparut de l'être de Ta Shan. Cette extraction brutale du sceau fit frissonner Wang Lin; heureusement qu’il n’avait contrôlé le sceau que par la force, car même si celui-ci était détruit, il n'en subirait aucun contrecoup.
+En un instant, toute trace du sceau du Garde Céleste disparut de l'être de Ta Shan. Cette extraction brutale du sceau fit frissonner Wang Lin; heureusement qu’il n’avait contrôlé le sceau que par la force, car même si celui-ci était détruit, il n'en subirait aucun contrecoup.
 
 Privé de son sceau, les yeux de Ta Shan commencèrent à s'estomper progressivement. Il était déjà au seuil de la mort auparavant; sans le raffinage de Wang Lin, il aurait déjà rendu l'âme.
 
-Désormais dépourvu du sceau du Gardien Céleste, Ta Shan fut envahi par une aura de mort. Pourtant, comment cette femme pouvait-elle laisser Ta Shan mourir ainsi? Elle leva sa main droite et commença à tracer des lignes entre les sourcils de l'homme, la pointe du doigt. Un trait, un trait, un trait!
+Désormais dépourvu du sceau du Garde Céleste, Ta Shan fut envahi par une aura de mort. Pourtant, comment cette femme pouvait-elle laisser Ta Shan mourir ainsi? Elle leva sa main droite et commença à tracer des lignes entre les sourcils de l'homme, la pointe du doigt. Un trait, un trait, un trait!
 
 Un tatouage complexe se forma progressivement sous ses doigts, gravé profondément entre les sourcils de Ta Shan.
 

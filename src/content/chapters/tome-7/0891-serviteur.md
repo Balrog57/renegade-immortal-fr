@@ -108,7 +108,7 @@ Le garçon réfléchit un instant et dit: « Je suis déjà entré dans le bassi
 
 Dans un éclat de lumière dorée, une rune d'un or sombre apparut dans la paume de Wang Lin.
 
-Lorsqu'il avait reçu le jade de l'Empereur Céleste Qing Lin, outre les méthodes de raffinage des gardiens célestes, il y avait aussi des sorts pour asservir autrui. Cependant, lors de ses premiers essais, ces techniques n'avaient pas semblé aussi puissantes que les textes le prétendaient.
+Lorsqu'il avait reçu le jade de l'Empereur Céleste Qing Lin, outre les méthodes de raffinage des gardes célestes, il y avait aussi des sorts pour asservir autrui. Cependant, lors de ses premiers essais, ces techniques n'avaient pas semblé aussi puissantes que les textes le prétendaient.
 
 Même l'empreinte d'esclave utilisée sur Li Yuan était mentionnée dans le jade de l'Empereur Céleste Qing Lin. Pourtant, malgré ses analyses, Wang Lin n'avait jamais pu en saisir l'essence. Ce n'est qu'en découvrant l'origine céleste que tout devint limpide.
 
@@ -116,4 +116,4 @@ Ces sorts de scellement ne pouvaient être lancés que par un être céleste. En
 
 À cet instant précis, Wang Lin eut la certitude qu'il lui suffisait d'une seule pensée pour que ce garçon périsse!
 
-Il réfléchit un moment et comprit enfin la distinction fondamentale entre ce sceau et le gardien céleste.
+Il réfléchit un moment et comprit enfin la distinction fondamentale entre ce sceau et le garde céleste.

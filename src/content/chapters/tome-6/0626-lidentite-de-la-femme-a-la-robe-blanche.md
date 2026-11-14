@@ -21,7 +21,7 @@ L'excitation sur le visage de Wang Lin s'apaisa progressivement. Le jade était 
 
 Il n'y avait aucune restriction sur cette première partie, qui pouvait être consultée aisément. Quant aux deux autres, elles étaient protégées par des sceaux. Lorsqu'on tentait de les sonder avec son Sens Divin, on ne percevait que des images et des mots chaotiques, rendant toute lecture impossible.
 
-La deuxième partie détaillait la méthode pour créer des gardiens célestes. C'était ainsi que le vieil homme chétif avait pu en apprendre davantage en apercevant quelques fragments de cette section.
+La deuxième partie détaillait la méthode pour créer des gardes célestes. C'était ainsi que le vieil homme chétif avait pu en apprendre davantage en apercevant quelques fragments de cette section.
 
 Une remarque était également gravée dans le jade: « J'ai placé une restriction de lignée sur ce jade. Sans votre propre sang, il est impossible de briser son sceau. »
 
@@ -63,9 +63,9 @@ Avec sa culture, il pouvait vaguement percevoir que le mystère de cette formati
 
 Quelques jours plus tard, le Sens Divin de Wang Lin émergea du jade. Il ouvrit les yeux et laissa échapper un long soupir.
 
-« Ces êtres célestes sont encore plus cruels que les cultivateurs. La deuxième partie du jade contenait des enregistrements détaillés sur la création d'une marionnette appelée gardien céleste. Cette méthode n'est pas destinée aux célestes, mais conçue pour être utilisée contre les cultivateurs. On capture les cultivateurs pour les raffiner. Si l'opération réussit, le gardien céleste qui en résulte est d'une puissance extrême!
+« Ces êtres célestes sont encore plus cruels que les cultivateurs. La deuxième partie du jade contenait des enregistrements détaillés sur la création d'une marionnette appelée garde céleste. Cette méthode n'est pas destinée aux célestes, mais conçue pour être utilisée contre les cultivateurs. On capture les cultivateurs pour les raffiner. Si l'opération réussit, le garde céleste qui en résulte est d'une puissance extrême!
 
-« Selon les célestes, un gardien céleste n'est pas une personne, mais un trésor. Il se décline en trois qualités: faible, moyenne et élevée. Le jade précise qu'un gardien de qualité faible équivaut à un cultivateur Ascendant au sommet de la phase tardive, soit la limite du premier niveau.
+« Selon les célestes, un garde céleste n'est pas une personne, mais un trésor. Il se décline en trois qualités: faible, moyenne et élevée. Le jade précise qu'un gardien de qualité faible équivaut à un cultivateur Ascendant au sommet de la phase tardive, soit la limite du premier niveau.
 
 « Quant aux qualités moyenne et élevée, je ne peux déterminer à quel stade du Briseur du Nirvana elles correspondent. »
 
@@ -75,7 +75,7 @@ D'un ton calme, Wang Lin ordonna: « Donne-la moi! »
 
 Le visage du vieil homme se crispa d'amertume: « Vous avez déjà tous mes sacs de rangement, que voulez-vous encore?! » Dans son for intérieur, il maudissait: « Ce nommé Wang est pire que ce couple de cultivateurs. Ils ne voulaient qu'un seul de mes sacs, mais lui, il ne veut rien me laisser! »
 
-Wang Lin lança un regard glacial à l'homme et frappa son propre sac de rangement. Dix fragments de jade brisé s'envolèrent; c'étaient les objets contenus dans les dix gardiens célestes que le vieil homme possédait. En voyant ces débris, l'expression du vieillard changea radicalement.
+Wang Lin lança un regard glacial à l'homme et frappa son propre sac de rangement. Dix fragments de jade brisé s'envolèrent; c'étaient les objets contenus dans les dix gardes célestes que le vieil homme possédait. En voyant ces débris, l'expression du vieillard changea radicalement.
 
 Wang Lin referma sa main droite et les dix fragments fusionnèrent en un seul. Puis, il tendit la main et saisit le vieil homme. Sa paume frappa le front de ce dernier, expulsant son âme originelle de son corps.
 

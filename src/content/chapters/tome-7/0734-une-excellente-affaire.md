@@ -30,11 +30,11 @@ Wang Lin réfléchit un instant. À l'époque, ce qui importait le plus à Situ 
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il levait sa main droite et disait lentement: « Ce dernier sort est une technique que j'ai apprise d'un senior briseur de Nirvana. Si cela ne vous intéresse toujours pas, alors oubliez cette affaire! » Le vieil homme resta interdit, fort incrédule.
 
-Wang Lin envoya une commande mentale, et le Gardien Céleste derrière lui se transforma en un rayon de lumière dorée qui fonça vers la planète de culture.
+Wang Lin envoya une commande mentale, et le Garde Céleste derrière lui se transforma en un rayon de lumière dorée qui fonça vers la planète de culture.
 
 Le mouvement de la marionnette fit sombrer l'expression du vieil homme.
 
-Peu après, le Gardien Céleste revint, tenant une bête féroce entre ses mains. La créature paraissait extrêmement sauvage, son corps couvert d'épines, et, au coin de sa gueule, pendait encore la moitié d'un bras de mortel. Apparemment, elle était en train de manger lorsque le Gardien Céleste l'avait capturée.
+Peu après, le Garde Céleste revint, tenant une bête féroce entre ses mains. La créature paraissait extrêmement sauvage, son corps couvert d'épines, et, au coin de sa gueule, pendait encore la moitié d'un bras de mortel. Apparemment, elle était en train de manger lorsque le Garde Céleste l'avait capturée.
 
 Les deux doigts de la main droite de Wang Lin formèrent une épée. Il n'avait pas utilisé l'Art du Massacre Céleste depuis longtemps. Les innombrables brins d'énergie de massacre qu'il avait condensés autrefois résidaient dans la marionnette, mais ils avaient tous été consommés lors d'une bataille.
 

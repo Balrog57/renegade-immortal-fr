@@ -64,7 +64,7 @@ Cet appel portait en lui des décennies de nostalgie...
 
 Le vieil homme était Wang Lin! Ses yeux, autrefois troubles, étaient d'une froideur extrême. Un tel regard n'était pas apparu dans ses prunelles depuis bien longtemps.
 
-Wang Lin dit lentement: « Messager du Temple Céleste du Tonnerre! »
+Wang Lin dit lentement: « Messager du Temple Lei Xian! »
 
 La marionnette de garde céleste se déplaça aux côtés de Wang Lin en un éclair et fixa froidement Lei Daozi.
 
@@ -92,7 +92,7 @@ Lei Daozi frappa son sac de rangement et un filet de tonnerre apparut dans sa ma
 
 D'innombrables runes scintillaient sur le filet de tonnerre. Sa ténacité était telle que le coup de poing de la marionnette ne put le briser.
 
-« Ce vieil homme est un messager du Temple Céleste du Tonnerre. Avec votre force, même muni de cette marionnette, il vous sera impossible de me tuer! » Lei Daozi ne daigna même pas regarder le filet alors qu'il formait un nouveau sceau. Il projeta alors un éclair vers Wang Lin.
+« Ce vieil homme est un messager du Temple Lei Xian. Avec votre force, même muni de cette marionnette, il vous sera impossible de me tuer! » Lei Daozi ne daigna même pas regarder le filet alors qu'il formait un nouveau sceau. Il projeta alors un éclair vers Wang Lin.
 
 L'expression de Wang Lin resta neutre; il n'esquissa même pas un mouvement pour esquiver. Alors que l'éclair approchait, il ouvrit simplement la bouche et, sous le regard incrédule de Lei Daozi, Wang Lin dévora la foudre.
 
@@ -128,7 +128,7 @@ Soudain, la barre métallique parut incapable de contenir la puissance de la fou
 
 Ce fut comme un coup de tonnerre apocalyptique; la planète Ran Yun en trembla. De nombreux sommets montagneux s'effondrèrent dans un tumulte colossal.
 
-La barre explosa et une puissance tonitruante jaillit, prenant Lei Daozi pour centre. Forcé de reculer de plus de dix pas, le visage pâle, il hurla: « Tu es ce Xu Mu qui se fait passer pour un messager du Temple Céleste du Tonnerre! Quel est donc ton véritable niveau de culture?! »
+La barre explosa et une puissance tonitruante jaillit, prenant Lei Daozi pour centre. Forcé de reculer de plus de dix pas, le visage pâle, il hurla: « Tu es ce Xu Mu qui se fait passer pour un messager du Temple Lei Xian! Quel est donc ton véritable niveau de culture?! »
 
 L'onde de choc de la barre fit disparaître les éclairs entourant la garde céleste, laquelle s'avança alors.
 
@@ -164,9 +164,9 @@ Le domaine de Wang Lin s'arrêta là!
 
 Lei Daozi poussa un soupir de soulagement. Il craignait réellement que le domaine de Wang Lin ne franchisse la barrière du second niveau. Si tel avait été le cas, il aurait dû affronter un combat de tous les instants face à l'assistance de la marionnette!
 
-Lei Daozi ricana: « Avec une si infime culture, tu oses usurper l'identité d'un membre du Temple Céleste du Tonnerre?! » Pourtant, le doute persistait en lui. Après tout, la sphère de tonnerre utilisée par Xu Mu plus tôt était trop impressionnante.
+Lei Daozi ricana: « Avec une si infime culture, tu oses usurper l'identité d'un membre du Temple Lei Xian?! » Pourtant, le doute persistait en lui. Après tout, la sphère de tonnerre utilisée par Xu Mu plus tôt était trop impressionnante.
 
-Un tel sortilège n'était pas l'apanage d'un cultivateur ordinaire; il ne l'avait vu que chez les messagers de rang terrestre du Temple Céleste du Tonnerre. Un autre élément le rendait suspicieux: plus tôt, son Sens Divin n'avait même pu détecter l'existence de cet homme. Bien qu'il puisse désormais voir clairement son niveau de culture, il avait toujours l'impression qu'une couche de brume recouvrait l'individu, comme si l'on tentait d'observer la lune dans le reflet de l'eau.
+Un tel sortilège n'était pas l'apanage d'un cultivateur ordinaire; il ne l'avait vu que chez les messagers de rang terrestre du Temple Lei Xian. Un autre élément le rendait suspicieux: plus tôt, son Sens Divin n'avait même pu détecter l'existence de cet homme. Bien qu'il puisse désormais voir clairement son niveau de culture, il avait toujours l'impression qu'une couche de brume recouvrait l'individu, comme si l'on tentait d'observer la lune dans le reflet de l'eau.
 
 Wang Lin leva la tête. Faute d'énergie spirituelle céleste suffisante, sa culture s'était stabilisée au milieu du stade Ascendant. Cependant, son domaine avait atteint un niveau tel qu'il en fut lui-même surpris.
 

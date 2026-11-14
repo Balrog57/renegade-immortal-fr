@@ -54,11 +54,11 @@ Wang Lin regarda les restes des trois autels avec des yeux emplis de regret.
 
 « Mon âme et mon corps sont bien trop puissants. Les autels du Clan Feng Mie n'ont pu supporter l'impact de ma transformation. Maintenant qu'ils se sont effondrés, il n'y aura plus jamais de sortilèges des Trois Vies... »
 
-Wang Lin secoua la tête. Ce qu'il avait divisé n'était pas seulement sa lignée du Dao Antique, mais aussi son avatar. On pouvait dire que tout avait été divisé en trois et qu'en conséquence, il possédait désormais trois vies.
+Wang Lin secoua la tête. Ce qu'il avait divisé n'était pas seulement sa lignée du Dao Gu, mais aussi son avatar. On pouvait dire que tout avait été divisé en trois et qu'en conséquence, il possédait désormais trois vies.
 
-« Mon corps a obtenu la lignée du Dao Antique et mes corps de dieu antique, de démon antique et de diable antique ont atteint huit étoiles. Il est temps de partir... Cependant, avant de partir, je dois affiner la Voile Fantôme. Avec cela, je pourrais peut-être former ma septième essence!
+« Mon corps a obtenu la lignée du Dao Gu et mes corps de dieu antique, de démon antique et de diable antique ont atteint huit étoiles. Il est temps de partir... Cependant, avant de partir, je dois affiner la Voile Fantôme. Avec cela, je pourrais peut-être former ma septième essence!
 
-« Une fois que l'essence de restriction apparaîtra, mon niveau de culture passera du milieu du stade du Vide Spirituel au stade avancé du Vide Spirituel! Avec ma lignée du Dao Antique, je devrais être capable de combattre des cultivateurs du stade avancé du Vide Arcanique!
+« Une fois que l'essence de restriction apparaîtra, mon niveau de culture passera du milieu du stade du Vide Spirituel au stade avancé du Vide Spirituel! Avec ma lignée du Dao Gu, je devrais être capable de combattre des cultivateurs du stade avancé du Vide Arcanique!
 
 « Il y a aussi l'essence de la bataille. Autrefois, toute ma compréhension s'était transformée en étoile de la loi. J'aurai besoin d'un certain temps pour me réajuster, et si une autre essence pouvait naître, alors j'atteindrais le sommet du Vide Spirituel! » Wang Lin marmonna pour lui-même avant de s'asseoir. Il tendit sa main droite et la Voile Fantôme apparut.
 

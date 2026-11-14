@@ -16,7 +16,7 @@ Sous l'œil droit de la femme se trouvait une tache de naissance. Loin de ternir
 
 À l'instar de son nom, Song Zhi était aussi exquise qu'une figure de peinture.
 
-« Song Zhi salue le Prince, les seigneurs et les ambassadeurs du Dao Antique », dit-elle, le visage légèrement empourpré, en s'inclinant devant l'assemblée.
+« Song Zhi salue le Prince, les seigneurs et les ambassadeurs du Dao Gu », dit-elle, le visage légèrement empourpré, en s'inclinant devant l'assemblée.
 
 « Votre nom est Song? Est-ce elle la personne dont le Prince a parlé? » L'homme âgé chevauchant le diable ancien reprit ses esprits. Lorsqu'il posa les yeux sur la femme, son expression se fit grave.
 
@@ -24,7 +24,7 @@ Sous l'œil droit de la femme se trouvait une tache de naissance. Loin de ternir
 
 L'homme sur le diable ancien réfléchit un instant, puis joignit les mains en signe de respect envers le Prince. « Je remercie infiniment le Prince pour son aide. Je vais emmener cette femme avec nous. Si elle n'est pas choisie, nous la lui renverrons. »
 
-« Très bien. Song Zhi, suis les ambassadeurs du Dao Antique. » Le Prince n'y prêta guère attention. Il donna l'ordre avec un sourire, puis fixa Wang Lin, le regard brûlant de ferveur.
+« Très bien. Song Zhi, suis les ambassadeurs du Dao Gu. » Le Prince n'y prêta guère attention. Il donna l'ordre avec un sourire, puis fixa Wang Lin, le regard brûlant de ferveur.
 
 La femme nommée Song Zhi sembla pousser un soupir, mais sa nature était si douce qu'elle ne put refuser. Elle mordilla sa lèvre inférieure et s'avança vers le diable ancien.
 
@@ -36,9 +36,9 @@ Lorsqu'elle monta sur le diable ancien aux côtés du vieil homme, le vent fit v
 
 « J'espère que je ne serai pas choisie... Je ne suis pas si belle, je devrais donc... ne pas être sélectionnée... Tante Chang et Dong Mei m'attendent encore... » La femme baissa la tête, ses cheveux dissimulant les larmes qui perlaient dans ses yeux.
 
-Une fois Song Zhi accueillie par les ambassadeurs du Dao Antique, ces derniers s'inclinèrent respectueusement devant le Prince et Wang Lin. Soudain, le diable ancien leva la tête vers le ciel et poussa un rugissement. Il bondit vers la faille qui s'était ouverte dans le firmament, se transforma en une brume noire et disparut à l'intérieur.
+Une fois Song Zhi accueillie par les ambassadeurs du Dao Gu, ces derniers s'inclinèrent respectueusement devant le Prince et Wang Lin. Soudain, le diable ancien leva la tête vers le ciel et poussa un rugissement. Il bondit vers la faille qui s'était ouverte dans le firmament, se transforma en une brume noire et disparut à l'intérieur.
 
-Ce lieu était très éloigné de la cité impériale du Dao Antique. Même avec un diable ancien, il leur faudrait plusieurs mois pour regagner leur foyer.
+Ce lieu était très éloigné de la cité impériale du Dao Gu. Même avec un diable ancien, il leur faudrait plusieurs mois pour regagner leur foyer.
 
 Après le départ des ambassadeurs, l'homme massif à l'armure dorée guida l'assistance vers l'intérieur de la ville. Un instant plus tard, les environs étaient déserts, à l'exception de Wang Lin, du démon ancien tremblant, du Prince et de la femme qui se tenait derrière lui.
 

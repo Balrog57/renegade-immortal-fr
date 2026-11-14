@@ -151,7 +151,7 @@ Durant ces deux mois, sa culture passa du 3ème au 8ème niveau. Outre le liquid
 
 Le chemin de l'alchimie est ardu. Au-delà du talent, le travail acharné est primordial, car cette voie est bien plus difficile que la culture elle-même. Pour un débutant, le taux d'échec est extrêmement élevé. Wang Lin avait tenté l'expérience maintes fois et n'avait réussi qu'une seule fois.
 
-Une fois, il avait consommé une grande quantité d'herbes pour forcer la création d'un lot de sept pilules Pei Yuan. Grâce aux pilules, au liquide spirituel et au décalage temporel de la perle défiant le ciel, il avait pu bondir du 3ème au 8ème niveau en deux mois.
+Une fois, il avait consommé une grande quantité d'herbes pour forcer la création d'un lot de sept pilules Pei Yuan. Grâce aux pilules, au liquide spirituel et au décalage temporel de la Perle Défiant le Ciel, il avait pu bondir du 3ème au 8ème niveau en deux mois.
 
 Un jour, une explosion retentit dans sa cour. Une onde de lumière semblable à des ondulations aquatiques traversa la pièce avant que tout ne redevienne calme. Wang Lin sortit, couvert de poussière, avec un sourire amer: cette dernière tentative de raffinage avait encore échoué. Il n'avait pas su contrôler l'intensité du feu, provoquant la rupture du fourneau et la perte de toutes les pilules.
 

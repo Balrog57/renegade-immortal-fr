@@ -146,7 +146,7 @@ La catastrophe à Huo Fen fut finalement résolue. Le pays de culture de rang 4 
 
 La qualité des bêtes spirituelles varie grandement. Elles sont classées en catégories: anormales, spirituelles, désolées et célestes. Chaque catégorie possède des niveaux élevé, moyen et faible.
 
-L'esprit de feu qui avait été absorbé par la perle défiant le ciel était sur le point de devenir une bête désolée. Selon cette échelle, il se situait au sommet d'une bête spirituelle de haute qualité. Tous ses descendants étaient des bêtes spirituelles de faible qualité, illustrant ainsi l'écart immense entre les niveaux. Si l'esprit de feu n'avait pas été affaibli, il n'aurait pas été si facilement dévoré.
+L'esprit de feu qui avait été absorbé par la Perle Défiant le Ciel était sur le point de devenir une bête désolée. Selon cette échelle, il se situait au sommet d'une bête spirituelle de haute qualité. Tous ses descendants étaient des bêtes spirituelles de faible qualité, illustrant ainsi l'écart immense entre les niveaux. Si l'esprit de feu n'avait pas été affaibli, il n'aurait pas été si facilement dévoré.
 
 Il faut noter qu'une bête spirituelle de haute qualité équivaut à un cultivateur au sommet du stade de la Formation de l'Âme, une bête de qualité moyenne équivaut à un cultivateur au sommet du stade de l'Âme Naissante, et une bête de faible qualité équivaut à un cultivateur au sommet de la Formation du Noyau.
 
@@ -186,7 +186,7 @@ Le noyau fusionné s'enfonça et percuta le noyau froid du dantian. Soudain, une
 
 Cependant, sa couleur n'était pas dorée, mais d'un gris très profond.
 
-Wang Lin ignorait que la Méthode d'Ascension des Enfers avait subi des modifications dues à la perle défiant le ciel et au Royaume Ji. On pourrait dire que les difficultés qu'il affrontait étaient sans précédent.
+Wang Lin ignorait que la Méthode d'Ascension des Enfers avait subi des modifications dues à la Perle Défiant le Ciel et au Royaume Ji. On pourrait dire que les difficultés qu'il affrontait étaient sans précédent.
 
 La raison pour laquelle la Méthode d'Ascension des Enfers était considérée comme le chemin le plus rapide vers la Formation du Noyau résidait dans sa capacité à former d'abord un noyau froid prototype, qui utiliserait ensuite l'énergie spirituelle pour se transformer en un noyau doré.
 

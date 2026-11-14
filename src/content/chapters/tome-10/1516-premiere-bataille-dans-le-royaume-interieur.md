@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1516 - First Battle in the Inner Realm!"
 slug: première-bataille-dans-le-royaume-interieur
 ---
-Le son se propagea comme une vague à travers la Secte Divine, devenant de plus en plus puissant jusqu'à devenir assourdissant!
+Le son se propagea comme une vague à travers la Secte Shen, devenant de plus en plus puissant jusqu'à devenir assourdissant!
 
 Wang Lin regarda les cultivateurs devant lui et resta calme. Depuis son retour, il savait que puisqu'il avait obtenu l'héritage du Seigneur du Royaume Scellé, il se devait de perpétuer cette tradition!
 
@@ -30,7 +30,7 @@ Wang Lin réfléchit un instant, puis hocha la tête.
 
 L'homme âgé de la Secte Shi Yin déclara lentement: « Ce vieil homme est Maître Nan Yunzi. À vrai dire, vous êtes vous aussi un cultivateur de Kun Xu. J'ai appris par le camarade cultivateur Hong Shan que vous vous étiez rendu dans le Royaume Extérieur. Quelle est la puissance du Royaume Extérieur? »
 
-Le temps passa lentement et les cultivateurs de la Secte Divine se dispersèrent progressivement. La Mer Yun reprit ses intenses préparatifs de guerre.
+Le temps passa lentement et les cultivateurs de la Secte Shen se dispersèrent progressivement. La Mer Yun reprit ses intenses préparatifs de guerre.
 
 Maître Hong Shan et Maître Nan Yunzi restèrent silencieux après avoir entendu les paroles de Wang Lin. L'inquiétude se lisait dans leurs yeux; la force du Royaume Extérieur était un peu plus grande que ce qu'ils avaient anticipé.
 
@@ -46,13 +46,13 @@ Tai Aluo fronça les sourcils. Après réflexion, il hocha la tête.
 
 Wang Lin salua l'assemblée d'un geste des mains, puis regarda Mu Bingmei qui cultivait à l'intérieur de la distorsion. Il rangea ensuite la Bête des Limbes, Ling Dong et Zhou Jin avant de partir.
 
-Alors qu'il s'avançait, il ne s'arrêta pas devant la Secte Divine. Cependant, au moment de son départ, son Sens Divin se déploya à travers le monde entier.
+Alors qu'il s'avançait, il ne s'arrêta pas devant la Secte Shen. Cependant, au moment de son départ, son Sens Divin se déploya à travers le monde entier.
 
-« La Secte Divine fut créée par le dernier Seigneur du Royaume Scellé. Je suis le Seigneur du Royaume Scellé de cette génération. J'ordonne à la Secte Divine d'obéir à Mu Bingmei. Je lui confie la position de Maître de la Secte Divine! »
+« La Secte Shen fut créée par le dernier Seigneur du Royaume Scellé. Je suis le Seigneur du Royaume Scellé de cette génération. J'ordonne à la Secte Shen d'obéir à Mu Bingmei. Je lui confie la position de Maître de la Secte Shen! »
 
-« Les cultivateurs de la Secte Gui Yuan fusionneront avec la Secte Divine! »
+« Les cultivateurs de la Secte Gui Yuan fusionneront avec la Secte Shen! »
 
-« Nous obéirons aux ordres du Seigneur du Royaume Scellé! » répondirent les cultivateurs de la Secte Divine en entendant ces paroles.
+« Nous obéirons aux ordres du Seigneur du Royaume Scellé! » répondirent les cultivateurs de la Secte Shen en entendant ces paroles.
 
 La brume dissipée réapparut progressivement, mais elle n'était plus aussi dense qu'auparavant. Elle ne parvenait plus à masquer la Formation de Scellement du Royaume qui était apparue après le passage de la tempête dorée! Cette formation ressemblait à un filet et pouvait être vue par chaque cultivateur.
 

@@ -12,7 +12,7 @@ Li Muwan exposa en quelques mots à Wang Lin tout ce qu'elle savait des avantage
 
 Qian Kun craignait par-dessus tout que Wang Lin ne reconnaisse pas le jeton. Si ce dernier ne le croyait pas et décidait de le tuer malgré tout, la situation deviendrait catastrophique.
 
-Cependant, en voyant la jeune fille donner des explications, il finit par se détendre. Il ne croyait pas qu'un homme puisse encore vouloir tuer après avoir appris les conséquences d'un tel ordre de mise à mort. Son cœur s'apaisa et il dit: « Camarade cultivateur, que pensez-vous de ma proposition? Ne soyez pas trop têtu. Si vous me tuez réellement, vous serez marqué par l'ordre de mise à mort, ce qui vous causera d'énormes ennuis. La jeune fille qui vous accompagne sera également entraînée dans votre chute, alors pourquoi agir ainsi? Ai-je tort? »
+Cependant, en voyant la jeune fille donner des explications, il finit par se détendre. Il ne croyait pas qu'un homme puisse encore vouloir tuer après avoir appris les conséquences d'un tel ordre de mise à mort. Son cœur s'apaisa et il dit: « Daoïste, que pensez-vous de ma proposition? Ne soyez pas trop têtu. Si vous me tuez réellement, vous serez marqué par l'ordre de mise à mort, ce qui vous causera d'énormes ennuis. La jeune fille qui vous accompagne sera également entraînée dans votre chute, alors pourquoi agir ainsi? Ai-je tort? »
 
 Wang Lin ne daigna même pas un regard à Qian Kun. Il se tourna vers Li Muwan et demanda: « Es-tu sûre? Si je tiens cent jours, puis-je obtenir toute sa culture? »
 

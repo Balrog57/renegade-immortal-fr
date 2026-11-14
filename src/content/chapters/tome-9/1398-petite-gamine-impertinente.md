@@ -56,7 +56,7 @@ Le messager à ses côtés s'arrêta également, affichant un air dubitatif. Il 
 
 Le membre du Clan Hun She afficha un regard de désespoir. Derrière lui, les membres de son clan virent leurs visages se décomposer sous l'effet de la peur.
 
-« Son péché ne mérite pas la mort, mais le Clan Hun She est privé de son droit de participer à la Sélection des Anciens Délaissés! » La voix de Wang Lin était basse, mais elle résonna distinctement aux oreilles de tous les cultivateurs.
+« Son péché ne mérite pas la mort, mais le Clan Hun She est privé de son droit de participer à la Sélection des Anciens Déchus! » La voix de Wang Lin était basse, mais elle résonna distinctement aux oreilles de tous les cultivateurs.
 
 Ceux qui chargeaient l'homme s'arrêtèrent net et reculèrent derrière Wang Lin sans aucune hésitation.
 
@@ -70,7 +70,7 @@ Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « D
 
 Le messager hésita un instant, mais face à la froideur qui brillait dans les yeux de Wang Lin, il acquiesça.
 
-« Le Clan Chuan He perd également sa place dans la Sélection des Anciens Délaissés! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche du Clan Yun Dun, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
+« Le Clan Chuan He perd également sa place dans la Sélection des Anciens Déchus! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche du Clan Yun Dun, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
 
 Le Patriarche du Clan Yun Dun sentit la sueur perler sur son front. Il savait que Wang Lin était puissant; il avait délibérément poussé le 13e Ancien Déchu à provoquer ce dernier, sans s'attendre à ce que Wang Lin remarque son manège.
 
@@ -104,19 +104,19 @@ La première était une femme aux longs cheveux soyeux d'une grande beauté. Ses
 
 « Cette humble jeune fille est Yun Luo. Je suis venue représenter le Conseil Souverain pour saluer le Grand Empereur. J'ai été invitée à assister à la cérémonie de sélection des Anciens du Conseil Déchu, et je salue tous les cultivateurs de la Terre Déchue. »
 
-« Maître Simo salue le Grand Empereur! » L'homme aux côtés de la femme regarda la Planète du Grand Empereur d'un air indifférent. Cependant, son expression changea brusquement pour se charger d'une intention meurtrière! Il avait repéré Wang Lin à l'intérieur du passage menant à la Planète du Grand Empereur.
+« Maître Si Mo salue le Grand Empereur! » L'homme aux côtés de la femme regarda la Planète du Grand Empereur d'un air indifférent. Cependant, son expression changea brusquement pour se charger d'une intention meurtrière! Il avait repéré Wang Lin à l'intérieur du passage menant à la Planète du Grand Empereur.
 
-Wang Lin vit également Maître Simo! Leurs regards se croisèrent et entrèrent en collision comme deux épées capables de briser le monde!
+Wang Lin vit également Maître Si Mo! Leurs regards se croisèrent et entrèrent en collision comme deux épées capables de briser le monde!
 
-« Petit bâtard!! » La voix de Maître Simo sortit entre ses dents, chargée d'une intention meurtrière puissante.
+« Petit bâtard!! » La voix de Maître Si Mo sortit entre ses dents, chargée d'une intention meurtrière puissante.
 
 L'expression de Wang Lin resta calme alors qu'il disait lentement: « Perdant! Tu ne sais que parler. Tu oses te prétendre grand maître du troisième pas? »
 
-« Toi! Osas-tu me défier?! » La chose que Maître Simo détestait le plus était la destruction de son avatar. Maintenant que Wang Lin l'avait mentionné, sa soif de sang devint monstrueuse.
+« Toi! Osas-tu me défier?! » La chose que Maître Si Mo détestait le plus était la destruction de son avatar. Maintenant que Wang Lin l'avait mentionné, sa soif de sang devint monstrueuse.
 
 Wang Lin sourit, une pointe de moquerie dans les yeux: « Oserez-vous entrer dans cette brume magnétique pour détruire votre culture jusqu'à retomber au cinquième niveau du Fléau Céleste afin de me combattre? »
 
-À ces mots, l'atmosphère explosa en un tumulte général! Maître Simo fut stupéfait et resta muet, le visage extrêmement sombre. Il n'osait pas!
+À ces mots, l'atmosphère explosa en un tumulte général! Maître Si Mo fut stupéfait et resta muet, le visage extrêmement sombre. Il n'osait pas!
 
 « Ce cher cultivateur a la langue bien acérée. Je ne connais simplement pas votre nom. Pourriez-vous l'apprendre à Yun Luo? » La femme aux longs cheveux sourit, son regard lunaire posé sur Wang Lin. Pourtant, pour lui, ce sourire était d'une prétention extrême et lui inspirait le dégoût.
 

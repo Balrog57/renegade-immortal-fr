@@ -70,7 +70,7 @@ Désormais, il était confiant de pouvoir affronter un Grand Empyréen Dao Yi au
 
 « Mon feu d'âme produit un effet, certes, mais c'est lent. Je me demande quand ce processus sera achevé. » Wang Lin fixa l'âme de l'Empereur Céleste durant un long moment avant de détourner les yeux.
 
-« Pour l'instant, je n'ai pas à me soucier du véritable corps des cinq éléments. Une fois parachevé dans la cité impériale de l'Ancien Dao, il avait atteint sa perfection et m'avait permis d'atteindre le sommet de la Tribulation du Vide. Cela confirme que mes spéculations étaient justes!
+« Pour l'instant, je n'ai pas à me soucier du véritable corps des cinq éléments. Une fois parachevé dans la cité impériale du Dao Gu, il avait atteint sa perfection et m'avait permis d'atteindre le sommet de la Tribulation du Vide. Cela confirme que mes spéculations étaient justes!
 
 « Si je veux élever mon niveau de culture, la prochaine étape est le véritable corps d'essence de tonnerre de massacre... » Wang Lin observa son véritable corps d'essence de tonnerre de massacre, ses yeux brillant d'une lueur étrange.
 
@@ -80,9 +80,9 @@ Après un long moment, Wang Lin rompit sa contemplation. Il avait décidé de ne
 
 Ce n'est qu'alors qu'il aurait l'assurance de pousser le Grand Empyréen Song Tian à choisir Ji Du et à l'introduire dans le temple ancestral.
 
-Plus important encore, il lui fallait la puissance nécessaire pour pénétrer dans le Royaume Divin Immémorial, afin de dissiper les brumes sur son chemin et de découvrir le but secret du Maître Impérial du Dao Ancien.
+Plus important encore, il lui fallait la puissance nécessaire pour pénétrer dans le Royaume Divin Immémorial, afin de dissiper les brumes sur son chemin et de découvrir le but secret du Maître Impérial du Dao Gu.
 
-« L'attitude du Grand Empyréen Gu Dao est très étrange... Il n'est pas venu me voir à cause des affaires de l'Ancien Dao, mais je dois toujours compter sur ma propre force pour résoudre mes problèmes. Je ne peux laisser ma vie être décidée par la volonté d'un autre. » Wang Lin fixa son véritable corps d'essence de tonnerre de massacre, les yeux étincelants.
+« L'attitude du Grand Empyréen Gu Dao est très étrange... Il n'est pas venu me voir à cause des affaires du Dao Gu, mais je dois toujours compter sur ma propre force pour résoudre mes problèmes. Je ne peux laisser ma vie être décidée par la volonté d'un autre. » Wang Lin fixa son véritable corps d'essence de tonnerre de massacre, les yeux étincelants.
 
 Son chemin de culture était radicalement différent de celui des autres. C'était une voie qu'il avait tracée lui-même, et lui seul pouvait décider de la direction à prendre. Seule l'expérimentation lui révélerait l'issue.
 

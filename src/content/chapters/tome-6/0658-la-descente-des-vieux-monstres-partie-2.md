@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 658 - The Old Monsters Descend (part 2)
 slug: la-descente-des-vieux-monstres-partie-2
 ---
-La raison pour laquelle il avait pu s'échapper, outre le fait de ne faire qu'un avec la force d'aspiration, tenait largement à la formation de l'épée des sept étoiles et aux gardiens célestes. L'affaiblissement de la force d'aspiration avait également joué un rôle déterminant.
+La raison pour laquelle il avait pu s'échapper, outre le fait de ne faire qu'un avec la force d'aspiration, tenait largement à la formation de l'épée des sept étoiles et aux gardes célestes. L'affaiblissement de la force d'aspiration avait également joué un rôle déterminant.
 
 L'aspiration provenant du gouffre était imprévisible; tantôt puissante, tantôt faible. Si cela s'était produit durant une phase de forte intensité, même avec les avantages dont disposait Wang Lin, il lui aurait été difficile de s'en extirper.
 

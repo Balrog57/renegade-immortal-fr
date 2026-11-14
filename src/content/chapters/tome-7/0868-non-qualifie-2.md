@@ -56,9 +56,9 @@ Il y avait aussi ce garçon à la grosse tête. Bien qu'il affichait toujours un
 
 Le visage de Luo Su s'assombrit tandis qu'il fixait Wang Lin. Il se remémorait les événements d'il y a deux jours: en sortant de sa culture en porte fermée, il avait appris une nouvelle qui l'avait profondément indigné. Son jeune cousin avait été tué à l'extérieur du réseau de transfert du Royaume Céleste du Tonnerre par un certain Xu Mu!
 
-Et ce Xu Mu se trouvait actuellement au Temple Céleste du Tonnerre, participant à la compétition pour le titre céleste!
+Et ce Xu Mu se trouvait actuellement au Temple Lei Xian, participant à la compétition pour le titre céleste!
 
-Le regard de Luo Su devint glacial. Il ne voulait pas tuer cet homme ici, mais il ne laisserait pas ce Xu Mu franchir la première épreuve. Une fois que Xu Mu aurait été transféré hors du Temple Céleste du Tonnerre, c'est là qu'il l'exécuterait!
+Le regard de Luo Su devint glacial. Il ne voulait pas tuer cet homme ici, mais il ne laisserait pas ce Xu Mu franchir la première épreuve. Une fois que Xu Mu aurait été transféré hors du Temple Lei Xian, c'est là qu'il l'exécuterait!
 
 Alors que Luo Su laissait échapper un reniflement froid, son sens divin déferla et le géant doré scellé brilla intensément. C'était comme si une puissance infinie lui avait été injectée; les restrictions environnantes s'effondrèrent une à une.
 
@@ -82,7 +82,7 @@ Le doigt de Luo Su percuta le Sceau Céleste, faisant trembler l'objet. Wang Lin
 
 « Non qualifié! » Luo Su écarta sa grande manche en désignant une autre personne dans le ciel: « Toi, descends! »
 
-Les actions de Luo Su pouvaient être jugées risquées, car cette bataille était observée par de nombreux témoins. Cependant, il considérait que son statut au sein du Temple Céleste du Tonnerre lui conférait des privilèges. De plus, n'estimant pas avoir commis d'excès, il n'y prêta guère attention.
+Les actions de Luo Su pouvaient être jugées risquées, car cette bataille était observée par de nombreux témoins. Cependant, il considérait que son statut au sein du Temple Lei Xian lui conférait des privilèges. De plus, n'estimant pas avoir commis d'excès, il n'y prêta guère attention.
 
 Le cultivateur désigné par Luo Su descendit sans mot dire. Pourtant, à cet instant, Wang Lin, qui venait d'être projeté à une centaine de pieds de distance par Luo Su, laissa éclater une intention meurtrière.
 
@@ -94,7 +94,7 @@ S'il avait été réellement non qualifié, cela aurait été acceptable, mais i
 
 En s'élançant, Wang Lin leva la main et le sort « Invoquer le Vent » enveloppa les environs. Tandis que le vent noir rugissait, il couvrit le ciel et deux dragons noirs apparurent. Ils poussèrent des hurlements qui firent trembler les cieux et chargèrent vers Luo Su.
 
-Les yeux de Luo Su s'illuminèrent et il eut un sourire froid. « Oses-tu défier la volonté du Temple Céleste du Tonnerre? » Il avança et son sens divin se déploya. Neuf géants dorés apparurent instantanément.
+Les yeux de Luo Su s'illuminèrent et il eut un sourire froid. « Oses-tu défier la volonté du Temple Lei Xian? » Il avança et son sens divin se déploya. Neuf géants dorés apparurent instantanément.
 
 Ces neuf géants, hauts de mille pieds chacun, brandissaient de grandes épées. Ils poussèrent un rugissement unanime et chargèrent vers Wang Lin.
 

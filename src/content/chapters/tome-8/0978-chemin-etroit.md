@@ -22,13 +22,13 @@ Wang Lin restait simplement immobile. Il contemplait calmement le ciel et médit
 
 « Origine... Qu'est-ce que l'origine? Cet oiseau... Il n'est pas ma vie antérieure, mais un symbole vivant de ma mentalité! Cet oiseau est mort dans la gueule d'un python; qu'est-ce que cela signifie... » Wang Lin fronça les sourcils. Il ne parvenait toujours pas à comprendre, mais il semblait avoir saisi une piste.
 
-« Ce n'était qu'une petite complétion due à l'absorption de l'énergie Yang extrême par la perle défiant le ciel. Si je veux en voir l'intégralité, elle doit absorber l'énergie Yin pour atteindre sa pleine complétion. Je suppose que j'aurai alors une réponse! » Wang Lin prit une profonde inspiration et ses yeux brillèrent.
+« Ce n'était qu'une petite complétion due à l'absorption de l'énergie Yang extrême par la Perle Défiant le Ciel. Si je veux en voir l'intégralité, elle doit absorber l'énergie Yin pour atteindre sa pleine complétion. Je suppose que j'aurai alors une réponse! » Wang Lin prit une profonde inspiration et ses yeux brillèrent.
 
 « Peu importe si Tian Yunzi complotait contre moi ou contre Ling Tianhou; il s'est trompé cette fois! Le piège a été brisé! » Wang Lin ricana et fit un pas vers le vide. Son regard balaya la tour gigantesque où se trouvait Ling Tianhou.
 
 Un énorme trou était apparu sur le flanc de la tour. Des vestiges de fluctuations d'énergie originelle y étaient encore perceptibles.
 
-« Chaque fois que la perle défiant le ciel s'ouvre, elle nécessite une quantité phénoménale d'énergie originelle. Lorsqu'elle s'est activée cette fois-ci, l'énergie originelle de la région n'a pas été affectée, et pourtant Ling Tianhou s'est enfui précipitamment. Le moment de sa fuite coïncide avec l'instant où les deux rayons de lumière ont jailli de la perle. Il est évident que l'un d'eux a poursuivi Ling Tianhou! »
+« Chaque fois que la Perle Défiant le Ciel s'ouvre, elle nécessite une quantité phénoménale d'énergie originelle. Lorsqu'elle s'est activée cette fois-ci, l'énergie originelle de la région n'a pas été affectée, et pourtant Ling Tianhou s'est enfui précipitamment. Le moment de sa fuite coïncide avec l'instant où les deux rayons de lumière ont jailli de la perle. Il est évident que l'un d'eux a poursuivi Ling Tianhou! »
 
 Wang Lin fit un pas et quitta la planète Da Luo.
 

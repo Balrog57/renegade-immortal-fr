@@ -64,7 +64,7 @@ Ces quatre sceaux avaient été forgés par l'Ancêtre Céleste pour emprisonner
 
 Le corps de Wang Lin paraissait minuscule face au scorpion vert. Pourtant, il restait là, le regard glacial, dégageant une aura capable de subjuguer l'âme du scorpion.
 
-Ses cheveux blancs retombaient sur ses épaules. Alors que l'âme du scorpion rugissait, il leva la main et frappa. Ce coup contenait à la fois la puissance du Dao Antique de Wang Lin et sa culture de la Tribulation du Vide. Il créa une force capable de briser les cieux qui chargea l'âme du scorpion.
+Ses cheveux blancs retombaient sur ses épaules. Alors que l'âme du scorpion rugissait, il leva la main et frappa. Ce coup contenait à la fois la puissance du Dao Gu de Wang Lin et sa culture de la Tribulation du Vide. Il créa une force capable de briser les cieux qui chargea l'âme du scorpion.
 
 Un grondement de tonnerre éclata soudainement; le corps de l'âme du scorpion trembla et fut repoussé, comme frappé par un vent dévastateur. L'âme semblait sur le point de s'éteindre, mais à cet instant, les quatre sceaux brillèrent et compensèrent la puissance du coup de Wang Lin. Bien que repoussée de dizaines de milliers de pieds, l'entité resta intacte!
 

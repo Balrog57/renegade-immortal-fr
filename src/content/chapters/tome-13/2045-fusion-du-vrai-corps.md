@@ -22,7 +22,7 @@ Le prince Ji Du, lui, affichait une excitation manifeste. Durant les cent derni�
 
 La brume dans le ciel continuait de tourbillonner et une étrange ombre apparut en son sein. Cette ombre était un soleil rouge qui projeta un éclat fulgurant. À mesure que la lumière se répandait, la brume s'agitait au rythme d'un grondement tonitruant, avant de s'étendre à l'infini.
 
-Le palais du prince Ji Du et presque toute la contrée furent submergés par cette brume. Les innombrables membres du clan Ancien Shi de la région peinaient à résister à la pression et restaient pétrifiés, incapables de faire le moindre mouvement.
+Le palais du prince Ji Du et presque toute la contrée furent submergés par cette brume. Les innombrables membres du clan Shi Gu de la région peinaient à résister à la pression et restaient pétrifiés, incapables de faire le moindre mouvement.
 
 Plus particulièrement, les quelque mille gardes du palais, trop proches de la source, tremblaient de tous leurs membres, le cœur envahi par la peur.
 
@@ -32,11 +32,11 @@ C'était comme si sa vie même dépendait du bon vouloir de cette pression.
 
 Les rumeurs concernant cet homme, vieilles de plus d'un siècle, surgirent dans l'esprit du jeune homme. Le mépris qu'il éprouvait disparut instantanément. Un être capable d'émettre une telle pression pouvait rivaliser avec le Grand Empyréen Song Tian!
 
-Tandis que la pression et la brume enveloppaient la contrée, loin de là, à l'extérieur de la cité impériale des Anciens Shi, une montagne se dressait avec un immense temple à son sommet.
+Tandis que la pression et la brume enveloppaient la contrée, loin de là, à l'extérieur de la cité impériale des Shi Gu, une montagne se dressait avec un immense temple à son sommet.
 
 Cette montagne s'appelait la Montagne Yuan Shi; son pic, en forme de corne, donnait l'impression qu'elle allait déchirer les cieux.
 
-Le grand temple était érigé à l'extrémité de cette corne. C'était le Temple Shi Gu, l'un des lieux saints de leur lignée, second seulement au temple ancestral, et le lieu où le peuple des Anciens Shi recevait son enseignement.
+Le grand temple était érigé à l'extrémité de cette corne. C'était le Temple Shi Gu, l'un des lieux saints de leur lignée, second seulement au temple ancestral, et le lieu où le peuple des Shi Gu recevait son enseignement.
 
 En temps normal, une foule immense venait y faire des visites, mais aujourd'hui, le temple dégageait une pression si puissante qu'elle interdisait toute entrée.
 
@@ -48,7 +48,7 @@ Avec son niveau de culture, il n'aurait normalement pas remarqué une telle pres
 
 « Maître... Ceci... C'est... » Le jeune homme haleta. Voyant l'expression lugubre de son mentor, il s'interrompit aussitôt, ravalant ses paroles.
 
-« À part Wang Lin, qui a semé le chaos dans le palais de l'Ancien Dao il y a plus de cent ans, tué l'Empereur de l'Ancien Dao, est venu chez les Anciens Shi, a été honoré par ton frère et ne sort plus de sa culture fermée, qui d'autre pourrait bien être? » Un éclair de froideur traversa les yeux de l'homme d'âge moyen.
+« À part Wang Lin, qui a semé le chaos dans le palais du Dao Gu il y a plus de cent ans, tué l'Empereur du Dao Gu, est venu chez les Shi Gu, a été honoré par ton frère et ne sort plus de sa culture fermée, qui d'autre pourrait bien être? » Un éclair de froideur traversa les yeux de l'homme d'âge moyen.
 
 En entendant le nom de « Wang Lin », le jeune homme au visage rude eut un haut-le-cœur et, après une courte réflexion, demanda soudain:
 
@@ -58,9 +58,9 @@ L'homme d'âge moyen laissa échapper un froid reniflement.
 
 « Ton maître a déjà croisé ce Wang Lin par le passé, lorsque Xuan Luo l'a amené ici. Sa culture n'est pas faible et sa puissance de combat est extraordinaire, mais il ne mérite toujours pas mon attention!
 
-La seule raison pour laquelle il a pu pénétrer dans le palais de l'Ancien Dao et en ressortir est que Xuan Luo n'est pas intervenu! Il a tué l'Empereur de l'Ancien Dao, pourtant le Grand Empyréen Gu Dao n'a pas prononcé un mot. C'est ce mystère qui préoccupe ton maître, et c'est pourquoi il ne s'est pas précipité pour désigner un futur empereur!
+La seule raison pour laquelle il a pu pénétrer dans le palais du Dao Gu et en ressortir est que Xuan Luo n'est pas intervenu! Il a tué l'Empereur du Dao Gu, pourtant le Grand Empyréen Gu Dao n'a pas prononcé un mot. C'est ce mystère qui préoccupe ton maître, et c'est pourquoi il ne s'est pas précipité pour désigner un futur empereur!
 
-La personne qui intéresse ton maître n'est pas cet homme, mais le Grand Empyréen Gu Dao! Quant à lui, il n'est pas digne de mon égard! » L'homme d'âge moyen regardait l'horizon en percevant faiblement la pression. Il était le Grand Empyréen Song Tian des Anciens Shi, et le jeune homme derrière lui était le prince, Chi Man.
+La personne qui intéresse ton maître n'est pas cet homme, mais le Grand Empyréen Gu Dao! Quant à lui, il n'est pas digne de mon égard! » L'homme d'âge moyen regardait l'horizon en percevant faiblement la pression. Il était le Grand Empyréen Song Tian des Shi Gu, et le jeune homme derrière lui était le prince, Chi Man.
 
 Le jeune homme poussa un soupir de soulagement avant de demander, après une hésitation:
 
@@ -68,13 +68,13 @@ Le jeune homme poussa un soupir de soulagement avant de demander, après une hé
 
 L'homme d'âge moyen resta silencieux, mais ses pupilles se contractèrent imperceptiblement. Après un long moment de réflexion, il prit la parole:
 
-« Il fusionne ses véritables corps d'essence! Ses corps d'essence sont extraordinaires et il cherche à les intégrer totalement, ce qui sera une tâche ardue! Cependant, il a décidé de rester chez les Anciens Shi pour mener cette fusion sans m'en informer. Il manque de respect à mon rang en s'immisçant dans la compétition pour le trône des Anciens Shi. Je vais devoir lui donner une leçon. » Bien que l'homme d'âge moyen fût préoccupé par le Grand Empyréen Gu Dao, il demeurait un Grand Empyréen. En tant que gardien des Anciens Shi, il avait le droit de traiter toute menace pesant sur son peuple.
+« Il fusionne ses véritables corps d'essence! Ses corps d'essence sont extraordinaires et il cherche à les intégrer totalement, ce qui sera une tâche ardue! Cependant, il a décidé de rester chez les Shi Gu pour mener cette fusion sans m'en informer. Il manque de respect à mon rang en s'immisçant dans la compétition pour le trône des Shi Gu. Je vais devoir lui donner une leçon. » Bien que l'homme d'âge moyen fût préoccupé par le Grand Empyréen Gu Dao, il demeurait un Grand Empyréen. En tant que gardien des Shi Gu, il avait le droit de traiter toute menace pesant sur son peuple.
 
 Un éclat glacial brilla dans ses yeux et il leva sa main droite. Formant un sceau, il pointa la direction d'où émanait la pression de Wang Lin.
 
 « Libère le sceau! » murmura-t-il, tandis qu'une lueur spectrale jaillissait de sa main.
 
-Simultanément, au centre des terres anciennes où se rejoignaient les trois lignées, sur le Mont Gu Dao aux presque mille marches, une silhouette enveloppée de brume siégeait au sommet d'une tour. Elle ouvrit les yeux et scruta la direction des Anciens Shi.
+Simultanément, au centre des terres anciennes où se rejoignaient les trois lignées, sur le Mont Gu Dao aux presque mille marches, une silhouette enveloppée de brume siégeait au sommet d'une tour. Elle ouvrit les yeux et scruta la direction des Shi Gu.
 
 Après un long silence, la silhouette murmura pour elle-même: « Fusion des corps d'essence? » Ses paroles étaient calmes, dénuées de toute émotion.
 
@@ -102,7 +102,7 @@ Le véritable corps des cinq éléments déploya ses bras, tandis que les essenc
 
 Cependant, au moment même où les restrictions, le Commencement Absolu et la Fin Absolue semblaient se stabiliser, un rugissement brutal jaillit des profondeurs de la terre.
 
-Ce hurlement exhalait une folie et une puissance ahurissantes, faisant trembler les cœurs de tous les membres des Anciens Shi et les plongeant dans la panique.
+Ce hurlement exhalait une folie et une puissance ahurissantes, faisant trembler les cœurs de tous les membres des Shi Gu et les plongeant dans la panique.
 
 À l'instant où ce rugissement retentit, le prince Ji Du, à l'intérieur du palais, fut secoué par un spasme et cracha une gorgée de sang. La stupéfaction se lut dans ses yeux.
 
@@ -110,7 +110,7 @@ Ce hurlement exhalait une folie et une puissance ahurissantes, faisant trembler 
 
 Le jeune homme en robe pourpre pâlit. En entendant ce nom, il se remémora une rumeur concernant le prince Ji Du: on disait qu'à la naissance de ce prince, un signe céleste était apparu, mais qu'il s'agissait d'un présage maléfique, dissimulé par la famille royale et dissipé par le Maître Impérial.
 
-Peu de gens étaient au courant, mais durant les cent dernières années, pour une raison inconnue, la rumeur avait recommencé à circuler parmi les Anciens Shi.
+Peu de gens étaient au courant, mais durant les cent dernières années, pour une raison inconnue, la rumeur avait recommencé à circuler parmi les Shi Gu.
 
 On racontait que si le prince Ji Du avait fait construire son palais dans la contrée de Luo Hou, c'était parce que la bête féroce scellée sous cette terre, jadis vaincue par l'Ancêtre Ancien, était Luo Hou elle-même!
 

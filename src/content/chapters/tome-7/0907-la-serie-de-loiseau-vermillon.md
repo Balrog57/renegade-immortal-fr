@@ -48,7 +48,7 @@ Wang Lin réfléchit en silence. Il éprouvait beaucoup de regrets envers la Sec
 
 Il regarda le vieux cultivateur et dit calmement: « La Secte Heng Yue était la première secte de Junior, et la planète Suzaku est ma patrie. »
 
-« Oh? » Les yeux du vieux cultivateur s'illuminèrent. « Alors, qu'en est-il de ton rôle de Céleste du Tonnerre du Temple céleste du tonnerre? » Sa voix retentit comme le tonnerre, teintée d'une pointe de colère.
+« Oh? » Les yeux du vieux cultivateur s'illuminèrent. « Alors, qu'en est-il de ton rôle de Céleste du Tonnerre du Temple Lei Xian? » Sa voix retentit comme le tonnerre, teintée d'une pointe de colère.
 
 « Diverses circonstances m'ont forcé dans cette situation! » Wang Lin fixa le vieux cultivateur avec un regard limpide.
 

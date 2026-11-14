@@ -114,7 +114,7 @@ Tout ce qu'il faisait était instinctif; il sentait que s'il n'avait pas résist
 
 « Le Dao de la Boucherie! C'est le Dao de la Boucherie! Combien de personnes cet homme a-t-il dû massacrer pour posséder un regard dont l'intention meurtrière semble presque solide? Il est puissant, incroyablement puissant! »
 
-Son regard vers Wang Lin devint d'une gravité extrême, une expression qu'il ne réservait que lorsqu'il faisait face aux Gardiens Célestes!
+Son regard vers Wang Lin devint d'une gravité extrême, une expression qu'il ne réservait que lorsqu'il faisait face aux Gardes Célestes!
 
 « C'est trop terrifiant! Bien que mon niveau de culture soit le même que le sien, je ne suis absolument pas de taille. Je dois partir, et vite! » L'homme n'hésita pas une seconde. Son corps s'agita pour entamer une téléportation, mais il fut immédiatement expulsé du vide.
 

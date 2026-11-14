@@ -126,11 +126,11 @@ Au moment même où son cri s'éteignait, la voix de Wang Lin pénétra dans le 
 
 Sur la Planète du Grand Empereur, le vieux Suzaku retira sa main. Il regarda Wang Lin et poussa un soupir.
 
-Bien que Maître Simo ne sût pas ce qui se jouait au sein de l'Épreuve Humaine, il semblait avoir perçu quelques éléments. Il ne put s'empêcher de ricaner: « Senior, cela fait longtemps. Il semble que le troisième Jeune Empereur ait rencontré un incident lors de l'épreuve... »
+Bien que Maître Si Mo ne sût pas ce qui se jouait au sein de l'Épreuve Humaine, il semblait avoir perçu quelques éléments. Il ne put s'empêcher de ricaner: « Senior, cela fait longtemps. Il semble que le troisième Jeune Empereur ait rencontré un incident lors de l'épreuve... »
 
-Avant qu'il n'ait pu achever sa phrase, le vieux Suzaku se retourna brusquement et agita la main, frappant Maître Simo une fois de plus.
+Avant qu'il n'ait pu achever sa phrase, le vieux Suzaku se retourna brusquement et agita la main, frappant Maître Si Mo une fois de plus.
 
-Maître Simo cracha du sang et fut projeté en arrière de cent mille pieds.
+Maître Si Mo cracha du sang et fut projeté en arrière de cent mille pieds.
 
 « Quel incident? Mon cadet va utiliser son karma pour allumer cet encens. Ce n'est pas une chose qu'un bâtard comme toi peut comprendre! »
 

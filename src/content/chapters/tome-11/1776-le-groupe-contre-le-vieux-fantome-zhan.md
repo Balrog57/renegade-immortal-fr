@@ -112,6 +112,6 @@ C'était l'âme du Souverain Céleste aux Sept Couleurs qui s'était détachée 
 
 L'âme capée ouvrit les bras, ses cheveux flottant au vent. Ses mains entrèrent en collision avec les mains dorée et noire.
 
-C'est précisément à ce moment qu'une aura de Dao antique se propagea depuis l'entrée de la dernière couche. Le son d'un cœur qui bat se mit à résonner.
+C'est précisément à ce moment qu'une aura de Dao Gu se propagea depuis l'entrée de la dernière couche. Le son d'un cœur qui bat se mit à résonner.
 
 C'était le rythme cardiaque de Wang Lin!

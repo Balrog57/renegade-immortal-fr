@@ -60,7 +60,7 @@ Il réfléchit un instant. Il n'existait pas de rancœur profonde entre lui et Y
 
 Celle-ci fut surprise un instant et son expression s'adoucit légèrement, mais elle ne put réprimer sa colère. Voyant Wang Lin lui sourire, elle laissa échapper un froid reniflement et le fixa avec malveillance.
 
-L'Ancêtre Qing Niu rit de cette scène. Il hocha la tête et dit: « C'est très bien ainsi. Venez me trouver au Pic du Ciel Vert dans trois jours! » Sur ces mots, sa main droite s'élança vers le vide et un morceau de jade vola vers Wang Lin.
+L'Ancêtre Qing Niu rit de cette scène. Il hocha la tête et dit: « C'est très bien ainsi. Venez me trouver au Pic Qing Tian dans trois jours! » Sur ces mots, sa main droite s'élança vers le vide et un morceau de jade vola vers Wang Lin.
 
 « Ce jade vous permettra d'entrer et de sortir de la plupart des restrictions de la Secte Da Hun! »
 

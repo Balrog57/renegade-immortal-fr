@@ -1,6 +1,6 @@
 ---
 n: 1711
-title: "Défi de l'Ancien Dao"
+title: "Défi du Dao Gu"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1711 - Ancient Dao Defying
@@ -22,7 +22,7 @@ La puissance du lignage ancien à l'intérieur de son corps augmentait rapidemen
 
 Les membres du clan ancien étaient semblables aux êtres célestes: plus leur lignage était puissant, plus leur identité était noble et plus ils pouvaient manifester de puissance.
 
-La fusion des sept gouttes rendit le lignage de Wang Lin second seulement après celui de l'Empereur de l'Ancien Dao. Il faut savoir que cet Empereur était un descendant direct de l'Ancêtre Ancien et possédait donc naturellement son lignage. En conséquence, après avoir obtenu six gouttes de sang, il était devenu l'Empereur de l'Ancien Dao!
+La fusion des sept gouttes rendit le lignage de Wang Lin second seulement après celui de l'Empereur du Dao Gu. Il faut savoir que cet Empereur était un descendant direct de l'Ancêtre Ancien et possédait donc naturellement son lignage. En conséquence, après avoir obtenu six gouttes de sang, il était devenu l'Empereur du Dao Gu!
 
 Cependant, Wang Lin ne possédait aucun lignage ancien et n'avait pas encore reçu de reconnaissance. Pour cette raison, le lignage formé par sept gouttes ne pouvait pas encore rivaliser avec celui de l'Empereur, qui possédait déjà son propre lignage et avait obtenu six gouttes supplémentaires.
 
@@ -42,7 +42,7 @@ Il observa la goutte pourpre. Un désir ardent issu de son propre lignage envahi
 
 Elle ne fusionna pas avec son sang ni son lignage; cette goutte se fusionna avec l'âme de Wang Lin!
 
-La pureté de son lignage permettrait à Wang Lin de déchaîner une puissance ancienne, mais elle ne changerait pas son âme. En fin de compte, son âme resterait celle d'un membre du clan de l'Ancien Dao. Cependant, ce Sang de l'Âme pouvait transformer l'âme de Wang Lin, permettant à celle-ci de s'élever au-dessus des autres membres du clan!
+La pureté de son lignage permettrait à Wang Lin de déchaîner une puissance ancienne, mais elle ne changerait pas son âme. En fin de compte, son âme resterait celle d'un membre du clan du Dao Gu. Cependant, ce Sang de l'Âme pouvait transformer l'âme de Wang Lin, permettant à celle-ci de s'élever au-dessus des autres membres du clan!
 
 Cela lui permettrait de devenir une existence plus noble que cet Empereur! Ce serait comme s'il était devenu le quatrième fils de l'Ancêtre Ancien lui-même!
 
@@ -86,7 +86,7 @@ Cette aura appartenait à la nature défiante des Anciens!
 
 Assis sur l'autel, son regard balaya les environs. Il passa devant son avatar pour finalement se poser sur le bras gigantesque de Ye Mo. Ses yeux brillèrent intensément.
 
-Ce bras contenait une force prodigieuse, capable de déchirer le monde. C'était la puissance ultime de l'Ancien Dao Ye Mo!
+Ce bras contenait une force prodigieuse, capable de déchirer le monde. C'était la puissance ultime du Dao Gu Ye Mo!
 
 Fixant ce membre, Wang Lin leva lentement sa main droite et pressa vers le bas. Au moment de l'impact, ses 24 étoiles tournèrent et une explosion de lumière pourpre l'enveloppa. Cette lumière pénétra dans le bras de Ye Mo.
 

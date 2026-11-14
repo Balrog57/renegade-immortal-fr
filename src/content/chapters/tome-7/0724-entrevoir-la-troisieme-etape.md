@@ -104,7 +104,7 @@ Tout le sang de son corps circulait frénétiquement, au même rythme que son é
 
 « Quelle puissance est-ce là?! » L'homme aux cheveux noirs était incapable de bouger d'un pouce. L'énergie originelle dans ses méridiens circulait follement. Même si cette énergie se dissipait ou était gaspillée, il ne pouvait plus s'en soucier. Sa bouche était sèche et son corps était trempé de sueur depuis longtemps. Pourtant, il ne pouvait tout simplement pas détacher ses yeux de ce regard, comme un fou.
 
-Avec sa culture, c'était la première fois de sa vie qu'il ressentait une chose aussi terrifiante. Il n'avait pas été aussi effrayé, même lorsqu'il avait rencontré le Seigneur du Temple Céleste du Tonnerre.
+Avec sa culture, c'était la première fois de sa vie qu'il ressentait une chose aussi terrifiante. Il n'avait pas été aussi effrayé, même lorsqu'il avait rencontré le Seigneur du Temple Lei Xian.
 
 Wang Lin regarda calmement l'homme aux cheveux noirs. Une trace de sa quête du Dao brillait dans ses yeux. Il ne voyait qu'une personne, mais à cet instant, peu importait qu'il s'agisse d'un cultivateur ou d'un mortel. Avec cette part de compréhension dans le regard de Wang Lin, l'autre n'était plus qu'une simple fourmi.
 

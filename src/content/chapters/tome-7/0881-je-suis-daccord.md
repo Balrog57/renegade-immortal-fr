@@ -20,7 +20,7 @@ Le vieil homme Xiang esquissa un léger sourire. Il admirait beaucoup Wang Lin. 
 
 Wang Lin réfléchit silencieusement. Li Muwan était d'une importance capitale pour lui; elle était irremplaçable. Elle était aussi celle qu'il devait protéger, et à cet instant, il hésita. Il leva sa main droite et toucha son sac de rangement. Une petite sphère de lumière s'en échappa immédiatement.
 
-Durant les trois premiers jours au Temple Céleste du Tonnerre, Wang Lin avait déjà extrait l'Âme Naissante de Li Muwan de la perle défiant le ciel lorsqu'il était seul. Il l'avait scellée avec la Restriction d'Annihilation pour que son Âme Naissante ne se dissipe pas.
+Durant les trois premiers jours au Temple Lei Xian, Wang Lin avait déjà extrait l'Âme Naissante de Li Muwan de la Perle Défiant le Ciel lorsqu'il était seul. Il l'avait scellée avec la Restriction d'Annihilation pour que son Âme Naissante ne se dissipe pas.
 
 Tout cela n'avait d'autre but que cet instant précis.
 
@@ -40,7 +40,7 @@ En un instant, tout s'était transformé en cendres et avait disparu. Une seule 
 
 « Même si les cieux veulent que tu meures, je te ramènerai! »
 
-C'est pour cette promesse que Wang Lin était venu dans le Système Stellaire de Luotian! C'est pour elle qu'il se tenait devant le Temple Céleste du Tonnerre!
+C'est pour cette promesse que Wang Lin était venu dans le Système Stellaire de Luotian! C'est pour elle qu'il se tenait devant le Temple Lei Xian!
 
 Lorsque Wang Lin sortit l'Âme Naissante de Li Muwan, Xi Zifeng, dont les yeux étaient rivés sur lui, faillit s'effondrer. Son visage devint livide, son corps trembla et elle sentit son cœur se briser.
 

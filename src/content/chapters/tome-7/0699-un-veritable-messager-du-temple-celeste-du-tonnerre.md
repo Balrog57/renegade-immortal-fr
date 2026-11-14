@@ -1,6 +1,6 @@
 ---
 n: 699
-title: Un véritable messager du Temple Céleste du Tonnerre
+title: Un véritable messager du Temple Lei Xian
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 699 - A Real Messenger From the Thunder Celestial Temple
@@ -122,14 +122,14 @@ L'éclair fonçait à une vitesse prodigieuse vers le domaine nord du Système S
 
 Son objectif était limpide: la planète Ran Yun, dans le domaine nord!
 
-Soixante-dix ans auparavant, un bouleversement avait eu lieu sur la planète Qianhuan. L'ancêtre de la famille Huan, qui se trouvait au deuxième stade, était mort, et l'on soupçonnait qu'un messager du Temple Céleste du Tonnerre était derrière ce fait. Cette rumeur s'était propagée, attirant l'attention du Temple Céleste du Tonnerre.
+Soixante-dix ans auparavant, un bouleversement avait eu lieu sur la planète Qianhuan. L'ancêtre de la famille Huan, qui se trouvait au deuxième stade, était mort, et l'on soupçonnait qu'un messager du Temple Lei Xian était derrière ce fait. Cette rumeur s'était propagée, attirant l'attention du Temple Lei Xian.
 
 D'après les investigations, il semblait que le messager suspect n'avait pas quitté la planète Ran Yun; il avait donc été envoyé ici pour vérifier.
 
 Le niveau de culture de cet homme d'âge moyen avait déjà dépassé le premier stade et se situait au stade Yin Illusoire. Assis sur sa Bête du Tonnerre, il pénétra dans le domaine nord sans ralentir, fonçant droit vers la planète Ran Yun.
 
-« Il y a même des gens qui osent usurper l'identité d'un messager du Temple Céleste du Tonnerre. Une telle insolence ne s'était pas vue depuis bien longtemps! » ricana l'homme. En tant que messager du Temple Céleste du Tonnerre, son pouvoir était immense. Dans tout le Système Stellaire de Luotian, hormis quelques anciennes familles de culture, presque personne n'osait provoquer le Temple.
+« Il y a même des gens qui osent usurper l'identité d'un messager du Temple Lei Xian. Une telle insolence ne s'était pas vue depuis bien longtemps! » ricana l'homme. En tant que messager du Temple Lei Xian, son pouvoir était immense. Dans tout le Système Stellaire de Luotian, hormis quelques anciennes familles de culture, presque personne n'osait provoquer le Temple.
 
-« Laisse-moi, Lei Daozi, véritable messager du Temple Céleste du Tonnerre, faire face à cet individu. Ne pensez pas que l'usage de quelques sorts de foudre suffit pour prétendre être un envoyé du Temple. Les véritables membres du Temple possèdent une Bête du Tonnerre! » Lei Daozi tapota la tête de sa monture de la main droite.
+« Laisse-moi, Lei Daozi, véritable messager du Temple Lei Xian, faire face à cet individu. Ne pensez pas que l'usage de quelques sorts de foudre suffit pour prétendre être un envoyé du Temple. Les véritables membres du Temple possèdent une Bête du Tonnerre! » Lei Daozi tapota la tête de sa monture de la main droite.
 
 La Bête du Tonnerre sembla percevoir la fierté de son maître et poussa un rugissement qui résonna parmi les étoiles. Ils se rapprochaient de plus en plus de la planète Ran Yun.

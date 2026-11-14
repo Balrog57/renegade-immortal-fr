@@ -56,7 +56,7 @@ Les yeux de Lanmeng Daozun brillèrent d'une lueur étrange, teintée d'un soup�
 
 Le cri de ce Suzaku n'avait effectivement rien d'ordinaire. Il contenait une nature défiante et puissante qui ne céderait jamais rien. On aurait dit qu'il venait des enfers plutôt que des cieux!
 
-« Impossible! La Grande Maîtresse Yun Luo avait prévu que ce petit bâtard ferait face à une épreuve de vie ou de mort extrêmement difficile à surmonter! » L'expression du Maître Simo changea radicalement alors qu'il fixait le premier bâton d'encens.
+« Impossible! La Grande Maîtresse Yun Luo avait prévu que ce petit bâtard ferait face à une épreuve de vie ou de mort extrêmement difficile à surmonter! » L'expression du Maître Si Mo changea radicalement alors qu'il fixait le premier bâton d'encens.
 
 Le visage de la Grande Maîtresse Yun Luo afficha également un choc profond. Sa main droite, dissimulée sous sa manche, s'agita avec une telle rapidité qu'elle créa des images rémanentes. Cependant, ses doigts tremblèrent et les empreintes de ses cinq doigts se déchirèrent, laissant jaillir le sang. C'était comme si une force avait stoppé sa divination! Ou bien la situation actuelle de Wang Lin dépassait les capacités de son pouvoir divinatoire!
 
@@ -110,7 +110,7 @@ Juste au moment où les dizaines de milliers de cultivateurs pensaient que l'enc
 
 Cette pause sembla fusionner avec l'esprit de tous les cultivateurs environnants, faisant trembler leurs cœurs!
 
-Le Maître Simo fixait intensément le bâton d'encens humain.
+Le Maître Si Mo fixait intensément le bâton d'encens humain.
 
 Le visage de la Grande Maîtresse Yun Luo était blême, et une ombre sinistre perçait dans ses yeux.
 

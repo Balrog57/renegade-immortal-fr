@@ -92,7 +92,7 @@ Les yeux de Wang Lin brillèrent intensément alors qu'il prenait une profonde i
 
 « C'est dommage de ne pas pouvoir tester précisément sa résistance, mais elle ne saurait être faible! » L'âme originelle de Wang Lin regagna son corps.
 
-Après avoir affiné l'armure, il ne s'arrêta pas là. Il ouvrit la bouche et expulsa un rayon de lumière dorée qui, en scintillant dans l'air, se mua en un cadenas d'or. Ce cadenas était d'un éclat pur; Wang Lin se souvenait l'avoir dérobé à l'un des messagers du Temple Céleste du Tonnerre lors de son assaut contre le réseau de transfert.
+Après avoir affiné l'armure, il ne s'arrêta pas là. Il ouvrit la bouche et expulsa un rayon de lumière dorée qui, en scintillant dans l'air, se mua en un cadenas d'or. Ce cadenas était d'un éclat pur; Wang Lin se souvenait l'avoir dérobé à l'un des messagers du Temple Lei Xian lors de son assaut contre le réseau de transfert.
 
 L'âme originelle de ce messager résidait toujours dans l'Étendard de l'Âme. Ce dernier avait promis de sacrifier un trésor précieux en échange de sa vie.
 

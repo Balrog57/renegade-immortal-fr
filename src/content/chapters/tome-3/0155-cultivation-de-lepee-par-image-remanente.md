@@ -88,15 +88,15 @@ Une fois qu'elle fut partie, Wang Lin ouvrit les yeux. Au lieu de la froideur ha
 
 Peu à peu, deux larmes de sang coulèrent de ses yeux tandis qu'il serrait les poings. Après un long moment, il essuya ses larmes sanglantes et frappa la paroi; la gueule du dragon se referma alors, sans laisser la moindre fissure.
 
-Puis, après avoir disposé plusieurs formations autour de lui, Wang Lin concentra son Sens Divin sur la perle défiant le ciel logée dans son esprit. Son corps disparut soudainement de la pièce. Même l'inscription « Punir » s'évanouit.
+Puis, après avoir disposé plusieurs formations autour de lui, Wang Lin concentra son Sens Divin sur la Perle Défiant le Ciel logée dans son esprit. Son corps disparut soudainement de la pièce. Même l'inscription « Punir » s'évanouit.
 
-C'était la première fois que Wang Lin pénétrait dans la perle défiant le ciel après avoir atteint le stade de la Formation du Noyau. Au moment où il y entra, Shang Guanmo, qui était en train de réprimander sévèrement les Anciens de la Formation du Noyau, trembla soudain: il sentit nettement que ce démon terrifiant avait disparu.
+C'était la première fois que Wang Lin pénétrait dans la Perle Défiant le Ciel après avoir atteint le stade de la Formation du Noyau. Au moment où il y entra, Shang Guanmo, qui était en train de réprimander sévèrement les Anciens de la Formation du Noyau, trembla soudain: il sentit nettement que ce démon terrifiant avait disparu.
 
 Pour être plus précis, son sang d'essence d'âme avait disparu sans laisser de trace. Choqué et terrifié, il s'élança dans les airs. Après un moment, il se retourna, le regard empreint d'incrédulité.
 
 Li Muwan, qui venait de descendre de la tête du dragon, fut surprise en levant les yeux avant de laisser échapper un soupir.
 
-Quelque part dans l'espace onirique de la perle défiant le ciel, l'immense Âme Naissante de Situ Nan flottait dans les airs, en tailleur, les yeux clos, tandis que l'énergie spirituelle circulait dans son corps presque transparent. Deux faibles sphères de lumière d'un blanc laiteux flottaient paisiblement de part et d'autre.
+Quelque part dans l'espace onirique de la Perle Défiant le Ciel, l'immense Âme Naissante de Situ Nan flottait dans les airs, en tailleur, les yeux clos, tandis que l'énergie spirituelle circulait dans son corps presque transparent. Deux faibles sphères de lumière d'un blanc laiteux flottaient paisiblement de part et d'autre.
 
 Wang Lin se tenait sous l'Âme Naissante et observait, hébété, les deux sphères de lumière. Sans force, il s'agenouilla et se prosterna plusieurs fois, front contre terre, en murmurant: « Papa, Maman, soyez tranquilles, Tie Zhu vous ramènera certainement une bonne épouse, mais ce n'est pas encore le moment... »
 

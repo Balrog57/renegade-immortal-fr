@@ -24,7 +24,7 @@ En tant qu'individu dépourvu de lignée céleste, ma culture pourrait être tot
 
 C'est là l'avantage qu'il croit détenir! De plus, pensant que je n'ai pas de lignée céleste, il estime que le monde ne subira pas de charge supplémentaire en devant supprimer une autre personne dotée d'une telle lignée.
 
-Peut-être pense-t-il que je possède un héritage du Dao Antique et le corps d'un Dieu Antique, mais il ignore que j'ai obtenu la lignée du Dao Antique. Bien que ma lignée soit supprimée, grâce à ma culture, non seulement je ne serai pas plus faible que le Général Tigre Blanc, mais je serai encore plus fort! » Wang Lin fit un pas décisif en avant.
+Peut-être pense-t-il que je possède un héritage du Dao Gu et le corps d'un Dieu Antique, mais il ignore que j'ai obtenu la lignée du Dao Gu. Bien que ma lignée soit supprimée, grâce à ma culture, non seulement je ne serai pas plus faible que le Général Tigre Blanc, mais je serai encore plus fort! » Wang Lin fit un pas décisif en avant.
 
 D'un seul pas, il pénétra dans le domaine, et un grondement tonnerre résonna à travers le monde dévasté. Simultanément, une force puissante s'engouffra, comme pour déchirer le monde et affaiblir la loi établie par le Général Tigre Blanc!
 

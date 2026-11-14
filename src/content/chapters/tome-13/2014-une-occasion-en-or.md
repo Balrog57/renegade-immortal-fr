@@ -74,7 +74,7 @@ Dans ce moment de crise, toute l'aura solaire du Grand Empyréen qu'il avait abs
 
 La culture de Wang Lin entra en cycle, et alors que ses essences s'activaient, quatre-vingt-dix-neuf images rémanentes apparurent autour de lui. Il leva sa main droite et frappa le doigt!
 
-Avec ce coup de poing, les ombres du Dao Ancien apparurent derrière lui. L'Ancien Dieu, l'Ancien Démon et l'Ancien Diable lancèrent tous un coup! Au-dessus des ombres du Dao Ancien, se trouvait une ombre dorée. Cette silhouette était floue mais dégageait une énergie céleste d'une pureté extrême qui s'enroulait autour de la puissance du clan ancien, et elle porta également un coup de poing.
+Avec ce coup de poing, les ombres du Dao Gu apparurent derrière lui. L'Ancien Dieu, l'Ancien Démon et l'Ancien Diable lancèrent tous un coup! Au-dessus des ombres du Dao Gu, se trouvait une ombre dorée. Cette silhouette était floue mais dégageait une énergie céleste d'une pureté extrême qui s'enroulait autour de la puissance du clan ancien, et elle porta également un coup de poing.
 
 À cet instant, une masse de gaz noir s'échappa du corps de Wang Lin. Ce gaz était imprégné de massacre et de folie. Il fusionna avec le tonnerre pour former un tonnerre de carnage, créant ainsi un autre coup de poing!
 
@@ -82,7 +82,7 @@ Des grondements tonitruants résonnèrent à travers le Mont Gu Dao et se propag
 
 Le doigt de l'homme en robe grise s'effondra et son corps trembla, mais il resta debout. Il regarda Wang Lin d'un air profond, puis se détourna vers le sommet de la montagne. Il disparut de la vue de Wang Lin et, lorsqu'il réapparut, il était de nouveau assis sur le pilier nord, les yeux clos.
 
-Wang Lin cracha du sang et l'ombre du Dao Ancien derrière lui se dissipa. Même l'ombre dorée à l'énergie céleste pure s'évanouit. Sa respiration était rauque, mais il tenait fermement sur la 200e marche!
+Wang Lin cracha du sang et l'ombre du Dao Gu derrière lui se dissipa. Même l'ombre dorée à l'énergie céleste pure s'évanouit. Sa respiration était rauque, mais il tenait fermement sur la 200e marche!
 
 Une fois immobile, il sentit clairement que les pouvoirs anciens et célestes de son corps fusionnaient d'une manière inimaginable. Cette fusion était forcée par la pression du Mont Gu Dao.
 
@@ -90,15 +90,15 @@ Une fois immobile, il sentit clairement que les pouvoirs anciens et célestes de
 
 « Grand Empyréen Gu Dao, il est mon disciple! » Le rugissement de Xuan Luo retentit depuis le sommet de la montagne. Un rayon de lumière jaillit de la tour du sommet et se posa aux côtés de Wang Lin: c'était Xuan Luo.
 
-« C'est moi qui l'ai amené ici et c'est moi qui l'emmène! Grand Empyréen Gu Dao, moi, Xuan Luo, j'ai vécu ma vie pour le Dao Ancien, sans jamais me soucier de mes intérêts personnels. Depuis des temps immémoriaux, je ne me suis jamais plaint et j'ai toujours servi le clan ancien avec dévouement!
+« C'est moi qui l'ai amené ici et c'est moi qui l'emmène! Grand Empyréen Gu Dao, moi, Xuan Luo, j'ai vécu ma vie pour le Dao Gu, sans jamais me soucier de mes intérêts personnels. Depuis des temps immémoriaux, je ne me suis jamais plaint et j'ai toujours servi le clan ancien avec dévouement!
 
 « Mais aujourd'hui, j'implore le Grand Empyréen Gu Dao de me laisser emmener mon disciple! » Xuan Luo leva les yeux vers le sommet de la montagne, la voix empreinte de détermination.
 
 Après un long moment, la voix froide sembla s'adoucir.
 
-« Xuan Luo, quand tu es devenu un Grand Empyréen, je t'ai demandé de devenir mon disciple et de rester ici avec moi… Tu voulais protéger le Dao Ancien et ne voulais pas rester enchaîné ici, alors tu as refusé...
+« Xuan Luo, quand tu es devenu un Grand Empyréen, je t'ai demandé de devenir mon disciple et de rester ici avec moi… Tu voulais protéger le Dao Gu et ne voulais pas rester enchaîné ici, alors tu as refusé...
 
-« Tu as protégé le Dao Ancien durant toutes ces années… C'est ta première requête, alors j'accepte, mais ce sera la dernière… »
+« Tu as protégé le Dao Gu durant toutes ces années… C'est ta première requête, alors j'accepte, mais ce sera la dernière… »
 
 Xuan Luo afficha une expression complexe et s'inclina devant la tour. Il s'apprêtait à emporter le faible Wang Lin.
 

@@ -18,7 +18,7 @@ Wang Lin ne se souciait en rien des affaires du camp militaire. Il passait tout 
 
 Ce jour-là, alors que Wang Lin cultivait, il ouvrit soudainement les yeux et son expression fluctua légèrement.
 
-« Camarade cultivateur Wang, ce soir à minuit, retrouvez-moi sur le Mont Gu situé à 500 kilomètres du camp militaire. Yao Xixue! »
+« Daoïste Wang, ce soir à minuit, retrouvez-moi sur le Mont Gu situé à 500 kilomètres du camp militaire. Yao Xixue! »
 
 La voix de Yao Xixue résonna dans l'âme originelle de Wang Lin comme un nuage de fumée brumeuse.
 
@@ -54,9 +54,9 @@ Au moment où elle pénétra dans l'édifice, une douce brise souffla. Lorsque c
 
 Le corps de Treize fut également touché par la brise; il trembla immédiatement et retrouva la capacité de bouger. Après avoir entendu les paroles de Wang Lin, il ne regarda même pas Yao Xixue avant de se rasseoir silencieusement.
 
-« Le camarade cultivateur Yao a vraiment un mauvais caractère », la voix de Wang Lin s'éleva lentement de la pagode. Il n'y avait aucune trace de joie ou de colère dans ses paroles.
+« Le Daoïste Yao a vraiment un mauvais caractère », la voix de Wang Lin s'éleva lentement de la pagode. Il n'y avait aucune trace de joie ou de colère dans ses paroles.
 
-La froideur sur le visage de Yao Xixue resta intacte alors qu'elle renâclait: « Ma colère ne peut égaler l'arrogance du camarade cultivateur Wang! » Sur ce, elle fit trois pas en avant, ouvrit la porte et entra.
+La froideur sur le visage de Yao Xixue resta intacte alors qu'elle renâclait: « Ma colère ne peut égaler l'arrogance du Daoïste Wang! » Sur ce, elle fit trois pas en avant, ouvrit la porte et entra.
 
 Les fenêtres de la pagode étaient complètement scellées, aucune lumière ne pouvait y pénétrer. Dès que la porte s'ouvrit, un vif rayon de soleil pénétra dans la pièce et forma une ombre sur le sol.
 
@@ -72,7 +72,7 @@ Yao Xixue dit froidement: « Pourquoi n'êtes-vous pas venu lorsque je vous ai d
 
 Yao Xixue fut surprise. Elle avait été emportée par la colère plus tôt et s'était précipitée ici. Face à la réplique de Wang Lin, elle ne sut que répondre.
 
-Après une courte réflexion, Yao Xixue s'inclina et dit: « J'ai manqué de retenue, et j'espère que le camarade cultivateur Wang ne m'en tiendra pas rigueur. Je suis venue car j'ai besoin de votre aide pour une affaire. »
+Après une courte réflexion, Yao Xixue s'inclina et dit: « J'ai manqué de retenue, et j'espère que le Daoïste Wang ne m'en tiendra pas rigueur. Je suis venue car j'ai besoin de votre aide pour une affaire. »
 
 « De quoi s'agit-il? » Les mots de Wang Lin furent brefs. Il ne voulait pas perdre trop de temps avec elle, car il était en pleine phase cruciale d'affinement de l'énergie spirituelle démoniaque.
 

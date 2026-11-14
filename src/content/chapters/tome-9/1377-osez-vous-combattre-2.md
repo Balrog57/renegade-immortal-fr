@@ -120,13 +120,13 @@ Devant lui, les 100 pilules d'âme brûlaient et fondaient progressivement. Mêm
 
 Le vieil homme du Clan Huo Que leva brusquement la tête vers les cieux.
 
-Simultanément, dans la terre sainte du Clan Long Jia, le Patriarche et Maître Simo étaient assis dans un pavillon. Un homme se tenait devant eux: le jeune maître du Clan Long Jia!
+Simultanément, dans la terre sainte du Clan Long Jia, le Patriarche et Maître Si Mo étaient assis dans un pavillon. Un homme se tenait devant eux: le jeune maître du Clan Long Jia!
 
 « Père, j'ai déjà remis les 10 000 Pilules d'Effondrement du Dragon, comme vous l'aviez ordonné. »
 
-L'expression du Patriarche était sombre alors qu'il regardait Maître Simo et déclarait: « Cet individu a volé 10 000 de nos pilules. Je demande à Maître Simo de m'aider à le capturer et à l'abattre. Je récompenserai grandement le Senior une fois l'individu appréhendé! »
+L'expression du Patriarche était sombre alors qu'il regardait Maître Si Mo et déclarait: « Cet individu a volé 10 000 de nos pilules. Je demande à Maître Si Mo de m'aider à le capturer et à l'abattre. Je récompenserai grandement le Senior une fois l'individu appréhendé! »
 
-Maître Simo esquissa un sourire. Mais juste au moment où il s'apprêtait à parler, un cri déchira le ciel!
+Maître Si Mo esquissa un sourire. Mais juste au moment où il s'apprêtait à parler, un cri déchira le ciel!
 
 Ce cri était un défi. Il était froid et chargé d'une intention meurtrière sans fin!
 

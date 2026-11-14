@@ -66,7 +66,7 @@ Ces édifices formaient un agencement irrégulier. À l'extrémité de sa vue, i
 
 En pleine réflexion, les yeux de Wang Lin s'illuminèrent et il frappa son sac de rangement. Un jade apparut dans sa main; c'était un jade céleste qui diffusait une douce lueur.
 
-Wang Lin l'avait obtenu dans la Terre Yao Ling. Il contenait le sortilège d'arrêt ainsi que la méthode pour raffiner les gardiens célestes. Wang Lin se souvenait qu'en l'examinant, il y avait également une carte à l'intérieur.
+Wang Lin l'avait obtenu dans la Terre Yao Ling. Il contenait le sortilège d'arrêt ainsi que la méthode pour raffiner les gardes célestes. Wang Lin se souvenait qu'en l'examinant, il y avait également une carte à l'intérieur.
 
 Cependant, comme cette carte lui avait semblé peu familière à l'époque, il n'y avait pas prêté attention. Mais en regardant la grotte maintenant, il éprouvait un vague sentiment de familiarité.
 

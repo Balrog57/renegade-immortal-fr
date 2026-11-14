@@ -78,7 +78,7 @@ Wang Lin eut un ricanement méprisant. Il rangea le Fouet Kunji dans son sac et 
 
 Dans la bataille d'aujourd'hui, Wang Lin avait été lourdement blessé. Outre ses multiples blessures physiques, son âme originelle était endommagée. Ce fut un combat particulièrement éprouvant.
 
-Le regard de Wang Lin devint glacial et il pensa: « Quatre esprits... Ma perle défiant le ciel utilisera ces essences pour atteindre la complétion aujourd'hui! »
+Le regard de Wang Lin devint glacial et il pensa: « Quatre esprits... Ma Perle Défiant le Ciel utilisera ces essences pour atteindre la complétion aujourd'hui! »
 
 Alors que Hongdie fixait Wang Lin, ses mains formèrent un sceau et elle déclara: « Quatre esprits, formation de destruction! » Sur ce, elle se détourna pour partir. Elle n'avait plus l'âme de combattre et souhaitait quitter les lieux.
 

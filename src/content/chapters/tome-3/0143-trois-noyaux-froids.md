@@ -36,9 +36,9 @@ Il descendit au fond de la cavité. Il atteignit un niveau de Terre Yin commune 
 
 Wang Lin ayant déjà pratiqué la Méthode d'Ascension des Enfers, il put rapidement reprendre sa progression.
 
-Le temps s'écoula lentement et, trois jours plus tard, Wang Lin ouvrit les yeux. Son regard était empreint de contemplation avant qu'il ne sorte la perle défiant le ciel pour en collecter le liquide spirituel.
+Le temps s'écoula lentement et, trois jours plus tard, Wang Lin ouvrit les yeux. Son regard était empreint de contemplation avant qu'il ne sorte la Perle Défiant le Ciel pour en collecter le liquide spirituel.
 
-Les jours passèrent. Hormis sa culture, Wang Lin se contentait chaque jour de recueillir le liquide spirituel de la perle défiant le ciel. Une fois la rosée accumulée, il passait la moitié de la journée à cultiver à l'intérieur de la perle grâce à ce liquide.
+Les jours passèrent. Hormis sa culture, Wang Lin se contentait chaque jour de recueillir le liquide spirituel de la Perle Défiant le Ciel. Une fois la rosée accumulée, il passait la moitié de la journée à cultiver à l'intérieur de la perle grâce à ce liquide.
 
 En conséquence, ses progrès furent fulgurants. Il ne lui fallut qu'un mois pour former deux noyaux froids. Il n'avait plus qu'à former le dernier pour tenter d'atteindre le stade de la Formation du Noyau.
 

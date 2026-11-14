@@ -94,11 +94,11 @@ Li Yuan sourit faiblement et secoua la tête. « Nul besoin d'en être ainsi, Fr
 
 Wang Lin réfléchit. Il y a plusieurs jours, en arrivant sur la planète Pomie et en rencontrant Li Yuan, il avait appris beaucoup de choses, dont son titre de Maître Démon.
 
-En pensant aux paroles de Li Yuan — selon lesquelles la bataille des 108 Célestes du Temple Céleste du Tonnerre utiliserait les quatre domaines comme arène — le cœur de Wang Lin fut rempli de détermination.
+En pensant aux paroles de Li Yuan — selon lesquelles la bataille des 108 Célestes du Temple Lei Xian utiliserait les quatre domaines comme arène — le cœur de Wang Lin fut rempli de détermination.
 
 Non seulement pour les deux grands sorts célestes mentionnés par Qing Shui, mais aussi pour la promesse faite par la famille Xiang de la planète Dong Lin!
 
-Les 36 Célestes du Ciel recevraient une promesse du Temple Céleste du Tonnerre et des deux grandes familles de culture possédant des héritages antiques!
+Les 36 Célestes du Ciel recevraient une promesse du Temple Lei Xian et des deux grandes familles de culture possédant des héritages antiques!
 
 Les yeux de Wang Lin s'illuminèrent et il demanda: « Frère Li, seriez-vous intéressé par la conquête de l'un des 108 titres célestes? »
 
@@ -110,6 +110,6 @@ Wang Lin hocha la tête et dit calmement: « Avec votre talent, Frère Li, une p
 
 Li Yuan prit le jade. Après l'avoir examiné de près, il fut frappé de stupeur. Bien que sa famille Li possédât des héritages antiques, beaucoup avaient été perdus. La seule chose qui leur restait était la Restriction d'Annihilation. En réalité, ils étaient désormais inférieurs à une simple famille de culture.
 
-Bien que le sort de l'Origine du Tonnerre du Temple Céleste du Tonnerre ne fût pas un trésor inestimable, il n'en demeurait pas moins rare. Il hocha la tête et dit: « Frère Xu, entre vous et moi, je ne prononcerai pas le mot merci. Si un jour je réalise ma percée, je viendrai vous trouver. Nous pourrons alors parcourir librement les étoiles comme dans le Royaume Céleste du Tonnerre. Ce sera une occasion joyeuse! »
+Bien que le sort de l'Origine du Tonnerre du Temple Lei Xian ne fût pas un trésor inestimable, il n'en demeurait pas moins rare. Il hocha la tête et dit: « Frère Xu, entre vous et moi, je ne prononcerai pas le mot merci. Si un jour je réalise ma percée, je viendrai vous trouver. Nous pourrons alors parcourir librement les étoiles comme dans le Royaume Céleste du Tonnerre. Ce sera une occasion joyeuse! »
 
 Wang Lin sourit et dit: « Frère Li, adieu! » Sur ce, il fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut.

@@ -28,7 +28,7 @@ Au même moment, dans un éclat de lumière, Zhao Xingsha apparut avec un sourir
 
 À sa droite, accompagné d'une lueur violette, le Deuxième Frère s'avança, l'air sombre.
 
-L'expression de Wang Lin resta imperturbable. Il regarda calmement les trois individus et dit: « Camarade cultivateur qui se cache, pourquoi jouer à ce jeu? Montrez-vous! » Il ne détectait personne d'autre, mais voyant le calme des trois autres, il savait qu'ils devaient disposer de renforts.
+L'expression de Wang Lin resta imperturbable. Il regarda calmement les trois individus et dit: « Daoïste qui se cache, pourquoi jouer à ce jeu? Montrez-vous! » Il ne détectait personne d'autre, mais voyant le calme des trois autres, il savait qu'ils devaient disposer de renforts.
 
 À peine Wang Lin eut-il parlé qu'un rire résonna dans le vide et qu'une silhouette bleue apparut soudainement dans le ciel. C'était un jeune homme d'environ trente ans, mais pour des cultivateurs, juger l'âge sur l'apparence était vain.
 

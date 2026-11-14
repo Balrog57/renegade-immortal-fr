@@ -8,7 +8,7 @@ slug: le-drapeau-des-un-milliard-dames
 ---
 Alors que la nouvelle de l'affrontement entre Zeng Niu et Xue Yu se répandait sur la planète, Zeng Niu disparut une fois de plus.
 
-Après avoir quitté Xue Yu, Wang Lin trouva immédiatement un lieu isolé avant de placer les deux membres dans la perle défiant le ciel.
+Après avoir quitté Xue Yu, Wang Lin trouva immédiatement un lieu isolé avant de placer les deux membres dans la Perle Défiant le Ciel.
 
 Il se tint devant l'âme gigantesque de Situ Nan. Dès son arrivée, il leva le sceau qui retenait les deux bras.
 
@@ -28,7 +28,7 @@ Peu après, la lumière émanant de l'âme s'estompa. À cet instant, l'âme de 
 
 Il les fixa longuement avant de lâcher d'une voix amère: « Maman, papa, votre fils est censé vous renvoyer tous deux dans le cycle de la réincarnation, mais je n'arrive pas à m'y résoudre... »
 
-Après un long silence, Wang Lin poussa un soupir et quitta la perle défiant le ciel.
+Après un long silence, Wang Lin poussa un soupir et quitta la Perle Défiant le Ciel.
 
 « Ces membres sectionnés étaient bel et bien des parties du corps de Situ Nan. Je me demande s'il reste d'autres fragments de son être », pensa Wang Lin en marchant hors de la perle, le regard perdu au loin. C'était là que résidait le Clan Ju Mo.
 
@@ -50,7 +50,7 @@ Wang Lin fronça légèrement les sourcils et s'arrêta avant d'entrer dans le r
 
 « Si je lutte, l'issue est incertaine! »
 
-« Ne pas combattre reviendrait à manquer la meilleure occasion de l'éliminer. Si j'attends qu'il achève sa possession, je ne sais pas combien de temps il me faudra pour pouvoir le tuer. S'il veut ma mort, c'est sans doute à cause du membre du Clan Ju Mo qui a aperçu la perle défiant le ciel il y a toutes ces années. »
+« Ne pas combattre reviendrait à manquer la meilleure occasion de l'éliminer. Si j'attends qu'il achève sa possession, je ne sais pas combien de temps il me faudra pour pouvoir le tuer. S'il veut ma mort, c'est sans doute à cause du membre du Clan Ju Mo qui a aperçu la Perle Défiant le Ciel il y a toutes ces années. »
 
 Wang Lin avait vécu 500 ans; même l'être le plus stupide finirait par devenir aussi rusé qu'un renard, et lui ne l'était pas. Ces cinq siècles lui avaient offert l'expérience nécessaire pour percer bien des mystères. En combinant divers indices, il avait déjà tout compris lorsqu'il s'était réveillé deux ans auparavant.
 

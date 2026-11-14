@@ -58,7 +58,7 @@ La terreur de ce dernier grandit considérablement. Tout en reculant rapidement,
 
 Mais avant même que ces jades ne puissent être activés, ils explosèrent sous l'impact des symboles dorés, incapables de stopper la progression de ces derniers.
 
-L'homme d'âge moyen afficha un visage de désespoir et hurla: « Camarade cultivateur, je suis le disciple du vieux Jimo...! »
+L'homme d'âge moyen afficha un visage de désespoir et hurla: « Daoïste, je suis le disciple du vieux Jimo...! »
 
 Avant qu'il ne puisse achever sa phrase, les symboles dorés l'atteignirent. Le premier s'écrasa contre sa poitrine, provoquant un enfoncement immédiat et le forçant à cracher une bouffée de sang.
 

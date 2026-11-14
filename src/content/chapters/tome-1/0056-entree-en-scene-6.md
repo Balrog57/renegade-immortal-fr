@@ -44,7 +44,7 @@ Il avait affirmé que dans son propre pays, un cultivateur au stade de la Format
 
 Seulement, avec le temps, les cultivateurs finissaient par prendre ces choses très à la légère; après tout, leur longévité surpassait de loin celle d'un homme ordinaire, si bien que, vu de l'extérieur, ils semblaient ne plus se soucier des affaires triviales du monde mortel.
 
-Situ Nan en avait finalement conclu que cela était lié à la perle défiant le ciel. Comme Wang Lin s'était tant entraîné dans l'espace de la perle, une désynchronisation s'était produite entre l'espace du rêve et le monde réel. Ainsi, bien que la force véritable de Wang Lin fût au 14e niveau, son corps ne manifestait que le 3e niveau.
+Situ Nan en avait finalement conclu que cela était lié à la Perle Défiant le Ciel. Comme Wang Lin s'était tant entraîné dans l'espace de la perle, une désynchronisation s'était produite entre l'espace du rêve et le monde réel. Ainsi, bien que la force véritable de Wang Lin fût au 14e niveau, son corps ne manifestait que le 3e niveau.
 
 Avec le temps, cette désynchronisation disparaîtrait; ce n'était donc pas un problème majeur.
 

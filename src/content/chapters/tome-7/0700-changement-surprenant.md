@@ -62,7 +62,7 @@ Les familles Ran et Zhao sortirent également, bien qu'elles ne fussent pas auss
 
 Il ne jeta qu'un bref coup d'œil avant de baisser la tête pour boire une gorgée de vin.
 
-Une bête gigantesque couverte d'éclairs fendait le ciel. Deux dragons d'éclairs serpentaient devant ses narines, lui conférant un aspect extrêmement féroce, et un homme d'âge moyen siégeait sur son dos. C'était le Lei Daozi du Temple Céleste du Tonnerre!
+Une bête gigantesque couverte d'éclairs fendait le ciel. Deux dragons d'éclairs serpentaient devant ses narines, lui conférant un aspect extrêmement féroce, et un homme d'âge moyen siégeait sur son dos. C'était le Lei Daozi du Temple Lei Xian!
 
 Ses yeux, semblables à des éclairs, fixaient froidement la terre. Son Sens Divin balaya instantanément la planète sans aucune retenue, incluant la Ville Qi Shui.
 

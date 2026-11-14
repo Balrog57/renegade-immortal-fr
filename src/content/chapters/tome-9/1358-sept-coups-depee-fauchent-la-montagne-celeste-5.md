@@ -1,6 +1,6 @@
 ---
 n: 1358
-title: "Sept coups d'épée fauchent la Montagne Céleste (5)"
+title: "Sept coups d'épée fauchent la Montagne Tian (5)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1358 - Seven Sword Chops the Heavenly Mountain (5)

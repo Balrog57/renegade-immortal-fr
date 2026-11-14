@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1397 - Thump
 slug: thump
 ---
-La veille de la Sélection des Anciens Délaissés, Wang Lin arriva aux abords de la Planète du Grand Empereur avec le Clan An Xie et le Clan Yun Dun. En découvrant cette étrange planète, les yeux de Wang Lin se rétrécirent.
+La veille de la Sélection des Anciens Déchus, Wang Lin arriva aux abords de la Planète du Grand Empereur avec le Clan An Xie et le Clan Yun Dun. En découvrant cette étrange planète, les yeux de Wang Lin se rétrécirent.
 
 La Planète du Grand Empereur était enveloppée d'une couche d'illusion, comme si elle était dissimulée par un voile de brume. Pourtant, de vastes déchirures apparaissaient par moments dans la brume illusoire, semblables à des gueules acérées dévorant tout ce qui s'y trouvait.
 
@@ -26,7 +26,7 @@ Quant à Wang Lin, grâce à son niveau de culture, très peu de personnes parve
 
 L'expression de Wang Lin resta impassible tandis qu'il fixait froidement l'horizon.
 
-« Chaque Sélection des Anciens Délaissés se déroule sur la Planète du Grand Empereur, mais elle est normalement inaccessible. Une fois que tout le monde est rassemblé, un tunnel s'ouvre de l'intérieur pour permettre l'entrée, » murmura le Patriarche du Clan An Xie à Wang Lin.
+« Chaque Sélection des Anciens Déchus se déroule sur la Planète du Grand Empereur, mais elle est normalement inaccessible. Une fois que tout le monde est rassemblé, un tunnel s'ouvre de l'intérieur pour permettre l'entrée, » murmura le Patriarche du Clan An Xie à Wang Lin.
 
 « Nous ne sommes pas arrivés trop tard, le tunnel devrait donc s'ouvrir bientôt. »
 

@@ -16,33 +16,33 @@ L'arrivée massive de nouveaux arrivants finit par obstruer totalement sa vue. A
 
 Dès que cette noirceur apparut, l'empreinte du Grand Soleil Empyréen de Wang Lin se manifesta derrière lui, faisant surgir un autre soleil dans le ciel!
 
-À la vue de cet astre, l'expression de l'Empereur de l'Ancien Dao changea radicalement, son visage empreint d'une incrédulité totale. Perdu, il s'exclama:
+À la vue de cet astre, l'expression de l'Empereur du Dao Gu changea radicalement, son visage empreint d'une incrédulité totale. Perdu, il s'exclama:
 
 « Grand Empyréen! »
 
-Il n'était pas le seul; des dizaines de milliers de membres de l'Ancien Dao entouraient Wang Lin, et lorsqu'ils virent ce soleil étrange, noir et blanc, leurs esprits furent secoués.
+Il n'était pas le seul; des dizaines de milliers de membres du Dao Gu entouraient Wang Lin, et lorsqu'ils virent ce soleil étrange, noir et blanc, leurs esprits furent secoués.
 
 « Grand Empyréen!! »
 
 « Il... Il est en réalité un Grand Empyréen!! »
 
-Au loin, le Prince Ji Du s'enthousiasma en voyant cela. Il avait attendu ce jour; il recula alors tout en ricanant face à l'Empereur de l'Ancien Dao.
+Au loin, le Prince Ji Du s'enthousiasma en voyant cela. Il avait attendu ce jour; il recula alors tout en ricanant face à l'Empereur du Dao Gu.
 
-« L'Ancien Dao... a attiré une immense calamité, tout cela par la faute de cet empereur stupide! »
+« Le Dao Gu... a attiré une immense calamité, tout cela par la faute de cet empereur stupide! »
 
-Le Prince Ji Du était transporté d'excitation tandis que le Grand Soleil Empyréen noir et blanc s'étendait, libérant une lumière infinie. Au même instant, Wang Lin poussa un rugissement et leva les deux mains comme s'il brandissait son propre Grand Soleil Empyréen. D'un geste, il balaya les dizaines de milliers de membres de l'Ancien Dao qui lui barraient la route.
+Le Prince Ji Du était transporté d'excitation tandis que le Grand Soleil Empyréen noir et blanc s'étendait, libérant une lumière infinie. Au même instant, Wang Lin poussa un rugissement et leva les deux mains comme s'il brandissait son propre Grand Soleil Empyréen. D'un geste, il balaya les dizaines de milliers de membres du Dao Gu qui lui barraient la route.
 
 Sous ce mouvement, le Grand Soleil Empyréen fondit sur la terre tel un météore. Le hurlement de l'astre couvrit même le grondement des tambours!
 
 Des fracas tonitruants résonnèrent alors qu'une puissante onde de choc se propageait. Quiconque fut touché par cette onde mourut instantanément, son corps réduit en cendres. Cette puissance explosa sur la place devant le palais.
 
-La terre s'effondra et le monde trembla. D'innombrables plateformes flottant dans le ciel se désintégrèrent. La majeure partie des dizaines de milliers de membres du clan de l'Ancien Dao fut balayée, comme emportée par un vent dévastateur.
+La terre s'effondra et le monde trembla. D'innombrables plateformes flottant dans le ciel se désintégrèrent. La majeure partie des dizaines de milliers de membres du clan du Dao Gu fut balayée, comme emportée par un vent dévastateur.
 
 Une fois le chaos passé, le Grand Soleil Empyréen fonça vers le palais. À cet instant, une ombre apparut. C'était un vieil homme vêtu d'une robe royale. Il dégageait une pression écrasante sans pour autant montrer de colère, et leva la paume droite pour faire face au Grand Soleil Empyréen.
 
 Le vieil homme se tenait à 60 000 pieds du palais, et derrière lui se trouvaient près de 1 000 membres puissants de la cour, incluant les 72 Saints, les 36 Fléaux, les 18 Rois et les neuf Généraux Immortels. Ils n'avaient pas participé aux combats précédents car ils étaient chargés de la garde du palais!
 
-Dès l'apparition du vieil homme, ces mille personnes furent prises d'une excitation fébrile. Même l'Empereur de l'Ancien Dao se montra respectueux.
+Dès l'apparition du vieil homme, ces mille personnes furent prises d'une excitation fébrile. Même l'Empereur du Dao Gu se montra respectueux.
 
 Au moment où la paume du vieil homme percuta le Grand Soleil Empyréen, son expression changea brusquement. Des bruits de craquements résonnèrent dans son corps et ses cheveux s'agitèrent sans qu'il y ait de vent. Il cracha une gorgée de sang et, repoussé par l'impact, poussa un rugissement.
 
@@ -56,15 +56,15 @@ La place présentait désormais un aspect étrange. Tout ce qui se trouvait à l
 
 Cependant, comment le Grand Soleil Empyréen pouvait-il être ainsi contenu? Le rideau luminescent vacilla à plusieurs reprises après avoir bloqué l'astre de Wang Lin, puis vola en éclats.
 
-Quant au vieil homme, son visage était livide et son bras droit s'était changé en cendres. Il cracha de nouveau du sang, paraissant soudainement flétri. Frappé par une force colossale, il fut projeté aux côtés de l'Empereur de l'Ancien Dao.
+Quant au vieil homme, son visage était livide et son bras droit s'était changé en cendres. Il cracha de nouveau du sang, paraissant soudainement flétri. Frappé par une force colossale, il fut projeté aux côtés de l'Empereur du Dao Gu.
 
-« Père! » cria immédiatement l'Empereur de l'Ancien Dao en aidant le vieil homme à se relever. Mais ce dernier serra les dents, ignorant la perte de son bras droit. Au lieu de cela, il leva sa main gauche et gifla l'Empereur de l'Ancien Dao.
+« Père! » cria immédiatement l'Empereur du Dao Gu en aidant le vieil homme à se relever. Mais ce dernier serra les dents, ignorant la perte de son bras droit. Au lieu de cela, il leva sa main gauche et gifla l'Empereur du Dao Gu.
 
 Dans un fracas sourd, une marque de cinq doigts apparut sur le côté droit du visage de l'Empereur.
 
-« Dégage! Tu as provoqué un ennemi aussi puissant pour notre Ancien Dao pour une simple femme! Pourquoi ne vas-tu pas mourir! Je me rendrai sans faute au Mont Gu Dao pour voir le Grand Empyréen Gu Dao et instaurer un nouvel empereur! » Le vieil homme était manifestement furieux, sa voix résonnant comme le tonnerre.
+« Dégage! Tu as provoqué un ennemi aussi puissant pour notre Dao Gu pour une simple femme! Pourquoi ne vas-tu pas mourir! Je me rendrai sans faute au Mont Gu Dao pour voir le Grand Empyréen Gu Dao et instaurer un nouvel empereur! » Le vieil homme était manifestement furieux, sa voix résonnant comme le tonnerre.
 
-Une lueur de froideur passa dans les yeux de l'Empereur de l'Ancien Dao alors qu'il touchait son visage. Il cracha un jet de sang et fixa le vieil homme d'un regard sombre.
+Une lueur de froideur passa dans les yeux de l'Empereur du Dao Gu alors qu'il touchait son visage. Il cracha un jet de sang et fixa le vieil homme d'un regard sombre.
 
 « Père, occupez-vous d'abord de la menace qui nous fait face. Pour le reste, ne vous en souciez pas. Grâce au Grand Empyréen Gu Dao, je ne peux pas mourir. » Les paroles de l'Empereur étaient glaciales.
 
@@ -74,25 +74,25 @@ Hormis les quelque 1 000 personnes devant le grand hall et les membres des deux 
 
 Wang Lin marchait sur le sol, foulant le sang. Il n'y avait que mille personnes entre lui et le palais, mais beaucoup d'entre elles étaient des êtres puissants.
 
-Le regard de Wang Lin dépassa ces 1 000 personnes, le vieil homme, l'Empereur de l'Ancien Dao, et s'arrêta sur Song Zhi qui le contemplait.
+Le regard de Wang Lin dépassa ces 1 000 personnes, le vieil homme, l'Empereur du Dao Gu, et s'arrêta sur Song Zhi qui le contemplait.
 
 Les yeux de Song Zhi étaient chargés de confusion et d'une pointe de lutte intérieure.
 
-Au loin, des rayons de lumière jaillissaient du palais et convergeaient de toutes les directions. Il n'y avait pas moins de dizaines de milliers de personnes, et à mesure que les formations de transfert s'activaient, encore plus de membres de l'Ancien Dao arrivaient.
+Au loin, des rayons de lumière jaillissaient du palais et convergeaient de toutes les directions. Il n'y avait pas moins de dizaines de milliers de personnes, et à mesure que les formations de transfert s'activaient, encore plus de membres du Dao Gu arrivaient.
 
-C'était la capitale impériale de l'Ancien Dao. La foule y était normalement innombrable, mais pour le mariage de l'Empereur, elle était devenue titanesque.
+C'était la capitale impériale du Dao Gu. La foule y était normalement innombrable, mais pour le mariage de l'Empereur, elle était devenue titanesque.
 
 Peu importe la puissance de Wang Lin, même s'il était comparable à un Grand Empyréen, il finirait par s'épuiser s'il restait encerclé...
 
 De plus, c'était le palais. Le lieu regorgeait de formations et il était probable qu'il abritât des reliques laissées par l'Ancêtre Ancien. C'était comme un mortel pénétrant dans la tanière d'un tigre. Mais Wang Lin n'en avait cure — son unique pensée était de reprendre Wan Er!
 
-Le père de l'Empereur de l'Ancien Dao s'approcha de Song Zhi et rugit vers Wang Lin: « Arrête-toi! Si tu fais un pas de plus, ce vieil homme tue cette femme! »
+Le père de l'Empereur du Dao Gu s'approcha de Song Zhi et rugit vers Wang Lin: « Arrête-toi! Si tu fais un pas de plus, ce vieil homme tue cette femme! »
 
 Le visage de Song Zhi pâlit, mais elle ne manifesta aucune peur. Ses yeux restaient empreints de confusion tandis qu'elle fixait Wang Lin. Ses souvenirs semblaient sur le point de refaire surface, mais un sceau l'en empêchait.
 
 Wang Lin s'immobilisa, son regard ignorant superbement le vieil homme. Il observa la femme d'un air doux, mais ses paroles firent trembler le cœur du vieillard.
 
-« Si elle meurt, je partirai... Mais je passerai le reste de ma vie à faire en sorte que l'Ancien Dao cesse d'exister et que les trois clans Anciens ne deviennent plus que deux! »
+« Si elle meurt, je partirai... Mais je passerai le reste de ma vie à faire en sorte que le Dao Gu cesse d'exister et que les trois clans Anciens ne deviennent plus que deux! »
 
 « J'en suis capable », dit lentement Wang Lin. Comme il l'avait affirmé, sa force lui permettait de tenir cette promesse!
 
@@ -100,7 +100,7 @@ L'intention meurtrière contenue dans ces mots fit frémir le vieil homme. Sa ma
 
 Une fois ses paroles prononcées, Wang Lin resta silencieux et avança vers les mille personnes devant lui, avant que les dizaines de milliers d'autres n'arrivent sur lui!
 
-« Tuez! » Alors que Wang Lin progressait, les 72 Saints de l'Ancien Dao poussèrent un rugissement unanime. Ils menèrent des centaines de membres de clans à l'assaut de Wang Lin.
+« Tuez! » Alors que Wang Lin progressait, les 72 Saints du Dao Gu poussèrent un rugissement unanime. Ils menèrent des centaines de membres de clans à l'assaut de Wang Lin.
 
 En se rapprochant, les 72 Saints levèrent leurs mains droites pour frapper Wang Lin. Derrière eux, 72 ombres gigantesques apparurent et bombardèrent le cultivateur.
 

@@ -24,7 +24,7 @@ Ce fut comme s'il entendait le monde entier s'effondrer autour de lui.
 
 « C'est lui! Si, ces derniers temps, il n'avait pas tourmenté à maintes reprises la Daoïste Xi Zi, son âme originelle ne serait jamais si gravement blessée! » Le vieil homme pointa du doigt l'homme d'âge moyen qui était à genoux.
 
-Poussé par une peur intense, l'homme parvint à trouver le courage de se relever brusquement. Il recula tout en paraissant anxieux et rugit: « Zhou Cong Yun, tu me calomnies! En tant que messager du Temple Céleste du Tonnerre, j'ai le droit d'exiger de chacun d'entre vous qu'il suive mes ordres. Comment oses-tu m'insulter ainsi? Quelles sont tes intentions? »
+Poussé par une peur intense, l'homme parvint à trouver le courage de se relever brusquement. Il recula tout en paraissant anxieux et rugit: « Zhou Cong Yun, tu me calomnies! En tant que messager du Temple Lei Xian, j'ai le droit d'exiger de chacun d'entre vous qu'il suive mes ordres. Comment oses-tu m'insulter ainsi? Quelles sont tes intentions? »
 
 « Senior, n'écoutez pas les calomnies de cet homme! J'ai tout fait pour aider Luotian à se préparer au combat. Je n'ai absolument pas forcé la Daoïste Xi Zi. Je connais même la Daoïste Xi Zi, alors comment pourrais-je... » L'homme d'âge moyen recula rapidement jusqu'à une distance de plus de mille pieds.
 
@@ -36,7 +36,7 @@ Beaucoup de choses peuvent survenir en huit cents ans. Le passé n'était qu'un 
 
 Wang Lin fixa l'homme d'âge moyen qui reculait, terrorisé. Une lueur de froideur traversa ses yeux et il leva la main droite.
 
-« Tu ne peux pas me tuer! Je suis un messager du Temple Céleste du Tonnerre! J'agis sous les ordres du Temple pour préparer le combat! Si tu me tues maintenant, tu deviendras l'ennemi du Temple Céleste du Tonnerre et tu entraveras les préparatifs de guerre de Luotian. Non seulement tu seras l'ennemi de Luotian, mais tu te feras aussi l'ennemi des quatre grands systèmes stellaires! »
+« Tu ne peux pas me tuer! Je suis un messager du Temple Lei Xian! J'agis sous les ordres du Temple pour préparer le combat! Si tu me tues maintenant, tu deviendras l'ennemi du Temple Lei Xian et tu entraveras les préparatifs de guerre de Luotian. Non seulement tu seras l'ennemi de Luotian, mais tu te feras aussi l'ennemi des quatre grands systèmes stellaires! »
 
 « Mon niveau de culture n'est pas élevé, mais je reste une force capable de résister au Royaume Extérieur! Je veux combattre le Royaume Extérieur, je veux consacrer toute ma force à lutter pour le Royaume Intérieur, tu ne peux pas me tuer! Même si tu veux ma mort, donne-moi la chance de combattre le Royaume Extérieur et de mourir sur le champ de bataille! » L'homme d'âge moyen reculait en hurlant toutes les excuses qui lui passaient par la tête.
 
@@ -46,7 +46,7 @@ Dans sa jeunesse, il avait été un homme de mots, vif et éloquent. Face à la 
 
 S'il s'était agi d'un cultivateur ordinaire, ces paroles l'auraient touché et il aurait pu lui laisser la vie sauve. Ce discours était impressionnant, empreint d'une volonté de mourir pour le Royaume Intérieur.
 
-En vérité, cet homme avait toujours utilisé sa langue acérée pour obtenir de grands avantages. Même son titre de messager du Temple Céleste du Tonnerre n'était que le fruit de son éloquence.
+En vérité, cet homme avait toujours utilisé sa langue acérée pour obtenir de grands avantages. Même son titre de messager du Temple Lei Xian n'était que le fruit de son éloquence.
 
 Cependant, il faisait face à Wang Lin. Ayant affronté tant d'individus rusés et sournois, Wang Lin comprit d'un seul regard que chaque mot prononcé était un mensonge!
 

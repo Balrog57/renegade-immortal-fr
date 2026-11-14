@@ -40,7 +40,7 @@ Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans 
 
 Tandis que la région occidentale tombait, l'ombre qui planait sur les puissants cultivateurs de Luotian s'épaississait. Il n'y avait pas un seul pays de culture de rang 7 dans cette région, seulement des planètes de culture de rang 6. Tout cela était fort étrange.
 
-Cependant, rien ne changea pendant très longtemps. Malgré leurs doutes persistants, ils lancèrent une seconde vague d'attaques sur ordre du Temple Céleste du Tonnerre. Leur cible, cette fois, était la région nord.
+Cependant, rien ne changea pendant très longtemps. Malgré leurs doutes persistants, ils lancèrent une seconde vague d'attaques sur ordre du Temple Lei Xian. Leur cible, cette fois, était la région nord.
 
 Des groupes de cultivateurs de Luotian s'élancèrent rapidement vers la région nord, portés par des rayons d'énergie d'épée!
 

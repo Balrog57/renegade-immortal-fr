@@ -128,4 +128,4 @@ Xue Zu serra le poing et déclara: « Grand-père!! Ma fille unique, Yao Xixue, 
 
 La voix rauque se tut. Après un long silence, un soupir antique s'en échappa.
 
-« Yao Xixue... » La voix était devenue très douce. Puis, après un moment, elle reprit lentement: « J'ai calculé qu'elle se trouve dans le Royaume Céleste du Tonnerre. Va la chercher et ramène mon arrière-petite-fille. Le Royaume Céleste du Tonnerre est déjà ouvert. Présente-toi au Temple Céleste du Tonnerre avec mon jeton, ils te laisseront entrer. Si tu es en retard, même eux ne pourront pas te faire pénétrer dans le Royaume Céleste. »
+« Yao Xixue... » La voix était devenue très douce. Puis, après un moment, elle reprit lentement: « J'ai calculé qu'elle se trouve dans le Royaume Céleste du Tonnerre. Va la chercher et ramène mon arrière-petite-fille. Le Royaume Céleste du Tonnerre est déjà ouvert. Présente-toi au Temple Lei Xian avec mon jeton, ils te laisseront entrer. Si tu es en retard, même eux ne pourront pas te faire pénétrer dans le Royaume Céleste. »

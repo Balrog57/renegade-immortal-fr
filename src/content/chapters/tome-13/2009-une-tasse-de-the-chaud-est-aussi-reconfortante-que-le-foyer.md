@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2009 - A Cup of Hot Tea is as Warm as Home
 slug: une-tasse-de-the-chaud-est-aussi-reconfortante-que-le-foyer
 ---
-Dans le palais impérial du Dao Antique, l'homme vêtu de la robe royale serra les poings, le visage sombre.
+Dans le palais impérial du Dao Gu, l'homme vêtu de la robe royale serra les poings, le visage sombre.
 
 Derrière lui, le vieil homme n'osait même pas respirer bruyamment. Il était tout aussi stupéfait, mais sous la pression exercée, il ne montrait rien de son trouble.
 
@@ -14,11 +14,11 @@ Derrière lui, le vieil homme n'osait même pas respirer bruyamment. Il était t
 
 Après un long silence, l'homme en robe royale ordonna: « Vite, fusionnez ces femmes sélectionnées avec l'âme! »
 
-« À vos ordres! » Le vieil homme s'agenouilla immédiatement, le dos trempé de sueur. Face à cet Empereur du Dao Antique au tempérament imprévisible, il avait vu trop de personnes exécutées sans raison.
+« À vos ordres! » Le vieil homme s'agenouilla immédiatement, le dos trempé de sueur. Face à cet Empereur du Dao Gu au tempérament imprévisible, il avait vu trop de personnes exécutées sans raison.
 
 L'homme en robe royale agita sa manche et disparut.
 
-Dans la partie sud de la ville, devant le Temple Dao Gu, Wang Lin était entouré par les citoyens du Dao Antique qui le regardaient avec horreur. Il avança vers le temple mais n'y pénétra pas; il disparut simplement devant l'édifice.
+Dans la partie sud de la ville, devant le Temple Dao Gu, Wang Lin était entouré par les citoyens du Dao Gu qui le regardaient avec horreur. Il avança vers le temple mais n'y pénétra pas; il disparut simplement devant l'édifice.
 
 Lorsqu'il réapparut, il se trouvait dans la montagne arrière, au sein d'un lieu semblable à un paradis. À ses côtés coulait un ruisseau limpide qui serpentait le long d'un sentier rocheux, où des poissons nageaient joyeusement.
 
@@ -48,11 +48,11 @@ Les deux ne s'étaient pas vus depuis des centaines d'années, mais à cet insta
 
 « Maître prépare cette théière depuis ce moment-là! » Le jeune homme en vert n'était autre que Xuan Luo!
 
-« Maître a observé tout ce que tu as accompli dans le clan céleste, mais il ne pouvait pas intervenir. S'il l'avait fait, tous les Grands Empyréens du clan céleste l'auraient remarqué... » dit Xuan Luo en fixant Wang Lin. « Mais j'avais la conviction que le seul disciple que je prendrais serait extraordinaire. Qu'il sortirait du clan céleste pour venir dans mon Dao Antique! »
+« Maître a observé tout ce que tu as accompli dans le clan céleste, mais il ne pouvait pas intervenir. S'il l'avait fait, tous les Grands Empyréens du clan céleste l'auraient remarqué... » dit Xuan Luo en fixant Wang Lin. « Mais j'avais la conviction que le seul disciple que je prendrais serait extraordinaire. Qu'il sortirait du clan céleste pour venir dans mon Dao Gu! »
 
 Wang Lin posa sa tasse et croisa le regard de Xuan Luo.
 
-« Le disciple a promis à Maître de venir ici et de protéger le Dao Antique... »
+« Le disciple a promis à Maître de venir ici et de protéger le Dao Gu... »
 
 « L'Ascendant Empyréen aux cheveux blancs, le premier sous les Grands Empyréens! » rit Xuan Luo en se levant. « Wang Lin, repose-toi quelques jours. Dans trois jours, Maître t'emmènera dans certains lieux qui favoriseront grandement ta culture. Ce sera mon premier cadeau pour m'avoir pris comme maître! »
 
@@ -62,15 +62,15 @@ Xuan Luo regarda Wang Lin avec un sourire, puis disparut.
 
 Wang Lin se leva et s'inclina vers le ciel. Après un long moment, il releva la tête et observa les environs d'un regard complexe, une complexité qui finit par s'estomper.
 
-« Peu importe, restons dans le Dao Antique... » Wang Lin soupira avant de se rasseoir sur la chaise de pierre pour boire son thé en silence.
+« Peu importe, restons dans le Dao Gu... » Wang Lin soupira avant de se rasseoir sur la chaise de pierre pour boire son thé en silence.
 
-Il décida de rester ici longtemps. S'il n'y avait pas d'imprévu... il pourrait protéger le Dao Antique jusqu'à ce qu'il accomplisse sa promesse envers Xuan Luo, même s'il se sentait encore étranger en ces lieux.
+Il décida de rester ici longtemps. S'il n'y avait pas d'imprévu... il pourrait protéger le Dao Gu jusqu'à ce qu'il accomplisse sa promesse envers Xuan Luo, même s'il se sentait encore étranger en ces lieux.
 
 Trois jours passèrent en un éclair. Wang Lin resta dans ce paradis, contemplant le lever et le coucher du soleil tout en respirant l'air pur. Au bout de trois jours, il sentit l'appel de Xuan Luo. Il fit un pas et des ondulations se propagèrent dans l'espace. Il disparut alors de cet éden.
 
 Lorsqu'il réapparut, il se trouvait devant le Temple Dao Gu. C'était le matin du quatrième jour, et la montagne était drapée d'un voile de brume légère. Xuan Luo se tenait devant le temple, et derrière lui se trouvaient neuf personnes.
 
-Parmi ces neuf individus, il y avait sept hommes et deux femmes. Leur culture était extraordinaire; tous les neuf avaient atteint la perfection des vingt-sept étoiles et obtenu le titre de Dao Antique. À l'apparition de Wang Lin, tous leurs regards convergèrent vers lui.
+Parmi ces neuf individus, il y avait sept hommes et deux femmes. Leur culture était extraordinaire; tous les neuf avaient atteint la perfection des vingt-sept étoiles et obtenu le titre de Dao Gu. À l'apparition de Wang Lin, tous leurs regards convergèrent vers lui.
 
 L'expression de Wang Lin restait calme tandis que son regard balayait le groupe. Celui qui possédait le niveau de culture le plus élevé était un vieil homme. Ce dernier dégageait une pression comparable à celle d'un Ascendant Empyréen du clan céleste. Quant aux huit autres, ils étaient comparables à des Exaltés Empyréens.
 
@@ -100,17 +100,17 @@ Le regard de Wang Lin balaya les deux vieillards, ses pupilles brillant d'une lu
 
 « Ye Dao salue le Seigneur Xuan. » L'homme en robe royale sourit, et son aura imposante se mua en une brise printanière. Quiconque le voyait ressentait un sentiment de familiarité.
 
-Wang Lin resta là, fixant l'homme royal. À en juger par les gens agenouillés et leurs paroles, il comprit qu'il s'agissait de l'Empereur du Dao Antique! En observant cet homme, Wang Lin ne put s'empêcher de le comparer à l'Empereur Céleste Lian Daozhen. Que ce soit par sa culture ou son tempérament, il n'égalait pas l'Empereur Céleste. Cependant, il jouissait d'un respect populaire évident, comme en témoignait la réaction des neuf subordonnés de Xuan Luo.
+Wang Lin resta là, fixant l'homme royal. À en juger par les gens agenouillés et leurs paroles, il comprit qu'il s'agissait de l'Empereur du Dao Gu! En observant cet homme, Wang Lin ne put s'empêcher de le comparer à l'Empereur Céleste Lian Daozhen. Que ce soit par sa culture ou son tempérament, il n'égalait pas l'Empereur Céleste. Cependant, il jouissait d'un respect populaire évident, comme en témoignait la réaction des neuf subordonnés de Xuan Luo.
 
-« Son niveau de culture n'est que celui d'un Exalté Empyréen », pensa Wang Lin avec neutralité. Le pouvoir de la famille impériale pouvait influencer tout le Dao Antique, mais il ne pouvait atteindre Wang Lin.
+« Son niveau de culture n'est que celui d'un Exalté Empyréen », pensa Wang Lin avec neutralité. Le pouvoir de la famille impériale pouvait influencer tout le Dao Gu, mais il ne pouvait atteindre Wang Lin.
 
 L'expression de Xuan Luo resta inchangée lorsqu'il demanda lentement: « Pourquoi es-tu venu? »
 
-« Il y a trois jours, Ye Dao a remarqué une fumée dense s'élevant vers le ciel et a deviné qu'une personne puissante était apparue dans mon Dao Antique. Je suis donc venu voir. Est-ce lui? » L'Empereur du Dao Antique hocha la tête en direction de Wang Lin.
+« Il y a trois jours, Ye Dao a remarqué une fumée dense s'élevant vers le ciel et a deviné qu'une personne puissante était apparue dans mon Dao Gu. Je suis donc venu voir. Est-ce lui? » L'Empereur du Dao Gu hocha la tête en direction de Wang Lin.
 
-« C'est mon disciple. Je présume que son nom ne vous est pas inconnu: l'Ascendant Empyréen aux cheveux blancs du clan céleste, Wang Lin! Il me remplacera lors de ma réincarnation pour protéger le Dao Antique », déclara calmement Xuan Luo en lançant un regard profond à l'Empereur.
+« C'est mon disciple. Je présume que son nom ne vous est pas inconnu: l'Ascendant Empyréen aux cheveux blancs du clan céleste, Wang Lin! Il me remplacera lors de ma réincarnation pour protéger le Dao Gu », déclara calmement Xuan Luo en lançant un regard profond à l'Empereur.
 
-« Wang Lin, il est l'empereur de mon Dao Antique! Il est aussi celui que vous devrez protéger à l'avenir. Lorsqu'il prendra sa retraite, vous devrez choisir parmi les nombreux princes pour devenir le nouvel empereur. C'est là le droit d'un Grand Empyréen! »
+« Wang Lin, il est l'empereur de mon Dao Gu! Il est aussi celui que vous devrez protéger à l'avenir. Lorsqu'il prendra sa retraite, vous devrez choisir parmi les nombreux princes pour devenir le nouvel empereur. C'est là le droit d'un Grand Empyréen! »
 
 L'expression de Wang Lin resta impassible, mais son cœur rata un battement. C'était la première fois qu'il apprenait que chaque génération d'empereurs était choisie par le Grand Empyréen!
 
@@ -118,6 +118,6 @@ L'expression de Wang Lin resta impassible, mais son cœur rata un battement. C'�
 
 Alors que Wang Lin méditait, un rugissement s'éleva du vieil homme aux côtés de l'empereur.
 
-« Bien que tu sois le disciple d'un Grand Empyréen, tu restes un membre du Dao Antique. Selon les lois, tous les membres du clan, à l'exception du Grand Empyréen lui-même, doivent s'agenouiller devant l'Empereur du Dao Antique! »
+« Bien que tu sois le disciple d'un Grand Empyréen, tu restes un membre du Dao Gu. Selon les lois, tous les membres du clan, à l'exception du Grand Empyréen lui-même, doivent s'agenouiller devant l'Empereur du Dao Gu! »
 
 « Toi! Pourquoi ne t'agenouilles-tu pas? » Les yeux du vieil homme brillaient d'un regard glacial et ses paroles étaient aussi froides que son regard.

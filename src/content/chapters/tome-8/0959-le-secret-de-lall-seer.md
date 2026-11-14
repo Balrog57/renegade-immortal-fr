@@ -78,7 +78,7 @@ Au loin, Wang Lin esquissa un sourire amer. Les commérages étaient une chose r
 
 Devant lui se dressait une montagne perçant les cieux. Son sommet était enveloppé de brume, parmi laquelle scintillaient des lueurs pourpres. C'était là que résidaient les disciples de la Division Pourpre.
 
-Secte Tian Yun, Montagne Pourpre.
+Secte Tian Yun, Mont Zi.
 
 En contemplant ce pic familier, Wang Lin entra en transe. C'était comme s'il retournait dans le passé et voyait un jeune homme arrivé tout juste de la planète Suzaku gravir la montagne étape par étape, s'imposant peu à peu sur ces lieux.
 

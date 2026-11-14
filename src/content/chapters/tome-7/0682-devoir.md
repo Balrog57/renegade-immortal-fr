@@ -10,7 +10,7 @@ L'esprit vengeur pouvait clairement entendre les paroles de Wang Lin, mais ses y
 
 Wang Lin observa l'enfant un long moment avant de laisser échapper un soupir. Le ressentiment qui pénétrait son corps ne pouvait l'affecter; il lui suffisait de laisser le tonnerre en lui balayer le corps pour que tout soit dissipé.
 
-Après avoir réfléchi un instant, la main gauche de Wang Lin traça un sceau et d'innombrables restrictions apparurent autour du brouillard noir. Tandis que le gardien céleste se retirait, les restrictions se rétractèrent soudainement. Le brouillard se comprima également jusqu'à ce qu'il soit totalement scellé par la restriction.
+Après avoir réfléchi un instant, la main gauche de Wang Lin traça un sceau et d'innombrables restrictions apparurent autour du brouillard noir. Tandis que le garde céleste se retirait, les restrictions se rétractèrent soudainement. Le brouillard se comprima également jusqu'à ce qu'il soit totalement scellé par la restriction.
 
 Finalement, Wang Lin ramassa délicatement la sphère de restriction contenant l'enfant et la pressa contre son front pour la stocker à l'intérieur de la Perle Défiant le Ciel. Il divisa une partie de son âme originelle pour qu'elle réside dans la perle, afin d'aider l'enfant à continuer de dissiper son ressentiment.
 

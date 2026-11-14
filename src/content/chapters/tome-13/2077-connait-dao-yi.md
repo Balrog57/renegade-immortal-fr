@@ -42,7 +42,7 @@ Alors qu'il reculait, le dragon marin Exalté Doré ouvrit la gueule pour le dé
 
 « Cher Daoïste, je vous en prie, écoutez-moi! » La personne à qui il s'adressait n'était ni Wang Lin ni le dragon, mais Liu Jinbiao, qui observait la scène de loin avec un air de fierté.
 
-« Le maître de ce cher compagnon doit être un Exalté Empyréen sur le Continent Xian Gang. Vu votre prestance, vous devez être un disciple direct d'un Exalté Empyréen. Autrement, on ne vous aurait pas fait don d'un dragon marin Exalté Doré. Ceci est une affaire privée entre Wang Lin et moi; je demande donc à ce cher compagnon de ne pas s'en mêler. Je vous en serai éternellement reconnaissant par la suite! » Maître Chi Hunzi n'avait plus d'autre choix. Sous la pression du dragon marin, il n'avait même plus le courage de tenter la fuite.
+« Le maître de ce Cher Daoïste doit être un Exalté Empyréen sur le Continent Xian Gang. Vu votre prestance, vous devez être un disciple direct d'un Exalté Empyréen. Autrement, on ne vous aurait pas fait don d'un dragon marin Exalté Doré. Ceci est une affaire privée entre Wang Lin et moi; je demande donc à ce Cher Daoïste de ne pas s'en mêler. Je vous en serai éternellement reconnaissant par la suite! » Maître Chi Hunzi n'avait plus d'autre choix. Sous la pression du dragon marin, il n'avait même plus le courage de tenter la fuite.
 
 C'était une question de vie ou de mort et le temps pressait. Bien qu'il sût que cet individu était présent à cause de Wang Lin et qu'il serait difficile de le convaincre, il devait tenter sa chance.
 

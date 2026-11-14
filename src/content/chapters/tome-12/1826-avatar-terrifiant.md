@@ -42,7 +42,7 @@ Une fois apparue, la petite silhouette poussa un cri strident. L'onde sonore per
 
 Dans un bang fracassant, l'anneau de fumée se dissipa et la petite silhouette s'évapora. Un impact puissant frappa simultanément Wang Lin et la jeune femme.
 
-Bien qu'il possédât le corps du Dao Antique, Wang Lin fut tout de même repoussé de plusieurs pas par la collision. Il cracha du sang, mais son visage ne montrait aucun signe de faiblesse; il était au contraire empreint d'une intention meurtrière glaciale.
+Bien qu'il possédât le corps du Dao Gu, Wang Lin fut tout de même repoussé de plusieurs pas par la collision. Il cracha du sang, mais son visage ne montrait aucun signe de faiblesse; il était au contraire empreint d'une intention meurtrière glaciale.
 
 « Quel corps puissant, capable de résister à l'impact de l'effondrement de mon sort! » La jeune femme recula elle aussi, du sang coulant au coin de ses lèvres.
 
@@ -100,8 +100,8 @@ D'un mouvement de la main droite, il projeta les deux empreintes vers la jeune f
 
 La terre trembla et la mer de feu rugit. Un fracas assourdissant secoua une partie du Continent Tian Niu, faisant frémir le cœur d'innombrables cultivateurs. Un hurlement de rage, aigu et strident, résonna dans les profondeurs de la terre.
 
-À cet instant, Wang Lin s'était déjà fusionné avec le monde et avait utilisé la Déformation Spatiale pour réapparaître sur la Montagne Céleste, à l'extérieur de la Secte Da Hun.
+À cet instant, Wang Lin s'était déjà fusionné avec le monde et avait utilisé la Déformation Spatiale pour réapparaître sur la Montagne Tian, à l'extérieur de la Secte Da Hun.
 
-« Le véritable corps d'essence de feu est formé. Bien que mon niveau de culture n'ait pas évolué, ma force a doublé! Je ne peux pas encore égaler un cultivateur au stade initial de la Tribulation du Vide, mais j'ai désormais les moyens de me protéger! Si la situation devenait critique et que j'utilisais le Dao Antique, "Aucun Céleste", ainsi que le Dao du Feu Extrême, je pourrais tuer un cultivateur de la Tribulation du Vide... Mais le prix serait bien trop lourd... » Tandis qu'il se tenait sur la montagne, ses yeux brillaient d'une lueur intense. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à partir.
+« Le véritable corps d'essence de feu est formé. Bien que mon niveau de culture n'ait pas évolué, ma force a doublé! Je ne peux pas encore égaler un cultivateur au stade initial de la Tribulation du Vide, mais j'ai désormais les moyens de me protéger! Si la situation devenait critique et que j'utilisais le Dao Gu, "Aucun Céleste", ainsi que le Dao du Feu Extrême, je pourrais tuer un cultivateur de la Tribulation du Vide... Mais le prix serait bien trop lourd... » Tandis qu'il se tenait sur la montagne, ses yeux brillaient d'une lueur intense. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à partir.
 
 « Jeune ami, vous êtes venu en invité dans ma Secte Da Hun et vous partez déjà? » Une voix antique résonna derrière lui.

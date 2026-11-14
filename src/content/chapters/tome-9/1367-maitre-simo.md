@@ -1,6 +1,6 @@
 ---
 n: 1367
-title: Maître Simo
+title: Maître Si Mo
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1367 - Master Simo
@@ -76,13 +76,13 @@ L'expression de l'homme changea soudainement et il leva les yeux. Un rayon de lu
 
 La lueur rouge illumina tout, révélant au centre un morceau de papier couleur sang!
 
-« Maître Simo, voici les ordres du Conseil Souverain! Capturez celui qui a détruit le Clan Shan Lei pour obtenir un esprit dao de rang 6 en récompense! Tuez-le, et vous n'obtiendrez qu'un esprit dao de rang 9! » Une voix lugubre résonna depuis le papier ensanglanté.
+« Maître Si Mo, voici les ordres du Conseil Souverain! Capturez celui qui a détruit le Clan Shan Lei pour obtenir un esprit dao de rang 6 en récompense! Tuez-le, et vous n'obtiendrez qu'un esprit dao de rang 9! » Une voix lugubre résonna depuis le papier ensanglanté.
 
 Cet homme d'âge moyen était l'un des trois cultivateurs du troisième stade qui traquaient Tuo Sen lorsque Wang Lin entra dans le Système Stellaire Antique!
 
-Maître Simo!
+Maître Si Mo!
 
-Les yeux de Maître Simo s'illuminèrent et sa main droite se tendit vers le parchemin. Il broya le papier, puis une vapeur rouge pénétra dans son bras.
+Les yeux de Maître Si Mo s'illuminèrent et sa main droite se tendit vers le parchemin. Il broya le papier, puis une vapeur rouge pénétra dans son bras.
 
 « Cette affaire est simple, mon avatar suffira. » Une fois ses paroles prononcées, il ferma les yeux et une illusion sortit de son corps. Cet avatar était son portrait craché, mais sa culture n'était pas au troisième stade, mais au cinquième niveau du Fléau Céleste!
 

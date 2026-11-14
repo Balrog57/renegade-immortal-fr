@@ -28,7 +28,7 @@ La femme marqua une pause. Elle afficha un sourire amer et dit: « Il y a très 
 
 « Sous chacun des quatre Royaumes Célestes se trouve un système stellaire correspondant. Au-dessus de mon système stellaire de Luotian se trouve le Royaume Céleste du Tonnerre... »
 
-« La perle défiant le ciel n'appartient pas au système stellaire de l'Alliance; elle est apparue pour la première fois dans mon système stellaire de Luotian. Personne ne sait comment cette perle est apparue, mais lors de son apparition, tous les grands cultivateurs du système de Luotian ont ressenti l'existence de l'ancien Domaine Céleste... »
+« La Perle Défiant le Ciel n'appartient pas au système stellaire de l'Alliance; elle est apparue pour la première fois dans mon système stellaire de Luotian. Personne ne sait comment cette perle est apparue, mais lors de son apparition, tous les grands cultivateurs du système de Luotian ont ressenti l'existence de l'ancien Domaine Céleste... »
 
 Les yeux de Wang Lin se rétrécirent alors qu'il regardait froidement le parchemin, mais il resta silencieux.
 
@@ -40,7 +40,7 @@ Un éclair de froideur passa dans ses yeux alors qu'il pointait le ciel et disai
 
 La femme à l'intérieur du parchemin réfléchit longuement avant de secouer la tête. « Je ne suis pas entrée dans le système stellaire de l'Alliance par ici, mais ce réseau de transfert a bel et bien été créé par un cultivateur du système de Luotian. Ce réseau n'est plus fonctionnel, à moins de posséder une pierre de Luotian. Même un jade céleste ne peut l'activer. »
 
-« Je vous ai dit tout ce que je sais sur la perle défiant le ciel. Quant à l'âme qui s'y trouve, mon ancêtre pourra certainement vous aider. Tant que vous me ramenez dans le système stellaire de Luotian et me renvoyez chez moi, je demanderai sans faute à l'ancêtre de vous aider à ressusciter l'âme qu'elle renferme! »
+« Je vous ai dit tout ce que je sais sur la Perle Défiant le Ciel. Quant à l'âme qui s'y trouve, mon ancêtre pourra certainement vous aider. Tant que vous me ramenez dans le système stellaire de Luotian et me renvoyez chez moi, je demanderai sans faute à l'ancêtre de vous aider à ressusciter l'âme qu'elle renferme! »
 
 Le regard de Wang Lin resta glacial alors qu'il fixait la femme pendant un long moment avant de détourner les yeux. Dès qu'il avait vu le nom du système stellaire de Luotian, il avait retrouvé son calme. Ce que disait la femme visait manifestement à l'inciter à se rendre dans ce système.
 
@@ -50,7 +50,7 @@ Wang Lin demanda calmement: « À quelle secte du système stellaire de Luotian 
 
 Wang Lin sembla peser le pour et le contre. Un instant plus tard, il dit: « Je crains de ne pas pouvoir traverser ce vortex avec mon niveau de culture actuel... »
 
-La femme à l'intérieur secoua la tête et dit doucement: « Vous possédez la perle défiant le ciel, vous devriez donc certainement être capable de passer. »
+La femme à l'intérieur secoua la tête et dit doucement: « Vous possédez la Perle Défiant le Ciel, vous devriez donc certainement être capable de passer. »
 
 Un léger éclat de froideur passa dans ses yeux. Puisque cette femme était si certaine, elle devait dissimuler bien des choses.
 
@@ -94,11 +94,11 @@ Le temps passa lentement. Plusieurs jours plus tard, une faible fluctuation éma
 
 Il forma un sceau et une ombre noire surgit immédiatement derrière lui. Cette ombre chargea directement vers la fissure.
 
-« Scelle! » rugit Wang Lin tandis que la main du gardien céleste traçait un sceau. Une puissance colossale apparut sur la main du gardien céleste et écrasa la fluctuation.
+« Scelle! » rugit Wang Lin tandis que la main du garde céleste traçait un sceau. Une puissance colossale apparut sur la main du garde céleste et écrasa la fluctuation.
 
-Wang Lin entendit vaguement un gémissement misérable. Ses yeux s'illuminèrent et, avec le gardien céleste, ils placèrent tous deux d'innombrables restrictions dans les profondeurs de la fissure.
+Wang Lin entendit vaguement un gémissement misérable. Ses yeux s'illuminèrent et, avec le garde céleste, ils placèrent tous deux d'innombrables restrictions dans les profondeurs de la fissure.
 
-Une fois cela achevé, Wang Lin retira le gardien céleste et attendit à nouveau.
+Une fois cela achevé, Wang Lin retira le garde céleste et attendit à nouveau.
 
 Plusieurs mois passèrent avant que la fluctuation ne réapparaisse, pour ne trouver qu'un nouveau scellement total. Après la troisième tentative, Wang Lin réfléchit un instant et cessa d'attendre pour s'élancer vers les hauteurs.
 
@@ -116,7 +116,7 @@ Les yeux de Wang Lin brillèrent alors qu'il flottait vers le haut. La force d'a
 
 Il prit une grande inspiration et frappa son sac de rangement. La formation des sept étoiles s'en échappa pour l'entourer, créant une poussée phénoménale pour l'aider à s'élever.
 
-« La famille Xiang sur la planète Dong Lin... Même si cette famille n'a aucun lien avec cette femme, je devrais pouvoir trouver des indices sur son identité. Puisqu'elle prétend que l'ancêtre de sa lignée peut ressusciter Wan Er, cela vaut la peine de vérifier. Sans ce parchemin qui me suit, même en me rendant dans le système de Luotian, personne ne saura que je possède la perle défiant le ciel. »
+« La famille Xiang sur la planète Dong Lin... Même si cette famille n'a aucun lien avec cette femme, je devrais pouvoir trouver des indices sur son identité. Puisqu'elle prétend que l'ancêtre de sa lignée peut ressusciter Wan Er, cela vaut la peine de vérifier. Sans ce parchemin qui me suit, même en me rendant dans le système de Luotian, personne ne saura que je possède la Perle Défiant le Ciel. »
 
 « Après tout, cette Terre Yao Ling est saturée de dangers, et Tian Yunzi et sa suite peuvent surgir à tout moment. Une fois qu'ils seront là, notre rencontre sera inévitable. Face à des cultivateurs dont le niveau de culture dépasse mon imagination, je serai impuissant. »
 
@@ -130,7 +130,7 @@ Les yeux de Wang Lin étaient étincelants.
 
 « Mais avant cela, il y a des affaires à régler. Une fois parti, j'ignore quand je pourrai revenir... » soupira-t-il.
 
-La formation des sept étoiles perdit progressivement de son efficacité. L'ombre apparut derrière lui et le gardien céleste créa un tourbillon, augmentant encore la vitesse de Wang Lin.
+La formation des sept étoiles perdit progressivement de son efficacité. L'ombre apparut derrière lui et le garde céleste créa un tourbillon, augmentant encore la vitesse de Wang Lin.
 
 Il se rapprochait de plus en plus de l'entrée du gouffre...
 
@@ -142,4 +142,4 @@ Son bonheur était indescriptible. Le corps du moustique tremblait tandis qu'il 
 
 Alors qu'il s'envolait, Wang Lin remarqua immédiatement les vrombissements venant d'en haut. Il leva les yeux et vit la bête moustique qu'il n'avait pas vue depuis plusieurs décennies. En voyant Wang Lin, les yeux du moustique furent inondés de joie. Il tourna autour de lui en poussant des cris, tel un enfant retrouvant ses parents après une longue séparation.
 
-Il vola avec enthousiasme sous Wang Lin pour le porter vers le haut. Grâce au tourbillon du gardien céleste, Wang Lin s'échappa directement du gouffre. Au moment où il émergea, il laissa échapper un profond soupir de soulagement.
+Il vola avec enthousiasme sous Wang Lin pour le porter vers le haut. Grâce au tourbillon du garde céleste, Wang Lin s'échappa directement du gouffre. Au moment où il émergea, il laissa échapper un profond soupir de soulagement.

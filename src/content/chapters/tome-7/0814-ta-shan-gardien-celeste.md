@@ -1,6 +1,6 @@
 ---
 n: 814
-title: Ta Shan, Gardien Céleste
+title: Ta Shan, Garde Céleste
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 814 - Ta Shan, Celestial Guard
@@ -12,11 +12,11 @@ Il ouvrit la bouche et le Sceau Céleste s'y engouffra, pour être raffiné par 
 
 Après avoir avalé le sceau, les yeux de Wang Lin s'illuminèrent; il frappa ensuite son sac de rangement et trois drapeaux violets en sortirent. Les drapeaux s'entrelacèrent, libérant des éclats de restrictions.
 
-Il y a quelque temps, un messager du Temple Céleste du Tonnerre avait été scellé par Wang Lin avec ces trois drapeaux.
+Il y a quelque temps, un messager du Temple Lei Xian avait été scellé par Wang Lin avec ces trois drapeaux.
 
 La main de Wang Lin traça un sceau et, d'un geste du doigt, il dissipa la restriction sur les trois drapeaux. À l'instant où celle-ci disparut, l'âme originelle scellée du messager s'échappa. Ses yeux étaient empreints de terreur et il tenta de se téléporter dès qu'il fut libre.
 
-Le regard de Wang Lin devint glacial et il frappa son sac de rangement. L'Étendard de l'Âme vola hors du sac et se mua en un immense nuage noir qui dévora l'âme originelle du messager du Temple Céleste du Tonnerre.
+Le regard de Wang Lin devint glacial et il frappa son sac de rangement. L'Étendard de l'Âme vola hors du sac et se mua en un immense nuage noir qui dévora l'âme originelle du messager du Temple Lei Xian.
 
 « Ne me tuez pas, Daoïste! Je vous offrirai un trésor de grande valeur en échange de ma vie, un trésor précieux! » Le messager se débattit à l'intérieur du nuage noir en implorant la clémence.
 

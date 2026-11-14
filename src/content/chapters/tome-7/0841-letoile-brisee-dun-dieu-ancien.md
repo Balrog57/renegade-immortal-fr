@@ -44,7 +44,7 @@ Des grondements incessants résonnaient dans l'intérieur du Serpent aux yeux de
 
 La main de Maître Yan Leizi traça un sceau, faisant apparaître d'innombrables fragments devant lui. Chaque fragment était un morceau du Royaume Céleste! Sous son contrôle, les fragments se mirent à pivoter, et une puissante force céleste créa une tempête parmi les étoiles!
 
-Pour cette opération, tout le Domaine Nord avait été évacué et entièrement occupé par le Temple Céleste du Tonnerre pendant plusieurs mois. Tout cela n'avait qu'un but: capturer ce Serpent aux yeux de lune!
+Pour cette opération, tout le Domaine Nord avait été évacué et entièrement occupé par le Temple Lei Xian pendant plusieurs mois. Tout cela n'avait qu'un but: capturer ce Serpent aux yeux de lune!
 
 Le rugissement du serpent devint plus intense encore. Les impacts internes et externes lui infligeaient une douleur si aiguë qu'ils le rendaient presque fou. Cela faisait une éternité qu'il n'avait pas souffert ainsi. Hormis cette voix dans sa mémoire, il n'avait jamais connu une telle agonie!
 

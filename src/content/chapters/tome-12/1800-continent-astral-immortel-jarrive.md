@@ -70,7 +70,7 @@ Le fait qu'il souffre malgré un tel avantage démontrait à quel point ce vide 
 
 Il avait déjà perdu la notion du temps. Il ignorait depuis combien de temps il était là, mais il comprenait que dix ans s'étaient écoulés.
 
-« Je crains que le Maître ne puisse plus attendre. S'il est retourné au clan Dao Antique, alors une fois que j'atteindrai le Continent Xian Gang, je devrai compter sur moi-même... » Les yeux de Wang Lin brillèrent d'une détermination farouche.
+« Je crains que le Maître ne puisse plus attendre. S'il est retourné au clan Dao Gu, alors une fois que j'atteindrai le Continent Xian Gang, je devrai compter sur moi-même... » Les yeux de Wang Lin brillèrent d'une détermination farouche.
 
 « Ce n'est pas un problème. Autrefois, j'ai quitté la planète Suzaku seul pour explorer Kun Xu. Puis je suis passé de Kun Xu à Luotian, puis à la Mer Yun. Plus tard, j'ai rejoint le Système d'Étoiles Anciennes par mes propres moyens. Maintenant, je me rendrai également seul sur le Continent Xian Gang, ce n'est qu'une formalité! »
 

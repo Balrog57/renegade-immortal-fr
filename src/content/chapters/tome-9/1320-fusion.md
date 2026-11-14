@@ -108,6 +108,6 @@ Il agita la main droite. La terre ne s'écrasa pas et retourna instantanément �
 
 « Ce n'est pas la seule façon d'utiliser le Sceau d'Inversion Céleste! Si l'on considère une personne comme un monde, alors sa chair, son sang et sa peau sont le ciel, et ses organes internes sont la terre. Inversez cela, et la létalité de ce sort dépassera de loin celle du Sceau d'Inversion Céleste! » Wang Lin médita silencieusement un instant, réprimant sa joie d'avoir compris cette technique. Il ferma les yeux et commença à assimiler le second sort!
 
-Alors que Wang Lin utilisait le Sceau d'Inversion Céleste, sur le Mont Bleu, la main de Lanmeng Daozun qui jouait de la cithare s'arrêta un instant.
+Alors que Wang Lin utilisait le Sceau d'Inversion Céleste, sur le Mont Lan, la main de Lanmeng Daozun qui jouait de la cithare s'arrêta un instant.
 
 « Un être possédant cinq essences est véritablement stupéfiant. Il a réussi à maîtriser le Sceau d'Inversion Céleste en seulement quatre mois... Je pensais qu'il lui faudrait plusieurs années... »

@@ -68,27 +68,27 @@ L'homme d'âge mûr joignit les mains et sourit à Wang Lin: « Jeune Empereur, 
 
 Wang Lin leva le jeton de jade et l'examina attentivement. Il était fait de matériaux très communs et ne portait qu'un seul mot: « Empereur ». Le caractère avait été tracé d'un seul trait, dégageant une aura antique, mais une force étrange émanait manifestement du mot.
 
-À l'extérieur de la Terre Déchue, dans l'Ancien Système Stellaire. Lorsque l'avatar de Maître Simo mourut, son corps originel, situé au plus profond de la faille spatiale où il se trouvait, ouvrit les yeux.
+À l'extérieur de la Terre Déchue, dans l'Ancien Système Stellaire. Lorsque l'avatar de Maître Si Mo mourut, son corps originel, situé au plus profond de la faille spatiale où il se trouvait, ouvrit les yeux.
 
 Dès l'ouverture de ses paupières, une lumière vive jaillit comme un éclair traversant le vide. Des grondements tonitruants résonnèrent, comme si le vide lui-même allait s'effondrer!
 
 Une aura violente jaillit de son corps, formant une tempête qui se propagea rapidement.
 
-Les vêtements de Maître Simo voltèrent et ses longs cheveux ondulaient. Ses yeux étaient sombres, et la lueur qu'ils dégageaient s'estompa lentement pour ne laisser place qu'à une froideur glaciale et à une intention meurtrière.
+Les vêtements de Maître Si Mo voltèrent et ses longs cheveux ondulaient. Ses yeux étaient sombres, et la lueur qu'ils dégageaient s'estompa lentement pour ne laisser place qu'à une froideur glaciale et à une intention meurtrière.
 
 La mort de son avatar n'avait pas grand impact sur sa culture; il l'avait raffiné afin que, si sa culture stagnait, il puisse en faire naître un cultivateur de troisième étape. Cependant, la perte de cet avatar anéantissait le plan sur lequel il travaillait depuis fort longtemps. En conséquence, c'était comme si des années d'efforts s'étaient évaporées.
 
-« Le Grand Empereur de la Terre Déchue!!! » Maître Simo grinça des dents, l'expression féroce.
+« Le Grand Empereur de la Terre Déchue!!! » Maître Si Mo grinça des dents, l'expression féroce.
 
-« Il y a aussi ce jeune cultivateur de la foudre. Outre l'essence de la foudre, il possède également une trace d'essence de feu!! Et comment a-t-il pu connaître mon nom passé?! Se pourrait-il qu'il soit du Royaume Intérieur?! » Les yeux de Maître Simo s'illuminèrent alors qu'il leva sa main droite et l'abattit. Le vide gronda violemment et une déchirure s'ouvrit.
+« Il y a aussi ce jeune cultivateur de la foudre. Outre l'essence de la foudre, il possède également une trace d'essence de feu!! Et comment a-t-il pu connaître mon nom passé?! Se pourrait-il qu'il soit du Royaume Intérieur?! » Les yeux de Maître Si Mo s'illuminèrent alors qu'il leva sa main droite et l'abattit. Le vide gronda violemment et une déchirure s'ouvrit.
 
-Maître Simo se redressa et avança, la main pressée vers le bas. Il rugit: « Clous Divins du Vide aux Sept Couleurs, apparaissez! »
+Maître Si Mo se redressa et avança, la main pressée vers le bas. Il rugit: « Clous Divins du Vide aux Sept Couleurs, apparaissez! »
 
 Une lumière septicolore jaillit de la faille. Cette lumière était si intense qu'elle illumina toute la zone, enveloppant le vide dans un éclat arc-en-ciel.
 
-Des clous aux sept couleurs s'échappèrent de la brèche et flottèrent autour de Maître Simo. Un instant plus tard, vingt-neuf clous tournaient autour de lui comme un anneau. À cet instant, la lumière était si puissante qu'il était impossible de distinguer sa silhouette, seule la lueur septicolore subsistait.
+Des clous aux sept couleurs s'échappèrent de la brèche et flottèrent autour de Maître Si Mo. Un instant plus tard, vingt-neuf clous tournaient autour de lui comme un anneau. À cet instant, la lumière était si puissante qu'il était impossible de distinguer sa silhouette, seule la lueur septicolore subsistait.
 
-« Les Clous Divins du Vide aux Sept Couleurs du Souverain, capables d'éliminer des cultivateurs de la troisième étape... Je ne suis pas de taille face au Grand Empereur, mais si le Conseil Souverain rassemble tous les cultivateurs de la troisième étape, nous devrions pouvoir l'abattre. Tout dépendra de la décision du Conseil! » Maître Simo agita la main droite et les clous disparurent. Il fit un pas en avant et s'évanouit sans laisser de trace.
+« Les Clous Divins du Vide aux Sept Couleurs du Souverain, capables d'éliminer des cultivateurs de la troisième étape... Je ne suis pas de taille face au Grand Empereur, mais si le Conseil Souverain rassemble tous les cultivateurs de la troisième étape, nous devrions pouvoir l'abattre. Tout dépendra de la décision du Conseil! » Maître Si Mo agita la main droite et les clous disparurent. Il fit un pas en avant et s'évanouit sans laisser de trace.
 
 Un groupe de cultivateurs traversait la Terre Déchue. Ils étaient près de mille, aux niveaux de culture variés. Au centre se trouvaient une dizaine de cultivateurs de la deuxième étape entourant une personne.
 

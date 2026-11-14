@@ -12,13 +12,13 @@ Chaque fois qu'il frappait son propre corps, un objet mystérieux en était expu
 
 Ces objets avaient tous été conçus pour favoriser la résurrection du Scorpion du Démon Vert. Ils étaient scellés dans le Ji Si de chaque génération par une méthode spéciale; à moins qu'ils ne les sortent volontairement, nul autre ne pouvait s'en emparer. Seul un Grand Empyréen en serait peut-être capable.
 
-« Le corps de cette personne est clairement issu du Dao Ancien, mais bien que ce corps soit puissant, il manque de résilience. J'utiliserai cette branche d'arbre céleste vieille de 90 000 ans pour rendre ce corps extrêmement difficile à détruire! » La main gauche du vieil homme en robe verte s'étendit et saisit une branche noire exhalant une aura antique.
+« Le corps de cette personne est clairement issu du Dao Gu, mais bien que ce corps soit puissant, il manque de résilience. J'utiliserai cette branche d'arbre céleste vieille de 90 000 ans pour rendre ce corps extrêmement difficile à détruire! » La main gauche du vieil homme en robe verte s'étendit et saisit une branche noire exhalant une aura antique.
 
 Cette branche était extrêmement rare sur le Continent Xian Gang. Sa famille avait payé un prix exorbitant pour l'acquérir. Sans hésiter, il projeta la branche, imprégnée de la puissance du monde, vers le corps de Wang Lin.
 
 Lorsqu'elle s'en approcha, la branche explosa en une poudre noire qui enveloppa le corps de Wang Lin. Cette poudre se répandit comme si elle était douée de vie, formant de fins filaments qui pénétrèrent les pores de Wang Lin. Ils se connectèrent entre eux à l'intérieur de son corps pour former un réseau dense.
 
-Ensuite, la poudre fusionna avec la chair et le sang de Wang Lin. Elle s'enfonça profondément en lui, tandis que des bruits de craquements résonnaient dans tout son être. Son corps dégageait désormais une étrange sensation de robustesse, dépassant celle d'un corps du Dao Ancien. Non seulement il était extrêmement fort, mais il était aussi devenu résilient, le rendant très difficile à détruire.
+Ensuite, la poudre fusionna avec la chair et le sang de Wang Lin. Elle s'enfonça profondément en lui, tandis que des bruits de craquements résonnaient dans tout son être. Son corps dégageait désormais une étrange sensation de robustesse, dépassant celle d'un corps du Dao Gu. Non seulement il était extrêmement fort, mais il était aussi devenu résilient, le rendant très difficile à détruire.
 
 « Le regard de cette personne n'est pas assez tranchant pour subjuguer autrui. Bien que ce corps soit puissant, il manque de l'aura nécessaire pour dominer le monde. Je vais utiliser les fragments de l'épée céleste que le Seigneur Démon Vert a brisés de sa queue de scorpion lors de son combat contre l'Ancêtre Céleste afin de créer cette aura de majesté pour ce corps! » « Désormais, un seul regard de cette personne suffira à subjuguer les cultivateurs!! » Les yeux du vieil homme étaient empreints de folie. D'un revers de la main gauche, il envoya un morceau de métal de la taille d'une paume vers Wang Lin.
 

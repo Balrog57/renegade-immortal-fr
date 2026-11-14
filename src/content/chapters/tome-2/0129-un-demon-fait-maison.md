@@ -12,7 +12,7 @@ Peu après, il tendit la main et attrapa Xu Liguo, qui n'osa pas résister. Puis
 
 À ce stade, les disciples des trois autres sectes avaient déjà fini de récolter les Fruits de l'Or Brûlant et étaient partis.
 
-Wang Lin retourna à la grotte et déposa la vigne du Fruit de l'Or Brûlant sur le sol. Il projeta également Xu Liguo en avant, ce qui fit paniquer ce dernier qui s'écria: « Camarade cultivateur, s'il y a un problème, nous pouvons en discuter! Nous pouvons en discuter! Tant que vous ne me tuez pas, j'accepterai n'importe quelle requête. J'ai eu tort auparavant. Je vous en prie, ne soyez pas en colère. »
+Wang Lin retourna à la grotte et déposa la vigne du Fruit de l'Or Brûlant sur le sol. Il projeta également Xu Liguo en avant, ce qui fit paniquer ce dernier qui s'écria: « Daoïste, s'il y a un problème, nous pouvons en discuter! Nous pouvons en discuter! Tant que vous ne me tuez pas, j'accepterai n'importe quelle requête. J'ai eu tort auparavant. Je vous en prie, ne soyez pas en colère. »
 
 Xu Liguo se sentait profondément lésé. Il était un expert de l'Âme Naissante, mais il avait perdu son corps et son Âme Naissante était si blessée qu'elle risquait de s'effondrer, ce qui avait fait chuter son niveau de culture. De plus, il ne pouvait pas s'offrir le prix exorbitant d'un corps de cultivateur de l'Âme Naissante; il avait donc envisagé de posséder le corps d'un disciple de secte, mais s'il était découvert, cela entraînerait des ennuis sans fin. Finalement, il avait décidé de payer la Secte Shi Yin afin de pouvoir posséder un corps sans crainte.
 

@@ -70,7 +70,7 @@ Les huit dragons géants conservèrent leur posture de combat, flottant immobile
 
 Non seulement eux, mais tous les cultivateurs touchés par les ondulations subirent le même sort. Leur force vitale se changea en aura de mort, entraînant leur décès immédiat!
 
-« Dieu, Démon, Diable, Ancien Dao, pas d'Immortel! » murmura Wang Lin en transformant sa main en paume pour pousser doucement vers l'avant. Les étoiles anciennes entre ses sourcils tournèrent rapidement, passant soudainement de six à neuf étoiles. Les douze étoiles dans ses yeux passèrent également de douze à dix-huit!
+« Dieu, Démon, Diable, Dao Gu, pas d'Immortel! » murmura Wang Lin en transformant sa main en paume pour pousser doucement vers l'avant. Les étoiles anciennes entre ses sourcils tournèrent rapidement, passant soudainement de six à neuf étoiles. Les douze étoiles dans ses yeux passèrent également de douze à dix-huit!
 
 Dieu Ancien à 9 étoiles!
 Démon Ancien à 9 étoiles!

@@ -9,7 +9,7 @@ slug: les-changements-de-la-perle-defiant-le-ciel
 
 C'était Wang Lin!
 
-La perle défiant le ciel avait subi un changement mystérieux après avoir absorbé l'Esprit de la Terre. Auparavant, il lui aurait été impossible d'y rester pendant cinq ans. Mais une fois l'élément terre intégré, la durée que Wang Lin pouvait passer à l'intérieur était bien plus longue qu'auparavant.
+La Perle Défiant le Ciel avait subi un changement mystérieux après avoir absorbé l'Esprit de la Terre. Auparavant, il lui aurait été impossible d'y rester pendant cinq ans. Mais une fois l'élément terre intégré, la durée que Wang Lin pouvait passer à l'intérieur était bien plus longue qu'auparavant.
 
 Un changement majeur résidait dans le fait que l'espace défiant le ciel contenait désormais une certaine quantité d'énergie spirituelle; il n'y en avait aucune auparavant. Cette énergie spirituelle était beaucoup plus pure que celle de l'extérieur. Bien que Wang Lin n'eût jamais ressenti d'énergie spirituelle céleste, il sentait que celle à l'intérieur de la perle était légèrement moins pure que cette essence céleste.
 
@@ -21,13 +21,13 @@ Au fil des années passées à observer la perle, Wang Lin ressentit une sensati
 
 Cette découverte accrut soudainement son intérêt pour elles.
 
-Situ Nan avait dit autrefois que l'apparition de la perle défiant le ciel avait poussé les grands cultivateurs de Suzaku, et même ceux d'autres planètes, à se battre pour s'en emparer. Après avoir perdu son corps, son Âme Naissante s'était échappée dans la perle et avait survécu de justesse. Après une série d'événements, il avait réussi à échapper à ces cultivateurs. Bien des années plus tard, la perle s'était retrouvée dans l'estomac d'un oiseau avant d'être trouvée par Wang Lin.
+Situ Nan avait dit autrefois que l'apparition de la Perle Défiant le Ciel avait poussé les grands cultivateurs de Suzaku, et même ceux d'autres planètes, à se battre pour s'en emparer. Après avoir perdu son corps, son Âme Naissante s'était échappée dans la perle et avait survécu de justesse. Après une série d'événements, il avait réussi à échapper à ces cultivateurs. Bien des années plus tard, la perle s'était retrouvée dans l'estomac d'un oiseau avant d'être trouvée par Wang Lin.
 
 Wang Lin possédait cette perle depuis plus de 400 ans, mais il n'avait toujours pas réussi à en comprendre la véritable fonction. À ses yeux, cette perle ne pouvait que modifier le temps dans une certaine mesure et transformer l'eau ordinaire en eau chargée d'énergie spirituelle. Ces capacités étaient très utiles pour les cultivateurs inférieurs au stade de la Formation de l'Âme, mais elles ne l'étaient guère pour ceux ayant atteint la Formation de l'Âme ou au-delà.
 
 Après tout, pour les cultivateurs dépassant le stade de la Formation de l'Âme, l'énergie spirituelle du monde mortel n'est plus assez pure pour leur culture. Seule l'énergie spirituelle céleste peut être utilisée; ainsi, cette énergie du monde mortel n'était pas vraiment attrayante pour eux. Transformer l'eau ou altérer le temps était certes utile, mais avec de telles capacités, il semblait illogique que les plus puissants cultivateurs de Suzaku et d'autres planètes se disputent la perle.
 
-Wang Lin était convaincu que cette perle défiant le ciel devait impérativement avoir d'autres usages. Pourquoi tous ces puissants combattants s'étaient-ils disputés ce trésor? Situ Nan avait mentionné qu'après des années d'étude, il pensait que la perle ne reconnaîtrait son maître et ne révélerait sa véritable nature qu'une fois les cinq éléments complets. Peut-être qu'à ce moment-là, elle dévoilerait enfin une part de sa puissance.
+Wang Lin était convaincu que cette Perle Défiant le Ciel devait impérativement avoir d'autres usages. Pourquoi tous ces puissants combattants s'étaient-ils disputés ce trésor? Situ Nan avait mentionné qu'après des années d'étude, il pensait que la perle ne reconnaîtrait son maître et ne révélerait sa véritable nature qu'une fois les cinq éléments complets. Peut-être qu'à ce moment-là, elle dévoilerait enfin une part de sa puissance.
 
 L'intérêt de Wang Lin pour le véritable pouvoir de la perle n'avait fait que croître avec le temps. Il se demandait même si ces cinq masses de lumière deviendraient semblables aux cinq esprits élémentaires de la femme en robe blanche. Bien sûr, tout cela n'était que conjecture.
 

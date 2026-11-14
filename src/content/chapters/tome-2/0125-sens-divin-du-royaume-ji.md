@@ -96,7 +96,7 @@ Le Royaume Ji fusionna totalement avec son âme.
 
 Nul ne sait d'où provient le Royaume Ji, mais il est certain que les cultivateurs qui en possédaient ne l'avaient que dans leur énergie spirituelle. Seul Wang Lin, à la faveur d'une série de coïncidences et à rebours des autres, avait eu le Ji imprimé dans son Sens Divin.
 
-En réalité, la main géante formée par la loi du monde fut le catalyseur permettant à l'âme de Wang Lin d'intégrer la puissance du Royaume Ji. Après que la perle défiant le ciel eut fusionné avec son âme, il était resté dans son Sens Divin une trace infime du Ji. Cependant, sans pression extérieure, une fois son énergie spirituelle retrouvée, ce fragment aurait disparu.
+En réalité, la main géante formée par la loi du monde fut le catalyseur permettant à l'âme de Wang Lin d'intégrer la puissance du Royaume Ji. Après que la Perle Défiant le Ciel eut fusionné avec son âme, il était resté dans son Sens Divin une trace infime du Ji. Cependant, sans pression extérieure, une fois son énergie spirituelle retrouvée, ce fragment aurait disparu.
 
 Mais sous l'assaut extérieur, l'âme de Wang Lin se contracta et le Royaume Ji s'étendit jusqu'à leur fusion. Cette fusion sans précédent n'en était qu'à ses prémices; on ne peut dire que l'âme de Wang Lin était totalement imprégnée du Royaume Ji, car elle contenait encore de nombreux autres éléments.
 

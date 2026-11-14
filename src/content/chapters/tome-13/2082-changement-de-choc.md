@@ -30,13 +30,13 @@ Cependant, une question lui taraudait l'esprit.
 
 Wang Lin attendit l'ouverture du Royaume Divin Immémorial. Il ne restait plus qu'un mois avant l'événement quand trois rayons de lumière jaillirent du clan Ancien. C'étaient les trois Grands Empyréens du clan Ancien.
 
-Song Tian, Xuan Luo et le mystérieux Grand Empyréen Ancien Ji.
+Song Tian, Xuan Luo et le mystérieux Grand Empyréen Ji Gu.
 
 Les trois éclats de lumière se rapprochèrent instantanément pour prendre la forme de trois silhouettes devant Wang Lin. Song Tian regarda Wang Lin avec une expression complexe. Il joignit les mains en signe de respect envers lui.
 
 « Song Tian salue le Seigneur Wang. »
 
-Le Grand Empyréen Ancien Ji resta également silencieux, songeur, avant de joindre respectueusement les mains devant Wang Lin.
+Le Grand Empyréen Ji Gu resta également silencieux, songeur, avant de joindre respectueusement les mains devant Wang Lin.
 
 Ils avaient appris, il y a trois cents ans, que l'être le plus puissant du Continent Xian Gang n'était plus le Grand Empyréen Gu Dao, mais cet homme nommé Wang Lin qui se tenait devant eux.
 
@@ -46,11 +46,11 @@ Xuan Luo était bien plus âgé qu'autrefois, mais un sourire étirait ses lèvr
 
 Il s'apprêtait à joindre les mains avec Song Tian. Après tout, sur le Continent Xian Gang, la force imposait le respect.
 
-Cependant, au moment même de leur arrivée, Wang Lin se leva. Si Song Tian et le Grand Empyréen Ancien Ji étaient seuls, il n'aurait pas agi ainsi. Mais en présence de Xuan Luo, Wang Lin n'hésita pas à s'incliner devant ce dernier en premier.
+Cependant, au moment même de leur arrivée, Wang Lin se leva. Si Song Tian et le Grand Empyréen Ji Gu étaient seuls, il n'aurait pas agi ainsi. Mais en présence de Xuan Luo, Wang Lin n'hésita pas à s'incliner devant ce dernier en premier.
 
 « Wang Lin salue son Maître. »
 
-En voyant cela, Song Tian et le Grand Empyréen Ancien Ji furent stupéfaits. Ils avaient vu trop de relations maître-disciple où le disciple finissait par trahir son mentor. Trop de fois, le disciple devenait plus puissant et cessait de respecter son maître; même quand il le faisait, ce n'était qu'en apparence.
+En voyant cela, Song Tian et le Grand Empyréen Ji Gu furent stupéfaits. Ils avaient vu trop de relations maître-disciple où le disciple finissait par trahir son mentor. Trop de fois, le disciple devenait plus puissant et cessait de respecter son maître; même quand il le faisait, ce n'était qu'en apparence.
 
 Pourtant, la sincérité de Wang Lin était palpable pour eux deux. En tant qu'être le plus puissant du Continent Xian Gang, il était normal que Xuan Luo s'incline devant Wang Lin. De toute façon, ils avaient rompu leur lien maître-disciple au palais de Dao Gu.
 
@@ -58,7 +58,7 @@ Wang Lin regarda Xuan Luo, son maître, qui paraissait vieilli. Comment pourrait
 
 Xuan Luo ouvrit la bouche comme pour dire quelque chose, mais finit par sourire et hocha la tête vers Wang Lin.
 
-Grâce au respect dont Wang Lin fit preuve envers Xuan Luo durant les jours suivants, Song Tian et le Grand Empyréen Ancien Ji traitèrent ce dernier différemment. Ils auraient dû être ses égaux, mais ils lui témoignaient désormais une certaine déférence.
+Grâce au respect dont Wang Lin fit preuve envers Xuan Luo durant les jours suivants, Song Tian et le Grand Empyréen Ji Gu traitèrent ce dernier différemment. Ils auraient dû être ses égaux, mais ils lui témoignaient désormais une certaine déférence.
 
 Le simple fait que Wang Lin, l'être le plus puissant du Continent Xian Gang ayant vaincu Gu Dao, l'appelle « Maître », suffisait à tout changer.
 
@@ -96,7 +96,7 @@ Wang Lin détourna le regard de la tempête marine. Il se retourna et sentit des
 
 Les jours passèrent. Le deuxième jour, les grondements s'intensifièrent. Le troisième jour, ils devinrent encore plus puissants.
 
-Ces secousses rendirent le monde instable. Song Tian et le Grand Empyréen Ancien Ji devinrent sombres et anxieux.
+Ces secousses rendirent le monde instable. Song Tian et le Grand Empyréen Ji Gu devinrent sombres et anxieux.
 
 À midi du troisième jour, alors qu'il ne restait que douze jours avant l'ouverture du Royaume Divin Immémorial, la voix calme de Wang Lin parvint distinctement aux oreilles de Song Tian et de ses compagnons, malgré le vacarme assourdissant.
 

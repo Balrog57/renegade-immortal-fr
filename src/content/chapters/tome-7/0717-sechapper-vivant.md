@@ -151,7 +151,7 @@ Il ne comprenait pas et laissa échapper un soupir. Après avoir vérifié l'ét
 
 Après avoir médité un instant, Wang Lin cessa d'hésiter et s'élança en avant.
 
-« D'abord, je dois trouver un endroit pour me retirer en culture fermée afin de raffiner cet os et voir s'il peut compléter la perle défiant le ciel. Ensuite, je devrai m'atteler à la formation d'un nouveau corps. »
+« D'abord, je dois trouver un endroit pour me retirer en culture fermée afin de raffiner cet os et voir s'il peut compléter la Perle Défiant le Ciel. Ensuite, je devrai m'atteler à la formation d'un nouveau corps. »
 
 Les yeux de Wang Lin brillèrent alors qu'il fonçait vers l'espace infini qui s'étendait devant lui.
 

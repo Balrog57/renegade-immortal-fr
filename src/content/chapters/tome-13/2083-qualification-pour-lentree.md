@@ -20,7 +20,7 @@ Cependant, les six Grands Empyréens n'étaient pas dans la même situation. Bie
 
 Song Tian n'hésita pas. Dès que les rugissements s'intensifièrent, il se plaça devant les membres du clan Ancien. D'un revers de manche, un soleil géant apparut derrière lui; il utilisait son pouvoir de Grand Empyréen pour aider ceux qui le suivaient à résister au tumulte.
 
-Xuan Luo et le Grand Empyréen Ancien Ji firent de même. Grâce à l'effort conjugué de ces trois-là, ils purent s'assurer que les centaines de membres paniqués du clan Ancien ne soient ni blessés, ni repoussés.
+Xuan Luo et le Grand Empyréen Ji Gu firent de même. Grâce à l'effort conjugué de ces trois-là, ils purent s'assurer que les centaines de membres paniqués du clan Ancien ne soient ni blessés, ni repoussés.
 
 Le clan céleste procédait de la même manière. Jiu Di et ses compagnons agirent simultanément pour protéger les centaines de cultivateurs célestes contre les grondements.
 
@@ -64,7 +64,7 @@ En un éclair, trois jours passèrent. Il ne restait plus que six jours avant l'
 
 Ils ne pouvaient plus endurer cela. Ils devaient réduire le nombre de personnes, sinon ils finiraient par être affectés eux aussi.
 
-« Wang Lin! » Xuan Luo interpella Wang Lin. C'était la première fois qu'il lui adressait la parole depuis le début des grondements. En vérité, Song Tian et le Grand Empyréen Ancien Ji avaient depuis longtemps placé leurs espoirs en Wang Lin; ils ne comprenaient simplement pas pourquoi Gu Dao ne s'était toujours pas manifesté.
+« Wang Lin! » Xuan Luo interpella Wang Lin. C'était la première fois qu'il lui adressait la parole depuis le début des grondements. En vérité, Song Tian et le Grand Empyréen Ji Gu avaient depuis longtemps placé leurs espoirs en Wang Lin; ils ne comprenaient simplement pas pourquoi Gu Dao ne s'était toujours pas manifesté.
 
 Cependant, ce n'était pas le moment de se poser de telles questions. À l'appel de Xuan Luo, tous les regards se tournèrent vers Wang Lin.
 

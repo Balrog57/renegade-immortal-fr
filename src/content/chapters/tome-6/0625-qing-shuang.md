@@ -64,7 +64,7 @@ Wang Lin prit une profonde inspiration et pointa le pinceau vers le symbole. Cel
 
 Wang Lin avait utilisé le Son Démoniaque Céleste. Sa voix, chargée d'une puissance démoniaque, pénétra les oreilles de l'homme et s'entremêla à son âme originelle.
 
-Si Wang Lin n'avait pas utilisé le sort de recherche d'âme, c'était parce que, bien que la culture au stade intermédiaire de l'Ascendant du vieil homme ne soit qu'une apparence, son âme originelle possédait une puissance très différente de celle des gardiens célestes. Fidèle à sa prudence, Wang Lin n'aurait utilisé le sort de recherche d'âme qu'en dernier recours ou s'il avait la maîtrise totale de la situation.
+Si Wang Lin n'avait pas utilisé le sort de recherche d'âme, c'était parce que, bien que la culture au stade intermédiaire de l'Ascendant du vieil homme ne soit qu'une apparence, son âme originelle possédait une puissance très différente de celle des gardes célestes. Fidèle à sa prudence, Wang Lin n'aurait utilisé le sort de recherche d'âme qu'en dernier recours ou s'il avait la maîtrise totale de la situation.
 
 Le regard vide du vieillard murmura: « Je viens de la Secte Lian Yu, et mon nom est Huang Yu. Je suis entré dans cette Terre Yao Ling car j'étais pourchassé par mes ennemis. Par la suite, je n'ai pas osé partir et j'ai décidé de m'installer ici. C'est plus sûr ainsi; tant que je reste prudent, il n'y a aucun danger. »
 
@@ -84,7 +84,7 @@ C'était naturel: quiconque vient de s'emparer d'un immense trésor pour se le v
 
 Après avoir interrogé précisément le vieillard sur l'apparence du couple, Wang Lin demanda: « Qu'était inscrit sur le jade? »
 
-Le vieil homme répondit lentement: « Il contenait plusieurs méthodes pour utiliser divers trésors et sorts célestes. Il y avait aussi la méthode pour créer des marionnettes de gardiens célestes. Cependant, le jade était protégé par une restriction, je n'ai donc pu en voir tout le contenu. »
+Le vieil homme répondit lentement: « Il contenait plusieurs méthodes pour utiliser divers trésors et sorts célestes. Il y avait aussi la méthode pour créer des marionnettes de gardes célestes. Cependant, le jade était protégé par une restriction, je n'ai donc pu en voir tout le contenu. »
 
 Il était toujours sous l'emprise du Son Démoniaque Céleste et du regard doré de Wang Lin, ce qui signifiait qu'il était incapable de mentir; chaque parole était la vérité.
 

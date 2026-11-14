@@ -74,7 +74,7 @@ L'empreinte de la paume apparut et balaya les quatre Sens Divins qui faisaient f
 
 « Empreinte de l'Esprit Guerrier!!! »
 
-« Un cultivateur de la Secte Divine!! »
+« Un cultivateur de la Secte Shen!! »
 
 Les quatre Sens Divins affichèrent un visage d'incrédulité et reculèrent sans hésiter. Cependant, la paume fut trop rapide et percuta de plein fouet les quatre Sens Divins.
 

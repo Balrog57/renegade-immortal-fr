@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1378 - A Generation of Masters
 slug: une-generation-de-maitres
 ---
-L'expression du Maître Simo changea et il se leva soudainement. Ses yeux, tels des éclairs de tonnerre, scrutaient l'horizon. Son regard semblait capable de percer toutes les barrières; il s'étendit au loin jusqu'à distinguer Wang Lin, debout, la silhouette droite sur le sommet d'une montagne au centre de la planète, le regard tourné vers lui.
+L'expression du Maître Si Mo changea et il se leva soudainement. Ses yeux, tels des éclairs de tonnerre, scrutaient l'horizon. Son regard semblait capable de percer toutes les barrières; il s'étendit au loin jusqu'à distinguer Wang Lin, debout, la silhouette droite sur le sommet d'une montagne au centre de la planète, le regard tourné vers lui.
 
-« J'ai sous-estimé son esprit! Cependant, face à un pouvoir absolu, tout cela est inutile! » ricana le Maître Simo avant de s'avancer et de disparaître sans laisser de trace.
+« J'ai sous-estimé son esprit! Cependant, face à un pouvoir absolu, tout cela est inutile! » ricana le Maître Si Mo avant de s'avancer et de disparaître sans laisser de trace.
 
 Seul resta le duo père et fils du Clan Long Jia, les traits sombres.
 
@@ -18,9 +18,9 @@ Le Patriarche du Clan Long Jia répondit d'un ton lugubre: « Bien sûr qu'il n'
 
 « Quoi?! » Le jeune maître du Clan Long Jia fut stupéfait, son expression changeant radicalement.
 
-« Sinon, pourquoi un cultivateur du troisième pas comme le Maître Simo viendrait-il ici? Si sa culture n'était pas si profonde, ton père ne l'aiderait jamais. Mais en comparaison, celui qui a détruit le Clan Shan Lei n'est après tout pas un cultivateur du troisième pas; je ne peux donc qu'aider le Maître Simo! »
+« Sinon, pourquoi un cultivateur du troisième pas comme le Maître Si Mo viendrait-il ici? Si sa culture n'était pas si profonde, ton père ne l'aiderait jamais. Mais en comparaison, celui qui a détruit le Clan Shan Lei n'est après tout pas un cultivateur du troisième pas; je ne peux donc qu'aider le Maître Si Mo! »
 
-Le jeune maître du Clan Long Jia réfléchit un instant, puis dit doucement: « Si le Senior Simo réussit, tout ira bien, mais si... »
+Le jeune maître du Clan Long Jia réfléchit un instant, puis dit doucement: « Si le Senior Si Mo réussit, tout ira bien, mais si... »
 
 « Il n'y a aucune possibilité! Même s'il ne meurt pas, il sera gravement blessé. Il n'aura même pas le temps de s'enfuir ou de guérir, encore moins de venir nous chercher des ennuis. Et même s'il venait chercher des ennuis, je ferai en sorte qu'il ne reparte jamais! »
 
@@ -56,13 +56,13 @@ En un instant, ces 40 millions de rayons disparurent pour fusionner avec l'index
 
 Un grondement tonitruant résonna dans le ciel et un vortex apparut au loin, reliant le Ciel et la Terre. Il se rapprocha rapidement dans un fracas de tonnerre!
 
-Le Maître Simo était à l'intérieur du vortex.
+Le Maître Si Mo était à l'intérieur du vortex.
 
-« Oser me défier, moi, le Maître Simo... Tu as du cran! » La voix du Maître Simo résonna tandis qu'il chargeait Wang Lin depuis l'intérieur du vortex.
+« Oser me défier, moi, le Maître Si Mo... Tu as du cran! » La voix du Maître Si Mo résonna tandis qu'il chargeait Wang Lin depuis l'intérieur du vortex.
 
-Il semblait que le Maître Simo avait puisé la puissance des cieux pour former ce vortex, transformant celui-ci en un sortilège destiné à attaquer Wang Lin!
+Il semblait que le Maître Si Mo avait puisé la puissance des cieux pour former ce vortex, transformant celui-ci en un sortilège destiné à attaquer Wang Lin!
 
-« Tu parles beaucoup pour rien! » L'expression de Wang Lin resta impassible et, à l'approche du Maître Simo, ses mains formèrent un sceau.
+« Tu parles beaucoup pour rien! » L'expression de Wang Lin resta impassible et, à l'approche du Maître Si Mo, ses mains formèrent un sceau.
 
 « Effondrement des Montagnes! » À cet instant, des volcans illusoires apparurent autour de Wang Lin! Avec son niveau de culture actuel, cette technique d'Effondrement des Montagnes dépassait celle de Qing Shui, alors encore blessé.
 
@@ -70,7 +70,7 @@ Les volcans surgissaient un à un. Leurs grondements créaient une onde de choc 
 
 Wang Lin était entouré de volcans. Son visage était serein, mais ses yeux brûlaient d'une puissante intention meurtrière!
 
-L'expression du Maître Simo devint sérieuse. Il n'oserait pas sous-estimer la puissance de quelqu'un capable de déclencher la Porte Kong sans aucune Flamme d'Encens. À cet instant, il forma un sceau et fit un geste: le vortex autour de lui jaillit pour charger Wang Lin!
+L'expression du Maître Si Mo devint sérieuse. Il n'oserait pas sous-estimer la puissance de quelqu'un capable de déclencher la Porte Kong sans aucune Flamme d'Encens. À cet instant, il forma un sceau et fit un geste: le vortex autour de lui jaillit pour charger Wang Lin!
 
 Simultanément, la main droite de Wang Lin, levée vers le ciel, s'abattit impitoyablement vers le bas!
 
@@ -98,7 +98,7 @@ Les montagnes s'écroulaient les unes après les autres à mesure que leurs âme
 
 Il ne restait plus aucune montagne sur cette planète, seulement des amas de décombres!
 
-Wang Lin saisit toutes les âmes des montagnes de la planète et les projeta. Elles fusionnèrent avec le volcan au moment même où le vortex du Maître Simo atteignait sa cible!
+Wang Lin saisit toutes les âmes des montagnes de la planète et les projeta. Elles fusionnèrent avec le volcan au moment même où le vortex du Maître Si Mo atteignait sa cible!
 
 À cet instant, le volcan créé par l'Effondrement des Montagnes reçut une âme! Cette âme était d'une puissance inouïe, comme si elle était composée d'une infinité d'âmes de montagnes. Désormais, ce volcan était enfin une véritable montagne!
 
@@ -106,24 +106,24 @@ L'Effondrement des Montagnes venait d'atteindre sa pleine réalisation!
 
 « Montagne, neuvième effondrement! » Wang Lin passa directement au stade ultime. Le volcan gronda et un fracas assourdissant retentit, tel le déclenchement d'une tempête apocalyptique. Le volcan vola en éclats, formant une tempête de roches, de lave, de fumée noire et d'âme montagneuse!
 
-Cette tempête percuta de plein fouet le vortex du Maître Simo!
+Cette tempête percuta de plein fouet le vortex du Maître Si Mo!
 
-Une aura destructrice se propagea et frappa le corps de Wang Lin. Ses vêtements claquaient violemment et ses cheveux s'agitaient dans la tourmente. Son visage était pâle, mais loin de reculer, il chargea le Maître Simo!
+Une aura destructrice se propagea et frappa le corps de Wang Lin. Ses vêtements claquaient violemment et ses cheveux s'agitaient dans la tourmente. Son visage était pâle, mais loin de reculer, il chargea le Maître Si Mo!
 
-Le Maître Simo était lui aussi blême. Sous l'impact de l'onde de choc, son corps se mua en un rayon de lumière pour s'en extraire.
+Le Maître Si Mo était lui aussi blême. Sous l'impact de l'onde de choc, son corps se mua en un rayon de lumière pour s'en extraire.
 
-« L'Effondrement des Montagnes? C'est le sortilège de Bai Fan!! » Le Maître Simo se déplaça comme la foudre pour échapper à l'onde de choc. Ses mains formèrent un sceau et il agita le bras en criant froidement: « Le Ciel comme Peinture! »
+« L'Effondrement des Montagnes? C'est le sortilège de Bai Fan!! » Le Maître Si Mo se déplaça comme la foudre pour échapper à l'onde de choc. Ses mains formèrent un sceau et il agita le bras en criant froidement: « Le Ciel comme Peinture! »
 
 À sa suite, le ciel changea et d'innombrables ondulations apparurent dans l'air. Les distorsions se multiplièrent et toutes les couleurs s'effacèrent pour ne laisser place qu'à un blanc pur!
 
 Ce blanc ressemblait à une toile de peinture! D'innombrables ombres y dessinaient des montagnes et des rivières!
 
-« La Terre comme Encre! » rugit le Maître Simo. La terre gronda et devint totalement noire, comme si elle s'était muée en encre!
+« La Terre comme Encre! » rugit le Maître Si Mo. La terre gronda et devint totalement noire, comme si elle s'était muée en encre!
 
-« Je suis le pinceau, un seul trait pour briser le ciel. Accomplissez mon Dao Briseur de Ciel! » Le Maître Simo agita sa main droite telle un pinceau. Le monde se métamorphosa sous ses mouvements, comme s'il façonnait son propre univers!
+« Je suis le pinceau, un seul trait pour briser le ciel. Accomplissez mon Dao Briseur de Ciel! » Le Maître Si Mo agita sa main droite telle un pinceau. Le monde se métamorphosa sous ses mouvements, comme s'il façonnait son propre univers!
 
 Les pupilles de Wang Lin se rétractèrent. Lorsqu'il avait discuté du Dao avec Li Qianmei, ils avaient également abordé la question des sorts, et il avait récupéré le jade de Sima Mo. Il s'était aussi rendu dans la grotte de Sima Mo au sein du Royaume aux Sept Couleurs. Tout cela lui avait permis de savoir qu'il existait au sein de la Secte Po Tian une technique divine nommée le Dao Briseur de Ciel!
 
 Seuls les Maîtres de Secte successifs et le disciple aîné pouvaient la pratiquer! Il était d'une puissance incommensurable!
 
-« Maître Simo... Maître Simo... Se pourrait-il qu'il soit... »
+« Maître Si Mo... Maître Si Mo... Se pourrait-il qu'il soit... »

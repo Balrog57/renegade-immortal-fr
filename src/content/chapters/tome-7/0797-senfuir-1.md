@@ -6,15 +6,15 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 797 - Rush Out (1)
 slug: senfuir-1
 ---
-Zhan Konglie survolait également le vide. En tant que nouveau membre du Temple Céleste du Tonnerre, il connaissait naturellement l'emplacement de la matrice de transfert et se dirigeait rapidement vers celle-ci.
+Zhan Konglie survolait également le vide. En tant que nouveau membre du Temple Lei Xian, il connaissait naturellement l'emplacement de la matrice de transfert et se dirigeait rapidement vers celle-ci.
 
 Lorsqu'il était avec Shengong Hu, il avait envisagé de se rendre à la matrice de transfert. Cependant, compte tenu du statut de Shengong Hu, il n'en avait pas parlé et l'avait accompagné jusqu'à la porte céleste.
 
 La bataille devant la porte céleste l'avait grandement exalté. Bien que le Royaume Céleste fût instable, sa détermination demeurait inébranlable. Tout comme Shengong Hu, il était convaincu que Wang Lin ne perdrait pas.
 
-« J'ignore où se trouve Shengong Hu à présent. Je suis certain qu'il est comme moi, en route vers la matrice de transfert du Temple Céleste du Tonnerre. » Le corps de Zhan Konglie vacilla alors qu'il esquivait une faille spatiale qui venait de surgir.
+« J'ignore où se trouve Shengong Hu à présent. Je suis certain qu'il est comme moi, en route vers la matrice de transfert du Temple Lei Xian. » Le corps de Zhan Konglie vacilla alors qu'il esquivait une faille spatiale qui venait de surgir.
 
-En réalité, après s'être rendu au combat devant la porte céleste, il avait immédiatement constaté qu'en dehors de lui et de Shengong Hu, aucun autre messager du Temple Céleste du Tonnerre n'était présent. Il comprit alors que tous les messagers du temple s'étaient dirigés vers la matrice de transfert.
+En réalité, après s'être rendu au combat devant la porte céleste, il avait immédiatement constaté qu'en dehors de lui et de Shengong Hu, aucun autre messager du Temple Lei Xian n'était présent. Il comprit alors que tous les messagers du temple s'étaient dirigés vers la matrice de transfert.
 
 Zhan Konglie et Shengong Hu convergeaient vers la matrice de transfert depuis deux directions différentes.
 

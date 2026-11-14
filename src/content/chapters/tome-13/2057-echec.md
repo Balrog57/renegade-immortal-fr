@@ -10,9 +10,9 @@ Certains membres du clan des Anciens croyaient que l'Ancêtre n'était pas mort 
 
 L'esprit de l'Ancêtre continuait de protéger les trois clans. Autrement, comment expliquer l'étrangeté de la statue de l'Ancêtre dans les trois cités impériales, et comment justifier chacune de ses bénédictions?
 
-Comment expliquer les halos qui apparaissaient autour de la statue de l'Ancêtre lorsque quelqu'un subissait la Triple Division de l'Âme de l'Ancien Dao?
+Comment expliquer les halos qui apparaissaient autour de la statue de l'Ancêtre lorsque quelqu'un subissait la Triple Division de l'Âme du Dao Gu?
 
-Lors de la Triple Division de l'Âme de l'Ancien Dao, lors de la première scission, neuf halos apparaissaient autour de la statue de l'Ancêtre. Lors de la deuxième scission, 18 halos apparaissaient, et lors de la troisième, un total de 27 halos se manifestaient!
+Lors de la Triple Division de l'Âme du Dao Gu, lors de la première scission, neuf halos apparaissaient autour de la statue de l'Ancêtre. Lors de la deuxième scission, 18 halos apparaissaient, et lors de la troisième, un total de 27 halos se manifestaient!
 
 À cet instant, dans la ville impériale, à l'extérieur de la statue de l'Ancêtre, 18 halos brillaient et des ondulations se propageaient dans toutes les directions, attirant l'attention de tous les habitants de la cité.
 
@@ -32,7 +32,7 @@ Wang Lin prit une profonde inspiration et ses yeux brillèrent. Il leva les yeux
 
 « La première scission a duré trois ans. Les derniers instants ressemblaient presque à la mort. Si ce n'était pas pour ma volonté, je crains que je n'aurais pas pu fusionner à nouveau... »
 
-« Cette Triple Division de l'Âme de l'Ancien Dao est liée à la force de la volonté... mais aussi à la chance... » Wang Lin fronça les sourcils; il comprenait désormais pourquoi si peu de personnes choisissaient de tenter une scission complète.
+« Cette Triple Division de l'Âme du Dao Gu est liée à la force de la volonté... mais aussi à la chance... » Wang Lin fronça les sourcils; il comprenait désormais pourquoi si peu de personnes choisissaient de tenter une scission complète.
 
 La chance peut frapper une fois, ou peut-être deux, mais trois fois consécutives... était extrêmement improbable.
 
@@ -48,7 +48,7 @@ Dans son cœur, il savait que si le Dao Gu avait besoin de sa protection, son di
 
 En un éclair, trois ans passèrent.
 
-Les 18 halos au-dessus de la cité impériale des Anciens Shi semblaient faire partie intégrante de la ville. Beaucoup d'habitants s'étaient habitués à leur présence.
+Les 18 halos au-dessus de la cité impériale des Shi Gu semblaient faire partie intégrante de la ville. Beaucoup d'habitants s'étaient habitués à leur présence.
 
 Bien qu'ils ne cessassent de les observer, leur curiosité s'était lentement dissipée avec le temps. Désormais, une seule interrogation demeurait dans leurs esprits.
 
@@ -68,11 +68,11 @@ Le temps continuait de s'écouler. Lorsque la dixième année passa, l'ombre sur
 
 Ces fragments invisibles continuaient de se désagréger, et une fois qu'ils seraient réduits en poussière, cela signifierait que son âme originelle s'était une seconde fois totalement brisée.
 
-L'Empereur des Anciens Shi semblait avoir abandonné ses idées irréalistes et avait cessé de surveiller la statue de l'Ancêtre. Il se concentrait désormais sur l'éducation de Ji Du pour qu'il hérite lentement du trône.
+L'Empereur des Shi Gu semblait avoir abandonné ses idées irréalistes et avait cessé de surveiller la statue de l'Ancêtre. Il se concentrait désormais sur l'éducation de Ji Du pour qu'il hérite lentement du trône.
 
 Il restait moins de 40 ans avant que Ji Du ne succède à l'Empereur. Pour des mortels, 40 ans représentaient la moitié d'une vie, mais pour le clan des Anciens, bien que ce soit une période longue, ce n'était pas si lointain.
 
-Alors que Ji Du gagnait progressivement le contrôle des divers secrets des Anciens Shi, trois années supplémentaires s'écoulèrent.
+Alors que Ji Du gagnait progressivement le contrôle des divers secrets des Shi Gu, trois années supplémentaires s'écoulèrent.
 
 La seconde scission d'âme de Wang Lin durait depuis 13 ans! Il y a six mois, une pression puissante s'était propagée depuis le temple ancestral, générant une force étrange. Cette force bloquait tout Sens Divin et empêchait quiconque d'entrer!
 
@@ -104,7 +104,7 @@ La quinzième année arriva.
 
 À l'aube de cette quinzième année, un événement stupéfiant se produisit concernant les 18 halos entourant la statue de l'Ancêtre. Cela attira l'attention de tous ceux qui s'étaient habitués à leur présence et provoqua un tollé dans toute la ville.
 
-Même l'Empereur des Anciens Shi, qui ne prêtait plus attention à la situation, sortit de ses appartements pour contempler la statue de l'Ancêtre. Il prit une profonde inspiration.
+Même l'Empereur des Shi Gu, qui ne prêtait plus attention à la situation, sortit de ses appartements pour contempler la statue de l'Ancêtre. Il prit une profonde inspiration.
 
 Ji Du s'élança dans les airs et observa la scène avec nervosité, serrant inconsciemment le poing.
 
@@ -120,7 +120,7 @@ Désormais, il ne restait que 17 halos autour de la statue de l'Ancêtre!
 
 « Je m'en souviens! J'ai entendu dire autrefois que les trois scissions d'âme n'étaient pas infinies et qu'il y avait une limite de temps. Se pourrait-il que cette personne ait atteint le terme imparti pour sa seconde scission? »
 
-Les murmures et les discussions s'intensifièrent dans la cité impériale des Anciens Shi.
+Les murmures et les discussions s'intensifièrent dans la cité impériale des Shi Gu.
 
 « Wang Lin a atteint la limite de temps de sa seconde scission. Si les 18 halos disparaissent sans qu'il ait réussi à refusionner son âme originelle, alors son âme sera définitivement perdue! » Song Tian prit une profonde inspiration en fixant le temple, le front plissé.
 

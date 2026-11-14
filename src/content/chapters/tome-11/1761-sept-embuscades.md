@@ -50,9 +50,9 @@ C'était la deuxième embuscade!
 
 Après avoir enchaîné ces deux sorts surpuissants, Wang Lin paraissait épuisé, mais il ne s'arrêta pas. Il pointa l'espace entre ses sourcils et une ombre surgit au-dessus de lui. Cette ombre se sépara progressivement jusqu'à ce que son corps original et son avatar se scindent.
 
-Le corps original, porteur de l'héritage du Dao Ancien, s'élança vers le ciel. D'un geste de la main droite, il fit changer les couleurs du monde tandis que la Hache Brise-Ciel apparaissait. Le corps d'origine la saisit et disparut dans un éclair.
+Le corps original, porteur de l'héritage du Dao Gu, s'élança vers le ciel. D'un geste de la main droite, il fit changer les couleurs du monde tandis que la Hache Brise-Ciel apparaissait. Le corps d'origine la saisit et disparut dans un éclair.
 
-L'attaque à pleine puissance de l'héritage du Dao Ancien constituait la troisième embuscade!
+L'attaque à pleine puissance de l'héritage du Dao Gu constituait la troisième embuscade!
 
 Après ces trois assauts, le visage de Wang Lin s'assombrit et son souffle devint court. Il se régénéra pendant la durée d'un demi-bâton d'encens avant de rouvrir les yeux. D'un revers de main, il fit apparaître la Voile Fantôme. Cet objet issu du Continent Xian Gang était un trésor puissant! Bien qu'il ne le maîtrisait pas encore totalement, il pouvait l'utiliser pour projeter des illusions. Après une courte réflexion, Wang Lin mordit son index gauche et laissa couler son sang sur le visage spectral.
 

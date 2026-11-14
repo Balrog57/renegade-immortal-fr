@@ -78,7 +78,7 @@ Ces hommes formaient une force redoutable. La plupart du temps, Wang Lin n'avait
 
 De plus en plus de combattants rejoignaient les rangs de Wang Lin. Les énergies d'épée sous leurs pieds leur donnaient l'apparence d'une épée gigantesque transperçant la région occidentale!
 
-Le groupe de Wang Lin n'était pas le seul dans cette région. Les messagers du Temple Céleste du Tonnerre, les 108 Célestes et certaines familles de culture faisaient de même.
+Le groupe de Wang Lin n'était pas le seul dans cette région. Les messagers du Temple Lei Xian, les 108 Célestes et certaines familles de culture faisaient de même.
 
 Cependant, l'équipe menée par Wang Lin était la plus imposante!
 

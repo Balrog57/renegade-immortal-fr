@@ -10,7 +10,7 @@ Wang Lin leva la tête et regarda l'homme en robe noire. Comment aurait-il pu ou
 
 Le chef des cinq maîtres du Système Stellaire Antique. Un être d'une ruse infinie qui avait comploté contre le ciel et la terre!
 
-Qu'il s'agisse du meurtre de l'ancien Seigneur du Royaume Scellé, de la destruction des quatre Royaumes Célestes, des manigances contre l'Empereur Céleste Qing Lin, de la mise en place du Clan Fu Wen pour traquer la flèche de Li Guang, de la trahison du Shui Daozi, de la reddition du Maître Simo, de la mort de l'ancêtre de la famille Zhan ou de tant d'autres événements, l'ombre du Souverain planait sur chacun d'eux!
+Qu'il s'agisse du meurtre de l'ancien Seigneur du Royaume Scellé, de la destruction des quatre Royaumes Célestes, des manigances contre l'Empereur Céleste Qing Lin, de la mise en place du Clan Fu Wen pour traquer la flèche de Li Guang, de la trahison du Shui Daozi, de la reddition du Maître Si Mo, de la mort de l'ancêtre de la famille Zhan ou de tant d'autres événements, l'ombre du Souverain planait sur chacun d'eux!
 
 Dans le Système Stellaire Antique, Wang Lin avait eu ce pressentiment diffus que son esprit était manipulé. Avec le recul, il devait s'agir là aussi d'un acte du Souverain.
 

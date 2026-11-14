@@ -12,7 +12,7 @@ Tout se passa en un éclair. À l'instant même où le hurlement du loup projeta
 
 En un instant, le bras se referma!
 
-L'aura émanant de cette main contenait des Flammes d'Encens. Celui qui cherchait à capturer Wang Lin n'était pas un cultivateur du deuxième pas, mais un cultivateur du troisième pas! Pour être précis, il s'agissait d'un être venant tout juste d'atteindre ce stade, semblable au Shui Daozi ou au Maître Simo, au début du Vide du Nirvana!
+L'aura émanant de cette main contenait des Flammes d'Encens. Celui qui cherchait à capturer Wang Lin n'était pas un cultivateur du deuxième pas, mais un cultivateur du troisième pas! Pour être précis, il s'agissait d'un être venant tout juste d'atteindre ce stade, semblable au Shui Daozi ou au Maître Si Mo, au début du Vide du Nirvana!
 
 Cette aura, particulièrement tyrannique, fondit sur Wang Lin.
 
@@ -76,7 +76,7 @@ Des rugissements furieux et des grondements de tonnerre s'échappèrent du trou 
 
 Sous son regard, la feuille se mua en lumière cristalline et se dissipa.
 
-« Malédiction! Quel genre de trésor est-ce là? Le Maître Simo a combattu cet homme, pourquoi n'a-t-il rien dit? Et ce Grand Maître Yun Luo s'est immédiatement retiré en culture isolée après son retour! »
+« Malédiction! Quel genre de trésor est-ce là? Le Maître Si Mo a combattu cet homme, pourquoi n'a-t-il rien dit? Et ce Grand Maître Yun Luo s'est immédiatement retiré en culture isolée après son retour! »
 
 « Ne sous-estimez pas cet individu. S'il n'était pas gravement blessé, il ne vous serait pas si facile de le capturer avec votre niveau de culture... » La jeune fille sourit en consultant sa boussole. « Nord-ouest, 378 496 kilomètres! »
 

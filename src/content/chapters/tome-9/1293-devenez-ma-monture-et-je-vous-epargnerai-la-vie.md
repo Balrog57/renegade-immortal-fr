@@ -32,11 +32,11 @@ Malgré cela, le sceau avait porté ses fruits. La faille spatiale s'était cons
 
 Quant aux neuf yeux dans le ciel, les simples disciples de la Secte Yao en connaissaient l'existence, mais seuls les Anciens savaient que ces neuf yeux représentaient le Royaume Céleste Ancien!
 
-Parmi les Anciens, des rumeurs circulaient selon lesquelles la séparation de la Secte Yao et de la Secte Divine était due à un ordre du premier Maître de la lignée. Ce dernier avait ordonné qu'un groupe de la Secte Divine soit stationné ici pour des générations afin de garder ce lieu, interdisant à la moindre bête de sortir vivante de la faille spatiale!
+Parmi les Anciens, des rumeurs circulaient selon lesquelles la séparation de la Secte Yao et de la Secte Shen était due à un ordre du premier Maître de la lignée. Ce dernier avait ordonné qu'un groupe de la Secte Shen soit stationné ici pour des générations afin de garder ce lieu, interdisant à la moindre bête de sortir vivante de la faille spatiale!
 
-Certains prétendaient même que le Maître de la Secte Divine était la même personne que le Maître de la Secte Yao... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. La Secte Divine serait actuellement dirigée par l'un de ses esclaves agissant en son nom.
+Certains prétendaient même que le Maître de la Secte Shen était la même personne que le Maître de la Secte Yao... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. La Secte Shen serait actuellement dirigée par l'un de ses esclaves agissant en son nom.
 
-C'était pour cette raison que la Secte Yao n'obéissait pas aux ordres de la Secte Divine et possédait les moyens nécessaires pour lui faire face!
+C'était pour cette raison que la Secte Yao n'obéissait pas aux ordres de la Secte Shen et possédait les moyens nécessaires pour lui faire face!
 
 Bien sûr, tout cela n'était que des rumeurs. La véritable histoire s'était perdue dans le fleuve du temps, et très peu en connaissaient la réalité.
 
@@ -92,7 +92,7 @@ Les trois membres de la Secte Yao, également ébranlés, commencèrent à discu
 
 Les trois membres de la Secte Yao échangeaient des messages silencieux tout en restant sur leurs gardes.
 
-Seule la vieille femme en blanc restait de marbre. Elle avait observé chaque geste de Wang Lin et savait que même six Grands Anciens de la Secte Éternelle auraient eu trop peur pour l'arrêter; deux d'entre eux avaient même perdu leur corps physique. Pour elle, le fait qu'il ne tue que quelques bêtes féroces n'était rien de notable.
+Seule la vieille femme en blanc restait de marbre. Elle avait observé chaque geste de Wang Lin et savait que même six Grands Anciens de la Secte Wu Ji auraient eu trop peur pour l'arrêter; deux d'entre eux avaient même perdu leur corps physique. Pour elle, le fait qu'il ne tue que quelques bêtes féroces n'était rien de notable.
 
 Tous les regards convergeaient vers Wang Lin, mais il n'en avait cure. Son temps était compté. Après avoir absorbé les crânes, il scruta la faille spatiale qui s'ouvrait lentement. Il percevait clairement une aura puissante à l'intérieur, une présence qui hésitait, comme si elle attendait quelque chose.
 

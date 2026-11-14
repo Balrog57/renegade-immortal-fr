@@ -104,9 +104,9 @@ Cela ressemblait énormément à ce que l'Ancien Maître Impérial du Dao avait 
 
 C'était l'unique moyen d'avoir une chance d'obtenir à nouveau l'approbation de l'Ancêtre Ancien et peut-être d'obtenir plus de sang d'âme, comme lors de la deuxième épreuve!
 
-« Je ne peux plus retourner dans le Dao Antique, et le droit d'ouvrir le Temple Ancestral n'est pas entre les mains des Grands Empyréens. Ce droit appartient à l'empereur actuel.
+« Je ne peux plus retourner dans le Dao Gu, et le droit d'ouvrir le Temple Ancestral n'est pas entre les mains des Grands Empyréens. Ce droit appartient à l'empereur actuel.
 
-« Même si Luo Chen est reconnu comme l'Empereur du Dao Antique... je ne veux toujours pas retourner là-bas... » Wang Lin soupira, affichant une expression complexe.
+« Même si Luo Chen est reconnu comme l'Empereur du Dao Gu... je ne veux toujours pas retourner là-bas... » Wang Lin soupira, affichant une expression complexe.
 
 « Quant au Ji Antique, je n'ai que peu de contacts avec eux. Le Shi Antique me convient bien mieux, d'autant plus que malgré l'ambition de Ji Du, il n'osera pas s'opposer à mes intentions.
 

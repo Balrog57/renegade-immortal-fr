@@ -8,7 +8,7 @@ slug: le-guide-des-enfers
 ---
 « Autrefois, l'Ancêtre Zhan Xingye, après des années de compréhension, parvint enfin à ouvrir le troisième parchemin de bataille. Cependant, après l'avoir observé, son expression devint très étrange. Il s'est retiré en culture de porte close avec ce troisième parchemin pendant mille ans et n'en est jamais ressorti. Un jour, après ces mille ans, le clan ne trouva plus que le troisième parchemin et un jade à l'endroit même de sa retraite, mais l'Ancêtre avait disparu sans laisser de trace! »
 
-« Si l'Ancêtre n'avait pas disparu, même le Temple Céleste du Tonnerre n'oserait provoquer ma famille Zhan. Pas même cette ancienne famille de cultivateurs ne l'oserait. Lorsque l'Ancêtre était parmi nous, l'honneur de la famille Zhan rayonnait! »
+« Si l'Ancêtre n'avait pas disparu, même le Temple Lei Xian n'oserait provoquer ma famille Zhan. Pas même cette ancienne famille de cultivateurs ne l'oserait. Lorsque l'Ancêtre était parmi nous, l'honneur de la famille Zhan rayonnait! »
 
 « Cependant, tout a changé depuis sa disparition... Des générations de descendants ont gardé l'espoir de le retrouver. L'Ancêtre n'est pas mort; sinon, son jeton de vie serait brisé! »
 
@@ -58,7 +58,7 @@ Ce qui l'inquiétait, c'était Qing Shui!
 
 De son point de vue, Qing Shui était un fou furieux. Il était fort probable qu'il poursuivrait l'affaire concernant Xu Mu avec acharnement!
 
-« Qing Shui fut prêt à combattre Xue Shenzi pour Xu Mu. Il fut prêt à tuer un membre du Temple Céleste du Tonnerre lors de la bénédiction céleste. Si je force ce Xu Mu à rester, je ne ferai qu'attirer les ennuis. » Le visage de Lie Yunzi était sombre. Il hésitait également, car il sentait que Xu Mu ne serait pas aussi facile à emprisonner qu'il l'espérait.
+« Qing Shui fut prêt à combattre Xue Shenzi pour Xu Mu. Il fut prêt à tuer un membre du Temple Lei Xian lors de la bénédiction céleste. Si je force ce Xu Mu à rester, je ne ferai qu'attirer les ennuis. » Le visage de Lie Yunzi était sombre. Il hésitait également, car il sentait que Xu Mu ne serait pas aussi facile à emprisonner qu'il l'espérait.
 
 « Au cours des âges, la seule personne que j'ai rencontrée capable de percevoir le domaine à l'intérieur du parchemin fut Xu Mu. S'il meurt, je ne sais pas quand je retrouverai un tel talent... Il vaut mieux entretenir de bons rapports avec lui! » En réfléchissant ainsi, Lie Yunzi eut un éclat de rire et ses yeux se remplirent d'admiration. Il hocha la tête et déclara:
 
@@ -124,4 +124,4 @@ Bang, bang, bang, bang!
 
 En un instant, d'innombrables édifices en forme d'épées s'effondrèrent!
 
-« Qu'est-ce que ce Royaume Sha Yu a bien pu prendre au Senior frère Qing Shui pour qu'il soit si enragé après avoir fouillé la mémoire du respecté Xuan Bao? » Wang Lin sortit du vortex et fixa froidement le Royaume Sha Yu, l'un des huit royaumes de l'Alliance Xiu Zhen!
+« Qu'est-ce que ce Royaume Sha Yu a bien pu prendre au Senior frère Qing Shui pour qu'il soit si enragé après avoir fouillé la mémoire du Estimé Xuan Bao? » Wang Lin sortit du vortex et fixa froidement le Royaume Sha Yu, l'un des huit royaumes de l'Alliance Xiu Zhen!

@@ -16,9 +16,9 @@ La joie et l'animation se dissipèrent, laissant place à un silence de mort. Se
 
 « Quelle est cette voix?! »
 
-« Ye Dao... Ye Dao... N'est-ce pas le nom de l'Empereur du Dao Antique?! »
+« Ye Dao... Ye Dao... N'est-ce pas le nom de l'Empereur du Dao Gu?! »
 
-« Cet individu... ose-t-il proférer des paroles aussi arrogantes dans la cité impériale du Dao Antique? » Après un bref instant de silence, la zone touchée par le hurlement de Wang Lin fut envahie par des cris de stupeur.
+« Cet individu... ose-t-il proférer des paroles aussi arrogantes dans la cité impériale du Dao Gu? » Après un bref instant de silence, la zone touchée par le hurlement de Wang Lin fut envahie par des cris de stupeur.
 
 À l'intérieur du Temple Dao Gu, les neuf disciples sous les ordres de Xuan Luo étaient les plus proches de ce hurlement. Ils ouvrirent les yeux, choqués, et levèrent le regard vers la vallée située derrière le temple!
 
@@ -30,7 +30,7 @@ De temps à autre, Xuan Luo recrachait une bouffée de gaz vert qui enveloppait 
 
 « J'ai raffiné cette épée pendant très longtemps, et quatre lames sont désormais apparues. C'est un moment critique, mais une fois que la cinquième lame apparaîtra, ce sera un trésor surpuissant pour Wang Lin. » Xuan Luo ouvrit les yeux et sourit, une pointe de fierté brillant dans son regard.
 
-Après avoir demandé à Wang Lin d'envoyer le présent à l'Empereur du Dao Antique, il s'était retiré en culture fermée pour lui forger ce trésor de foi. Il estimait qu'après être devenu le maître de Wang Lin, il ne lui avait pas encore offert d'objet de valeur et se sentait redevable envers lui. En raison de sa culture intensive, la majeure partie de son Sens Divin était concentrée sur l'épée, ce qui l'empêchait de le retirer rapidement.
+Après avoir demandé à Wang Lin d'envoyer le présent à l'Empereur du Dao Gu, il s'était retiré en culture fermée pour lui forger ce trésor de foi. Il estimait qu'après être devenu le maître de Wang Lin, il ne lui avait pas encore offert d'objet de valeur et se sentait redevable envers lui. En raison de sa culture intensive, la majeure partie de son Sens Divin était concentrée sur l'épée, ce qui l'empêchait de le retirer rapidement.
 
 Cependant, à peine eut-il ouvert les yeux qu'un rugissement dément, semblant vouloir briser le monde, jaillit de la demeure en bois dans la vallée!
 
@@ -44,7 +44,7 @@ Pris d'anxiété, Xuan Luo envoya rapidement un message à ses neuf subordonnés
 
 « Allez trouver Wang Lin et découvrez la cause de ce tumulte. Vous devez le stabiliser jusqu'à mon arrivée! Que cette affaire ne s'ébruite pas! »
 
-À l'intérieur de la maison en bois, alors que le rugissement de Wang Lin résonnait, d'innombrables ondes de choc se propagèrent dans la zone. Ces ondulations transportaient le hurlement fou de Wang Lin, sa détermination farouche à tuer l'Empereur du Dao Antique, ainsi que la puissance destructrice qui bouillonnait en lui!
+À l'intérieur de la maison en bois, alors que le rugissement de Wang Lin résonnait, d'innombrables ondes de choc se propagèrent dans la zone. Ces ondulations transportaient le hurlement fou de Wang Lin, sa détermination farouche à tuer l'Empereur du Dao Gu, ainsi que la puissance destructrice qui bouillonnait en lui!
 
 Sous l'effet de ce rugissement, le lit de bois sur lequel Wang Lin était assis se changea en poussière. La chaise, la table et la demeure entière s'effondrèrent en un nuage de débris. Tandis que les ondes se propageaient, une tempête gigantesque se forma dans la vallée.
 
@@ -64,7 +64,7 @@ Wang Lin bondit dans les airs, ses cheveux ondulant sans qu'aucun vent ne soit p
 
 Alors qu'il hurlait, son niveau de culture commença à grimper, passant du stade avancé de la Tribulation du Vide au sommet de la Tribulation du Vide! Cela confirmait que les spéculations de Wang Lin sur sa voie de culture future étaient exactes!
 
-Cela aurait dû le réjouir, mais en cet instant, Wang Lin ne ressentait aucun changement. L'unique pensée qui occupait son esprit était de massacrer son chemin jusqu'au palais, d'assassiner l'Empereur du Dao Antique et de reprendre Wan Er!!
+Cela aurait dû le réjouir, mais en cet instant, Wang Lin ne ressentait aucun changement. L'unique pensée qui occupait son esprit était de massacrer son chemin jusqu'au palais, d'assassiner l'Empereur du Dao Gu et de reprendre Wan Er!!
 
 Son corps était entouré d'une aura violente. D'un geste de la main vers la vallée, il fit trembler la terre entière; tout le Mont Gu Dao sembla vaciller. Dans la grotte souterraine, le Grand Soleil Empyréen de Wang Lin et la tête de l'Ancêtre Céleste tremblèrent. Une fissure apparut au plafond de la grotte, et le Grand Soleil Empyréen de Wang Lin fit jaillir la tête à travers l'ouverture!
 
@@ -82,7 +82,7 @@ Les neuf étaient sous le choc et joignirent les mains devant Wang Lin en signe 
 
 Au sein de la tempête, le regard de Wang Lin était glacial. Sa main droite s'abattit à nouveau vers le sol. La fissure s'élargit davantage. Un rayon de lumière noire et blanche jaillit, fusionnant instantanément avec lui. La tête de l'Ancêtre Céleste s'envola telle une traînée dorée pour être rangée dans l'espace de stockage de Wang Lin.
 
-Une fois cela fait, Wang Lin se tourna brusquement vers la cité impériale du Dao Antique.
+Une fois cela fait, Wang Lin se tourna brusquement vers la cité impériale du Dao Gu.
 
 « Ye Dao! » Wang Lin serra les dents, ignorant royalement les neuf subordonnés. Il fixa le palais et s'élança dans sa direction avec la force d'un coup de tonnerre.
 
@@ -96,9 +96,9 @@ La silhouette de Wang Lin marqua un temps d'arrêt et il leva les yeux. Ses yeux
 
 Le vieil homme dont le niveau de culture était le plus élevé regarda Wang Lin avec effroi. Serrant les dents, il joignit les mains et dit: « Jeune Maître, ne soyez pas en colère. Nous suivons les ordres du Seigneur Xuan pour vous retenir. Une décision pourra être prise une fois que le Seigneur Xuan sera arrivé. »
 
-« Maître Xuan Luo... » Wang Lin ressentit une douleur lancinante au cœur. Il savait que Xuan Luo était le gardien du Dao Antique, et que même l'actuel Empereur avait été choisi par lui, mais maintenant il allait...
+« Maître Xuan Luo... » Wang Lin ressentit une douleur lancinante au cœur. Il savait que Xuan Luo était le gardien du Dao Gu, et que même l'actuel Empereur avait été choisi par lui, mais maintenant il allait...
 
-« Dégagez!! » Les yeux de Wang Lin brillaient d'une détermination inflexible. Il devait tuer l'Empereur du Dao Antique avant l'arrivée de Xuan Luo pour ne pas compliquer la situation de son maître!
+« Dégagez!! » Les yeux de Wang Lin brillaient d'une détermination inflexible. Il devait tuer l'Empereur du Dao Gu avant l'arrivée de Xuan Luo pour ne pas compliquer la situation de son maître!
 
 C'était la seule voie possible pour Wang Lin!
 

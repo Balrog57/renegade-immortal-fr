@@ -20,7 +20,7 @@ Son corps trembla et elle commença à reculer. C'était comme si des millions d
 
 L'œil gauche de cette silhouette floue abritait un vortex aux neuf couleurs!
 
-Le Maître Simo fixa Wang Lin sans un mot.
+Le Maître Si Mo fixa Wang Lin sans un mot.
 
 Miaoyin Daozun regarda également Wang Lin. Une lueur étrange brillait dans ses yeux et il esquissa un rictus presque imperceptible.
 

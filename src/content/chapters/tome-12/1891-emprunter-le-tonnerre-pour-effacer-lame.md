@@ -12,7 +12,7 @@ Dans ce marécage qui s'étendait sur des millions de kilomètres se dressait un
 
 Le scorpion mesurait cent mille pieds de long. Entièrement noir et allongé sur le marécage, il paraissait d'un réalisme saisissant! Il dégageait une puissante énergie démoniaque qui empêchait la plupart des cultivateurs de s'approcher; cette énergie, en pénétrant leurs corps, risquait de les plonger dans la folie.
 
-À l'exception du Maître de Secte, tous les membres de la Secte Dao Mo étaient retournés à leur base. Seul le Maître de Secte s'était rendu devant le Temple Lü Mo Xie avec Wang Lin. Grâce à son niveau de culture, il n'était pas affecté par l'énergie démoniaque ambiante.
+À l'exception du Maître de Secte, tous les membres de la Secte Dao Mo étaient retournés à leur base. Seul le Maître de Secte s'était rendu devant le Temple Lu Mo Xie avec Wang Lin. Grâce à son niveau de culture, il n'était pas affecté par l'énergie démoniaque ambiante.
 
 À cet instant, le Maître de Secte apparut aux côtés de l'immense édifice-scorpion. Aussitôt après son apparition, un faible toussotement s'éleva de la gueule de la créature gigantesque, en contrebas. Ce bruit était ténu, mais dans ce silence absolu, il résonna avec une clarté extrême.
 

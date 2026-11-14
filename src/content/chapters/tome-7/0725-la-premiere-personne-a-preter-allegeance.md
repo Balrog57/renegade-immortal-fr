@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 725 - The First Person to Pledge
 slug: la-première-personne-a-preter-allegeance
 ---
-Aux yeux de l'homme aux cheveux noirs, la silhouette de Wang Lin paraissait infiniment immense. Il était même convaincu que personne dans le Système Stellaire de Luotian ne pourrait rester indemne sous un tel regard, pas même le chef du Temple Céleste du Tonnerre!
+Aux yeux de l'homme aux cheveux noirs, la silhouette de Wang Lin paraissait infiniment immense. Il était même convaincu que personne dans le Système Stellaire de Luotian ne pourrait rester indemne sous un tel regard, pas même le chef du Temple Lei Xian!
 
 En particulier, le mépris qui émanait de ces yeux donnait l'impression que le monde entier n'était qu'une simple fourmi. Ce sentiment fit trembler le corps de l'homme aux cheveux noirs. Compte tenu de sa fierté, il n'avait jamais ressenti un tel respect envers quiconque!
 
@@ -30,7 +30,7 @@ L'homme aux cheveux noirs fut stupéfait en voyant cette personne. Il comprit im
 
 Lorsqu'il était arrivé, il avait été instantanément saisi par le regard de Wang Lin, si bien qu'il n'avait rien vu d'autre. Maintenant qu'il avait inspecté ses environs, il fut une fois de plus choqué!
 
-« Une Bête du Tonnerre aux cornes argentées! Une marionnette Yin Illusoire! Il... il est aussi un messager du Temple Céleste du Tonnerre! » L'homme aux cheveux noirs peinait à le croire. Il ne doutait pas de l'identité de Wang Lin, mais il ne pensait pas qu'un être aussi puissant puisse être un simple messager du Temple Céleste du Tonnerre.
+« Une Bête du Tonnerre aux cornes argentées! Une marionnette Yin Illusoire! Il... il est aussi un messager du Temple Lei Xian! » L'homme aux cheveux noirs peinait à le croire. Il ne doutait pas de l'identité de Wang Lin, mais il ne pensait pas qu'un être aussi puissant puisse être un simple messager du Temple Lei Xian.
 
 Avant qu'il ne puisse trop réfléchir, Wang Lin ouvrit les yeux une fois de plus. Son regard était redevenu normal. Plus tôt, non seulement l'homme aux cheveux noirs avait été choqué, mais Wang Lin lui-même avait été surpris par ce qui venait de se passer.
 
@@ -40,15 +40,15 @@ Les scènes réalistes du rêve irréel lui avaient ouvert la porte vers la troi
 
 Le but ultime de personnes comme Tian Yunzi était la troisième étape. Ils étaient prêts à tout pour elle! Pour eux, la troisième étape demeurait insaisissable. Ils continuaient d'avancer dans l'obscurité, cherchant amèrement.
 
-Cependant, Wang Lin avait pu obtenir une opportunité aussi inimaginable grâce à la perle défiant le ciel. Parfois, le destin est ainsi fait.
+Cependant, Wang Lin avait pu obtenir une opportunité aussi inimaginable grâce à la Perle Défiant le Ciel. Parfois, le destin est ainsi fait.
 
 Après avoir entrevu le Dao de la troisième étape, les futurs accomplissements de Wang Lin devenaient imprévisibles et incommensurables.
 
-« Ce junior est un messager de deuxième niveau du Temple Céleste du Tonnerre, Shengong Hu. Shengong Hu salue le Senior! » L'homme aux cheveux noirs se prosterna immédiatement au sol, adoptant la position qu'il utilisait pour reconnaître son maître afin de témoigner son respect.
+« Ce junior est un messager de deuxième niveau du Temple Lei Xian, Shengong Hu. Shengong Hu salue le Senior! » L'homme aux cheveux noirs se prosterna immédiatement au sol, adoptant la position qu'il utilisait pour reconnaître son maître afin de témoigner son respect.
 
-Si un étranger avait vu cela, il en aurait été extrêmement stupéfait. Il faut dire que Shengong Hu était d'une fierté extrême et d'une grande cruauté. Même parmi les messagers du Temple Céleste du Tonnerre, c'était une personne difficile à traiter, et la plupart des familles de culture n'oseraient pas le provoquer.
+Si un étranger avait vu cela, il en aurait été extrêmement stupéfait. Il faut dire que Shengong Hu était d'une fierté extrême et d'une grande cruauté. Même parmi les messagers du Temple Lei Xian, c'était une personne difficile à traiter, et la plupart des familles de culture n'oseraient pas le provoquer.
 
-Plus important encore, le talent de cet homme était prodigieux. Le seigneur du Temple Céleste du Tonnerre avait lui-même déclaré que le talent de Shengong Hu pouvait être considéré comme faisant partie des trente meilleurs du Système Stellaire de Luotian.
+Plus important encore, le talent de cet homme était prodigieux. Le seigneur du Temple Lei Xian avait lui-même déclaré que le talent de Shengong Hu pouvait être considéré comme faisant partie des trente meilleurs du Système Stellaire de Luotian.
 
 Cette personne n'avait cultivé que depuis 1 000 ans. En seulement mille ans, il était parvenu au stade du Yang Corporel, et ce, au sommet de celui-ci. Un tel talent inspirait aux gens une crainte encore plus grande que sa cruauté.
 
@@ -74,7 +74,7 @@ Les paroles nonchalantes de Wang Lin stupéfièrent soudainement Shengong Hu. Il
 
 Avant qu'il ne puisse finir sa phrase, Wang Lin agita sa main droite et dit: « S'il n'y a rien d'autre, alors partez vite! »
 
-Wang Lin avait décidé d'étudier attentivement le changement de la perle défiant le ciel. Le pouvoir de cette perle dépassait de loin son imagination. Un simple interstice dans la porte lui avait permis de voir la troisième étape. S'il l'ouvrait complètement...
+Wang Lin avait décidé d'étudier attentivement le changement de la Perle Défiant le Ciel. Le pouvoir de cette perle dépassait de loin son imagination. Un simple interstice dans la porte lui avait permis de voir la troisième étape. S'il l'ouvrait complètement...
 
 Le cœur de Wang Lin battait rapidement. Il ne pouvait imaginer les conséquences.
 
@@ -84,7 +84,7 @@ Shengong Hu trouvait l'attitude de Wang Lin tout à fait normale. Un être puiss
 
 En repensant au regard de tout à l'heure, Shengong Hu n'en doutait pas: ce Senior lui avait épargné la vie. Autrement, il serait sans aucun doute mort!
 
-Son esprit tremblant et son choc s'étaient transformés en fanatisme et en révérence. Après une profonde inspiration, il dit: « Senior, Junior est Shengong Hu, un membre de la famille Shengong dans le domaine sud. Je suis un messager de deuxième niveau du Temple Céleste du Tonnerre et un cultivateur au stade Yang Corporel. Je prie le Senior de me permettre de lui prêter allégeance! »
+Son esprit tremblant et son choc s'étaient transformés en fanatisme et en révérence. Après une profonde inspiration, il dit: « Senior, Junior est Shengong Hu, un membre de la famille Shengong dans le domaine sud. Je suis un messager de deuxième niveau du Temple Lei Xian et un cultivateur au stade Yang Corporel. Je prie le Senior de me permettre de lui prêter allégeance! »
 
 Ce n'était pas qu'il ne parvenait pas à percevoir le niveau de culture de Wang Lin, mais ce regard terrifiant l'avait fait tout oublier. Il croyait même qu'il s'agissait d'un véritable expert surpuissant! Un véritable expert, même lorsqu'il dissimule son niveau de culture, prend l'air de quelqu'un dont on ne peut déceler la dissimulation, exactement comme un véritable cultivateur Ascendant.
 

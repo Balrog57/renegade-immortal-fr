@@ -12,17 +12,17 @@ C'était la première fois que Wang Lin mentionnait cette troisième âme à laq
 
 Les quatre généraux n'avaient jamais évoqué ce sujet devant lui. Pour eux, il s'agissait du secret le plus impénétrable du monde des grottes, une vérité que très peu d'êtres connaissaient!
 
-Cependant, avant qu'ils ne puissent se remettre du choc provoqué par les paroles de Wang Lin, la Hache Brise-Ciel dans sa main s'agrandit rapidement jusqu'à atteindre plusieurs centaines de pieds. L'aura du Dao Antique envahit son corps, qui grandit soudain un peu.
+Cependant, avant qu'ils ne puissent se remettre du choc provoqué par les paroles de Wang Lin, la Hache Brise-Ciel dans sa main s'agrandit rapidement jusqu'à atteindre plusieurs centaines de pieds. L'aura du Dao Gu envahit son corps, qui grandit soudain un peu.
 
-La Hache Brise-Ciel des anciens dieux fut imprégnée du pouvoir du Dao Antique de Wang Lin. Dans ce monde, nul n'était plus apte que lui à manier une telle arme. Wang Lin saisit la hache et frappa sans l'ombre d'une hésitation!
+La Hache Brise-Ciel des anciens dieux fut imprégnée du pouvoir du Dao Gu de Wang Lin. Dans ce monde, nul n'était plus apte que lui à manier une telle arme. Wang Lin saisit la hache et frappa sans l'ombre d'une hésitation!
 
-Tout se produisit en un instant. Au moment où la hache descendit, le système stellaire trembla et une ombre du Dao Antique apparut. Cette ombre, tenant elle aussi la hache, frappa de concert avec Wang Lin!
+Tout se produisit en un instant. Au moment où la hache descendit, le système stellaire trembla et une ombre du Dao Gu apparut. Cette ombre, tenant elle aussi la hache, frappa de concert avec Wang Lin!
 
 Le général du Dragon Azure était le plus proche. Instantanément, sa lignée céleste s'éveilla et un Dragon Azure de 100 000 pieds de long se matérialisa autour de lui. Il chargea vers la hache en rugissant!
 
 Simultanément, la Tortue Noire, Suzaku et le Tigre Blanc poussèrent tous des rugissements. Trois ombres gigantesques surgirent autour de Wang Lin. Le Tigre Blanc colossal, Suzaku semblable à une flamme et la Tortue Noire soulevant d'immenses vagues de terre se précipitèrent vers lui.
 
-L'expression de Wang Lin demeura sereine. Il allait faire ressentir la douleur à ces anciens célestes et leur donner une leçon mémorable. Il ne chercha pas à esquiver, mais son pouvoir du Dao Antique satura son corps pour former le Corps Antique Immortel!
+L'expression de Wang Lin demeura sereine. Il allait faire ressentir la douleur à ces anciens célestes et leur donner une leçon mémorable. Il ne chercha pas à esquiver, mais son pouvoir du Dao Gu satura son corps pour former le Corps Antique Immortel!
 
 Tandis que son corps continuait de se régénérer, la hache dans la main gauche de Wang Lin s'abattit, creusant une faille béante. Le Dragon Azure lutta un instant avant d'exploser soudainement. Le général du Dragon Azure réapparut et chargea contre Wang Lin.
 

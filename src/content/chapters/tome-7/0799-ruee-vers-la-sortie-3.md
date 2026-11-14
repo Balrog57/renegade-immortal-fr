@@ -32,7 +32,7 @@ Alors qu'il volait, Shengong Hu se retourna soudainement et vit le fragment fonc
 
 Shengong Hu s'arrêta devant Wang Lin et dit respectueusement: « Shengong Hu salue mon seigneur! » Son regard était empreint d'une profonde déférence.
 
-Un léger sourire apparut sur les lèvres de Wang Lin. Il hocha la tête et ordonna: « Assieds-toi à mes côtés et conduis-moi vers le réseau de transfert du Temple Céleste du Tonnerre! »
+Un léger sourire apparut sur les lèvres de Wang Lin. Il hocha la tête et ordonna: « Assieds-toi à mes côtés et conduis-moi vers le réseau de transfert du Temple Lei Xian! »
 
 Shengong Hu ne daigna même pas regarder les autres sur le fragment. Il s'assit aussitôt et répondit respectueusement: « Mon seigneur, nous ne sommes plus loin du réseau de transfert! » Tout en parlant, il indiqua la direction à suivre.
 
@@ -58,7 +58,7 @@ Wang Lin demanda: « À quelle distance sommes-nous? »
 
 Wang Lin fronça légèrement les sourcils alors que le fragment vacillait pour esquiver d'autres crevasses. Ils se rapprochèrent progressivement, et Wang Lin perçut un écran de lumière large de 10 000 pieds. À l'intérieur de cet écran, un fragment était maintenu en place.
 
-De plus, une formation y était établie. Plusieurs individus s'y tenaient, manifestement prêts pour le transfert. L'un d'eux était Zhan Konglie. À l'extérieur de la formation, sept ou huit messagers du Temple Céleste du Tonnerre semblaient échanger entre eux.
+De plus, une formation y était établie. Plusieurs individus s'y tenaient, manifestement prêts pour le transfert. L'un d'eux était Zhan Konglie. À l'extérieur de la formation, sept ou huit messagers du Temple Lei Xian semblaient échanger entre eux.
 
 Soudain, ils semblèrent remarquer une présence et se retournèrent brusquement pour lancer un regard glacial vers Wang Lin. L'un d'eux leva la main droite et pointa le ciel. Une fluctuation d'énergie originelle jaillit soudainement de sa paume et se fondit dans l'écran de lumière alentour.
 
@@ -88,7 +88,7 @@ La force du Coup Céleste persista alors qu'elle traversait la faille pour frapp
 
 Simultanément, le fragment chargea avec un élan écrasant. Il percuta l'écran de lumière tel un météore, juste après l'impact du Coup Céleste.
 
-Un bruit fracassant, qui provoqua l'effondrement des petites fissures alentour, résonna soudainement dans le vide. Même les messagers du Temple Céleste du Tonnerre à l'intérieur tournèrent la tête. Lorsque Zhan Konglie aperçut Wang Lin, son visage s'illumina d'excitation.
+Un bruit fracassant, qui provoqua l'effondrement des petites fissures alentour, résonna soudainement dans le vide. Même les messagers du Temple Lei Xian à l'intérieur tournèrent la tête. Lorsque Zhan Konglie aperçut Wang Lin, son visage s'illumina d'excitation.
 
 Une fois le bruit passé, une série de craquements retentit alors que d'innombrables fissures se propagèrent sur l'écran de lumière.
 
@@ -98,9 +98,9 @@ Le regard de Wang Lin devint glacial alors qu'il faisait reculer le fragment de 
 
 De nouvelles fissures apparurent et se répandirent partout. La luminosité de l'écran commença à faiblir.
 
-Tout s'était produit à une vitesse fulgurante; cela n'avait pris que quelques respirations. L'un des messagers du Temple Céleste du Tonnerre afficha une expression sombre. Son corps, enveloppé d'éclairs, sortit de l'écran de lumière.
+Tout s'était produit à une vitesse fulgurante; cela n'avait pris que quelques respirations. L'un des messagers du Temple Lei Xian afficha une expression sombre. Son corps, enveloppé d'éclairs, sortit de l'écran de lumière.
 
-« Quelle audace! Vous osez charger dans la zone interdite du Temple Céleste du Tonnerre! » L'homme avançait, couvert de tonnerre. Cependant, avant que Wang Lin ne puisse agir, plusieurs cultivateurs sautèrent du fragment pour l'affronter.
+« Quelle audace! Vous osez charger dans la zone interdite du Temple Lei Xian! » L'homme avançait, couvert de tonnerre. Cependant, avant que Wang Lin ne puisse agir, plusieurs cultivateurs sautèrent du fragment pour l'affronter.
 
 L'un d'eux cria rapidement: « Senior, ne vous souciez pas de lui, nous allons nous en occuper! »
 

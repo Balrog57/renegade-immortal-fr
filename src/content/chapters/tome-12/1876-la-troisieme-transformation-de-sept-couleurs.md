@@ -12,7 +12,7 @@ Bien qu'ils ne ressentent qu'une fraction de cette aura, elle suffisait à leur 
 
 Ils n'étaient pas les seuls à ressentir cela. Les quatre Messagers du Démon Vert affichaient des expressions solennelles en fixant la terre.
 
-Ces quatre individus avaient été sélectionnés parmi d'innombrables enfants par les trois ancêtres du Continent Lu Mo. Tous étaient dotés d'un talent exceptionnel et, une fois qu'ils atteignaient un certain niveau de culture, ils étaient envoyés au Temple Lü Mo Xie pour devenir les serviteurs du Scorpion du Démon Vert.
+Ces quatre individus avaient été sélectionnés parmi d'innombrables enfants par les trois ancêtres du Continent Lu Mo. Tous étaient dotés d'un talent exceptionnel et, une fois qu'ils atteignaient un certain niveau de culture, ils étaient envoyés au Temple Lu Mo Xie pour devenir les serviteurs du Scorpion du Démon Vert.
 
 Au fil des éons, de nombreux messagers s'étaient succédé, mais après d'innombrables cycles d'élimination et de mort, seuls neuf d'entre eux avaient fini par obtenir la reconnaissance du Démon Vert!
 
@@ -66,7 +66,7 @@ Sans l'ombre d'une hésitation, Wang Lin leva le pied. Il ne chargea plus vers l
 
 Avant que la créature ne puisse s'approcher, elle balança sa queue qui fouetta l'air vers Wang Lin tel un coup de fouet. Ce dernier afficha un regard glacial et ignora totalement l'attaque. Il leva les bras et agrippa la terre devant lui.
 
-« Déchirure du Ciel! » Sa culture de stade initial de la Tribulation du Vide s'était fusionnée avec son Pouvoir Dao Antique pour engendrer un sort qui n'appartenait plus au Dao Antique!
+« Déchirure du Ciel! » Sa culture de stade initial de la Tribulation du Vide s'était fusionnée avec son Pouvoir Dao Gu pour engendrer un sort qui n'appartenait plus au Dao Gu!
 
 Les mains de Wang Lin déchirèrent soudainement le sol, créant une faille gigantesque devant lui. Celle-ci s'étira directement vers le scorpion en approche!
 

@@ -40,7 +40,7 @@ Les cultivateurs Exaltés Dorés utilisaient encore des sorts pour combattre. En
 
 « Dix-huit sorts contenus dans un seul poing... Incroyable! Fusionner le Dao avec mon corps... je n'en suis pas encore capable! » Les yeux de Wang Lin étincelèrent tandis qu'il levait la main droite. Il frappa de toutes ses forces pour contrer le second coup qui fonçait sur lui!
 
-« Je ne peux pas encore fusionner le Dao à mon corps ni déclencher des sorts par un simple mouvement. Mais ce coup est la fusion de la puissance de mon corps du Dao Antique et de ma culture. Il n'utilise pas de sorts, mais il est imprégné de ma foi et de ma volonté! » L'intention de combat embrasa le regard de Wang Lin. Il poussa un rugissement en s'avançant pour que leurs poings entrent en collision!
+« Je ne peux pas encore fusionner le Dao à mon corps ni déclencher des sorts par un simple mouvement. Mais ce coup est la fusion de la puissance de mon corps du Dao Gu et de ma culture. Il n'utilise pas de sorts, mais il est imprégné de ma foi et de ma volonté! » L'intention de combat embrasa le regard de Wang Lin. Il poussa un rugissement en s'avançant pour que leurs poings entrent en collision!
 
 Un fracas tonitruant résonna dans le vide. Alors que le son devenait plus intense, le néant commença à se désagréger. En un instant, le vide fut déchiré par une onde de choc destructrice.
 
@@ -60,7 +60,7 @@ L'ancêtre de la Secte Dao Mo dit d'une voix posée: « Si tu parviens à encais
 
 « Ce coup contient 27 sorts. Combien pourras-tu en supporter? » lança l'ancêtre en levant sa main droite.
 
-Wang Lin savait pertinemment que sans l'armure de l'âme, il ne survivrait pas. Ce coup était assez puissant pour l'anéantir totalement. Même son corps du Dao Antique ne pourrait résister; il serait réduit en poussière!
+Wang Lin savait pertinemment que sans l'armure de l'âme, il ne survivrait pas. Ce coup était assez puissant pour l'anéantir totalement. Même son corps du Dao Gu ne pourrait résister; il serait réduit en poussière!
 
 « Les Exaltés Empyréens... ils sont véritablement dignes d'être au sommet, juste sous les Ascendants Empyréens! » Wang Lin ferma les yeux et le tatouage du Tian Niu sur son visage commença à se propager. Simultanément, sa culture explosa.
 

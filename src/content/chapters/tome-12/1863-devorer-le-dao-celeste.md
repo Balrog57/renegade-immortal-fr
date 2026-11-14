@@ -32,7 +32,7 @@ Face à ce spectacle, Wang Lin sentit son cuir chevelu s'engourdir. Il n'aurait 
 
 Il était trop tard pour réfléchir lorsque la nuée d'épées jaunes fondit sur lui, chargée d'une aura si puissante qu'elle semblait destinée à trancher sa chair. La vitesse et la succession ininterrompue des sorts ne lui laissèrent aucun répit. À peine apparut-il que les attaques le percutèrent.
 
-Des bruits de craquements frénétiques et des sons de chocs métalliques résonnèrent contre son corps. Les épées frappèrent Wang Lin, le projetant en arrière. Ses vêtements étaient en lambeaux; c'était l'état le plus pitoyable qu'il ait jamais connu! Sans son Corps du Dao Antique, ces épées volantes auraient pu le blesser sérieusement.
+Des bruits de craquements frénétiques et des sons de chocs métalliques résonnèrent contre son corps. Les épées frappèrent Wang Lin, le projetant en arrière. Ses vêtements étaient en lambeaux; c'était l'état le plus pitoyable qu'il ait jamais connu! Sans son Corps du Dao Gu, ces épées volantes auraient pu le blesser sérieusement.
 
 Sans lui laisser le temps de reprendre son souffle, les dix-huit géants de boue se rapprochèrent. Lorsqu'ils furent à moins de quelques centaines de pieds de lui, ils n'attaquèrent pas: ils explosèrent tous simultanément.
 

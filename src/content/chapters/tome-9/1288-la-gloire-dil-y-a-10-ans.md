@@ -8,11 +8,11 @@ slug: la-gloire-dil-y-a-10-ans
 ---
 Un réseau de transfert se trouvait sur un continent de la région de rang 6. Plus de dix cultivateurs étaient assis autour, parmi lesquels un homme et une femme qui conversaient. La femme esquissait parfois un sourire, lançant à l'homme un regard séducteur.
 
-« Je ne te crois absolument pas. Si Lu Zihao était aussi puissant que tu le prétends, au point de pouvoir tuer l'ancien Maître de notre secte, l'Ancien et le grand Senior frère, la Secte Éternelle l'aurait certainement protégé. Comment aurait-il pu mourir? »
+« Je ne te crois absolument pas. Si Lu Zihao était aussi puissant que tu le prétends, au point de pouvoir tuer l'ancien Maître de notre secte, l'Ancien et le grand Senior frère, la Secte Wu Ji l'aurait certainement protégé. Comment aurait-il pu mourir? »
 
-« Junior sœur, tout ce que je dis est vrai. On racontait que Lu Zihao avait offensé la Secte Divine et qu'ils le traquaient. Il est mort dans la région de rang 5! » l'homme éclata de rire.
+« Junior sœur, tout ce que je dis est vrai. On racontait que Lu Zihao avait offensé la Secte Shen et qu'ils le traquaient. Il est mort dans la région de rang 5! » l'homme éclata de rire.
 
-« Lu Zihao était considéré comme un génie de la Mer Yun. Malheureusement, il était arrogant et a provoqué la Secte Divine… » Alors que l'homme parlait, le réseau de transfert qu'ils gardaient s'activa, émettant une lueur éblouissante.
+« Lu Zihao était considéré comme un génie de la Mer Yun. Malheureusement, il était arrogant et a provoqué la Secte Shen… » Alors que l'homme parlait, le réseau de transfert qu'ils gardaient s'activa, émettant une lueur éblouissante.
 
 L'homme cessa de parler et tourna les yeux vers lui.
 
@@ -30,11 +30,11 @@ Pourtant, juste au moment où l'épée s'approchait, un grondement tonitruant ja
 
 Cela provoqua un changement radical dans son expression!
 
-« Lu Zihao!! » Cet homme était l'un de ceux qui s'étaient rendus à la Secte Éternelle à l'époque et avait personnellement vu les combats prodigieux de Wang Lin. Il avait également été témoin de la mort du Maître de secte, de l'Ancien en chef et du disciple aîné!
+« Lu Zihao!! » Cet homme était l'un de ceux qui s'étaient rendus à la Secte Wu Ji à l'époque et avait personnellement vu les combats prodigieux de Wang Lin. Il avait également été témoin de la mort du Maître de secte, de l'Ancien en chef et du disciple aîné!
 
 Wang Lin n'accorda aucune attention à ces jeunes gens. Après s'être élancé, il fonça droit devant lui, créant un fracas tonitruant dans son sillage.
 
-« L'endroit le plus proche d'ici est la Secte Xian Yin. De là, vous pourrez vous téléporter vers la Secte Éternelle! » Le visage de la vieille femme était livide alors qu'elle regardait Wang Lin avec effroi.
+« L'endroit le plus proche d'ici est la Secte Xian Yin. De là, vous pourrez vous téléporter vers la Secte Wu Ji! » Le visage de la vieille femme était livide alors qu'elle regardait Wang Lin avec effroi.
 
 « Cet homme est fou! Complètement fou! Pour accélérer le transfert, il n'a même pas voulu attendre quelques minutes. Il a choisi la méthode extrêmement dangereuse d'infuser l'énergie d'origine dans le réseau pour rendre le transfert instantané. C'est un acte de pur dément, car la moindre erreur signifierait une mort certaine au sein de l'espace déchiré! »
 
@@ -56,11 +56,11 @@ Ce qu'ils virent provoqua un choc immense!
 
 « Lu Zihao!!! Le Lu Zihao qui a tué le précédent Maître de secte et l'Ancien en chef!! »
 
-« Cette personne n'avait-elle pas été tuée par la Secte Divine? Comment peut-il être encore en vie?! »
+« Cette personne n'avait-elle pas été tuée par la Secte Shen? Comment peut-il être encore en vie?! »
 
-« On disait qu'il y a dix ans, la Secte Divine avait tué cet homme dans la région de rang 5. Pourtant, non seulement il n'est pas mort, mais il est devenu encore plus puissant. Se pourrait-il que même la Secte Divine ne puisse l'éliminer?! »
+« On disait qu'il y a dix ans, la Secte Shen avait tué cet homme dans la région de rang 5. Pourtant, non seulement il n'est pas mort, mais il est devenu encore plus puissant. Se pourrait-il que même la Secte Shen ne puisse l'éliminer?! »
 
-Dès qu'ils aperçurent Wang Lin, les membres de la Secte Xian Yin qui l'avaient vu à la Secte Éternelle furent en plein tumulte. Ils étaient pétrifiés, leurs yeux emplis d'une peur et d'une panique infinies!
+Dès qu'ils aperçurent Wang Lin, les membres de la Secte Xian Yin qui l'avaient vu à la Secte Wu Ji furent en plein tumulte. Ils étaient pétrifiés, leurs yeux emplis d'une peur et d'une panique infinies!
 
 La silhouette de Wang Lin était trop profondément gravée dans leurs mémoires!
 
@@ -80,17 +80,17 @@ Un impact inimaginable se propagea lors de l'éclatement! La formation se brisa 
 
 Une seule personne, une seule paume. La puissance d'un seul geste avait ébranlé le monde!
 
-« Ouvrez le réseau de transfert vers la Secte Éternelle et sortez tous vos cristaux d'origine! » Le regard de Wang Lin était glacial alors qu'il fixait les cultivateurs devant lui.
+« Ouvrez le réseau de transfert vers la Secte Wu Ji et sortez tous vos cristaux d'origine! » Le regard de Wang Lin était glacial alors qu'il fixait les cultivateurs devant lui.
 
 Il n'y avait aucune possibilité de refus. Ses paroles descendirent comme une volonté divine sur toute la Secte Xian Yin. L'esprit de chaque cultivateur trembla; aucun n'osa désobéir!
 
-Le front du nouveau Maître de la Secte Xian Yin était couvert de sueur. Il regardait Wang Lin avec un mélange de crainte et de respect. Il avait été témoin de la splendeur de Wang Lin à la Secte Éternelle et avait vu de ses propres yeux mourir le précédent Maître de secte.
+Le front du nouveau Maître de la Secte Xian Yin était couvert de sueur. Il regardait Wang Lin avec un mélange de crainte et de respect. Il avait été témoin de la splendeur de Wang Lin à la Secte Wu Ji et avait vu de ses propres yeux mourir le précédent Maître de secte.
 
-« Cet homme a pu tuer instantanément le Maître de secte et l'Ancien en chef il y a dix ans, et même la Secte Divine n'a pu l'arrêter. Aujourd'hui, dix ans plus tard, il revient encore plus terrifiant qu'auparavant. On ne doit absolument pas provoquer un tel être! » Le Maître de secte n'hésita pas une seconde et lança une série d'ordres. Toute la Secte Xian Yin se mit à l'œuvre pour activer le réseau de transfert vers la Secte Éternelle!
+« Cet homme a pu tuer instantanément le Maître de secte et l'Ancien en chef il y a dix ans, et même la Secte Shen n'a pu l'arrêter. Aujourd'hui, dix ans plus tard, il revient encore plus terrifiant qu'auparavant. On ne doit absolument pas provoquer un tel être! » Le Maître de secte n'hésita pas une seconde et lança une série d'ordres. Toute la Secte Xian Yin se mit à l'œuvre pour activer le réseau de transfert vers la Secte Wu Ji!
 
 Wang Lin avait choisi ces deux réseaux de transfert pour une raison précise. Le réseau de la Secte Hai Hun était bidirectionnel, il n'était donc pas nécessaire que l'autre partie l'active pour l'utiliser.
 
-En tant que secte de rang 6, la Secte Xian Yin avait le droit d'ouvrir le réseau de transfert sans la permission de la Secte Éternelle en cas d'imprévu.
+En tant que secte de rang 6, la Secte Xian Yin avait le droit d'ouvrir le réseau de transfert sans la permission de la Secte Wu Ji en cas d'imprévu.
 
 Bien entendu, ce transfert était réglementé. Un seul passage ne pouvait excéder trois personnes, et elles seraient strictement interrogées. En l'absence de motif impérieux, elles seraient sévèrement punies!
 
@@ -104,14 +104,14 @@ Elle pouvait voir que les Anciens et le Maître de la Secte Xian Yin regardaient
 
 Elle s'inquiétait pour les cristaux d'origine, mais en voyant la Secte Xian Yin remettre la sacoche à Wang Lin, elle eut un sourire amer. La manière dont ils offraient leurs richesses était telle qu'on aurait dit que Wang Lin était le Maître de leur propre secte. Sur un seul mot de lui, ils avaient rassemblé l'intégralité de leurs cristaux.
 
-« Je crains que même si la Secte Éternelle venait réclamer des cristaux d'origine, la Secte Xian Yin ne se montrerait pas aussi diligente. Ils en cacheraient probablement une partie et n'en donneraient pas la totalité… »
+« Je crains que même si la Secte Wu Ji venait réclamer des cristaux d'origine, la Secte Xian Yin ne se montrerait pas aussi diligente. Ils en cacheraient probablement une partie et n'en donneraient pas la totalité… »
 
-Wang Lin entra dans le réseau avec la vieille femme et disparut. Ce type de réseau de transfert menant directement à la région de rang 8 ne nécessitait aucune attente. Il ne fallut qu'un instant pour se téléporter vers la Secte Éternelle.
+Wang Lin entra dans le réseau avec la vieille femme et disparut. Ce type de réseau de transfert menant directement à la région de rang 8 ne nécessitait aucune attente. Il ne fallut qu'un instant pour se téléporter vers la Secte Wu Ji.
 
 Ce n'est que lorsque Wang Lin fut définitivement parti que les esprits se détendirent un peu. Le Maître de secte finit par reprendre son souffle. En regardant le réseau désormais vide et la formation brisée, il sentit une peur persistante l'envahir.
 
 « Nous l'avons enfin renvoyé. Oubliez les cristaux d'origine; même s'il avait voulu toute la Secte Xian Yin, je la lui aurais donnée dans l'espoir qu'il parte plus vite… »
 
-Dans la région de rang 8, sur l'une des planètes appartenant à la Secte Éternelle. Le réseau de transfert qui s'y trouvait s'illumina soudainement d'une lumière intense.
+Dans la région de rang 8, sur l'une des planètes appartenant à la Secte Wu Ji. Le réseau de transfert qui s'y trouvait s'illumina soudainement d'une lumière intense.
 
-« Je dois récupérer un trésor au sein de la Secte Éternelle! » Wang Lin sortit du réseau de transfert, arrivant ainsi à la Secte Éternelle, là même où il se trouvait dix ans auparavant!
+« Je dois récupérer un trésor au sein de la Secte Wu Ji! » Wang Lin sortit du réseau de transfert, arrivant ainsi à la Secte Wu Ji, là même où il se trouvait dix ans auparavant!

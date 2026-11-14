@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 722 - Heaven Defying Beads Shocking Change
 slug: le-changement-stupefiant-de-la-perle-defiant-le-ciel
 ---
-L'homme aux cheveux noirs caressa la grosse tête de la Bête du Tonnerre, et ses yeux trahirent une lueur étrange tandis qu'il murmurait: « Je me demande quel genre de trésors apparaîtront dans le Royaume Céleste du Tonnerre. Je crains que les messagers du Temple Céleste du Tonnerre ne s'affrontent violemment! »
+L'homme aux cheveux noirs caressa la grosse tête de la Bête du Tonnerre, et ses yeux trahirent une lueur étrange tandis qu'il murmurait: « Je me demande quel genre de trésors apparaîtront dans le Royaume Céleste du Tonnerre. Je crains que les messagers du Temple Lei Xian ne s'affrontent violemment! »
 
 Il afficha une expression sombre, puis la Bête du Tonnerre sous lui se transforma en un éclair et s'élança vers l'horizon.
 

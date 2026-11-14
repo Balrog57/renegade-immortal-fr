@@ -54,17 +54,17 @@ Pour qu'un cultivateur du troisième pas se trouve ici à ce moment précis, il 
 
 « Le Conseil Souverain est très rapide... Cinquième niveau du Fléau Céleste... » Une étincelle d'intention de combat brilla dans les yeux de Wang Lin alors qu'il esquissait un sourire narquois avant de traverser l'atmosphère de la planète.
 
-Dans l'espace, au-delà de la planète du Clan Long Jia, Maître Simo détourna le regard et sourit. Il ne s'attendait pas à rencontrer sa cible dès son arrivée. L'apparence et l'aura de sa proie ayant déjà été enregistrées par le Grand Maître Yun Luo, il avait reconnu Wang Lin instantanément.
+Dans l'espace, au-delà de la planète du Clan Long Jia, Maître Si Mo détourna le regard et sourit. Il ne s'attendait pas à rencontrer sa cible dès son arrivée. L'apparence et l'aura de sa proie ayant déjà été enregistrées par le Grand Maître Yun Luo, il avait reconnu Wang Lin instantanément.
 
 « Malheureusement, je ne peux pas agir ici, cela provoquerait trop de remous. Il vaudrait mieux ne pas attirer l'attention du Grand Empereur... Cependant, s'il est sur une planète, il lui sera difficile de s'échapper! Je n'ai plus qu'à trouver un prétexte pour le capturer! »
 
-Maître Simo sourit, les yeux brillants, tandis qu'il regardait au loin. Une silhouette apparut, accompagnée d'un rire sonore. C'était un vieil homme aux cheveux blancs, vêtu d'une robe bleue, qui s'élevait de la planète du Clan Long Jia.
+Maître Si Mo sourit, les yeux brillants, tandis qu'il regardait au loin. Une silhouette apparut, accompagnée d'un rire sonore. C'était un vieil homme aux cheveux blancs, vêtu d'une robe bleue, qui s'élevait de la planète du Clan Long Jia.
 
-« Senior Simo, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours autant de prestance! » rit le vieil homme tandis que l'énergie originelle enveloppait son corps. Il dégageait l'aura d'un cultivateur au quatrième niveau du Fléau Céleste.
+« Senior Si Mo, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours autant de prestance! » rit le vieil homme tandis que l'énergie originelle enveloppait son corps. Il dégageait l'aura d'un cultivateur au quatrième niveau du Fléau Céleste.
 
-Maître Simo rit à son tour et joignit les mains: « Daoïste Sun, cela fait quelques siècles que nous ne nous sommes pas croisés. Je viens vous importuner de nouveau. »
+Maître Si Mo rit à son tour et joignit les mains: « Daoïste Sun, cela fait quelques siècles que nous ne nous sommes pas croisés. Je viens vous importuner de nouveau. »
 
-« Comment la venue d'un Senior pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Simo, je serais déjà mort au troisième niveau du Fléau Céleste. Senior Simo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
+« Comment la venue d'un Senior pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Si Mo, je serais déjà mort au troisième niveau du Fléau Céleste. Senior Si Mo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Si Mo et sortit immédiatement.
 
 Les deux discutèrent tout en s'approchant de la planète, leurs silhouettes s'estompant peu à peu.
 
@@ -76,7 +76,7 @@ Wang Lin hocha la tête, mais une intention meurtrière germa dans son cœur. Il
 
 Ces cristaux pourraient l'aider lors de son quatrième éveil. En absorber une grande quantité lui serait extrêmement bénéfique. De plus, obtenir ces cristaux était lié à la manière dont il allait s'emparer de l'essence du Clan Huo Que.
 
-Cependant, après avoir aperçu Maître Simo, Wang Lin changea d'avis. Puisque l'adversaire le traquait jusqu'ici, la fuite serait difficile. Mais Wang Lin n'avait aucune intention de fuir; il prévoyait de combattre ici même!
+Cependant, après avoir aperçu Maître Si Mo, Wang Lin changea d'avis. Puisque l'adversaire le traquait jusqu'ici, la fuite serait difficile. Mais Wang Lin n'avait aucune intention de fuir; il prévoyait de combattre ici même!
 
 « Celui qui me chasse n'a pas attaqué par prudence. Il est venu ici pour trouver un prétexte pour m'éliminer... Puisqu'il a des réserves, c'est une chance pour moi... Et puisqu'il ne montre qu'une culture de cinquième niveau du Fléau Céleste, cela signifie soit qu'il refuse de révéler sa véritable puissance de cultivateur du troisième pas, soit qu'il n'est ici que sous forme d'avatar... »
 

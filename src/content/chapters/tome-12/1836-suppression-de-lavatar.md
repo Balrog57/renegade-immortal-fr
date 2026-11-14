@@ -24,7 +24,7 @@ Quel que soit leur niveau de culture, qu'il s'agisse des plus jeunes disciples, 
 
 Tout cela était dû au regard terrifiant de Wang Lin!
 
-L'Ancien Qing Niu se trouvait également dans sa grotte du Pic du Ciel Vert. Après que Wang Lin eut jeté un regard à Yan Luan, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Qing Niu croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son corps véritable d'essence.
+L'Ancien Qing Niu se trouvait également dans sa grotte du Pic Qing Tian. Après que Wang Lin eut jeté un regard à Yan Luan, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Qing Niu croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son corps véritable d'essence.
 
 Le regard de Wang Lin disparut bientôt, mais l'Estimé Qing Niu sentait encore son cœur palpiter, les yeux emplis de choc. Ce regard était impitoyable, indifférent, comme si le monde entier n'était qu'une poussière sous ses pieds et devait lui rendre culte!
 
@@ -66,7 +66,7 @@ Une pression céleste jaillit de son regard et enveloppa la terre en contrebas. 
 
 « Son regard était tout simplement trop terrifiant. Je n'ai jamais rencontré un tel regard chez aucun cultivateur! »
 
-Au Pic du Ciel Vert, l'Ancien Qing Niu regardait l'illusion disparaître lentement. Son expression changeait sans cesse jusqu'à devenir profondément complexe.
+Au Pic Qing Tian, l'Ancien Qing Niu regardait l'illusion disparaître lentement. Son expression changeait sans cesse jusqu'à devenir profondément complexe.
 
 Dans le Pavillon Cang Hun, Yan Luan, qui se trouvait au sixième étage, perdit toute couleur. Son corps tremblait alors qu'elle restait immobile devant l'entrée des escaliers menant au septième étage.
 

@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1493 - No Harm in Giving it a Try!"
 slug: il-ne-coute-rien-dessayer
 ---
-Un silence absolu régnait dans les environs. Les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre fixaient l'Arbre de Luotian. Ils étaient animés par une excitation intense, mais nul ne prononçait un mot; pourtant, le désir qui brûlait dans leurs cœurs ne cessait de croître.
+Un silence absolu régnait dans les environs. Les dizaines de milliers de cultivateurs du Temple Lei Xian fixaient l'Arbre de Luotian. Ils étaient animés par une excitation intense, mais nul ne prononçait un mot; pourtant, le désir qui brûlait dans leurs cœurs ne cessait de croître.
 
 Ils aspiraient à obtenir l'Arbre de Luotian, ce trésor personnellement affiné par le Maître Lu Fu!
 
@@ -72,7 +72,7 @@ L'intention meurtrière redoubla d'intensité, faisant trembler les étoiles!
 
 « À Luotian, j'ai tué tant de gens... Les cieux et la terre en seraient teints de pourpre! »
 
-« Dans la Mer Yun, le brouillard de sang me suivait et l'intention de tuer était dissimulée partout... » Les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre reculèrent, le visage blême. Ils fixaient Wang Lin avec une terreur indescriptible.
+« Dans la Mer Yun, le brouillard de sang me suivait et l'intention de tuer était dissimulée partout... » Les dizaines de milliers de cultivateurs du Temple Lei Xian reculèrent, le visage blême. Ils fixaient Wang Lin avec une terreur indescriptible.
 
 « Dans le Royaume aux Sept Couleurs, les fruits du Dao et l'intention de tuer... » L'expression du Maître Yan Leizi et de son groupe changea radicalement. Lorsque Xue Shenzi ressentit cette intention meurtrière, il cracha du sang.
 

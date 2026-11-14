@@ -96,7 +96,7 @@ Après le départ de Wang Lin, la paume du Royaume aux Sept Couleurs s'effondra 
 
 « Yue Er... » La voix ancienne s'évanouit peu à peu...
 
-À ce moment précis, au plus profond du Système Stellaire Antique, résidait une famille nommée le Clan Lan Si. Ce clan occupait un domaine stellaire infini. Dans ce domaine se trouvait une planète d'apparence ordinaire, sur laquelle trônait une montagne enveloppée de lueurs bleues. Les mortels locaux l'appelaient la Montagne Bleue.
+À ce moment précis, au plus profond du Système Stellaire Antique, résidait une famille nommée le Clan Lan Si. Ce clan occupait un domaine stellaire infini. Dans ce domaine se trouvait une planète d'apparence ordinaire, sur laquelle trônait une montagne enveloppée de lueurs bleues. Les mortels locaux l'appelaient le Mont Lan.
 
 Une simple chaumière se trouvait au sommet de la montagne, oscillant doucement sous la brise. La porte s'ouvrit et un homme d'âge moyen au visage fatigué en sortit. Il leva les yeux vers le ciel et sa vue se troubla, comme si des larmes menaçaient de couler. Ses cheveux étaient bleus... Il contemplait l'azur, rempli de mélancolie.
 

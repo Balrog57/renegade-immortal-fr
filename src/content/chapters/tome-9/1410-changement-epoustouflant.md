@@ -62,7 +62,7 @@ Les trois châtiments couvraient le ciel de l'Épreuve Humaine. À l'extérieur,
 
 « Le premier châtiment n'est pas encore passé, et les châtiments orange, jaune et vert arrivent de concert. Comment... comment est-il censé survivre à cela?! » L'expression du vieux Suzaku changea radicalement. C'était la première fois qu'il observait les neuf châtiments karmiques, et il ne s'attendait pas à une telle férocité.
 
-Maître Simo était le plus ravi de la situation. Il afficha un sourire venimeux en fixant le premier bâton d'encens, pensant: « Bien que j'ignore ce qui se passe exactement, il semble que ce petit bâtard aura du mal à échapper à la mort! C'est regrettable que je ne puisse percer son secret, mais c'est une excellente chose qu'il périsse! »
+Maître Si Mo était le plus ravi de la situation. Il afficha un sourire venimeux en fixant le premier bâton d'encens, pensant: « Bien que j'ignore ce qui se passe exactement, il semble que ce petit bâtard aura du mal à échapper à la mort! C'est regrettable que je ne puisse percer son secret, mais c'est une excellente chose qu'il périsse! »
 
 La Grande Maîtresse Yun Luo se détendit également. Les blessures sur ses doigts avaient guéri. Elle observa le premier bâton d'encens et songea: « Il semble qu'il ne soit pas la personne prédite par l'Ancêtre... »
 
@@ -128,6 +128,6 @@ Cette scène soudaine provoqua un tumulte indescriptible. Même les yeux du vieu
 
 « Ceci... ceci est... »
 
-Maître Simo fut figé un instant, le choc envahissant son regard.
+Maître Si Mo fut figé un instant, le choc envahissant son regard.
 
 L'expression de la Grande Maîtresse Yun Luo changea radicalement. Ignorant les blessures de ses doigts, elle tenta une nouvelle divination.

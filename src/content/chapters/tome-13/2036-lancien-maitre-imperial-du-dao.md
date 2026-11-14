@@ -36,9 +36,9 @@ La dernière bête était un vermisseau hideux. Son corps, d'un vert émeraude, 
 
 Lorsque la créature apparut, les deux femmes sur les tentacules poussèrent des cris perçants en fixant Wang Lin. Un éclair de férocité brilla dans leurs yeux avant qu'elles ne chargent hors du brouillard vers lui.
 
-Wang Lin resta calme. Face à l'étrange ver, il leva la main droite et une gigantesque ombre de l'Ancien Dao apparut derrière lui. Puis, ses vingt-sept étoiles s'illuminèrent toutes et Wang Lin lança un coup de poing.
+Wang Lin resta calme. Face à l'étrange ver, il leva la main droite et une gigantesque ombre du Dao Gu apparut derrière lui. Puis, ses vingt-sept étoiles s'illuminèrent toutes et Wang Lin lança un coup de poing.
 
-L'ombre de l'Ancien Dao derrière lui asséna le même coup.
+L'ombre du Dao Gu derrière lui asséna le même coup.
 
 Des grondements de tonnerre éclatèrent. La bête aux têtes de femmes sur ses tentacules fut projetée en arrière dans la brume. Cependant, en un clin d'œil, elle réapparut, totalement indemne.
 
@@ -56,9 +56,9 @@ Au même moment, le ver aux tentacules de femmes, qui venait d'être repoussé p
 
 Dans un fracas tonitruant, la statue de terre vola en éclats.
 
-Avec son corps véritable des cinq éléments et ses six Extrêmes du Dao, Wang Lin suffisait à réprimer les cinq bêtes. Ses yeux brillèrent et sa main droite pointa vers le ciel. Une ombre gigantesque de l'Ancien Dao apparut; elle devint plus solide, telle une personne réelle, et marcha vers la brume. Elle serra le poing et lança un coup de poing au cœur du brouillard!
+Avec son corps véritable des cinq éléments et ses six Extrêmes du Dao, Wang Lin suffisait à réprimer les cinq bêtes. Ses yeux brillèrent et sa main droite pointa vers le ciel. Une ombre gigantesque du Dao Gu apparut; elle devint plus solide, telle une personne réelle, et marcha vers la brume. Elle serra le poing et lança un coup de poing au cœur du brouillard!
 
-Cependant, au moment où ce coup frappa la brume, il sembla être bloqué par une gigantesque créature marine à huit tentacules qui émergea des profondeurs. Ses huit membres s'enroulèrent autour du bras de l'ombre de l'Ancien Dao avant qu'elle ne pousse un rugissement strident.
+Cependant, au moment où ce coup frappa la brume, il sembla être bloqué par une gigantesque créature marine à huit tentacules qui émergea des profondeurs. Ses huit membres s'enroulèrent autour du bras de l'ombre du Dao Gu avant qu'elle ne pousse un rugissement strident.
 
 Peu après, trois autres bêtes apparurent successivement de la brume. L'une était un roc qui déploya ses ailes pour s'élancer dans le ciel. Il y avait aussi un phénix violet colossal qui, dès son apparition, propagea une lumière violette et fit résonner son cri à travers le monde.
 
@@ -78,13 +78,13 @@ Wang Lin possédait encore la capacité divine la plus puissante du clan Ancien,
 
 Alors que le géant à deux têtes se rapprochait, Wang Lin poussa un rugissement vers les cieux. Des craquements résonnèrent en lui et son corps s'étendit, passant d'une taille humaine à mille pieds de haut!
 
-Le Corps Véritable de l'Ancien Dao!
+Le Corps Véritable du Dao Gu!
 
-C'était la première fois que Wang Lin révélait son Corps Véritable de l'Ancien Dao. Son corps puissant dégageait une aura antique, parcouru de fins motifs sombres qui lui conféraient un aspect mystérieux.
+C'était la première fois que Wang Lin révélait son Corps Véritable du Dao Gu. Son corps puissant dégageait une aura antique, parcouru de fins motifs sombres qui lui conféraient un aspect mystérieux.
 
-« Dégagez de là! » Au sein du clan Ancien, on ne révélait pas ainsi son Corps Véritable de l'Ancien Dao, car toute blessure infligée à ce corps affecterait trop gravement sa culture. De plus, cela était peu pratique, sauf sur un champ de bataille.
+« Dégagez de là! » Au sein du clan Ancien, on ne révélait pas ainsi son Corps Véritable du Dao Gu, car toute blessure infligée à ce corps affecterait trop gravement sa culture. De plus, cela était peu pratique, sauf sur un champ de bataille.
 
-Dans le palais, les membres de l'Ancien Dao et l'empereur n'avaient même pas eu le temps de révéler leur Corps Véritable avant d'être annihilés par Wang Lin.
+Dans le palais, les membres du Dao Gu et l'empereur n'avaient même pas eu le temps de révéler leur Corps Véritable avant d'être annihilés par Wang Lin.
 
 Atteindre mille pieds n'était pas la limite de Wang Lin. Il fit un pas en avant et lança un coup de poing. Le géant à deux têtes, terrifié, hurla en ripostant par un coup de poing. Cependant, lors de la collision, le corps du géant explosa.
 

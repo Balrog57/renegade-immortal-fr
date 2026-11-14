@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2011 - The Bell Rings on Top of Mount Gu Dao
 slug: le-tintement-des-cloches-au-sommet-du-mont-gu-dao
 ---
-Dans la terre de l'Ancien Dao, la vallée des restrictions cachée au creux des montagnes, le bassin dans la plaine et l'immense nécropole souterraine étaient trois lieux recelant une immense fortune. Xuan Luo avait préparé ces trois endroits pour son disciple, Wang Lin.
+Dans la terre du Dao Gu, la vallée des restrictions cachée au creux des montagnes, le bassin dans la plaine et l'immense nécropole souterraine étaient trois lieux recelant une immense fortune. Xuan Luo avait préparé ces trois endroits pour son disciple, Wang Lin.
 
 Les silhouettes de Wang Lin et de Xuan Luo se dessinaient parmi les montagnes. Leurs présences se manifestaient également aux abords du bassin et au cœur de la nécropole.
 
@@ -14,23 +14,23 @@ Le bassin de la plaine était imprégné d'une puissante intention meurtrière, 
 
 Xuan Luo resta à l'extérieur du bassin durant toute cette période. Tout en protégeant Wang Lin, il observait silencieusement son disciple avec un sourire bienveillant.
 
-Les falaises de la vallée étaient gravées de runes, chacune renfermant des restrictions. Au fil des ans, la vallée devint un lieu célèbre dans l'Ancien Dao: la prestigieuse Vallée Jin Zhen!
+Les falaises de la vallée étaient gravées de runes, chacune renfermant des restrictions. Au fil des ans, la vallée devint un lieu célèbre dans le Dao Gu: la prestigieuse Vallée Jin Zhen!
 
 Les gens ordinaires ne pouvaient y pénétrer, car cet endroit avait été scellé par Xuan Luo des centaines d'années auparavant. Il en avait fait un sanctuaire spécialement préparé pour que son disciple puisse comprendre l'essence des restrictions.
 
 Wang Lin médita pendant trois mois au sein de la Vallée Jin Zhen.
 
-Il existait un autre lieu très mystérieux, sous le pays de Zang, dans l'Ancien Dao: une nécropole souterraine. Aucun corps n'y était enterré, mais elle regorgeait de trésors abandonnés. Ils étaient inutiles et sans valeur, pourtant, à une époque inconnue, quelqu'un les avait enfouis ici comme une offrande.
+Il existait un autre lieu très mystérieux, sous le pays de Zang, dans le Dao Gu: une nécropole souterraine. Aucun corps n'y était enterré, mais elle regorgeait de trésors abandonnés. Ils étaient inutiles et sans valeur, pourtant, à une époque inconnue, quelqu'un les avait enfouis ici comme une offrande.
 
 En raison de la présence de ces trésors, la zone était enveloppée par le pouvoir des cinq éléments. Cette aura devint de plus en plus dense jusqu'à ce que l'aura des essences commence à se manifester.
 
 Wang Lin s'assit également dans cette nécropole pendant trois mois. Bien qu'il n'en ait pas eu envie, il cessa résolument d'absorber les essences des cinq éléments et partit avec Xuan Luo.
 
-Dans l'Ancien Shi, Wang Lin vit le Grand Empyréen de l'Ancien Shi. Il se rendit dans trois lieux différents pour cultiver et comprendre, une quête qui dura cinq mois.
+Dans le Shi Gu, Wang Lin vit le Grand Empyréen du Shi Gu. Il se rendit dans trois lieux différents pour cultiver et comprendre, une quête qui dura cinq mois.
 
-Dans l'Ancien Ji, Wang Lin ne vit pas le Grand Empyréen, mais il parcourut divers lieux à travers les douze pays pour méditer pendant près d'un semestre.
+Dans le Ji Gu, Wang Lin ne vit pas le Grand Empyréen, mais il parcourut divers lieux à travers les douze pays pour méditer pendant près d'un semestre.
 
-En un clin d'œil, un an et demi s'était écoulé depuis que Wang Lin et Xuan Luo avaient quitté la cité impériale de l'Ancien Dao.
+En un clin d'œil, un an et demi s'était écoulé depuis que Wang Lin et Xuan Luo avaient quitté la cité impériale du Dao Gu.
 
 Durant cette période, Wang Lin ne fit face à aucun danger et n'eut pas à lutter pour sa survie. Il n'avait qu'à absorber les essences et accroître son niveau de culture.
 
@@ -40,9 +40,9 @@ Wang Lin sentait que Xuan Luo le traitait véritablement comme un disciple direc
 
 Wang Lin n'avait jamais connu une telle attention dans sa vie, mais plus elle était rare, plus il la chérissait. Il chérissait ce temps, il chérissait Xuan Luo comme son maître, et il chérissait ces rares moments de bonheur.
 
-Dans son cœur, il souhaitait que ces instants durent éternellement. Wang Lin pourrait même endurer en silence ce qu'il avait subi devant le palais de l'Ancien Dao et ignorer la répression de l'Empereur pour cela.
+Dans son cœur, il souhaitait que ces instants durent éternellement. Wang Lin pourrait même endurer en silence ce qu'il avait subi devant le palais du Dao Gu et ignorer la répression de l'Empereur pour cela.
 
-« Le Maître m'a si bien traité... Je dois protéger l'Ancien Dao... » pensa une fois de plus Wang Lin.
+« Le Maître m'a si bien traité... Je dois protéger le Dao Gu... » pensa une fois de plus Wang Lin.
 
 Il accordait une importance immense à ses liens. Xuan Luo l'avait aidé dans le monde des grottes et était devenu son maître. Le clan ancien lui avait aussi témoigné une affection semblable à celle d'un maître. Il n'oublierait rien de tout cela.
 
@@ -72,17 +72,17 @@ Au bas de la montagne, Xuan Luo marchait devant et jeta un regard bienveillant �
 
 « Je me demande si le Grand Empyréen Gu Dao rencontrera Wang Lin maintenant que je l'ai amené ici. J'avais signalé au Senior Gu Dao que Wang Lin avait obtenu dix gouttes de sang ancestral, et que la dixième était une goutte de sang de l'âme. Le Grand Empyréen Gu Dao devrait donc rencontrer mon disciple. » Xuan Luo restait silencieux en montant. Plus il approchait du sommet, plus son malaise grandissait.
 
-« Si le Grand Empyréen Gu Dao convoque Wang Lin, alors la question de sa position de gardien de l'Ancien Dao sera réglée. Avec la reconnaissance de Gu Dao, le statut de Wang Lin au sein de l'Ancien Dao s'élèvera. Peu importe à quel point Ye Dao le déteste, il n'oserait plus rien dire. »
+« Si le Grand Empyréen Gu Dao convoque Wang Lin, alors la question de sa position de gardien du Dao Gu sera réglée. Avec la reconnaissance de Gu Dao, le statut de Wang Lin au sein du Dao Gu s'élèvera. Peu importe à quel point Ye Dao le déteste, il n'oserait plus rien dire. »
 
 « Cependant, si le Grand Empyréen Gu Dao ne le convoque pas... » Xuan Luo soupira. En vérité, il avait amené Wang Lin ici au risque de provoquer la colère de Gu Dao, sans qu'une convocation formelle n'ait eu lieu.
 
-Il avait fait tout cela pour l'Ancien Dao, mais aussi pour que son disciple puisse protéger le clan sans subir d'humiliation.
+Il avait fait tout cela pour le Dao Gu, mais aussi pour que son disciple puisse protéger le clan sans subir d'humiliation.
 
 D'un côté se trouvait le clan qu'il protégeait depuis toujours, et de l'autre, ce disciple dont il était si fier et qu'il considérait comme son propre descendant. Xuan Luo voulait maintenir l'équilibre entre ces deux piliers.
 
 Wang Lin suivait Xuan Luo en observant son dos. Ce dos n'était pas imposant, mais il dégageait une rare sensation de chaleur. Cette chaleur l'avait accompagné durant un an et demi.
 
-« Je ne ressens aucun sentiment d'appartenance au clan ancien. Je suis venu ici pour le Maître Xuan Luo, et je protégerai l'Ancien Dao pour lui... » pensa silencieusement Wang Lin en marchant.
+« Je ne ressens aucun sentiment d'appartenance au clan ancien. Je suis venu ici pour le Maître Xuan Luo, et je protégerai le Dao Gu pour lui... » pensa silencieusement Wang Lin en marchant.
 
 Leurs pas étaient feutrés, comme s'ils se fondaient dans le silence de la montagne. Lorsqu'ils approchèrent du sommet, Wang Lin aperçut une tour!
 

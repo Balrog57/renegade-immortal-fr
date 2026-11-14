@@ -58,7 +58,7 @@ Les sorts physiques peuvent être résistés, mais les sorts de sens divin sont 
 
 Le sort utilisé par Yao Bingyun autrefois pouvait être considéré comme tel. Cependant, c'était une fusion entre le sens divin et l'énergie originelle. Bien qu'efficace, cette méthode présentait des failles.
 
-En revanche, le sort déployé par Luo Su était composé de pur sens divin, sans aucune énergie originelle, ce qui le rendait encore plus puissant. C'est précisément parce qu'il avait concentré tous ses efforts sur son sens divin qu'il pouvait jouir d'un statut aussi élevé au Temple Céleste du Tonnerre avec sa simple culture de milieu de stade Scruteur du Nirvana!
+En revanche, le sort déployé par Luo Su était composé de pur sens divin, sans aucune énergie originelle, ce qui le rendait encore plus puissant. C'est précisément parce qu'il avait concentré tous ses efforts sur son sens divin qu'il pouvait jouir d'un statut aussi élevé au Temple Lei Xian avec sa simple culture de milieu de stade Scruteur du Nirvana!
 
 « Tu as frappé le premier, je ne fais que me défendre, alors accepte ta mort! » Alors que Luo Su hurlait, ses yeux s'ouvrirent brusquement et d'innombrables aiguilles de sens divin furent projetées vers Wang Lin.
 

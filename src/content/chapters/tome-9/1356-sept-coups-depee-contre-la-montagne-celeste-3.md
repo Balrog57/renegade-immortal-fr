@@ -1,6 +1,6 @@
 ---
 n: 1356
-title: "Sept coups d'épée contre la Montagne Céleste (3)"
+title: "Sept coups d'épée contre la Montagne Tian (3)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1356 - Seven Sword Chops the Heavenly Mountain (3)

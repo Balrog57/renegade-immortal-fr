@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1426 - Will Leave
 slug: le-depart
 ---
-Maître Simo partit... Le Grand Maître Yun Luo l'accompagna, et tous deux disparurent de la Planète du Grand Empereur sous les yeux de Wang Lin.
+Maître Si Mo partit... Le Grand Maître Yun Luo l'accompagna, et tous deux disparurent de la Planète du Grand Empereur sous les yeux de Wang Lin.
 
 Cette bataille n'avait mené à aucun résultat. C'était inattendu pour tous les cultivateurs présents, y compris pour le Vieux Suzaku. Cependant, grâce à sa puissante culture, il avait vaguement perçu certaines choses.
 
 Quoi qu'il en soit, cela n'entraverait en rien l'ascension de la réputation de Wang Lin dans les Terres Déchues! Aux yeux des dizaines de milliers de cultivateurs présents, le simple déroulement du combat suffisait à faire de Wang Lin quelqu'un capable de rivaliser avec un cultivateur du troisième niveau!
 
-La Sélection des Anciens Délaissés, qui avait été interrompue, reprit son cours, mais plus rien de tout cela ne concernait Wang Lin.
+La Sélection des Anciens Déchus, qui avait été interrompue, reprit son cours, mais plus rien de tout cela ne concernait Wang Lin.
 
 Dans les Terres Déchues, la planète abandonnée où se trouvaient Liu Jinbiao et Xu Liguo avait été minutieusement fouillée par les membres du Clan Huo Que.
 

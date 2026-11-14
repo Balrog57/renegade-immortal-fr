@@ -18,15 +18,15 @@ Wang Lin resta assis dans cet environnement relativement calme pendant dix jours
 
 Sa culture n'était qu'à un cheveu d'atteindre le stade intermédiaire du Scruteur du Nirvana lors de la bataille entre Luotian et l'Alliance. Pendant ces dix jours, il n'y eut aucun changement dans sa progression. Après tout, l'illumination est une chose que l'on peut rechercher, mais non forcer.
 
-Cependant, au onzième jour, alors que la perle défiant le ciel changeait une fois de plus, la situation bascula!
+Cependant, au onzième jour, alors que la Perle Défiant le Ciel changeait une fois de plus, la situation bascula!
 
-Le soleil sur la perle défiant le ciel, qui tournait rapidement, ralentit et, à midi le onzième jour, s'arrêta complètement. Mais au moment même où il s'immobilisa, le troisième œil de Wang Lin s'ouvrit spontanément!
+Le soleil sur la Perle Défiant le Ciel, qui tournait rapidement, ralentit et, à midi le onzième jour, s'arrêta complètement. Mais au moment même où il s'immobilisa, le troisième œil de Wang Lin s'ouvrit spontanément!
 
-Une lueur rouge jaillit alors que l'énergie source s'échappait pour pénétrer le motif solaire de la perle défiant le ciel.
+Une lueur rouge jaillit alors que l'énergie source s'échappait pour pénétrer le motif solaire de la Perle Défiant le Ciel.
 
 Une grande partie de l'énergie source de Wang Lin provenait des Parchemins de Bataille. Une petite portion fut absorbée à partir de la compréhension du clan du Tatouage sur la planète Suzaku. Les deux étant de l'énergie source, elles fusionnèrent aisément pour demeurer dans le troisième œil. C'était le pouvoir ultime de survie que Wang Lin s'était préparé pour ses combats.
 
-À cet instant, cette rare énergie source pénétra la perle défiant le ciel. C'était comme si une clé avait été trouvée pour elle. La perle défiant le ciel trembla et une force puissante en jaillit, entraînant le Sens Divin de Wang Lin à l'intérieur même de l'objet.
+À cet instant, cette rare énergie source pénétra la Perle Défiant le Ciel. C'était comme si une clé avait été trouvée pour elle. La Perle Défiant le Ciel trembla et une force puissante en jaillit, entraînant le Sens Divin de Wang Lin à l'intérieur même de l'objet.
 
 Wang Lin sentit seulement sa vision se brouiller, et lorsqu'il retrouva la vue, il découvrit cette scène familière.
 
@@ -40,19 +40,19 @@ Dès que cette brèche apparut, un impact inimaginable en émana. Cet impact pou
 
 Cependant, cette fois, au moment où Wang Lin sombrait dans cet état, une aura brûlante émana de la porte et pénétra son corps. Cela fit trembler son esprit et lui permit de reprendre ses esprits.
 
-« Extrême Yang! » Wang Lin sentit clairement que cette aura ardente était l'Extrême Yang que la perle défiant le ciel avait absorbé.
+« Extrême Yang! » Wang Lin sentit clairement que cette aura ardente était l'Extrême Yang que la Perle Défiant le Ciel avait absorbé.
 
 Tandis qu'il réfléchissait, une lueur d'illumination brilla dans les yeux de Wang Lin.
 
 « L'achèvement des cinq éléments a fait apparaître la porte défiant le ciel, mais il était impossible d'y entrer. À l'époque, je n'ai pu franchir le seuil, et mon corps comme mon esprit se sont perdus en son sein. »
 
-« Après les cinq éléments viennent le Yin et le Yang. Maintenant que la perle défiant le ciel a absorbé l'Extrême Yang, l'exigence du Yin et du Yang est à moitié remplie. C'est pourquoi elle m'a tiré de ma transe. J'ignore simplement quel rôle jouera l'Extrême Yin... Si le Yin et le Yang sont complets, que se passera-t-il... » Wang Lin réfléchit longuement avant de fixer la porte et de flotter vers elle.
+« Après les cinq éléments viennent le Yin et le Yang. Maintenant que la Perle Défiant le Ciel a absorbé l'Extrême Yang, l'exigence du Yin et du Yang est à moitié remplie. C'est pourquoi elle m'a tiré de ma transe. J'ignore simplement quel rôle jouera l'Extrême Yin... Si le Yin et le Yang sont complets, que se passera-t-il... » Wang Lin réfléchit longuement avant de fixer la porte et de flotter vers elle.
 
 Cette fois, même en contemplant l'ouverture, il ne tomba plus en transe. Il s'approcha de plus en plus jusqu'à se retrouver au pied de la faille, à un seul pas de l'entrée. À cet instant, ce sentiment d'être une minuscule fourmi envahit à nouveau son cœur.
 
 Une détermination sans faille remplit les yeux de Wang Lin alors qu'il leva le pied pour s'avancer vers cette porte qui semblait soutenir la voûte céleste!
 
-« Je veux connaître le véritable secret de la perle défiant le ciel! » Juste au moment où le pied droit de Wang Lin allait pénétrer dans l'ouverture, son corps trembla. C'était comme si une bourrasque d'air glacial avait transpercé son être.
+« Je veux connaître le véritable secret de la Perle Défiant le Ciel! » Juste au moment où le pied droit de Wang Lin allait pénétrer dans l'ouverture, son corps trembla. C'était comme si une bourrasque d'air glacial avait transpercé son être.
 
 Soudain, Wang Lin sentit son âme être arrachée et repoussée par ce vent froid. Il disparut dans le vide infini.
 

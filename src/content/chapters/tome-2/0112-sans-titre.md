@@ -10,7 +10,7 @@ Une fois qu'il aura atteint le stade intermédiaire de l'Établissement des Fond
 
 Afin d'arracher l'étendard d'âme de Teng Huayuan lors de leur affrontement, Wang Lin se creusait la tête et était résolu à déployer tous les moyens à sa disposition.
 
-Après avoir pris une décision, il sortit une gourde contenant du liquide spirituel, toucha la perle, puis entra dans l'espace de la perle défiant le ciel.
+Après avoir pris une décision, il sortit une gourde contenant du liquide spirituel, toucha la perle, puis entra dans l'espace de la Perle Défiant le Ciel.
 
 Wang Lin n'avait pas cultivé à l'intérieur de la perle depuis longtemps. En contemplant cet espace infini, il vit une masse de gaz gris surplomber sa tête. Il ressentit une pression écrasante émanant de ce gaz.
 
@@ -20,11 +20,11 @@ Wang Lin resta immobile dans cet espace et tenta de toucher un corps de lumière
 
 Bien qu'il ne puisse pas les toucher, il pouvait aisément les contrôler par la pensée. D'une simple volonté, la lumière pouvait se mettre en mouvement, former un motif, se disperser ou se condenser. Tant que Wang Lin le concevait, la lumière réagissait.
 
-Wang Lin avait interrogé Situ Nan à propos de ces lumières, mais même lui n'était pas certain de ce qui s'y passait. Selon Situ Nan, cette perle défiant le ciel était extrêmement étrange. Cet espace n'en était qu'une des fonctions. Hormis la manipulation du temps, Situ Nan n'avait rien d'autre découvert sur l'objet.
+Wang Lin avait interrogé Situ Nan à propos de ces lumières, mais même lui n'était pas certain de ce qui s'y passait. Selon Situ Nan, cette Perle Défiant le Ciel était extrêmement étrange. Cet espace n'en était qu'une des fonctions. Hormis la manipulation du temps, Situ Nan n'avait rien d'autre découvert sur l'objet.
 
 Situ Nan savait seulement qu'avec son statut de cultivateur le plus puissant d'un pays de rang 6, après s'être emparé de la perle, personne sur sa planète de culture n'aurait dû oser le provoquer.
 
-Pourtant, il n'en fut rien: des cultivateurs d'une puissance phénoménale étaient apparus pour tenter de le tuer. Ils l'avaient contraint à abandonner son corps et à se réfugier dans la perle défiant le ciel, ne lui permettant de survivre que de justesse.
+Pourtant, il n'en fut rien: des cultivateurs d'une puissance phénoménale étaient apparus pour tenter de le tuer. Ils l'avaient contraint à abandonner son corps et à se réfugier dans la Perle Défiant le Ciel, ne lui permettant de survivre que de justesse.
 
 Situ Nan avait confié à Wang Lin que, d'après ses analyses, ceux qui le traquaient n'étaient certainement pas originaires de sa planète. Situ Nan en était persuadé car, ayant atteint son niveau actuel, il connaissait presque tous les experts de sa planète; et pour celui qui était considéré comme le numéro un de sa planète, son niveau de culture était extrêmement élevé.
 
@@ -34,13 +34,13 @@ Mais lorsque cette personne était intervenue, Situ Nan avait compris qu'il sera
 
 Le cœur de Situ Nan avait trouvé sa réponse: cet individu devait provenir d'un pays de culture de rang 7.
 
-En songeant à cette conclusion, la perle défiant le ciel lui parut encore plus mystérieuse. Un objet pour lequel même un pays de rang 7 se disputerait devait être un trésor d'une valeur inestimable.
+En songeant à cette conclusion, la Perle Défiant le Ciel lui parut encore plus mystérieuse. Un objet pour lequel même un pays de rang 7 se disputerait devait être un trésor d'une valeur inestimable.
 
 Situ Nan avait partagé tout cela avec Wang Lin et l'avait averti maintes fois de rester prudent. Si quelqu'un venait à découvrir l'existence de cette perle, ils mourraient tous les deux sans aucun doute, leurs corps réduits à néant et leurs âmes dispersées.
 
 Situ Nan avait calculé que si cet individu provenait réellement d'un pays de rang 7, il lui serait facile pour eux d'envoyer un ordre de recherche dans un pays de rang 6. Ils devaient donc se prémunir contre cette menace.
 
-Wang Lin méditait profondément sur tout cela. Mais au-delà des autres fonctions possibles de la perle défiant le ciel, la simple manipulation du temps était déjà une prouesse défiant les lois célestes. Les cultivateurs courent toujours contre le temps; pour le dire franchement, le niveau de culture est synonyme de vie. Chaque fois qu'un être atteint un nouveau stade, sa longévité augmente.
+Wang Lin méditait profondément sur tout cela. Mais au-delà des autres fonctions possibles de la Perle Défiant le Ciel, la simple manipulation du temps était déjà une prouesse défiant les lois célestes. Les cultivateurs courent toujours contre le temps; pour le dire franchement, le niveau de culture est synonyme de vie. Chaque fois qu'un être atteint un nouveau stade, sa longévité augmente.
 
 À cela s'ajoutait le sentiment de supériorité que l'on ressent une fois au sommet. Il faut savoir que la hiérarchie du monde de la culture est extrêmement stricte. Que sont les mortels et les cultivateurs de Condensation de Qi pour un cultivateur de l'Établissement des Fondations? Bien qu'il soit brutal de dire qu'ils ne sont pas au même niveau que des chiens ou des porcs, c'est ainsi que fonctionne la réalité de la culture.
 
@@ -54,9 +54,9 @@ Il devait devenir si puissant que chacun le craindrait. Ce n'est qu'à ce prix q
 
 Il prit une profonde inspiration, ferma les yeux et projeta son Sens Divin dans l'espace du rêve. Peu après, ses mains formèrent un sceau. Il tendit ensuite la main droite pour saisir le vide. Tous les corps de lumière convergèrent pour former une porte.
 
-C'était une fonction que Situ Nan avait découverte après que la perle défiant le ciel eut achevé son Élément Eau: utiliser la lumière environnante pour créer une formation permettant à Wang Lin de circuler librement au sein de l'espace du rêve.
+C'était une fonction que Situ Nan avait découverte après que la Perle Défiant le Ciel eut achevé son Élément Eau: utiliser la lumière environnante pour créer une formation permettant à Wang Lin de circuler librement au sein de l'espace du rêve.
 
-Wang Lin franchit la porte. Il se trouvait toujours dans l'espace de la perle défiant le ciel, mais le paysage avait changé. Devant lui flottait un géant d'environ trente pieds de haut, assis en tailleur dans les airs. Une multitude d'objets luminescents entouraient cette silhouette colossale.
+Wang Lin franchit la porte. Il se trouvait toujours dans l'espace de la Perle Défiant le Ciel, mais le paysage avait changé. Devant lui flottait un géant d'environ trente pieds de haut, assis en tailleur dans les airs. Une multitude d'objets luminescents entouraient cette silhouette colossale.
 
 En y regardant de plus près, les traits du géant étaient ordinaires, mais une énergie Yin semblait s'agglutiner autour de lui. Son corps n'était pas solide mais translucide, particulièrement sa poitrine, presque entièrement transparente, comme si elle allait se dissiper à tout instant. On y distinguait de denses ondes d'énergie spirituelle.
 

@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1291 - The Spatial Crack at the Demon Secte
 slug: la-fissure-spatiale-au-secte-des-demons
 ---
-Le regard de Wang Lin balaya les six anciens de la Secte Éternelle avant qu'il ne retire son regard. L'épée de sang dans sa main droite brilla d'un éclat rouge puis se transforma en une goutte de sang. Celle-ci atterrit entre les sourcils de la vieille femme et s'y grava avant de disparaître progressivement.
+Le regard de Wang Lin balaya les six anciens de la Secte Wu Ji avant qu'il ne retire son regard. L'épée de sang dans sa main droite brilla d'un éclat rouge puis se transforma en une goutte de sang. Celle-ci atterrit entre les sourcils de la vieille femme et s'y grava avant de disparaître progressivement.
 
-D'un geste de la main droite, il déclencha une tempête. Il emporta la vieille femme avec lui et disparut sous les yeux des membres de la Secte Éternelle.
+D'un geste de la main droite, il déclencha une tempête. Il emporta la vieille femme avec lui et disparut sous les yeux des membres de la Secte Wu Ji.
 
 « Ce trésor, raffiné à l'aide des points stellaires d'un dieu ancien d'un nombre d'étoiles inconnu, est véritablement incroyable! En tant que dieu ancien de 6 étoiles, je ne peux utiliser qu'environ 30 % de la puissance de l'épée, mais ces 30 % suffisent à abattre n'importe quel cultivateur du Premier Fléau Céleste! » Wang Lin volait à travers les étoiles à une vitesse fulgurante.
 
@@ -38,7 +38,7 @@ Tuer le fort en étant faible, la fourmi qui mord l'éléphant à mort: tel est 
 
 Franchissant la région de rang 8 avec la détermination de sauver Li Qianmei, Wang Lin pénétrait pour la première fois dans la région de rang 9!
 
-Alors qu'il entrait dans cette région, un garçon aux cheveux blancs était assis en tailleur dans une pièce secrète à l'intérieur de la Secte Divine. Les veines sur son visage étaient gonflées et son corps dégageait une lueur septicolore infinie. Il poussa un cri lugubre.
+Alors qu'il entrait dans cette région, un garçon aux cheveux blancs était assis en tailleur dans une pièce secrète à l'intérieur de la Secte Shen. Les veines sur son visage étaient gonflées et son corps dégageait une lueur septicolore infinie. Il poussa un cri lugubre.
 
 Son visage vieillissait rapidement, mais dès qu'il atteignait une limite d'âge, le processus s'inversait. Ce cycle se répétait sans fin. Cette alternance entre la vie et la mort causait une douleur qu'aucun être ordinaire ne pourrait endurer!
 
@@ -52,15 +52,15 @@ Ignorant le Shui Daozi pour l'instant, une fois Wang Lin entré dans la région 
 
 Des bêtes de rang 12 rôdaient dans le brouillard de la région de rang 9, mais Wang Lin n'avait pas le temps de les tuer et ne voulait pas être ralenti. Dès qu'il pénétra dans la brume, sa culture explosa et une intention meurtrière monstrueuse terrassa toutes les bêtes environnantes. Le brouillard fut repoussé et les bêtes cachées à l'intérieur s'écartèrent pour lui laisser le passage!
 
-« Secte Divine, Shui Daozi, je vous tuerai sans faute! » Dans la région de rang 9, l'intention meurtrière de Wang Lin devint plus oppressante encore.
+« Secte Shen, Shui Daozi, je vous tuerai sans faute! » Dans la région de rang 9, l'intention meurtrière de Wang Lin devint plus oppressante encore.
 
 En chemin, Wang Lin se déplaçait à une vitesse suprême. Des grondements tonitruants éclataient alors qu'il déchirait le brouillard devant lui, fonçant vers le champ de bataille de la Secte Yao sous la guidance de la vieille femme.
 
 La Secte Yao était l'organisation la plus mystérieuse de la région de rang 9. La rumeur disait que ses disciples étaient peu nombreux, mais que chacun d'entre eux était un cultivateur prodigieux!
 
-Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres de la Secte Yao étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer Yun les considéraient comme pouvant rivaliser avec la Secte Divine!
+Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres de la Secte Yao étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer Yun les considéraient comme pouvant rivaliser avec la Secte Shen!
 
-Les rumeurs affirmaient que la Secte Yao s'était séparée de la Secte Divine et ne lui obéissait plus. Tout cela était très étrange. Que ce soit vrai ou faux, cela suffisait à démontrer la puissance de la Secte Yao!
+Les rumeurs affirmaient que la Secte Yao s'était séparée de la Secte Shen et ne lui obéissait plus. Tout cela était très étrange. Que ce soit vrai ou faux, cela suffisait à démontrer la puissance de la Secte Yao!
 
 En restant postés sur le champ de bataille pendant d'innombrables années pour assurer la paix de la Mer Yun, le mystère qui les entourait inspirait les habitants de la Mer Yun à les regarder avec crainte. Ils respectaient leur vertu et redoutaient leurs secrets!
 

@@ -16,7 +16,7 @@ Après avoir pesé le pour et le contre, Wang Lin renonça à l'idée de monter 
 
 Il ne pouvait choisir qu'un seul sort dans le Pavillon Cang Hun, et cela n'était pas une chose que Wang Lin pouvait changer. Son regard balaya les neuf corps spirituels de sept pouces.
 
-Parmi les neuf corps présents, Wang Lin perçut l'Origine de la Fantaisie de l'Âme, l'illusion multicouche, ainsi que le Dao de la Déduction de l'Âme qui lui avait fait sourire amèrement.
+Parmi les neuf corps présents, Wang Lin perçut le Retour de l'Âme Guidée, l'illusion multicouche, ainsi que le Dao de la Déduction de l'Âme qui lui avait fait sourire amèrement.
 
 Quant aux autres sorts, bien qu'il n'ait jamais vu personne les utiliser personnellement, il les scruta tout de même.
 
@@ -28,11 +28,11 @@ Les yeux de Wang Lin s'arrêtèrent sur le troisième corps spirituel parmi les 
 
 « Il semble que la version complète se trouve au neuvième étage. » Wang Lin réfléchit et observa le septième corps spirituel. L'aura de ce dernier était aussi puissante que celle de l'illusion multicouche.
 
-Ce septième corps contenait l'Origine de la Fantaisie de l'Âme qu'Yan Luan avait utilisée, et ce sort était complet au huitième étage.
+Ce septième corps contenait le Retour de l'Âme Guidée qu'Yan Luan avait utilisée, et ce sort était complet au huitième étage.
 
 Wang Lin pesa le pour et le contre entre ces deux options.
 
-« Même si je ne vais pas au neuvième étage maintenant, j'y irai un jour. Après tout, l'illusion multicouche est une technique que je dois absolument obtenir! De cette façon, il n'est pas nécessaire de la choisir immédiatement, et avec la gourde spirituelle, l'Origine de la Fantaisie de l'Âme est plus appropriée pour le moment! » Après avoir mûri sa réflexion, les yeux de Wang Lin s'illuminèrent et il prit une décision. Une fois son choix fait, il ne revenait jamais en arrière. Il se dirigea vers le septième corps spirituel et s'assit. Sa main droite forma un sceau et pointa vers l'entité.
+« Même si je ne vais pas au neuvième étage maintenant, j'y irai un jour. Après tout, l'illusion multicouche est une technique que je dois absolument obtenir! De cette façon, il n'est pas nécessaire de la choisir immédiatement, et avec la gourde spirituelle, le Retour de l'Âme Guidée est plus appropriée pour le moment! » Après avoir mûri sa réflexion, les yeux de Wang Lin s'illuminèrent et il prit une décision. Une fois son choix fait, il ne revenait jamais en arrière. Il se dirigea vers le septième corps spirituel et s'assit. Sa main droite forma un sceau et pointa vers l'entité.
 
 Le septième corps spirituel trembla et libéra une lumière fantomatique qui enveloppa tout le huitième étage. Elle dériva lentement au-dessus de la tête de Wang Lin, donnant l'impression qu'il était en pleine méditation.
 
@@ -40,7 +40,7 @@ Des ondes semblables à des filaments spectraux s'échappèrent du septième cor
 
 L'expression de Wang Lin restait calme et, tandis que ces volutes de fumée imprégnaient son être, il entendit une voix murmurer à ses oreilles. Ces incantations s'inscrivirent lentement dans son âme jusqu'à devenir une seconde nature.
 
-Le temps passa lentement; Wang Lin resta au huitième étage pendant trois jours. Durant cette période, il ne bougea pas d'un iota, absorbant l'Origine de la Fantaisie de l'Âme du corps spirituel de sept pouces.
+Le temps passa lentement; Wang Lin resta au huitième étage pendant trois jours. Durant cette période, il ne bougea pas d'un iota, absorbant le Retour de l'Âme Guidée du corps spirituel de sept pouces.
 
 Il ignorait que sa silhouette était déjà profondément gravée dans l'esprit de chaque disciple et qu'il était presque devenu une légende.
 
@@ -56,17 +56,17 @@ Ces trois jours ne suffirent pas à apaiser les rumeurs sur Wang Lin. Au lever d
 
 Son regard semblait avoir changé; ses yeux contenaient désormais des volutes de fumée onirique. Quiconque croisait son regard s'y trouvait immergé, incapable de s'en échapper.
 
-« Origine de la Fantaisie de l'Âme... C'est donc ainsi... » murmura Wang Lin avant de refermer les yeux. Après un long moment, il expira une bouffée d'air vicié, se leva et descendit les escaliers.
+« Retour de l'Âme Guidée... C'est donc ainsi... » murmura Wang Lin avant de refermer les yeux. Après un long moment, il expira une bouffée d'air vicié, se leva et descendit les escaliers.
 
 Pas à pas, il descendit du huitième étage directement au cinquième, puis au troisième, jusqu'à atteindre le premier étage.
 
-« Les sorts de la Secte Da Hun, qu'il s'agisse du Dao de la Déduction de l'Âme ou de l'Origine de la Fantaisie de l'Âme, nécessitent de détacher une partie de son âme. Cette portion communique avec le monde pour exécuter la série de sorts... »
+« Les sorts de la Secte Da Hun, qu'il s'agisse du Dao de la Déduction de l'Âme ou du Retour de l'Âme Guidée, nécessitent de détacher une partie de son âme. Cette portion communique avec le monde pour exécuter la série de sorts... »
 
 « Pas étonnant que je n'aie pas pu étudier l'illusion multicouche dans le monde de la grotte et que je ne pus utiliser que la Voile Fantôme. Sans elle, j'ai perdu la capacité d'utiliser ce sort... » Les yeux de Wang Lin brillaient d'une lueur étrange alors qu'il sortait du Pavillon Cang Hun.
 
-Il s'envola depuis la faille située à l'extérieur du pavillon et, au moment où il émergea, la déchirure au-dessus du Pic Céleste Vert se referma.
+Il s'envola depuis la faille située à l'extérieur du pavillon et, au moment où il émergea, la déchirure au-dessus du Pic Qing Tian se referma.
 
-L'Ancien Qing Niu, resté à l'intérieur du Pic Céleste Vert, regarda Wang Lin partir et poussa un soupir de soulagement. Si Wang Lin était entré au neuvième étage trois cents ans plus tôt, il n'aurait vraiment pas su comment réagir.
+L'Ancien Qing Niu, resté à l'intérieur du Pic Qing Tian, regarda Wang Lin partir et poussa un soupir de soulagement. Si Wang Lin était entré au neuvième étage trois cents ans plus tôt, il n'aurait vraiment pas su comment réagir.
 
 « Le premier ancêtre avait diviné que Wang Lin entrerait au neuvième étage après trois cents ans de présence ici. Ensuite, le neuvième jour suivant son entrée dans ce neuvième étage, les trois grandes sectes du Continent Lu Mo uniraient leurs forces pour anéantir ma Secte Da Hun et la Secte Gui Yi... »
 

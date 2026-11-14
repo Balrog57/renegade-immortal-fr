@@ -28,7 +28,7 @@ Le corps de l'essence du tonnerre servit de pont pour transmettre la puissance c
 
 Désormais, la majeure partie du fragment avait été extraite; il ne restait plus qu'un pouce à l'intérieur du sceau!
 
-Le corps originel de Wang Lin s'approcha et décocha un coup de poing au visage, maintenu par la paume de tonnerre. Une ombre de l'Ancien Dao apparut et frappa également.
+Le corps originel de Wang Lin s'approcha et décocha un coup de poing au visage, maintenu par la paume de tonnerre. Une ombre du Dao Gu apparut et frappa également.
 
 Les grondements de tonnerre firent bouillir la mer environnante. L'eau au-dessus se transforma en un puissant vortex, et le coup de poing fusionna avec la paume de tonnerre pour contenir le visage. Wang Lin saisit alors le corps véritable des cinq éléments et tira de toutes ses forces!
 
@@ -63,7 +63,7 @@ Ces quatre-vingt-dix-sept images formèrent toutes des sceaux, leurs paumes poin
 « Tremblement Divin, Formation d'Armée!
 Sortilège Démoniaque, Montagne de Vent et de Feu!
 Voie du Diable, Inversion de la Vie et de la Mort!
-Dieu, Démon, Diable, Ancien Dao, Nul Céleste! »
+Dieu, Démon, Diable, Dao Gu, Nul Céleste! »
 
 Chaque ombre prononça ces quatre versets avant de lancer un coup de poing. Les quatre-vingt-dix-sept images retournèrent dans le corps de Wang Lin et l'attaque fut déclenchée. Des ondulations grises se propagèrent vers le visage dévorant.
 
@@ -73,7 +73,7 @@ Les ondulations grises entrèrent en collision avec le visage géant. Des craque
 
 Cependant, ce n'était que temporaire. Avant que la pétrification ne soit totale et que la teinte grise ne finisse de se propager, la partie du visage qui avait été touchée en premier commença à se détendre. Elle montrait déjà des signes de régénération!
 
-« Même l'Ancien Dao, Nul Céleste ne peut le détruire complètement. Le visage scellé se régénère rapidement. Il ne lui faudra que quelques respirations pour redevenir intact! » Les pupilles de Wang Lin se contractèrent. S'il choisissait de battre en retraite à cet instant, il était sûr à 80 % de pouvoir s'échapper par la brèche qu'il avait ouverte et retourner dans la Mer Shan Hai. Il pourrait même s'envoler directement hors de la mer!
+« Même le Dao Gu, Nul Céleste ne peut le détruire complètement. Le visage scellé se régénère rapidement. Il ne lui faudra que quelques respirations pour redevenir intact! » Les pupilles de Wang Lin se contractèrent. S'il choisissait de battre en retraite à cet instant, il était sûr à 80 % de pouvoir s'échapper par la brèche qu'il avait ouverte et retourner dans la Mer Shan Hai. Il pourrait même s'envoler directement hors de la mer!
 
 Mais Wang Lin refusait de simplement fuir! Une lueur glaciale brilla dans ses yeux. Le sceau l'avait blessé. Bien qu'il soit sûr à 80 % de pouvoir s'échapper, il restait un risque de 20 % que tout bascule. Si cela arrivait, et avec le rétablissement de l'Exalté Empyréen Hai Zi, il se retrouverait dans une position désastreuse, attaqué de toutes parts!
 

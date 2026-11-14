@@ -60,7 +60,7 @@ Si n'importe qui d'autre avait conçu cette méthode et obtenu une grande quanti
 
 Et seul Wang Lin possédait cette tactique.
 
-Tandis que le dragon argenté fendait les étoiles, Wang Lin restait assis sur son dos, l'expression sombre. Ce voyage de plusieurs mois avait été une perte de temps totale. Il pensait pouvoir achever la perle défiant le ciel, mais le résultat n'était pas celui escompté.
+Tandis que le dragon argenté fendait les étoiles, Wang Lin restait assis sur son dos, l'expression sombre. Ce voyage de plusieurs mois avait été une perte de temps totale. Il pensait pouvoir achever la Perle Défiant le Ciel, mais le résultat n'était pas celui escompté.
 
 « Tant pis. J'ai déjà attendu plus de huit cents ans, je ne m'opposerai pas à attendre un peu plus longtemps. Dès que j'aurai assez de Fruits de l'Ascension Céleste pour les raffiner, je reviendrai. »
 

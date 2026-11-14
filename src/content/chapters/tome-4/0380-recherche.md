@@ -52,7 +52,7 @@ Le vieil homme le suivit rapidement et les deux pénétrèrent dans la secte int
 
 L'expression de Wang Lin demeura calme alors qu'il observait froidement les gardes. S'il invoquait la bête moustique, il pourrait s'échapper instantanément. Cependant, cette bête était son dernier recours, et il ne voulait pas renoncer à un si excellent lieu de culture.
 
-Bien que son âme originelle se soit un peu rétablie, elle n'avait pas encore été totalement reformée. Il tenta d'invoquer la perle défiant le ciel, mais sans succès. Wang Lin réfléchit un instant et ne prit aucune décision irréfléchie.
+Bien que son âme originelle se soit un peu rétablie, elle n'avait pas encore été totalement reformée. Il tenta d'invoquer la Perle Défiant le Ciel, mais sans succès. Wang Lin réfléchit un instant et ne prit aucune décision irréfléchie.
 
 Une lueur émergea de l'horizon alors que le soleil se levait, enveloppant la terre de chaleur. La lumière chassa les ténèbres. Tandis que les environs s'éclaircissaient progressivement, l'érudit d'âge moyen sortit de la secte intérieure.
 

@@ -10,7 +10,7 @@ Avec son niveau de culture actuel, Wang Lin n'avait plus besoin de dormir. Allon
 
 Wang Lin marmonna pour lui-même: « La quantité d'énergie spirituelle nécessaire pour passer de la Condensation de Qi à l'Établissement des Fondations est tout simplement colossale. Il est temps de commencer à collecter la rosée. »
 
-Situ Nan demanda: « C'est exact. Hé, gamin, quand comptes-tu partir chercher un élément bois pour aider à compléter la perle défiant le ciel? »
+Situ Nan demanda: « C'est exact. Hé, gamin, quand comptes-tu partir chercher un élément bois pour aider à compléter la Perle Défiant le Ciel? »
 
 Wang Lin réfléchit un instant avant de répondre: « D'abord, je vais trouver un endroit à proximité pour m'isoler et cultiver, afin de tenter d'atteindre l'Établissement des Fondations. Tout en surveillant ce qui se passe chez Zhou Peng, si tout reste normal, je quitterai ces lieux. »
 

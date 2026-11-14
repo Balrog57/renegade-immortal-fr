@@ -66,7 +66,7 @@ Ce n'est que grâce à cette conjonction de facteurs qu'il avait pu terrasser Li
 
 Personne d'autre n'avait remarqué qu'il était l'auteur de la mort de Liu Zhiyuan. Wang Lin s'y était attendu. En attaquant, il avait resserré les restrictions autour d'eux pour empêcher Liu Zhiyuan de fuir. Grâce à cela, même si d'autres avaient balayé la zone avec leur Sens Divin, ils n'auraient rien pu percevoir de clair.
 
-Bien qu'il eût utilisé l'Origine de la Fantaisie de l'Âme pour invoquer le neuvième ancêtre de la Secte Da Hun, il était fort peu probable que quelqu'un remarque le sortilège depuis l'extérieur de la restriction.
+Bien qu'il eût utilisé le Retour de l'Âme Guidée pour invoquer le neuvième ancêtre de la Secte Da Hun, il était fort peu probable que quelqu'un remarque le sortilège depuis l'extérieur de la restriction.
 
 Après tout, Wang Lin recelait trop de secrets et de méthodes qu'il ne souhaitait pas divulguer. Il était donc naturel d'ériger des restrictions pour que nul ne puisse tout voir.
 

@@ -138,10 +138,10 @@ Outre l'odeur du sang, d'innombrables cadavres jonchaient le sol. Des effluves d
 
 C'était une lutte à mort entre le Pays Tian Yao et le Pays Huo Yao! On pourrait même dire qu'il n'y avait ni vainqueur ni vaincu dans ce conflit. Chaque vie était échangée contre une autre, tandis que toute la puissance du Pays Huo Yao était lentement anéantie.
 
-La capitale du Pays Huo Yao était totalement déserte. Même l'Empereur Démon était personnellement entré dans le combat. Hormis la terre sacrée de la Vallée Démoniaque, tout le reste était désert!
+La capitale du Pays Huo Yao était totalement déserte. Même l'Empereur Démon était personnellement entré dans le combat. Hormis la terre sacrée de la Vallée Yao, tout le reste était désert!
 
 L'Ancien Démon du Pays Huo Yao avait imité celui du Pays Tian Yao: il avait scellé la capitale pour en interdire l'accès.
 
-La Vallée Démoniaque n'était pas située à l'extérieur de la cité, mais dans ses profondeurs. Une énergie spirituelle démoniaque dense s'en dégageait, enveloppant toute la capitale. Vu de loin, la cité semblait entourée d'une brume démoniaque mêlée à une puissante aura de mort; elle ressemblait à une cité noyée dans la brume qui inspirait une profonde tristesse à quiconque la contemplait.
+La Vallée Yao n'était pas située à l'extérieur de la cité, mais dans ses profondeurs. Une énergie spirituelle démoniaque dense s'en dégageait, enveloppant toute la capitale. Vu de loin, la cité semblait entourée d'une brume démoniaque mêlée à une puissante aura de mort; elle ressemblait à une cité noyée dans la brume qui inspirait une profonde tristesse à quiconque la contemplait.
 
 Lorsque Wang Lin atterrit aux abords de la capitale du Pays Huo Yao, le bruit de ses pas résonna nettement, tant l'environnement était silencieux. La terre rouge sombre avait une texture boueuse sous les pieds; cette consistance provenait du sang de dizaines de millions de personnes qui avait imprégné le sol au cours des cent dernières années.
