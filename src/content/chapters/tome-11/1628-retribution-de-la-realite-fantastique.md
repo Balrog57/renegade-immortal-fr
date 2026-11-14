@@ -10,9 +10,9 @@ Sa paume ouverte représentait la cause karmique, et sa paume fermée l'effet ka
 
 De nombreuses fissures apparurent sur ces deux sections avant qu'elles ne s'effondrent soudainement. D'innombrables fragments se dispersèrent et furent consumés par les flammes, se changeant en une fumée noire.
 
-Si seuls deux pans s'étaient effondrés, cela n'aurait été surprenant que peu. Cependant, sous l'assaut de l'Empreinte du Karma, non seulement ces deux pans s'écroulèrent, mais même les quatre épées gravitant autour de la silhouette vague tremblèrent en émettant des bourdonnements plaintifs.
+Si seuls deux pans s'étaient effondrés, cela n'aurait rien eu de surprenant. Cependant, sous l'assaut de l'Empreinte du Karma, non seulement ces deux pans s'écroulèrent, mais même les quatre épées gravitant autour de la silhouette vague tremblèrent en émettant des bourdonnements plaintifs.
 
-Wang Lin extraisit quatre auras semblables à de la fumée de ces quatre épées. Elles étaient invisibles à l'œil nu, mais perceptibles au Sens Divin. Elles volèrent vers la main de Wang Lin qui les saisit.
+Wang Lin extirpa quatre auras semblables à de la fumée de ces quatre épées. Elles étaient invisibles à l'œil nu, mais perceptibles au Sens Divin. Elles volèrent vers la main de Wang Lin qui les saisit.
 
 Alors que les quatre auras se dissipaient, les quatre épées que Wang Lin redoutait autrefois perdirent tout leur éclat; elles ne semblaient plus être que des lames ordinaires, dépourvues de toute essence spirituelle.
 
@@ -50,7 +50,7 @@ Wang Lin avait enduré plus de mille ans pour prononcer ces mots. Depuis la prem
 
 Demander aux cieux quel droit ils avaient d'emporter Li Muwan!
 Demander aux cieux qui leur avait donné le pouvoir de punir les êtres!
-Demander aux cieux qui leur avait accordé le droit de se faire passer pour le Ciel!
+Demander aux cieux qui leur avait accordé le droit de devenir le Ciel!
 
 Des grondements tonitruants éclatèrent et les nuages s'étendant sur un million de kilomètres semblèrent entrer dans une rage folle. Des rugissements sourds, capables d'ébranler l'esprit, émanèrent de la faille.
 

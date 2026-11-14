@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1874 - The Soul Armor Recognize Its Master!"
 slug: larmure-de-lame-reconnait-son-maitre
 ---
-Lu Wenran était d'une rapidité fulgurante. Sa décision était prise: il devait tuer Wang Lin. Même sous les yeux de tous les témoins, il ne reculerait pas. Ayant déjà perdu l'avantage, il n'avait d'autre choix que de lancer l'offensive immédiatement!
+Lu Wenran était d'une rapidité fulgurante. Sa décision était prise: il devait tuer Wang Lin. Même sous les yeux de tous, il ne reculerait pas. Ayant déjà perdu l'avantage, il n'avait d'autre choix que de lancer l'offensive immédiatement!
 
 En un éclair, il fondit sur Wang Lin. Wang Lin, tout en reculant, fit trois pas d'affilée. Au troisième, sa main droite se leva vivement et le palais souterrain gronda. Une Lance aux Sept Couleurs apparut, suivie d'une seconde, condensée à partir de la véritable essence du feu.
 
@@ -44,7 +44,7 @@ Mais la série ne s'arrêta pas là. Dès qu'il eut achevé Nuit Brisée et Temp
 
 « Appelle le Vent, Invoque la Pluie! »
 « Arsenal Magique! »
-« Montagnes S’Effondrent, Terres S'Écroulent! »
+« Montagnes S'Effondrent, Terres S'Écroulent! »
 « Lune Noire, Ciel Dégagé! »
 
 Alors qu'il agitait sa manche, deux lunes noires apparurent aux côtés des deux soleils brillants, créant un contraste d'ombres. Lu Wenran fut alors pris dans le sort de la Secte Yin Yue.

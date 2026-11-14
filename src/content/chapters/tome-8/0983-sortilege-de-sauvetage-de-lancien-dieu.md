@@ -30,7 +30,7 @@ Cependant, cela ne lui fit aucun mal. Cette aura traversa son corps à plusieurs
 
 Après un long moment, une lueur de clarté revint dans les yeux de Wang Lin et il murmura doucement: « Di! »
 
-C'était la voix d'un Ancien Dieu, et elle était d'une étrange résonance. Dès qu'il eut parlé, une force mystérieuse enveloppa le bouclier qui émit un éclat azuré. Puis, celui-ci rétrécit rapidement jusqu'à atteindre la taille de sa paume et flotta devant lui.
+C'était la langue des Anciens Dieux, d'une étrange résonance. Dès qu'il eut parlé, une force mystérieuse enveloppa le bouclier qui émit un éclat azuré. Puis, celui-ci rétrécit rapidement jusqu'à atteindre la taille de sa paume et flotta devant lui.
 
 Le regard de Wang Lin était calme. Il savait que sans son corps d'Ancien Dieu, cette aura oppressive l'aurait tué. Ce trésor était différent du Fourneau de l'Ancien Dieu!
 
@@ -50,7 +50,7 @@ D'innombrables runes scintillaient sur la tablette, dégageant une aura monstrue
 
 Cependant, juste au moment où la tablette allait percuter Wang Lin, le bouclier de lumière azurée brilla et se déplaça à une vitesse incroyable pour intercepter l'attaque. La tablette de pierre et le bouclier entrèrent en collision.
 
-Un fracas assourdissant retentit, puis la tablette de pierre vola en éclats. Si cela n'avait été que cela, ce ne serait pas si grave, mais ce qui choqua Maître Fu Fengzi fut que l'énergie d'origine de la tablette brisée fut totalement absorbée par le bouclier.
+Un fracas assourdissant retentit, puis la tablette de pierre vola en éclats. Ce n'était pas tout : ce qui choqua Maître Fu Fengzi fut que l'énergie d'origine de la tablette brisée fut totalement absorbée par le bouclier.
 
 Le bouclier brilla d'un éclat intense!
 

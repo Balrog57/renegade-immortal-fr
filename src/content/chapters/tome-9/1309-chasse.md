@@ -34,7 +34,7 @@ Ils poursuivaient Tuo Sen à distance, sans relâche.
 
 Tuo Sen parvint près de la Formation du Royaume Scellé dans un fracas de tonnerre et frappa le vide de sa main droite. Un rugissement puissant résonna alors qu'il déchirait une faille spatiale. Son corps se rétracta jusqu'à la taille d'un homme ordinaire et disparut dans la brèche.
 
-Chasser!!
+Chasse!!
 
 Quoi qu'il en coûte, il devait rattraper Wang Lin et le dévorer. Puis, il se retournerait pour dévorer les trois cultivateurs du troisième niveau qui le traquaient, afin d'apaiser la rage de son cœur!
 
@@ -68,7 +68,7 @@ Son expression changea. Incapable de détruire les éclairs rouges à l'intérie
 
 Alors qu'il s'apprêtait à reprendre sa poursuite, il fronça soudainement les sourcils. Les trois rayons de lumière derrière lui accélérèrent brusquement. Depuis son arrivée, ils l'avaient suivi sans relâche. Dès qu'ils aperçurent les éclairs rouges, ils les reconnurent instantanément. Sans hésiter, ils resserrèrent l'étau et les trois rayons de lumière chargèrent Tuo Sen!
 
-La silhouette de Wang Lin tituba en émergeant du vide quelque part dans le Système Stellaire Antique. Le visage pâle, il cracha une nouvelle bouchée de sang. La blessure sur sa poitrine s'était rouverte, teintant ses vêtements de pourpre.
+La silhouette de Wang Lin tituba en émergeant du vide quelque part dans le Système Stellaire Antique. Le visage pâle, il cracha une nouvelle gorgée de sang. La blessure sur sa poitrine s'était rouverte, teintant ses vêtements de pourpre.
 
 Cette plaie portait l'aura de la Hache Brise-Ciel; il était donc extrêmement difficile pour un Dieu Ancien de s'en remettre. À moins d'extraire de force cette aura, sa guérison prendrait un temps extrêmement long.
 

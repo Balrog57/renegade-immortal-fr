@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1723 - Heavenly Dao!"
 slug: le-dao-celeste
 ---
-«...Le Dao Céleste!! » L'esprit de Wang Lin devint blanc. Ce qu'il avait découvert au sein du cycle de réincarnation de Tian Yunzi était à peine croyable. Le Dao Céleste que tous cherchaient était en réalité... en fait, c'était Tian Yunzi!
+«...Le Dao Céleste!! » L'esprit de Wang Lin se vida. Ce qu'il avait découvert au sein du cycle de réincarnation de Tian Yunzi était à peine croyable. Le Dao Céleste que tous cherchaient était en réalité... en fait, c'était Tian Yunzi!
 
 En observant le jeune homme qui tirait sur la peau de son visage pour tenter de sourire, Wang Lin peinait à apaiser les vagues qui déferlaient dans son cœur. Il était tel un navire solitaire sur une mer déchaînée, ballotté par des flots incessants.
 
@@ -48,7 +48,7 @@ Au moment où la porte géante se fendit, Wang Lin vit une boule de brouillard p
 
 À travers la brume, Wang Lin entrevit un instant la silhouette d'un être. Il ne put distinguer son apparence, mais il entendit son rugissement tonitruant!
 
-« Le Dao Céleste!! Tu as réellement obtenu un Dao Céleste!! Maudit soit, ce roi ne l'accepte pas! » Le rugissement finit en un sifflement. Un grondement terrifiant émana du brouillard.
+« Le Dao Céleste!! Tu as réellement obtenu un Dao Céleste!! Maudit soit-il! Ce roi ne l'accepte pas! » Le rugissement finit en un sifflement. Un grondement terrifiant émana du brouillard.
 
 Tandis que le fracas résonnait, l'incessante brume commença à bouger. Une force puissante semblait déchirer le brouillard, le scindant en deux.
 

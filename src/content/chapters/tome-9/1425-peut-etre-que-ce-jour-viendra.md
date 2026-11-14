@@ -12,7 +12,7 @@ Monter la montagne était ardu, mais la descendre l'était plus encore!
 
 Dans sa précipitation, il trébucha immédiatement, s'infligeant de nombreuses contusions et des blessures sanglantes. Pourtant, le jeune homme fit fi de tout et continua sa course effrénée vers le bas.
 
-« Ce n'est qu'un incendie, ce n'est qu'un incendie! Rien ne s'est passé, rien ne s'est passé! » Le corps du jeune homme tremblait tandis qu'il dévalait la pente comme un possédé. Le panier de remèdes sur son dos tressautait, laissant échapper quelques herbes médicinales, mais il n'y prêta aucune attention.
+« Ce n'est qu'un incendie, ce n'est qu'un incendie! Il ne se passera rien, il ne se passera rien! » Le corps du jeune homme tremblait tandis qu'il dévalait la pente comme un possédé. Le panier de remèdes sur son dos tressautait, laissant échapper quelques herbes médicinales, mais il n'y prêta aucune attention.
 
 En chemin, il tomba à plusieurs reprises; une branche lui ouvrit même une large plaie à la jambe droite. Il l'ignora pourtant, ses yeux ne reflétant qu'une anxiété dévorante.
 
@@ -52,7 +52,7 @@ Ce spectacle lui infligea une douleur si intense qu'il manqua de s'effondrer. To
 
 La plupart des maisons alentour avaient été réduites en cendres. Seul le luxueux palanquin était intact. Par comparaison avec les décombres, sa couleur éclatante était d'un contraste saisissant et tragique!
 
-Le jeune homme se mordit la lèvre inférieure. Tremblant d'une panique indescriptible, il pénétra dans la maison brûlée jouxtant le palanquin. Un corps gisait là: c'était Huzi... À ses côtés se trouvait le cadavre nu d'une femme. C'était la sœur de Huzi, Hong Hong... Le jeune homme faillit s'écrouler alors qu'il s'enfonçait plus profondément dans la pièce. Il vit sa... petite sœur... La demeure calcinée n'avait plus que quelques poutres debout, et un morceau de soie blanche, noué autour du cou d'un corps féminin misérable, pendait à l'une d'elles... Ses vêtements étaient en désordre et le sang s'écoulait de ses sept orifices. Ses yeux semblaient encore empreints de confusion, fixant l'horizon comme si elle attendait un être cher... En voyant cela, le jeune homme cracha une bouchée de sang.
+Le jeune homme se mordit la lèvre inférieure. Tremblant d'une panique indescriptible, il pénétra dans la maison brûlée jouxtant le palanquin. Un corps gisait là: c'était Huzi... À ses côtés se trouvait le cadavre nu d'une femme. C'était la sœur de Huzi, Hong Hong... Le jeune homme faillit s'écrouler alors qu'il s'enfonçait plus profondément dans la pièce. Il vit sa... petite sœur... La demeure calcinée n'avait plus que quelques poutres debout, et un morceau de soie blanche, noué autour du cou d'un corps féminin misérable, pendait à l'une d'elles... Ses vêtements étaient en désordre et le sang s'écoulait de ses sept orifices. Ses yeux semblaient encore empreints de confusion, fixant l'horizon comme si elle attendait un être cher... En voyant cela, le jeune homme cracha une gorgée de sang.
 
 « Petite sœur! » Son cri déchirant résonna dans la nuit de ce village désolé et funeste! Il persista longtemps... « Ne pleure pas, Petite Lan, sois sage. Grand frère ne dormira plus. Je t'apporterai cette orchidée pourpre, d'accord? Alors, ne pleure plus. »
 
@@ -106,7 +106,7 @@ L'esprit de Sima Mo trembla... « Viens avec ce vieil homme... Désormais, tu n'
 
 La silhouette de Maître Si Mo apparut.
 
-Grâce au Dao du Rêve, Wang Lin n'avait pas délibérément laissé quoi que ce soit dans les souvenirs de Maître Si Mo, mais il y avait glissé quelques pensées... Il avait renoncé à l'affiner.
+Grâce au Dao du Rêve, Wang Lin n'avait rien laissé de délibéré dans les souvenirs de Maître Si Mo, mais il y avait glissé quelques pensées... Il avait renoncé à l'affiner.
 
 Ce raffinage aurait sans doute échoué, car Maître Si Mo possédait encore de nombreux trésors. Poursuivre cette bataille n'aurait eu aucun sens.
 

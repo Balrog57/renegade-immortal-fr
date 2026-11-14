@@ -30,7 +30,7 @@ Ce sort pouvait instantanément démultiplier la force de Wang Lin par une méth
 
 « Celui que Shui Daozi utilisait ne pouvait détruire que le corps. Le sort Dao que je viens d'apprendre est la véritable Empreinte de l'Esprit Guerrier! » Wang Lin prit une profonde inspiration. Après avoir fermement mémorisé l'Empreinte, il regarda le fou.
 
-À ses yeux, ce lunatique était tel un immense coffre au trésor sur le point d'exploser...
+À ses yeux, ce fou était tel un immense coffre au trésor sur le point d'exploser...
 
 « D'accord, ne pleure plus. J'admets que ton sort est vraiment puissant, et j'ai eu tort de te blâmer. » Wang Lin se leva et s'excusa. Une pointe de douceur dans ses yeux, il joignit les mains en signe de respect.
 
@@ -38,7 +38,7 @@ Le fou laissa échapper un reniflement et détourna le visage.
 
 Wang Lin esquissa un sourire amer. Sa main droite s'avança tandis qu'il réfléchissait. Il ouvrit son espace de stockage et en sortit quelques pilules, choisissant celles qui dégageaient un parfum intense dès leur extraction.
 
-Le nez du fou frémit soudainement et il renifla inconsciemment. Il se lécha les lèvres tout en s'efforçant de ne pas regarder, mais ses yeux continuaient de lorgner le trésor.
+Le nez du fou frémit soudainement et il renifla inconsciemment. Il se lécha les lèvres tout en s'efforçant de ne pas regarder, mais ses yeux continuaient de lorgner le trésor du coin de l'œil.
 
 « Humph, que valent ces pilules? Les pires pilules que ce roi donnait à Xiao Hong étaient bien meilleures que celles-là... »
 
@@ -96,7 +96,7 @@ Face au fou, Wang Lin esquissa un lent sourire.
 
 Le fou sentit un pressentiment funeste en voyant Wang Lin le fixer avec ce sourire. Il se rappelait vaguement qu'après un tel sourire, il avait passé des heures à pratiquer l'Empreinte de l'Esprit Guerrier jusqu'à en perdre haleine.
 
-À cet instant précis, la planète de culture trembla et le ciel s'assombrit comme si une tempête éclatait. Un grondement tonnerre résonna et une immense silhouette apparut lentement.
+À cet instant précis, la planète de culture trembla et le ciel s'assombrit comme si une tempête éclatait. Un grondement de tonnerre résonna et une immense silhouette apparut lentement.
 
 Le fantôme était colossal, semblable à une baleine, avec deux longues moustaches dansant au gré du vent.
 
@@ -104,4 +104,4 @@ C'était la Bête des Limbes! Suite à l'appel de Wang Lin, son apparence spectr
 
 Dès qu'elle apparut, la fierté du fou s'effondra instantanément. Ses pupilles se rétractèrent, son corps trembla violemment et il poussa un cri déchirant:
 
-« Ah! Toi, toi, toi... Tu m'as poursuivi jusqu'ici!! Maudit sois-tu, tu ne me lâches pas la grappe!!! Je n'ai pas bon goût, je n'ai vraiment pas bon goût, ah! »
+« Ah! Toi, toi, toi... Tu m'as poursuivi jusqu'ici!! Maudit sois-tu, tu ne me laisses donc jamais en paix!!! Je n'ai pas bon goût, je n'ai vraiment pas bon goût, ah! »

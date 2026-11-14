@@ -36,13 +36,13 @@ L'homme corpulent recula prestement et, dans sa fuite, déchira la réalité pou
 
 Ces yeux étaient impitoyables et un hurlement de loup résonna. Une ombre rouge massive s'en échappa, révélant un loup rouge de dizaines de milliers de pieds de large qui bondit sur la statue de l'Estimé Ling Dong.
 
-Le cœur de l'homme corpulent battait la chamade; il pressentait le danger. Wang Lin n'était déjà plus faible et se montrait extrêmement rusé. Désormais, Ling Dong avait lui aussi franchi le dernier pas vers le troisième stade. L'homme corpulent n'hésita pas à renoncer à sa dignité de cultivateur du troisième stade: dès que le loup rouge jaillit, il battit en retraite avec anxiété.
+Le cœur de l'homme corpulent battait la chamade; il pressentait le danger. Wang Lin n'était déjà plus faible et se montrait extrêmement rusé. Désormais, Ling Dong avait lui aussi franchi le dernier pas vers le troisième stade. L'homme corpulent n'hésita pas à renoncer à sa dignité de cultivateur du troisième stade: dès que le loup rouge jaillit, il recula précipitamment, anxieux.
 
 « Je ne peux pas laisser ce combat continuer, c'est impossible! Lorsque cet Estimé Ling Dong était au cinquième niveau de la Calamité Céleste, je n'étais encore qu'un junior. S'il n'avait pas été aussi obstiné et incapable d'obtenir suffisamment de Flammes d'Encens, il serait devenu un cultivateur du troisième stade depuis longtemps! »
 
 Wang Lin se tenait toujours au sommet du crâne du Dieu Ancien. Il n'avait pas bougé d'un pouce et son expression était restée presque immuable. Il avait tout observé, de l'arrivée arrogante de l'homme corpulent du Clan Feng Tian Lang jusqu'à sa retraite dans la stupeur.
 
-Un soupçon de ridicule apparut sur le visage de Wang Lin alors qu'il ouvrait lentement la bouche.
+Une pointe de moquerie apparut sur le visage de Wang Lin alors qu'il ouvrait lentement la bouche.
 
 « Tu étais heureux de me voir, mais tu ne savais pas que j'étais encore plus heureux! » Wang Lin agita la main et deux des 18 feuilles devant lui s'élancèrent immédiatement. Leur vitesse était inimaginable. Au moment où la faille apparut derrière l'homme corpulent et que le loup rouge hurla, les feuilles déchirèrent l'espace pour venir sceller la faille.
 

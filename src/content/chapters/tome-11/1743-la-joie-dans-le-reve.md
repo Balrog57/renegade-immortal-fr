@@ -28,7 +28,7 @@ Au cours de sa vie, Wang Lin avait parcouru de nombreux lieux étrangers, et la 
 
 « Aujourd'hui est un jour spécial... Wan Er, te souviens-tu... » Wang Lin ne se souvenait ni de son âge, ni de sa date de naissance, mais il se souvenait parfaitement de ce jour, des milliers d'années auparavant!
 
-C'était un jour qu'il ne pouvait oublier. Chaque année, à cette même date, il le passait seul, que ce soit en massacrant pour s'oublier, en fuyant pour enfouir ses souvenirs au plus profond de son cœur, ou en culture de porte close où il laissait passer les années en silence.
+C'était un jour qu'il ne pouvait oublier. Chaque année, à cette même date, il le passait seul, que ce soit en massacrant pour s'oublier, en fuyant pour enfouir ses souvenirs au plus profond de son cœur, ou en culture en porte close où il laissait passer les années en silence.
 
 Cependant, la plupart du temps, il buvait seul. Le vin épicé coulait dans sa gorge, mais il n'en ressentait pas le piquant, car la nostalgie, la solitude et la désolation emplissaient son cœur. Peu importe la force de l'alcool, rien ne parvenait à les effacer!
 
@@ -40,7 +40,7 @@ Il y a plus de 2 000 ans, en ce jour même, à l'extérieur de la Mer Xiu Mo, un
 
 Cette voix avait poussé Wang Lin à s'arrêter et à se retourner. Il avait alors aperçu une silhouette inconnue, mais dont il se souviendrait pour le reste de sa vie.
 
-Cette silhouette était la sienne, celle de sa femme...
+Cette silhouette était celle de sa femme...
 
 Le cœur de Wang Lin fut pris d'une douleur lancinante; il vida la cruche de vin, la jeta sur le côté et en sortit une autre.
 

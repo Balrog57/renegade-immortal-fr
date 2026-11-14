@@ -30,7 +30,7 @@ Wang Lin était assis dans une pièce secrète de la Secte Gui Yuan. Son esprit 
 
 Tout dans le monde semblait lui être connu, mais ce n'était qu'une apparence!
 
-Après s'être fusionné avec l'âme de Tian Yunzi, Wang Lin s'assit et ses mains formèrent un sceau. Son esprit se projeta dans le ciel et il commença à fusionner avec les cieux. Il lui fallut une journée entière pour atteindre ce point où il était les cieux, et les cieux étaient lui.
+Après avoir fusionné avec l'âme de Tian Yunzi, Wang Lin s'assit et ses mains formèrent un sceau. Son esprit se projeta dans le ciel et il commença à fusionner avec les cieux. Il lui fallut une journée entière pour atteindre ce point où il était les cieux, et les cieux étaient lui.
 
 Dans cet état de fusion, l'âme originelle de Wang Lin semblait quitter son corps pour se fondre dans le monde. Cela permit à sa propre âme et à celle de Tian Yunzi d'atteindre un niveau de fusion sans précédent.
 
@@ -46,9 +46,9 @@ Mais Wang Lin n'abandonna pas; toute son énergie originelle s'agita, le faisant
 
 Il oublia qu'il cultivait et qu'il se trouvait à la Secte Gui Yuan, dans la Mer Yun. À cet instant, il oublia tout!
 
-Le brouillard qui couvrait le monde commença à tourner rapidement, et un grondement tonnerre résonna dans son esprit. C'était comme si une paire de mains gigantesques et invisibles agitait ce brouillard, créant un vortex!
+Le brouillard qui couvrait le monde commença à tourner rapidement, et un grondement de tonnerre résonna dans son esprit. C'était comme si une paire de mains gigantesques et invisibles agitait ce brouillard, créant un vortex!
 
-Au moment où le vortex apparut, un fracas tonnerre que lui seul pouvait entendre descendit des cieux et s'abattit sur le brouillard. À cet instant, le vortex s'effondra et se dispersa brusquement.
+Au moment où le vortex apparut, un fracas de tonnerre que lui seul pouvait entendre descendit des cieux et s'abattit sur le brouillard. À cet instant, le vortex s'effondra et se dispersa brusquement.
 
 Dès la dispersion du vortex, Wang Lin vit la scène cachée par le brouillard!
 
@@ -92,7 +92,7 @@ Cette image n'était pas statique, elle était animée!
 
 Dans l'image, Wang Lin crachait du sang sur le continent de Mo Luo. Son corps s'effondrait instantanément et, au moment où son âme originelle s'envolait, elle se dissipait!
 
-L'image changea encore. Cette fois, le visage de Wang Lin était livide alors qu'il fuyait à travers l'espace. Il n'avait pas fait long feu lorsqu'un miroir immense, haut comme le ciel, apparut devant lui, et cette paire d'yeux impitoyables s'y reflétait!
+L'image changea encore. Cette fois, le visage de Wang Lin était livide alors qu'il fuyait à travers l'espace. Il n'avait pas fui bien loin lorsqu'un miroir immense, haut comme le ciel, apparut devant lui, et cette paire d'yeux impitoyables s'y reflétait!
 
 D'un seul regard, le corps de Wang Lin s'effondra et son âme originelle mourut!
 
@@ -106,7 +106,7 @@ Dans l'image, le corps de Wang Lin perdit toute capacité de mouvement. Le vieil
 
 Les images se succédèrent, toutes différentes. On y voyait Wang Lin tentant désespérément toutes sortes de moyens pour lutter et s'échapper. Mais à la fin, il mourait! Il mourait! Il mourait!
 
-Wang Lin ouvrit soudainement les yeux et fixa l'horizon. Une sueur froide coulait sur son front et sur son corps; en un court instant, il était trempé.
+Wang Lin ouvrit soudainement les yeux et fixa droit devant lui. Une sueur froide coulait sur son front et sur son corps; en un court instant, il était trempé.
 
 « Mort! Mort! Mort! Grâce au sort de Tian Yunzi, j'ai percé à travers des milliers de futurs possibles, mais je n'en ai survécu aucun. Peu importe les circonstances, je vais mourir! » Les yeux de Wang Lin étaient empreints de folie, mais plus encore d'un sentiment de refus absolu!
 
