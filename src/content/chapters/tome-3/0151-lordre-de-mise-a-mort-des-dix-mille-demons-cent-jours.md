@@ -18,7 +18,7 @@ Wang Lin ne daigna même pas un regard à Qian Kun. Il se tourna vers Li Muwan e
 
 Li Muwan prit une profonde inspiration et hocha la tête.
 
-Le cœur de Qian Kun manqua un battement lorsqu'il réalisa que quelque chose ne tournait pas rond. Il commença à reculer, mais le regard glacial de Wang Lin se verrouilla soudainement sur lui. Wang Lin cracha un seul mot: « Meurs! »
+Le cœur de Qian Kun manqua un battement lorsqu'il comprit que quelque chose ne tournait pas rond. Il commença à reculer, mais le regard glacial de Wang Lin se verrouilla soudainement sur lui. Wang Lin cracha un seul mot: « Meurs! »
 
 Qian Kun poussa un cri déchirant tandis que le sang jaillissait de sa bouche et de son nez. Du sang jaillit également de ses yeux et de ses oreilles, son regard se perdit, son Sens Divin fut anéanti et il s'effondra, mort. À l'instant de sa mort, le jeton qu'il tenait se brisa sans un bruit, et une lumière rouge jaillit soudainement, formant le caractère « Punir » dans les airs.
 
@@ -72,7 +72,7 @@ L'homme gras fixa le caractère au-dessus de la tête de Wang Lin, laissa échap
 
 Li Muwan esquissa un sourire en regardant l'arrogant homme gras, puis elle tourna les yeux vers Wang Lin et son sourire s'élargit.
 
-Mu Nan était excité. Voici enfin un véritable expert. C'était un cultivateur solitaire que même le chef de la secte traitait avec égards: le Seigneur Démon Shang Guanmo. La rumeur disait que sa culture était identique à celle du chef de la secte, au sommet du stade intermédiaire de la Formation du Noyau et à un pas du stade avancé. Sa culture était également supérieure de quelques crans à celle du Grand Ancien.
+Mu Nan était enthousiaste. Voici enfin un véritable expert. C'était un cultivateur solitaire que même le chef de la secte traitait avec égards: le Seigneur Démon Shang Guanmo. La rumeur disait que sa culture était identique à celle du chef de la secte, au sommet du stade intermédiaire de la Formation du Noyau et à un pas du stade avancé. Sa culture était également supérieure de quelques crans à celle du Grand Ancien.
 
 Wang Lin fronça les sourcils et ricana: « Tu cherches la mort! »
 
@@ -92,7 +92,7 @@ Quand Shang Guanmo vit que le regard de Wang Lin demeurait glacial, son cœur ra
 
 Li Muwan rougit et regarda Wang Lin. Cependant, face à son expression austère, elle poussa un soupir et baissa la tête en silence.
 
-Wang Lin fixa froidement Shang Guanmo. Le Royaume Ji afflua dans son esprit et des éclairs rouges brillèrent dans ses yeux. Shang Guanmo observait attentivement Wang Lin depuis tout ce temps et réalisa que la situation était désespérée. Il savait que si Wang Lin avait pu activer son jade de protection au point de le briser, sa puissance d'attaque devait être comparable à celle d'un cultivateur de l'Âme Naissante. Conjugué au sortilège de mort, il devina que même en fuyant, la mort serait inévitable.
+Wang Lin fixa froidement Shang Guanmo. Le Royaume Ji afflua dans son esprit et des éclairs rouges brillèrent dans ses yeux. Shang Guanmo observait attentivement Wang Lin depuis tout ce temps et comprit que la situation était désespérée. Il savait que si Wang Lin avait pu activer son jade de protection au point de le briser, sa puissance d'attaque devait être comparable à celle d'un cultivateur de l'Âme Naissante. Conjugué au sortilège de mort, il devina que même en fuyant, la mort serait inévitable.
 
 Dans sa panique et son angoisse, il pointa son front et son sang d'essence d'âme, issu de sa culture au sommet du stade intermédiaire de la Formation du Noyau, s'en échappa. Cette goutte de sang était de couleur dorée. Dès qu'elle apparut, le corps de Shang Guanmo trembla tandis que l'énergie spirituelle en lui s'emballait. Il semblait que son niveau de culture était sur le point de chuter.
 

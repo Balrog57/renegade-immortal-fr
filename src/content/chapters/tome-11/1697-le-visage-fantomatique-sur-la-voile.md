@@ -92,7 +92,7 @@ Après le fracas des explosions, Wang Lin prit le contrôle de toutes les restri
 
 « Ce navire possède neuf couches. Ce pont est la première, et il y en a huit autres en dessous! Daoïste, vous aviez dit que si je brisais les restrictions de ce navire, vous me le donneriez? »
 
-Le visage de Fan Shanmeng devint livide. Dès que la première couche du Navire Démon des Âmes fut brisée, elle réalisa qu'elle avait perdu une partie de son emprise sur le vaisseau. Désormais, il semblait que ce trésor ait deux maîtres!
+Le visage de Fan Shanmeng devint livide. Dès que la première couche du Navire Démon des Âmes fut brisée, elle comprit qu'elle avait perdu une partie de son emprise sur le vaisseau. Désormais, il semblait que ce trésor ait deux maîtres!
 
 Elle n'aurait jamais imaginé qu'un tel bouleversement puisse survenir en seulement cinq heures.
 

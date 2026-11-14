@@ -110,7 +110,7 @@ L'un des vieillards réfléchit un instant et dit lentement: « Nous ignorons si
 
 Le Maître Yan Leizi dit soudainement: « Est-ce que tout le monde se souvient de cette Bête Lunaire...? »
 
-Tous les Anciens furent saisis de stupeur, comme s'ils venaient de réaliser quelque chose.
+Tous les Anciens furent saisis de stupeur, comme s'ils venaient de comprendre quelque chose.
 
 « Cependant, il n'est pas nécessaire d'y accorder trop d'importance. Après tout... » Alors que le Maître Yan Leizi parlait, il s'interrompit brusquement, son expression devenant extrêmement respectueuse, comme s'il écoutait une voix invisible.
 

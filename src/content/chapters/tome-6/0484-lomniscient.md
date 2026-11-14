@@ -46,7 +46,7 @@ Quant à la femme qui se trouvait au stade avancé de la Transformation de l'Âm
 
 Si de tels êtres réagissaient ainsi, il ne fallait même pas parler des autres disciples de la Division Pourpre. Un à un, leurs visages se couvrirent de choc. Le rugissement précédent avait secoué le cœur de plus de la moitié d'entre eux; certains n'étaient même plus capables de léviter, car le flux d'énergie spirituelle en leur sein avait été bloqué.
 
-Parmi les disciples présents se trouvaient également des anciens disciplinaires, qui se lamentaient tous intérieurement. Ils réalisèrent que les luttes entre les disciples de l'Ancêtre n'étaient pas de leur ressort. Quel disciple accepté par l'Ancêtre pouvait être ordinaire? Ils avaient sous-estimé ce jeune homme parce qu'il n'était qu'au stade initial de la Transformation de l'Âme, mais sa force de combat stupéfiait même un cultivateur du stade avancé de la Transformation de l'Âme.
+Parmi les disciples présents se trouvaient également des anciens disciplinaires, qui se lamentaient tous intérieurement. Ils comprirent que les luttes entre les disciples de l'Ancêtre n'étaient pas de leur ressort. Quel disciple accepté par l'Ancêtre pouvait être ordinaire? Ils avaient sous-estimé ce jeune homme parce qu'il n'était qu'au stade initial de la Transformation de l'Âme, mais sa force de combat stupéfiait même un cultivateur du stade avancé de la Transformation de l'Âme.
 
 Les disciples environnants reculèrent tous en fixant Wang Lin avec stupeur, mais leurs yeux brillaient désormais d'un nouveau respect.
 

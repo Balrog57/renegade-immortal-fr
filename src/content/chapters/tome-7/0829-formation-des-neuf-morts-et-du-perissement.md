@@ -86,7 +86,7 @@ Le temps s'écoula. Trois jours plus tard, le blocus dans le Domaine Occidental 
 
 Une femme menait la troupe: Yao Bingyun. Son expression était glaciale tandis que sa main droite formait un sceau, comme si elle pratiquait une divination. Son regard se posa sur la planète et, ses yeux s'illuminèrent, elle déclara froidement: « Xu Mu est ici! »
 
-Derrière elle se trouvaient deux membres de la famille Yao, un homme et une femme. Ils semblaient sereins, et l'homme sourit: « Cet individu a dû réaliser qu'il ne pouvait plus se cacher et a installé une sorte de formation ici! »
+Derrière elle se trouvaient deux membres de la famille Yao, un homme et une femme. Ils semblaient sereins, et l'homme sourit: « Cet individu a dû comprendre qu'il ne pouvait plus se cacher et a installé une sorte de formation ici! »
 
 Alors que le jeune homme parlait, il fit un pas en avant pour charger la planète. Yao Bingyun fronça légèrement les sourcils et le suivit. Les familles de cultivateurs qui les accompagnaient se dirigèrent également vers l'astre.
 

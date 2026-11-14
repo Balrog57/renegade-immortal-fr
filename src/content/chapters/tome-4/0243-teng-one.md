@@ -20,7 +20,7 @@ Soudain, l'énergie de l'épée jaillit du fourreau, formant une lame gigantesqu
 
 L'homme chétif eut de nouveau un regard hébété et, sans esquiver ni bloquer, laissa l'énergie de l'épée percuter son corps. Ce dernier ne put finalement plus résister à l'accumulation des dégâts et commença à s'effondrer.
 
-Mais alors que son corps était sur le point de se désagréger, il sembla soudainement réaliser quelque chose. Il lutta pour former un sceau de sa main gauche presque brisée et prononça un mot dont le son rappelait le frottement des os: « Condense! »
+Mais alors que son corps était sur le point de se désagréger, il sembla soudainement comprendre quelque chose. Il lutta pour former un sceau de sa main gauche presque brisée et prononça un mot dont le son rappelait le frottement des os: « Condense! »
 
 Soudain, le corps qui allait s'effondrer brilla d'un éclat doré et retrouva une condition parfaite.
 

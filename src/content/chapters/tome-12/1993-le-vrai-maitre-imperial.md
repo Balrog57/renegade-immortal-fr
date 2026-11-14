@@ -90,7 +90,7 @@ Ce changement soudain stupéfia l'Empereur Céleste. Ses yeux s'écarquillèrent
 
 Tout s'était déroulé selon ses desseins. Seules les apparitions soudaines de Dao Yi et Wu Feng avaient légèrement altéré son plan, mais tout le reste était resté inchangé!
 
-Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de l'Ancêtre Céleste pour devenir le second Ancêtre Céleste, il réalisa que rien n'était ce qu'il avait imaginé. Il était en réalité au cœur du plan de quelqu'un d'autre!
+Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de l'Ancêtre Céleste pour devenir le second Ancêtre Céleste, il comprit que rien n'était ce qu'il avait imaginé. Il était en réalité au cœur du plan de quelqu'un d'autre!
 
 « Je... suis l'Enseignant Impérial... » L'Exalté Empyréen Hai Zi s'exprima avec une expression complexe. Ses souvenirs s'étaient éveillés, fusionnant avec ceux de sa mère et l'héritage de toutes les générations précédentes d'Enseignants Impériaux.
 

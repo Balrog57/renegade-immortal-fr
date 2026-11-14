@@ -76,7 +76,7 @@ La jeune fille laissa échapper un grognement. Elle bondit avec souplesse, le d�
 
 Le jeune homme regarda la fille et dit, impuissant: « N'est-ce pas une question inutile? » Sur ce, il la contourna en secouant la tête.
 
-Le visage de la jeune fille devint rouge. Elle réfléchit un instant et réalisa que sa question était effectivement absurde. Puisque le garçon était déjà là, à quoi bon lui demander s'il était en chemin pour rejoindre la secte?
+Le visage de la jeune fille devint rouge. Elle réfléchit un instant et comprit que sa question était effectivement absurde. Puisque le garçon était déjà là, à quoi bon lui demander s'il était en chemin pour rejoindre la secte?
 
 Le frère de la jeune fille arqua les lèvres dans un léger sourire. Il n'était pas du tout irrité par la réponse du garçon; au contraire, il avait ressenti la même chose lorsque sa sœur avait posé la question.
 

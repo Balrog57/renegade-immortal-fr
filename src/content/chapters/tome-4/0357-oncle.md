@@ -98,7 +98,7 @@ En voyant Wang Lin, elle éclata en sanglots et lui raconta ce qui s'était pass
 
 « Tiens ceci. Si cela arrive de nouveau, sonne simplement cette cloche. » Wang Lin sortit une clochette et la lui remit.
 
-Il s'agissait de l'une de celles obtenues de Qiu Siping. Après les avoir étudiées, Wang Lin réalisa qu'elles semblaient de même origine que la cloche antique de cultivateur qu'il possédait déjà.
+Il s'agissait de l'une de celles obtenues de Qiu Siping. Après les avoir étudiées, Wang Lin comprit qu'elles semblaient de même origine que la cloche antique de cultivateur qu'il possédait déjà.
 
 Grâce à ses recherches, il parvint à maîtriser certains usages de ces trois clochettes. Sa puissance le satisfaisait grandement.
 

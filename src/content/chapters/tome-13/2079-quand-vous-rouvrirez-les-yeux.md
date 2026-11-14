@@ -12,7 +12,7 @@ Le ciel d'automne était limpide sur dix mille kilomètres; il était d'une beau
 
 Cet endroit se trouvait dans le pays de Zhao. Beaucoup d'habitants n'allaient jamais bien loin de chez eux. Sans parler du fait qu'il s'agissait d'un lieu reculé, un petit village montagneux niché au pied d'une montagne.
 
-Alors que le vent d'automne matinal emportait les feuilles, les sons d'un suona s'élevèrent lentement de l'entrée du village. Des enfants espiègles couraient en riant avec une joie simple et excitée.
+Alors que le vent d'automne matinal emportait les feuilles, les sons d'un suona s'élevèrent lentement de l'entrée du village. Des enfants espiègles couraient en riant avec une joie simple et fébrile.
 
 Un palanquin rouge, entouré par les villageois, s'arrêta devant une cour. Le tumulte atteignit son apogée. Il était clair que cette famille accueillait une mariée.
 

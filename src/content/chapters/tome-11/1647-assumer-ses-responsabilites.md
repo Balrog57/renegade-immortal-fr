@@ -76,7 +76,7 @@ Le titre de Seigneur du Royaume Scellé m'appartient, mais il m'a été confér�
 
 Avant, j'étais même assez naïf pour croire sincèrement que j'étais le Seigneur du Royaume Scellé. Je me suis battu corps et âme contre le Royaume Extérieur pour ma terre natale, pour le Royaume Intérieur... Je pensais que cela suffisait à justifier mon titre!
 
-Je n'avais jamais réalisé que tant d'autres faisaient la même chose. Presque tous les cultivateurs du Royaume Intérieur agissaient ainsi. J'avais simplement un niveau de culture plus élevé, ce qui m'a permis d'en arriver là...
+Je n'avais jamais compris que tant d'autres faisaient la même chose. Presque tous les cultivateurs du Royaume Intérieur agissaient ainsi. J'avais simplement un niveau de culture plus élevé, ce qui m'a permis d'en arriver là...
 
 Cependant, que vaut ma personne? Pourquoi devrais-je recevoir le respect du Royaume Intérieur? Ce que nous devons respecter, ce sont les cultivateurs tombés au combat. Ceux qui ont versé leur sang pour le Royaume Intérieur et qui sont morts!
 

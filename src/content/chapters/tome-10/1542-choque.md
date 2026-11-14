@@ -88,7 +88,7 @@ Le fou éclata de rire et relâcha sa main. Le ciel retrouva son aspect normal. 
 
 « Laisse-moi deviner ta réaction... Je me souviens que quelqu'un a répondu qu'il ne voulait pas apprendre, faisant semblant d'être indifférent pour susciter l'intérêt de ce roi. Le résultat fut: haha, haha! Je te laisse deviner la suite, haha... haha... je vais mourir de rire... » Le fou se mit immédiatement à rire en se tenant le ventre.
 
-« Si tu réponds oui, alors ce roi te rejettera avec véhémence. Petite fille, ce roi est très strict; même si tu essaies de me séduire, cela ne servira à rien, ah! » Le fou s'était remis à bavarder, de plus en plus excité par ses propres paroles.
+« Si tu réponds oui, alors ce roi te rejettera avec véhémence. Petite fille, ce roi est très strict; même si tu essaies de me séduire, cela ne servira à rien, ah! » Le fou s'était remis à bavarder, de plus en plus exalté par ses propres paroles.
 
 Face au fou, Wang Lin esquissa un lent sourire.
 

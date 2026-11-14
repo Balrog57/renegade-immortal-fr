@@ -34,7 +34,7 @@ Dans le monde des grottes, nul n'avait osé tenter de le raffiner en marionnette
 
 Wang Lin ne jugea pas la formation digne de son attention. Bien qu'elle recèle des mystères, ce n'était pas le moment de les étudier. Il trouvait le feu terrestre bien plus intéressant.
 
-Il ignora Kang Ren qui, dans son enthousiasme, continuait son raffinage sans réaliser que Wang Lin s'était réveillé. Le Sens Divin de Wang Lin se propagea directement sous terre.
+Il ignora Kang Ren qui, dans son enthousiasme, continuait son raffinage sans se rendre compte que Wang Lin s'était réveillé. Le Sens Divin de Wang Lin se propagea directement sous terre.
 
 Il voulait découvrir l'origine de ce feu terrestre. Comment le feu du Continent Xian Gang se comparerait-il au sien?
 

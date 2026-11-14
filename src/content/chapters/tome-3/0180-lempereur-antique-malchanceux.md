@@ -260,7 +260,7 @@ Son cœur se serrait de regret. Il regrettait amèrement d'avoir perdu tant de t
 
 Il y a deux ans, en rencontrant trois types de restrictions différents, il avait compris que le Seigneur Démon des Six Désirs n'était qu'un des responsables.
 
-Il réalisa qu'il y avait deux maîtres des restrictions face à lui. Au début, il se méfiait surtout du Seigneur Démon des Six Désirs, mais désormais, la primauté revenait à l'homme mystérieux.
+Il comprit qu'il y avait deux maîtres des restrictions face à lui. Au début, il se méfiait surtout du Seigneur Démon des Six Désirs, mais désormais, la primauté revenait à l'homme mystérieux.
 
 Franchir les pièges de cet individu plongeait le cœur dans l'effroi. Si, pour la toute première, il avait seulement trouvé cette personne un peu étrange mais manquant de souplesse, bien des détails n'étant pas couverts, par la suite ses restrictions avaient fait des progrès fulgurants: pleines de souplesse, et d'une étrangeté stupéfiante, imprévisible.
 

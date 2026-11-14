@@ -92,7 +92,7 @@ Au moment précis où il s'arrêta, un éclat de lumière sanglante balaya l'esp
 
 Il avait scellé un homme et tué deux personnes. L'aura de Wang Lin chuta rapidement vers le troisième ou quatrième stade de la Tribulation Arcane. Il regarda vers le sud, là où le dernier messager s'était enfui. Après une courte réflexion silencieuse, il renonça à traquer le dernier pour se diriger vers l'endroit où le premier messager avait été scellé.
 
-Un instant plus tard, un rugissement excité du Tian Niu retentit là où le premier messager était prisonnier. Il avait dévoré le gaz vert des trois Messagers du Démon Vert morts, et cette substance semblait être une nourriture exceptionnelle pour lui.
+Un instant plus tard, un rugissement enthousiaste du Tian Niu retentit là où le premier messager était prisonnier. Il avait dévoré le gaz vert des trois Messagers du Démon Vert morts, et cette substance semblait être une nourriture exceptionnelle pour lui.
 
 La lueur rouge de l'épée de sang devint encore plus éclatante après avoir tué les trois messagers de stade intermédiaire de la Tribulation du Vide. Quelques caractères anciens commencèrent à apparaître sur la lame.
 

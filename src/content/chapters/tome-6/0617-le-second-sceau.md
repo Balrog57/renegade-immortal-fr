@@ -40,7 +40,7 @@ L'intérêt de Wang Lin pour ce second sceau grandit considérablement lorsqu'il
 
 Le sortilège de vent, de pluie, de tonnerre et de foudre utilisé par le vieillard du stade avancé de l'Ascendant sous la tour des démons était extrêmement puissant. Chaque fois que Wang Lin y pensait, son cœur tremblait. L'élément le plus redoutable de ce sort était la foudre noire; sans elle, sa puissance serait grandement affaiblie!
 
-Wang Lin était confiant quant à l'ouverture du second sceau. Cependant, après avoir analysé la foudre, il réalisa que si le second sceau était levé, le piège à bêtes s'effondrerait sous la force de la créature!
+Wang Lin était confiant quant à l'ouverture du second sceau. Cependant, après avoir analysé la foudre, il comprit que si le second sceau était levé, le piège à bêtes s'effondrerait sous la force de la créature!
 
 Le piège à bêtes lui avait été confié dans la Terre Gu Shen par un ancien cultivateur sous les ordres de Tuo Sen, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Divin, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé!
 

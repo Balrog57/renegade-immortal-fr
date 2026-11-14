@@ -29,7 +29,7 @@ Wang Lin le remarqua immédiatement et fronça les sourcils. Cependant, il ignor
 
 Wang Lin savait que l'énergie céleste devait être raffinée par un cultivateur, au moyen de son âme originelle, jusqu'à l'état de pierre spirituelle pour pouvoir être conservée. Toutefois, le temps nécessaire à ce processus dépendait du niveau de culture de chacun.
 
-La vitesse du cultivateur aux robes vertes était fulgurante. Lorsqu'il réalisa que quelque chose ne tournait pas rond, son visage changea brusquement et il cria: « Arrête! » En utilisant une technique inconnue, sa vitesse devint encore plus prodigieuse.
+La vitesse du cultivateur aux robes vertes était fulgurante. Lorsqu'il comprit que quelque chose ne tournait pas rond, son visage changea brusquement et il cria: « Arrête! » En utilisant une technique inconnue, sa vitesse devint encore plus prodigieuse.
 
 Wang Lin l'ignora. Ce cultivateur de robes vertes possédait le même niveau de culture que lui, au début du stade de la Formation de l'Âme. Il ne le considérait nullement comme une menace et se contenta d'estimer le temps qu'il lui restait avant l'arrivée de l'individu tout en poursuivant son raffinage.
 

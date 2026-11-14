@@ -30,7 +30,7 @@ Le talisman de niveau Âme Naissante trembla violemment dans sa main avant de se
 
 Cette créature, semblable à une faille spatiale, n'avait pas ouvert la bouche lorsque les pierres étaient passées, mais avait attendu qu'il passe juste après eux pour s'ouvrir brusquement. Elle semblait avoir fait de Wang Lin sa cible.
 
-Wang Lin réfléchit un instant. En regardant la distance qu'il restait à parcourir, il réalisa qu'il n'était qu'à mi-chemin. Un sourire amer lui échappa: ce talisman était le seul dont il disposait. Cela prouvait que la puissance de cette gueule surpassait l'attaque d'un cultivateur de niveau Âme Naissante.
+Wang Lin réfléchit un instant. En regardant la distance qu'il restait à parcourir, il se rendit compte qu'il n'était qu'à mi-chemin. Un sourire amer lui échappa: ce talisman était le seul dont il disposait. Cela prouvait que la puissance de cette gueule surpassait l'attaque d'un cultivateur de niveau Âme Naissante.
 
 Si Wang Lin avait été touché par cette créature, il aurait été, au bas mot, gravement blessé, sinon mort.
 

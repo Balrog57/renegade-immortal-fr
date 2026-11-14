@@ -32,7 +32,7 @@ Peu de temps après, une silhouette émergea du mur que Wang Lin observait. Dès
 
 Après l'avoir observé attentivement à plusieurs reprises, il laissa échapper un rire: « Daoïste, je crois que nous sommes les deux seuls survivants dans ce Temple Xian Shou effondré. »
 
-Wang Lin eut un petit rire étouffé. Il réalisa que cet homme savait qu'il le suivait. Cela laissait penser que ce dernier cachait peut-être encore son véritable niveau de culture.
+Wang Lin eut un petit rire étouffé. Il comprit que cet homme savait qu'il le suivait. Cela laissait penser que ce dernier cachait peut-être encore son véritable niveau de culture.
 
 Wang Lin demanda calmement: « Cet endroit est déjà effondré. Pourquoi ce Daoïste vient-il à ma rencontre au lieu de chercher une issue? »
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 792 - The Place Closest to the Ancient Celestial Realm
 slug: lendroit-le-plus-proche-du-royaume-celeste-antique
 ---
-Wang Lin sembla réaliser quelque chose. Lorsque l'âme originelle du vieil homme mystérieux contrôlait son corps pour lancer des sorts, celui-ci n'utilisait qu'une infime quantité d'énergie originelle; le reste était puisé dans le monde lui-même.
+Wang Lin sembla comprendre quelque chose. Lorsque l'âme originelle du vieil homme mystérieux contrôlait son corps pour lancer des sorts, celui-ci n'utilisait qu'une infime quantité d'énergie originelle; le reste était puisé dans le monde lui-même.
 
 Ce genre de sort ressemblait fort à celui capable d'extraire les âmes de toute chose. C'était une technique similaire, mais bien plus profonde.
 

@@ -14,7 +14,7 @@ Wang Lin plongea la main dans son sac de rangement et en sortit plusieurs Âmes 
 
 Teng Huayuan fixa, abasourdi, l'endroit où l'épée avait disparu. Son apparence sembla soudainement vieillir.
 
-Wang Lin forma un sceau de sa main droite. Il le pressa contre son front, et les démons Xu Liguo et le troisième démon s'élancèrent rapidement. Sous les ordres de Wang Lin, ils poussèrent des rugissements excités et chargèrent les membres de la famille Teng.
+Wang Lin forma un sceau de sa main droite. Il le pressa contre son front, et les démons Xu Liguo et le troisième démon s'élancèrent rapidement. Sous les ordres de Wang Lin, ils poussèrent des rugissements enfiévrés et chargèrent les membres de la famille Teng.
 
 En un clin d'œil, plusieurs autres personnes poussèrent des cris déchirants avant de mourir. Chaque hurlement faisait trembler le corps de Teng Huayuan.
 

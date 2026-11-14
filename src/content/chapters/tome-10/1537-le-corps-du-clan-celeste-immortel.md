@@ -92,7 +92,7 @@ Pourtant, une personne qui s'emballe follement pour son jouet est absolument ter
 
 « Ce roi doit écouter les paroles de mon grand frère. Les Sceaux peuvent être transmis aux autres, c'est vrai, ils peuvent l'être! » Le fou hocha solennellement la tête.
 
-« C'est exact, même Xiao Hong a dit que ma mémoire était excellente et qu'elle ne pouvait pas se tromper. » Le fou redevint excité après avoir murmuré pour lui-même. Il se lécha les lèvres, puis forma rapidement quelques sceaux manuels. La planète de culture entière trembla, tout comme le corps du fou qui s'agitait violemment.
+« C'est exact, même Xiao Hong a dit que ma mémoire était excellente et qu'elle ne pouvait pas se tromper. » Le fou redevint fébrile après avoir murmuré pour lui-même. Il se lécha les lèvres, puis forma rapidement quelques sceaux manuels. La planète de culture entière trembla, tout comme le corps du fou qui s'agitait violemment.
 
 Le glyphe circulaire qui était apparu sur la plaie de son bras gauche se manifesta progressivement entre ses sourcils!
 

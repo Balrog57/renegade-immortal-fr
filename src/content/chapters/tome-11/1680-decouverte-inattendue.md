@@ -18,7 +18,7 @@ Habituée au corps puissant de Wang Lin, la bête se précipita avec enthousiasm
 
 Wang Lin leva la main droite et effectua un léger mouvement vers l'avant. Une ondulation résonna et enveloppa la bête moustique en se refermant sur elle, ce qui parvint à ralentir sa course.
 
-La bête émit un sifflement excité lorsqu'elle atteignit Wang Lin. Elle commença à frotter sa gueule contre lui, et au plus profond de son regard exalté perçait un sentiment d'attachement profond.
+La bête émit un sifflement fébrile lorsqu'elle atteignit Wang Lin. Elle commença à frotter sa gueule contre lui, et au plus profond de son regard exalté perçait un sentiment d'attachement profond.
 
 Wang Lin était son maître, et plus encore, un parent pour elle. Cette pensée était déjà profondément gravée dans l'âme de la bête moustique et ne s'effacerait jamais.
 

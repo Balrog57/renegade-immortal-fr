@@ -102,4 +102,4 @@ Wang Lin déploya son Sens Divin et verrouilla la bête. Il vit une créature é
 
 Wang Lin se frotta le menton, puis se mit à la poursuivre avec nonchalance. Il pointa son doigt vers son front et le démon Xu Liguo apparut pour l'aider, aux côtés du troisième démon.
 
-Xu Liguo poussa quelques rugissements. À sa sortie, il semblait très excité, mais dès qu'il aperçut l'étrange bête, il s'arrêta net et pensa secrètement: « Est-ce une erreur? C'est quoi ce truc? Comment peut-il être encore plus laid que le numéro deux? Je vais laisser cet idiot de numéro trois y aller. Si la bête est faible, j'irai lui voler le mérite! »
+Xu Liguo poussa quelques rugissements. À sa sortie, il semblait très fébrile, mais dès qu'il aperçut l'étrange bête, il s'arrêta net et pensa secrètement: « Est-ce une erreur? Qu'est-ce que c'est que ce truc? Comment peut-il être encore plus laid que le numéro deux? Je vais laisser cet idiot de numéro trois y aller. Si la bête est faible, j'irai lui voler le mérite! »

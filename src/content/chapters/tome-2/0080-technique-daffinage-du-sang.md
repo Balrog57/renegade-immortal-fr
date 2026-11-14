@@ -42,7 +42,7 @@ Après un moment, Situ Nan soupira et marmonna: « Laisse tomber. Je vais te dir
 
 Wang Lin réfléchit un instant et dit: « Dis-moi comment utiliser cette technique d'affinage du sang. »
 
-Situ Nan voulait laisser Wang Lin dans le suspense encore un peu, mais réalisa que ce gamin risquait de simplement l'ignorer. Il accepta donc de parler, mais posa une condition:
+Situ Nan voulait laisser Wang Lin dans le suspense encore un peu, mais se rendit compte que ce gamin risquait de simplement l'ignorer. Il accepta donc de parler, mais posa une condition:
 
 « Cela fait tellement d'années que je n'ai pas touché une femme. Quoi qu'il en soit, tu devras me satisfaire, même si ce n'est qu'en me laissant regarder. »
 

@@ -44,7 +44,7 @@ Chen Huan et Chen Yan avaient remarqué la réaction de Xin Hai lors de la sorti
 
 Teng Huayuan fronça les sourcils en observant Chen Huan, Chen Yan et Xin Hai. Il sentit soudain qu'un événement majeur se préparait, sans toutefois pouvoir en identifier la nature. Après quelques spéculations infructueuses, il poussa un reniflement méprisant et détruisit une autre âme dans son étendard.
 
-À cet instant, non seulement Teng Huayuan, mais toutes les autres sectes réalisèrent que quelque chose n'allait pas. Ils ignoraient ce que les disciples avaient pu dire pour assombrir ainsi le visage de trois cultivateurs de l'Âme Naissante.
+À cet instant, non seulement Teng Huayuan, mais toutes les autres sectes comprirent que quelque chose n'allait pas. Ils ignoraient ce que les disciples avaient pu dire pour assombrir ainsi le visage de trois cultivateurs de l'Âme Naissante.
 
 Même les petites familles, les petites sectes et les cultivateurs indépendants remarquèrent l'anomalie; ils se rassemblèrent et commencèrent à s'interroger.
 

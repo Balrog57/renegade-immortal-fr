@@ -46,7 +46,7 @@ Après les avoir examinées attentivement, il saisit les âmes et monta dans la 
 
 Le démon suivit Wang Lin. Il voulait voir de ses propres yeux Wang Lin dévorer ces âmes couvertes de sa salive. Alors qu'il savourait sa fierté, il remarqua soudain que les environs étaient saturés par le Sens Divin de Wang Lin. Ce Sens Divin qui lui infligeait une douleur pire que la mort, cette foudre rouge qui engendrait ses cauchemars, circulait dans la pièce. Tout son corps devint subitement flasque. Il pensa avec effroi: « C'est fini! C'est la fin! On dirait que ce monstre va m'achever... »
 
-Terrifié, il s'apprêtait à supplier pour sa vie lorsqu'il réalisa que Wang Lin ne lui prêtait même pas attention. Ce dernier contemplait silencieusement les vingt âmes des petites créatures. Le démon retint ses paroles et se considéra chanceux.
+Terrifié, il s'apprêtait à supplier pour sa vie lorsqu'il se rendit compte que Wang Lin ne lui prêtait même pas attention. Ce dernier contemplait silencieusement les vingt âmes des petites créatures. Le démon retint ses paroles et se considéra chanceux.
 
 Wang Lin observa avec soin ces âmes. Elles possédaient une force comparable à celle d'un cultivateur au stade initial de la Formation du Noyau. Elles n'étaient pas puissantes, mais pas non plus dérisoires. Si Wang Lin n'avait pas contraint le démon à ressembler à une âme errante, celui-ci n'aurait pas pu dévorer aussi aisément des âmes si semblables à lui.
 
@@ -94,7 +94,7 @@ L'âme de la petite créature poussa un cri strident; c'était la première fois
 
 Il savait qu'il tenait un trésor. Pour une raison inconnue, l'âme de cette petite créature était singulière; elle semblait conçue pour devenir un démon. Sans effort notable, elle fusionnait d'elle-même avec les autres âmes. De plus, ce qui surprit le plus Wang Lin fut l'attaque par onde sonore. Il avait pensé que la créature aurait besoin d'un corps physique pour utiliser cette technique, mais elle pouvait s'exercer uniquement sous forme d'âme.
 
-En y regardant de plus près, il réalisa que cette onde sonore était conçue pour attaquer l'âme elle-même. Une fois l'onde propagée, toutes les âmes qui fonçaient vers elle ralentirent, comme si elles mouraient.
+En y regardant de plus près, il comprit que cette onde sonore était conçue pour attaquer l'âme elle-même. Une fois l'onde propagée, toutes les âmes qui fonçaient vers elle ralentirent, comme si elles mouraient.
 
 À cet instant précis, l'âme de la petite créature jaillit. En moins d'un demi-bâton d'encens, elle avait complètement dévoré ces cent âmes. Peu après, l'âme explosa en un brouillard rouge d'environ dix pieds de large qui retomba lentement.
 

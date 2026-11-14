@@ -26,7 +26,7 @@ Tout changea lorsque les troupes d'autres pays pénétrèrent dans le Pays Tian 
 
 De nombreux membres de la tribu revinrent du Pays Huo Yao et commencèrent à combattre les soldats démons des autres nations démoniaques.
 
-Cependant, la puissance de la Tribu Lian Hun était bien trop dérisoire. Ils ne pouvaient que défendre la zone située sous le nuage noir sans pouvoir en sortir. Finalement, lorsque les soldats des autres pays démoniaques réalisèrent qu'ils ne pourraient pas prendre la Cité Tian Yao car elle était scellée par l'Ancien Démon, ils tournèrent leurs regards vers la Tribu Lian Hun.
+Cependant, la puissance de la Tribu Lian Hun était bien trop dérisoire. Ils ne pouvaient que défendre la zone située sous le nuage noir sans pouvoir en sortir. Finalement, lorsque les soldats des autres pays démoniaques comprirent qu'ils ne pourraient pas prendre la Cité Tian Yao car elle était scellée par l'Ancien Démon, ils tournèrent leurs regards vers la Tribu Lian Hun.
 
 Après tout, quelque chose de singulier émanait de cette petite tribu. Le nuage noir qui surplombait la tribu et servait de protection naturelle était particulièrement étrange; il avait repoussé les assauts des soldats démons à plusieurs reprises.
 

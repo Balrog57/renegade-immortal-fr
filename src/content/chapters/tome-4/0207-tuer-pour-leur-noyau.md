@@ -116,7 +116,7 @@ La véritable cause de cette Tribulation Céleste provenait de la pierre d'encre
 
 De même, comme la Tribulation Céleste ne s'était pas manifestée depuis des éons, bien qu'elle n'ait été déclenchée que par la création d'un trésor magique, elle contenait une puissance inimaginable.
 
-Toutes ces informations traversèrent l'esprit de Wang Lin. Il réalisa que c'était le drapeau de restriction qui avait provoqué la Tribulation Céleste.
+Toutes ces informations traversèrent l'esprit de Wang Lin. Il comprit que c'était le drapeau de restriction qui avait provoqué la Tribulation Céleste.
 
 Sans un mot, il se précipita dans sa grotte. Le drapeau y flottait toujours. Il commença à exécuter de nombreuses techniques pour tenter de le ranger.
 

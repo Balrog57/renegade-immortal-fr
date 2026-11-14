@@ -10,7 +10,7 @@ slug: larrivee-soudaine-dune-ame-naissante
 
 Lin Tao réagit promptement, pensant qu'une fois de retour, il devrait avoir une longue discussion avec son cousin. C’était une question de vie ou de mort; quoi qu’il en coûte, il devait obtenir une copie de cette carte.
 
-Les vêtements de Yang Xiong étaient trempés de sueur froide. Une légère brise soufflait sur lui et le faisait frissonner. Des vagues de froid l'envahirent alors qu'il réalisait qu'il venait de frôler la mort.
+Les vêtements de Yang Xiong étaient trempés de sueur froide. Une légère brise soufflait sur lui et le faisait frissonner. Des vagues de froid l'envahirent alors qu'il prenait conscience qu'il venait de frôler la mort.
 
 Zhou Zihong lança un regard calme à Yang Xiong avant de partir.
 

@@ -42,7 +42,7 @@ Le corps de Wang Lin pénétra le monde détruit, se déforma et disparut. Lorsq
 
 À l'instant de son arrivée, une fraction de son sens divin se détacha de son contrôle pour plonger vers la planète. Elle fusionna avec un soldat situé à l'opposé du Général Tigre Blanc.
 
-Ce soldat maniait une lame et tranchait un ennemi, sans réaliser que, loin derrière lui, le Général Tigre Blanc tirait une lance de sa selle. Le Général Tigre Blanc poussa un rugissement et lança sa lance sur le soldat avec lequel le sens divin de Wang Lin avait fusionné.
+Ce soldat maniait une lame et tranchait un ennemi, sans se rendre compte que, loin derrière lui, le Général Tigre Blanc tirait une lance de sa selle. Le Général Tigre Blanc poussa un rugissement et lança sa lance sur le soldat avec lequel le sens divin de Wang Lin avait fusionné.
 
 Le soldat marqua un temps d'arrêt lorsque le sens divin de Wang Lin pénétra en lui. Ses yeux s'illuminèrent et ses cheveux blanchirent. Son visage devint flou pour prendre les traits de Wang Lin!
 

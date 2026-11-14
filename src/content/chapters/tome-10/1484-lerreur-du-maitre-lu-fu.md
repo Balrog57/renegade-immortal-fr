@@ -124,6 +124,6 @@ Huit respirations!
 
 Depuis que Wang Lin avait lancé son coup, il n'avait fallu que huit respirations pour que le rideau de lumière s'effondre, que les planètes mineures se désintègrent, que le clan Lu soit anéanti et qu'un gouffre colossal apparaisse!
 
-Le Maître Lu Fu se leva soudainement au sein du vortex, les yeux emplis de choc. Il réalisa qu'il avait commis une erreur monumentale en analysant Wang Lin!
+Le Maître Lu Fu se leva soudainement au sein du vortex, les yeux emplis de choc. Il comprit qu'il avait commis une erreur monumentale en analysant Wang Lin!
 
 « Il n'a même pas atteint le troisième pas, et pourtant la puissance de son coup est déjà terrifiante... Huit respirations... Huit respirations... » Le Maître Lu Fu prit une inspiration glacée. L'idée qu'il s'était faite en voyant l'épée de pluie s'était envolée. Le statut de Wang Lin dans son esprit avait considérablement augmenté. Il se trouvait déjà à égalité avec lui!

@@ -24,7 +24,7 @@ Bien sûr, il possédait d'autres trésors magiques, mais ils étaient bien trop
 
 Wang Lin réfléchit un instant, puis sortit trois sacs de rangement. Le sentiment de danger provoqué par son manque de trésors le poussa à jeter un coup d'œil à ces trois sacs.
 
-À travers cette bataille, Wang Lin réalisa que le Royaume Ji n'était pas invincible. Il existait dans ce monde des choses capables de résister, voire de contrer son pouvoir. Certes, s'il parvenait à cultiver son Royaume Ji jusqu'à son apogée, cela ne poserait aucun problème, mais porter le Royaume Ji à un tel niveau était tout simplement trop difficile.
+À travers cette bataille, Wang Lin comprit que le Royaume Ji n'était pas invincible. Il existait dans ce monde des choses capables de résister, voire de contrer son pouvoir. Certes, s'il parvenait à cultiver son Royaume Ji jusqu'à son apogée, cela ne poserait aucun problème, mais porter le Royaume Ji à un tel niveau était tout simplement trop difficile.
 
 Par conséquent, les trésors magiques devenaient cruciaux. Il ne voulait pas placer tous ses espoirs sur son Royaume Ji, car si celui-ci devenait un jour inefficace, tout serait vain.
 
@@ -38,7 +38,7 @@ Le mot « Lan » y était brodé.
 
 Wang Lin réfléchit un instant, puis l'énergie spirituelle dans son corps déferla. L'avatar qui faisait office d'Âme Naissante ouvrit les yeux; des éclats de pression spirituelle émanèrent de son corps tandis que sa main droite se dirigeait lentement vers le sac.
 
-Au moment où sa main toucha le sac, une force puissante lui opposa une résistance. Son cœur sombra lorsqu'il réalisa que l'Empereur Antique n'était pas mort.
+Au moment où sa main toucha le sac, une force puissante lui opposa une résistance. Son cœur sombra lorsqu'il comprit que l'Empereur Antique n'était pas mort.
 
 Il prit une profonde inspiration et pressa sa main sur le sac. À chaque pression, un fragment du sens divin de l'Empereur Antique était extrait, mais la progression était extrêmement lente et, parallèlement, la contre-attaque que Wang Lin ressentait augmentait.
 
@@ -46,7 +46,7 @@ Après un demi-bâton d'encens, le front de Wang Lin était couvert de sueur. Il
 
 Cette fois, la vitesse augmenta considérablement, mais la consommation d'énergie spirituelle de Wang Lin s'intensifia également. Après avoir englouti plusieurs flacons de pilules, une lumière blanche jaillit soudainement du sac de rangement avant de se dissiper.
 
-Wang Lin se détendit, affichant un visage excité. Il scanna rapidement le sac avec son sens divin, mais son expression devint bientôt étrange.
+Wang Lin se détendit, affichant un visage enfiévré. Il scanna rapidement le sac avec son sens divin, mais son expression devint bientôt étrange.
 
 Le contenu du sac de l'Empereur Antique était très dérisoire. Hormis deux pierres spirituelles de qualité supérieure, il n'y avait qu'une ancienne gaine d'épée.
 

@@ -106,7 +106,7 @@ Lorsque tout le tonnerre s'effondra pour former cet orage suprême, toute la pui
 
 Un bang fracassant retentit et la 17e couche s'effondra! Des rayons de lumière jaillirent d'en bas, et cet effondrement força l'ouverture du passage vers la 18e couche.
 
-L'esprit de Yun Quezi resta totalement vide face à ce spectacle. Il avait déjà placé Wang Lin très haut dans son estime, mais il réalisa qu'il l'avait sous-estimé. Le sort capable d'ouvrir la 18e couche avait ébranlé sa raison et l'avait laissé terrifié.
+L'esprit de Yun Quezi resta totalement vide face à ce spectacle. Il avait déjà placé Wang Lin très haut dans son estime, mais il comprit qu'il l'avait sous-estimé. Le sort capable d'ouvrir la 18e couche avait ébranlé sa raison et l'avait laissé terrifié.
 
 Le corps du garçon à la grosse tête trembla. Le souvenir du sort qui l'avait tué en un éclair le fit frissonner, et sa peur envers Wang Lin s'intensifia.
 

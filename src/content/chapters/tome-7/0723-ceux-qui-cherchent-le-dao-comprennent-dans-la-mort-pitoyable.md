@@ -62,7 +62,7 @@ Au cours de ce processus, où le concept de temps n'existait plus, Wang Lin vit 
 
 Au moment où Wang Lin s'en approcha, l'une des petites planètes émit une ondulation. Elle semblait vibrer de joie, dégageant une émotion puissante, empreinte d'un profond attachement.
 
-En voyant ces trois planètes, l'esprit de Wang Lin trembla alors qu'il découvrait quelque chose. Instinctivement, il voulut lever la main, sans réaliser que dans son état actuel, il n'avait même plus de corps.
+En voyant ces trois planètes, l'esprit de Wang Lin trembla alors qu'il découvrait quelque chose. Instinctivement, il voulut lever la main, sans se rendre compte que dans son état actuel, il n'avait même plus de corps.
 
 Pourtant, sa main apparut bien. C'était comme si sa simple pensée suffisait à la matérialiser.
 

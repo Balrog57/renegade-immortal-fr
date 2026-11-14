@@ -30,7 +30,7 @@ Ce changement terrifiant stupéfia les deux combattants. Ils jetèrent un regard
 
 Les yeux de Wang Lin s'illuminèrent et le fourneau du dieu ancien apparut autour de lui. En un instant, il échangea sa place avec l'un des cultivateurs de Luotian qui avait pris la tête de la course.
 
-Le cultivateur de Luotian fut pris de saisissement lorsqu'il sentit une force puissante l'aspirer. Lorsqu'il retrouva la vue, il réalisa qu'il avait échangé sa position avec Wang Lin. Connaissant l'identité de ce dernier, il laissa échapper un sourire amer et renonça à ce trésor pour se précipiter vers le suivant.
+Le cultivateur de Luotian fut pris de saisissement lorsqu'il sentit une force puissante l'aspirer. Lorsqu'il retrouva la vue, il comprit qu'il avait échangé sa position avec Wang Lin. Connaissant l'identité de ce dernier, il laissa échapper un sourire amer et renonça à ce trésor pour se précipiter vers le suivant.
 
 Après avoir utilisé son sort, Wang Lin atteignit le cadavre féminin. Les deux cultivateurs les plus proches virent que tout le monde convergeait vers la proie; ils serrèrent les dents et saisirent le corps presque au même instant.
 

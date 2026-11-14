@@ -152,7 +152,7 @@ Après l'avoir observé un moment sans agir avec précipitation, il serra le fou
 
 Il commença à raffiner le drapeau tout en gardant un œil sur Qiu Siping via Xu Liguo.
 
-Xu Liguo était actuellement très excité. Il sentait que sa place dans le cœur de son maître était bien supérieure à celle du numéro deux, ce qui le rendait extrêmement fier.
+Xu Liguo était actuellement très exalté. Il sentait que sa place dans le cœur de son maître était bien supérieure à celle du numéro deux, ce qui le rendait extrêmement fier.
 
 Il faut dire que l'apparition du numéro deux l'inquiétait également; il craignait la férocité de ce rival. Mais comme il avait été le premier à suivre le maître, il refusait d'être surpassé.
 

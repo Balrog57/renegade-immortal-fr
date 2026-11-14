@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1871 - I Don’t Agree!"
 slug: je-ne-suis-pas-daccord
 ---
-Alors qu'ils discutaient de cette question, Yan Luan réalisa qu'il s'agissait d'une chance inouïe. Invoquer l'âme du Tian Niu pour la revêtir comme une armure et obtenir un gain massif de niveau de culture pendant une courte période permettrait d'augmenter considérablement sa puissance et d'acquérir des bénéfices inimaginables.
+Alors qu'ils discutaient de cette question, Yan Luan comprit qu'il s'agissait d'une chance inouïe. Invoquer l'âme du Tian Niu pour la revêtir comme une armure et obtenir un gain massif de niveau de culture pendant une courte période permettrait d'augmenter considérablement sa puissance et d'acquérir des bénéfices inimaginables.
 
 Cependant, tout le monde ne pouvait y parvenir. Il fallait impérativement établir une connexion avec le Tian Niu pour réussir. Plus ce lien était profond, plus l'augmentation du niveau de culture serait terrifiante.
 

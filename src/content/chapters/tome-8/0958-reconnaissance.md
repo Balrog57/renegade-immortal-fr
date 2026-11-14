@@ -24,7 +24,7 @@ Avec la culture de Ling Tianhou, les énergies d'épée qu'il laissait à ses di
 
 Des craquements tonnèrent dans le ciel, comme si celui-ci ne pouvait supporter la puissance de l'énergie d'épée.
 
-Les disciples environnants de la Secte Da Luo Jian étaient tous excités en observant la scène.
+Les disciples environnants de la Secte Da Luo Jian étaient tous enthousiastes en observant la scène.
 
 Lorsque l'énergie d'épée se rapprocha, sur le point de déchirer son corps, les yeux de Wang Lin s'illuminèrent. Sa main droite se serra en un poing et il lança une attaque.
 

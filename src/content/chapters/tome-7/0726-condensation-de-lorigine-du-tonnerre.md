@@ -104,7 +104,7 @@ On pourrait même dire que l'énergie originelle contenue dans cent filaments de
 
 Après avoir réfléchi un moment, Wang Lin fit un pas en avant.
 
-Son cœur était calme, bien qu'empreint d'une pointe de prudence. Non loin de là, Shengong Hu était extrêmement excité en regardant Wang Lin: « Je peux enfin contempler le sortilège d'un Senior. C'est une occasion unique dans une vie. Je dois observer attentivement, peut-être obtiendrai-je un éclaircissement! »
+Son cœur était calme, bien qu'empreint d'une pointe de prudence. Non loin de là, Shengong Hu était extrêmement enthousiaste en regardant Wang Lin: « Je peux enfin contempler le sortilège d'un Senior. C'est une occasion unique dans une vie. Je dois observer attentivement, peut-être obtiendrai-je un éclaircissement! »
 
 Son excitation était immense, comparable à celle qu'il avait ressentie lorsqu'il avait franchi la première étape pour entrer dans le stade Yin Illusoire. En réalité, son émotion était plusieurs fois plus intense que cette fois-là.
 

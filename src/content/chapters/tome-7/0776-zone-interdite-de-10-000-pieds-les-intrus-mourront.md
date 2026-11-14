@@ -36,7 +36,7 @@ Le jeune homme en robe jaune déclara d'un ton lent: « L'attaque de ce Daoïste
 
 À l'instant où il prononça ces mots, les visages des cultivateurs proches changèrent radicalement. L'un d'eux s'exclama: « La famille Tang! Serait-ce la famille Tang du domaine sud de Luotian?! »
 
-À cet instant, tous les cultivateurs semblèrent réaliser quelque chose.
+À cet instant, tous les cultivateurs semblèrent comprendre quelque chose.
 
 Wang Lin le regarda froidement et dit calmement: « Tu n'en es pas digne! »
 

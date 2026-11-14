@@ -40,7 +40,7 @@ L'enchère se poursuivit, mais le regard des cultivateurs envers Wang Lin change
 
 Cependant, la majorité de ces doutes furent dissipés par le départ de Li Qianmei.
 
-« L'objet suivant mis aux enchères est un rocher de montagne! » L'Ancien en charge de l'enchère regarda Wang Lin et fit apparaître quelque chose dans sa main.
+« L'objet suivant mis aux enchères est un rocher de montagne! » L'Ancien chargé de l'enchère regarda Wang Lin et fit apparaître quelque chose dans sa main.
 
 Il s'agissait d'une pierre de montagne incomplète. Elle était endommagée de toutes parts, il n'en restait que des débris; son apparence était quelconque.
 

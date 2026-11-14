@@ -26,7 +26,7 @@ C'était la partie la plus basse de la veine spirituelle. À trois mille pieds s
 
 Assis là, Wang Lin sentait la pression de l'énergie spirituelle environnante converger vers lui. Il prit une profonde inspiration et ferma lentement les yeux. Cette fois, il n'absorba aucune énergie spirituelle, mais utilisa la pression pour reformer rapidement son âme originelle.
 
-Le temps passa lentement. Xu Yun et Liu Wei se réveillèrent et réalisèrent qu'elles n'étaient pas hors de la zone de la grotte; une idée leur vint alors. Après en avoir discuté un moment, elles creusèrent une petite cavité près de l'endroit où elles s'étaient réveillées et se mirent tranquillement à cultiver.
+Le temps passa lentement. Xu Yun et Liu Wei se réveillèrent et se rendirent compte qu'elles n'étaient pas hors de la zone de la grotte; une idée leur vint alors. Après en avoir discuté un moment, elles creusèrent une petite cavité près de l'endroit où elles s'étaient réveillées et se mirent tranquillement à cultiver.
 
 Ce jour-là, alors que Wang Lin condensait son âme originelle avec acharnement en empruntant la pression spirituelle des veines environnantes, il ouvrit soudainement les yeux.
 

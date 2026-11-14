@@ -76,7 +76,7 @@ En voyant cette femme, les yeux de Wang Lin se plissèrent. Il l'observa attenti
 
 Cependant, son insistance était impolie envers la femme. Celle-ci fronça les sourcils et regarda Wang Lin avec une pointe de dégoût. Elle le fixa froidement et demanda doucement: « Daoïste, auriez-vous déjà rencontré Tang Jia? »
 
-« Non, je ne vous ai jamais vue, mais j'ai l'impression que vous me semblez familière. » Wang Lin réfléchit et réalisa que son attitude était déplacée. Il esquissa un sourire désolé et détourna les yeux.
+« Non, je ne vous ai jamais vue, mais j'ai l'impression que vous me semblez familière. » Wang Lin réfléchit et se rendit compte que son attitude était déplacée. Il esquissa un sourire désolé et détourna les yeux.
 
 En entendant ces paroles, Tang Jia ressentit un dégoût accru. Elle avait déjà entendu des propos similaires maintes fois et considéra Wang Lin comme un simple chasseur de jupons. Sans plus rien dire, elle s'envola vers la Secte Gui Yi.
 

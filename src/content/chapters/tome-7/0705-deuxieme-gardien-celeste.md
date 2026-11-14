@@ -36,7 +36,7 @@ Peu de temps après, le regard de Wang Lin se glaça alors qu'il entendait des b
 
 À ses côtés se trouvait la Bête du Tonnerre dont le troisième sceau avait été levé. Elle poussait des rugissements et chargeait avec frénésie, sa corne dégageant de puissants éclairs. Cela forçait Lei Daozi à esquiver sans relâche, rendant son visage pâle et empreint de désespoir.
 
-Lei Daozi vit la lumière argentée approcher au loin; lorsqu'il réalisa qu'il s'agissait de Wang Lin, le désespoir dans ses yeux redoubla. Il avait déjà épuisé la majeure partie de l'énergie originelle de son corps, et s'il en utilisait davantage, son niveau de culture chuterait et il ne pourrait jamais atteindre le stade du Yang Corporel! De plus, il était terrifié, particulièrement par ces deux rayons d'énergie d'épée!
+Lei Daozi vit la lumière argentée approcher au loin; lorsqu'il comprit qu'il s'agissait de Wang Lin, le désespoir dans ses yeux redoubla. Il avait déjà épuisé la majeure partie de l'énergie originelle de son corps, et s'il en utilisait davantage, son niveau de culture chuterait et il ne pourrait jamais atteindre le stade du Yang Corporel! De plus, il était terrifié, particulièrement par ces deux rayons d'énergie d'épée!
 
 Le regard de Wang Lin était glacial. Il devait tuer ce Lei Daozi! Cet homme était un messager du Temple Lei Xian. S'il n'était pas tué et qu'on le laissait s'échapper, des ennuis sans fin l'attendraient à l'avenir.
 

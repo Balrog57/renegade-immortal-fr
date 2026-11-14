@@ -24,7 +24,7 @@ Il était difficile pour les sept autres nations d'ignorer un conflit entre deux
 
 À cet instant, à la frontière entre le Pays Huo Yao et le Pays Jin Yao, un météore traversant le ciel était visible à 5 000 kilomètres du miasme. La lumière entourant le météore se dissipa, révélant Wang Lin lorsqu'il atteignit les limites du brouillard. Il agita ses manches et plus de dix cultivateurs apparurent à ses côtés.
 
-Quant à Sun Yunshan, il se tenait aux côtés de Wang Lin. Il était très inquiet tout en étant extrêmement excité. Ces deux émotions complexes s'entremêlaient, le rendant quelque peu distrait.
+Quant à Sun Yunshan, il se tenait aux côtés de Wang Lin. Il était très inquiet tout en étant extrêmement exalté. Ces deux émotions complexes s'entremêlaient, le rendant quelque peu distrait.
 
 « Frère Sun, accrochez-vous bien au jade que je vous ai donné. Bien que la restriction qu'il contient ne puisse briser la graine céleste en vous, elle pourra, en cas de crise, en retarder les effets! » Sur ces mots, Wang Lin s'enfonça dans l'épais miasme.
 

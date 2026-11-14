@@ -24,7 +24,7 @@ Le visage de ce dernier se voila d'ombre; il recula aussitôt tout en formant un
 
 L'ensemble de la caverne commença à s'effondrer massivement. L'homme en robe noire laissa échapper un gémissement étouffé et se retira précipitamment.
 
-« Cher Daoïste, si un malentendu nous oppose, nous pouvons en discuter! Ce vieil homme est Liu Qingyun, le Vice-Maître de la Salle du Ressentiment de la Secte Shi Yin! » L'homme en robe noire était sous le choc. Il venait de s'éveiller et son esprit était encore embrumé. Cependant, une fois lucide, il réalisa que celui qui l'avait réveillé était un cultivateur au stade Scruteur du Nirvana!
+« Cher Daoïste, si un malentendu nous oppose, nous pouvons en discuter! Ce vieil homme est Liu Qingyun, le Vice-Maître de la Salle du Ressentiment de la Secte Shi Yin! » L'homme en robe noire était sous le choc. Il venait de s'éveiller et son esprit était encore embrumé. Cependant, une fois lucide, il comprit que celui qui l'avait réveillé était un cultivateur au stade Scruteur du Nirvana!
 
 S'il avait encore possédé un corps, il n'aurait pas eu peur, mais il n'était plus qu'une âme. De plus, il n'était pas le seul de ce niveau: le garçon à la grosse tête était également un expert du Scruteur du Nirvana et, bien que la marionnette ne le fût pas, elle se situait au sommet du stade Yang Corporel.
 

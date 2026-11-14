@@ -66,7 +66,7 @@ Wang Lin réfléchit silencieusement. Après avoir fait circuler son énergie d'
 
 À cet instant, un autre sens divin se propagea pour scanner la zone. Les yeux de Wang Lin brillèrent et il bougea rapidement. Sa vitesse était telle qu'en un instant, il aperçut le cultivateur qui déployait son sens divin.
 
-Il s'agissait de Zhao Yidao, qui avait été interrompu deux fois par Wang Lin lors des trois épreuves précédentes. En apparaissant, il était extrêmement désorienté par son environnement. Suivant les enseignements de sa famille, il déploya inconsciemment son sens divin pour observer les alentours. Cependant, dès que son sens divin s'étendit, un puissant sentiment de crise l'enveloppa. Paniqué, il réalisa qu'il avait commis une erreur fatale!
+Il s'agissait de Zhao Yidao, qui avait été interrompu deux fois par Wang Lin lors des trois épreuves précédentes. En apparaissant, il était extrêmement désorienté par son environnement. Suivant les enseignements de sa famille, il déploya inconsciemment son sens divin pour observer les alentours. Cependant, dès que son sens divin s'étendit, un puissant sentiment de crise l'enveloppa. Paniqué, il comprit qu'il avait commis une erreur fatale!
 
 Il voulut immédiatement s'enfuir, mais à ce moment précis, un brouillard noir passa derrière lui. Une intention meurtrière puissante surgit et dévora instantanément le Zhao qui tentait de s'échapper.
 

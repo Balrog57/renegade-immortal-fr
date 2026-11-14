@@ -34,7 +34,7 @@ Le Maître Zhou Tian affichait une expression indifférente face au cultivateur 
 
 Dès qu'il eut disparu, le jade émit une lueur éclatante que Wang Lin rattrapa. Son Sens Divin s'y engouffra et il disparut à son tour dans les 7 Millions de Mondes!
 
-Les cultivateurs du Clan Shan Lei en charge des lieux froncèrent les sourcils, l'air mécontent.
+Les cultivateurs du Clan Shan Lei chargés des lieux froncèrent les sourcils, l'air mécontent.
 
 « Cet homme est bien ingrat. Nous l'aidons et il ne daigne même pas nous remercier! »
 

@@ -78,7 +78,7 @@ Sans le temps nécessaire pour cultiver son propre cœur Dao, on ne peut tout si
 
 C'est pourquoi Wang Lin avait évoqué ses parents. En la forçant à se remémorer le passé et à ressentir une étincelle d'émotion, il espérait briser son cœur Dao pour obtenir une chance de victoire.
 
-Mais le cœur Dao de cette femme était ferme et ne semblait pas affecté par ses paroles. Ce n'est que lorsque Wang Lin avait activé son domaine de la vie et de la mort pour résister au domaine sans émotion qu'il réalisa que ses mots portaient leurs fruits.
+Mais le cœur Dao de cette femme était ferme et ne semblait pas affecté par ses paroles. Ce n'est que lorsque Wang Lin avait activé son domaine de la vie et de la mort pour résister au domaine sans émotion qu'il comprit que ses mots portaient leurs fruits.
 
 Bien qu'il n'ait pas parlé longuement et que l'effet fût subtil, il avait planté une graine dans son cœur. Si elle ne parvenait pas à l'extirper, elle n'atteindrait jamais le stade de la Transformation de l'Âme.
 
@@ -106,7 +106,7 @@ L'illusion de cette empreinte fusionna rapidement avec celle du palais. Sous l'e
 
 Hongdie ricana en le poursuivant: « Que tu coures devant ou vers le haut, tu ne t'échapperas pas si facilement. »
 
-Wang Lin monta dans le ciel et s'arrêta brusquement. Il regarda le sol comme s'il venait de réaliser quelque chose, puis pressa la paume de sa main vers le bas.
+Wang Lin monta dans le ciel et s'arrêta brusquement. Il regarda le sol comme s'il venait de comprendre quelque chose, puis pressa la paume de sa main vers le bas.
 
 Soudain, le ciel s'obscurcit. Divers flux d'énergie convergèrent sous lui pour former une paume gigantesque juste en dessous de lui.
 

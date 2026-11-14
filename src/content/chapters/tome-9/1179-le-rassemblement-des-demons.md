@@ -100,7 +100,7 @@ L'expression du garçon devint également grave, et il joignit les mains à son 
 
 « Cet homme est un Briseur du Nirvana de stade précoce... Mais s'il impose la prudence à ces vieux monstres de stade intermédiaire, ce n'est pas seulement à cause du nom de sa secte; plus important encore, les sorts de cette Secte Yi Shou ont quelque chose d'étrange. De plus, il a affirmé être arrivé alors que personne ne l'avait remarqué. Il y a là une anomalie! » Wang Lin détourna le regard de l'homme robuste.
 
-« La technique de dissimulation par les bêtes de la Secte Yi Shou est en effet remarquable. Je n'avais pas réalisé que mon frère Chen était déjà là! » Cang Songzi se leva en riant.
+« La technique de dissimulation par les bêtes de la Secte Yi Shou est en effet remarquable. Je ne m'étais pas rendu compte que mon frère Chen était déjà là! » Cang Songzi se leva en riant.
 
 Chen Tianjun hocha légèrement la tête et dit: « Cang Songzi, j'ai été convoqué par la région de rang 9 et je dois retourner d'urgence à la secte pour partir avec mes condisciples. Je n'ai pas beaucoup de temps, alors hâtez-vous! »
 

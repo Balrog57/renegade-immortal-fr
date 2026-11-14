@@ -68,7 +68,7 @@ Lorsque Wang Lin ouvrit les yeux, il regarda Yao Xixue et constata immédiatemen
 
 Ce regard provoqua chez Yao Xixue un immense malaise, l'obligeant inconsciemment à détourner les yeux. Elle déclara froidement: « Avec les symboles dorés, tu peux désormais emprunter le Chemin du Dragon Sacré. Allons-y! » Sur ce, elle s'élança sur la voie et progressa rapidement.
 
-Elle n'avait même pas réalisé que les symboles dans ses propres yeux s'étaient estompés en regardant Wang Lin. C'était comme si une luciole avait rencontré la lune; bien que toutes deux fussent brillantes, comparée à la lune, la luciole était naturellement plus terne.
+Elle n'avait même pas pris conscience que les symboles dans ses propres yeux s'étaient estompés en regardant Wang Lin. C'était comme si une luciole avait rencontré la lune; bien que toutes deux fussent brillantes, comparée à la lune, la luciole était naturellement plus terne.
 
 Wang Lin plaça sa main devant ses yeux. En regardant sa paume, il y vit un symbole parfaitement projeté.
 

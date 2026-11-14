@@ -80,7 +80,7 @@ Il faut dire que même la méthode de culture par les pilules, assez répandue d
 
 En plus de la rareté des composants, les cultivateurs cherchent à ne rien perdre. Mais les pilules contiennent une telle densité d'énergie que si trop est absorbé d'un coup, cela n'aide pas; au contraire, cela augmente le risque qu'un démon s'insinue dans l'esprit du cultivateur. De plus, une progression trop fulgurante peut avoir des effets mortels sur la culture future, même si le corps physique semble intact.
 
-Mais ces problèmes n'existaient pas pour Wang Lin. D'abord, grâce à la technique de l'Ancien Dieu, l'énergie était absorbée avec une rapidité prodigieuse. Quant aux conséquences futures, il ne s'agissait que d'un avatar et non de son corps principal. En réalité, cet avatar était en quelque sorte une « super pilule » fabriquée de main d'homme.
+Mais ces problèmes n'existaient pas pour Wang Lin. D'abord, grâce à la technique de l'Ancien Dieu, l'énergie était absorbée avec une rapidité prodigieuse. Quant aux conséquences futures, il ne s'agissait que d'un avatar et non de son corps principal. En réalité, cet avatar était en quelque sorte une « pilule suprême » fabriquée de main d'homme.
 
 Seulement, la force contenue dans cette « pilule » dépassait de loin la limite que peut supporter un remède ordinaire; c'était littéralement une pilule en forme d'homme, dont le but était de permettre à son corps principal de briser la limite du Royaume Ji et d'atteindre le stade de l'Âme Naissante.
 

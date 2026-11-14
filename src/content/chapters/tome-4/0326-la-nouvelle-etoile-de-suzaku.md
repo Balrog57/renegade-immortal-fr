@@ -20,7 +20,7 @@ Wang Lin eut un sourire narquois et répondit: « Bien sûr que je le savais; vo
 
 Le vieil homme laissa échapper un léger reniflement méprisant.
 
-L'un des cultivateurs réalisa qui était ce vieil homme et s'écria: « La Secte Shi Yin! »
+L'un des cultivateurs comprit qui était ce vieil homme et s'écria: « La Secte Shi Yin! »
 
 À l'instant même où ces mots furent prononcés, les expressions de la plupart changèrent légèrement.
 

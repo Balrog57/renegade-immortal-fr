@@ -90,7 +90,7 @@ Les yeux de Gu Dao s'illuminèrent et il n'hésita pas une seconde. Il s'élanç
 
 À cet instant, Wang Lin était le seul encore debout devant la porte. Il ferma les yeux et, lorsqu'il les rouvrit, il marcha vers l'ouverture. Il franchit le seuil pas à pas.
 
-Une fois que Wang Lin eut pénétré dans le Royaume Divin Immémorial, tout sur le Continent Xian Gang retrouva son cours normal. Le plus étrange était que presque personne n'avait perçu ce moment où tout s'était figé. Les cultivateurs ne l'avaient pas remarqué, les membres du clan Antique non plus, et même les Grands Empyréens n'avaient pas réalisé qu'ils avaient perdu environ dix respirations de temps.
+Une fois que Wang Lin eut pénétré dans le Royaume Divin Immémorial, tout sur le Continent Xian Gang retrouva son cours normal. Le plus étrange était que presque personne n'avait perçu ce moment où tout s'était figé. Les cultivateurs ne l'avaient pas remarqué, les membres du clan Antique non plus, et même les Grands Empyréens ne s'étaient pas rendu compte qu'ils avaient perdu environ dix respirations de temps.
 
 Ces dix respirations avaient été arrachées au ciel et à la terre, aux cinq éléments, à chaque mortel, à chaque cultivateur, à chaque membre du clan Antique et aux huit Grands Empyréens. C'était comme si cette courte période avait été absorbée par une force mystérieuse pour disparaître dans la porte du Royaume Divin Immémorial.
 

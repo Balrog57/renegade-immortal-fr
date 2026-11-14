@@ -48,7 +48,7 @@ L'expression de Wang Lin demeurait calme tandis qu'il fixait Zhou Peng.
 
 Zhou Peng le dévisagea et demanda froidement: « Quoi? Tu veux monter? »
 
-Les paroles de Zhou Peng captèrent l'attention de tous. Lorsqu'ils réalisèrent qu'elles s'adressaient à Wang Lin, leurs expressions devinrent étranges.
+Les paroles de Zhou Peng captèrent l'attention de tous. Lorsqu'ils comprirent qu'elles s'adressaient à Wang Lin, leurs expressions devinrent étranges.
 
 Huang Long soupira. Wang Lin n'était qu'au 3e niveau et passait normalement inaperçu parmi les disciples, mais malgré sa faible culture, son courage était louable.
 

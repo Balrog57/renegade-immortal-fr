@@ -128,7 +128,7 @@ Le corps était l'arme, et le Sens Divin était le bras qui la maniait, formant 
 
 Autrefois glorieux, ils furent finalement enfouis par l'histoire. Aujourd'hui, ils avaient disparu sans laisser de trace, hormis quelques mentions dans d'anciens textes.
 
-Wang Lin réalisa qu'en utilisant la Tactique du Dieu Ancien, il pouvait détourner l'énergie spirituelle volée pour accélérer sa propre progression.
+Wang Lin comprit qu'en utilisant la Tactique du Dieu Ancien, il pouvait détourner l'énergie spirituelle volée pour accélérer sa propre progression.
 
 Il sortit son sac de rangement et en tira un objet: une pilule de culture. Il l'avait obtenue après avoir été visé par l'Ordre de Cent Jours des Dix Mille Démons; cette pilule était issue de toute la culture d'un cultivateur du stade intermédiaire de la Formation du Noyau.
 

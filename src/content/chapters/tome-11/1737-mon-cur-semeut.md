@@ -44,7 +44,7 @@ Une lueur de froideur traversa le regard de Wang Lin. Sans l'ombre d'une hésita
 
 « Même si cette planète est étrange, elle n'est pas loin de moi. Je vais simplement l'ignorer et pénétrer à sa surface! » Wang Lin se déplaça avec une rapidité fulgurante, franchissant une distance infinie en un seul pas. Cependant, après ce mouvement, ses pupilles se rétractèrent.
 
-Il réalisa qu'il avait marché sur place au lieu de progresser vers la planète. La distance entre eux était restée inchangée et la planète tournait toujours!
+Il comprit qu'il avait marché sur place au lieu de progresser vers la planète. La distance entre eux était restée inchangée et la planète tournait toujours!
 
 C'était comme si, à chaque mouvement de Wang Lin, la planète bougeait aussi!
 

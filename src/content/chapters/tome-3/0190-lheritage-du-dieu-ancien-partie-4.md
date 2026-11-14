@@ -75,7 +75,7 @@ Malheureusement, si Tu Si avait eu plus de temps, il aurait sans doute réussi. 
 
 La Mer de la Connaissance se scinda alors en deux: une partie devint la Mer de Sang pour piéger l'homme aux cheveux roux et l'empêcher de partir, tandis que l'autre devint la Mer des Âmes Mortes pour interdire toute intrusion. C'est là que l'intégralité de l'héritage de la connaissance fut dissimulée.
 
-Wang Lin analysa soigneusement ces informations. Plus il en apprenait, mieux il saisissait la situation. En comparant tout ce qu'il savait, il réalisa que son gain le plus précieux était sans doute les trois mots « Tactique du Dieu Ancien » gravés dans son esprit. En plus de détenir une partie de la mémoire de Tu Si, il possédait aussi une méthode de cultivation et des pouvoirs surnaturels incomplets. Cette tactique était un art que chaque Dieu Ancien portait dans son esprit dès l'enfance et pratiquait toute sa vie.
+Wang Lin analysa soigneusement ces informations. Plus il en apprenait, mieux il saisissait la situation. En comparant tout ce qu'il savait, il comprit que son gain le plus précieux était sans doute les trois mots « Tactique du Dieu Ancien » gravés dans son esprit. En plus de détenir une partie de la mémoire de Tu Si, il possédait aussi une méthode de cultivation et des pouvoirs surnaturels incomplets. Cette tactique était un art que chaque Dieu Ancien portait dans son esprit dès l'enfance et pratiquait toute sa vie.
 
 L'essence même de ces pouvoirs se résumait en un mot: le pillage! Piller tout!
 

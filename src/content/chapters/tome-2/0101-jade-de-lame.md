@@ -82,7 +82,7 @@ Wang Lin pointa la goutte de sang doré. Elle s'élança et vint se poser sur l'
 
 Voyant que Wang Lin se montrait docile, Ye Zizai le regarda d'un coup d'œil, puis d'un revers de manche fit trembler la cavité: une immense porte circulaire apparut. Son intérieur était d'un noir profond et exerçait une force d'aspiration.
 
-Ye Zizai lança les trois jades contenant les fragments d'âme vers Du Chen et deux autres individus. Les yeux de Wang Lin s'illuminèrent lorsqu'il réalisa que les deux autres étaient les deux derniers cultivateurs du stade avancé de l'Établissement des Fondations.
+Ye Zizai lança les trois jades contenant les fragments d'âme vers Du Chen et deux autres individus. Les yeux de Wang Lin s'illuminèrent lorsqu'il comprit que les deux autres étaient les deux derniers cultivateurs du stade avancé de l'Établissement des Fondations.
 
 Le doute dans le cœur de Wang Lin s'intensifia, mais son visage resta de marbre. Il mémorisa avec précision le cultivateur qui détenait le jade contenant une partie de son âme.
 

@@ -46,7 +46,7 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 « Je n'aurais jamais cru que Maître me mentirait. Grâce à la méthode du Double Désir Yin et Yang, ma culture a progressé de manière fulgurante et étrange. Cette méthode se concentrait sur l'âme et avait une influence immense sur ma croissance. Cependant, je m'en moquais; mon seul désir était de permettre un jour à l'âme de ma petite sœur de retourner dans le cycle de la réincarnation.
 
-« En un éclair, des centaines d'années s'écoulèrent. C'est aussi l'époque où vous avez quitté la planète Tian Yun. Lorsque j'ai réalisé que quelque chose n'allait pas, il était trop tard... » Les yeux de Bai Wei se remplirent de tristesse et il déchira sa chemise, exposant son torse. Une ligne verte et une ligne rouge s'étendaient de chacun de ses bras, et les deux lignes se croisaient au milieu comme des branches d'arbre.
+« En un éclair, des centaines d'années s'écoulèrent. C'est aussi l'époque où vous avez quitté la planète Tian Yun. Lorsque j'ai compris que quelque chose n'allait pas, il était trop tard... » Les yeux de Bai Wei se remplirent de tristesse et il déchira sa chemise, exposant son torse. Une ligne verte et une ligne rouge s'étendaient de chacun de ses bras, et les deux lignes se croisaient au milieu comme des branches d'arbre.
 
 « Voyez-vous cela? C'est la marque mystérieuse qui est apparue sur mon corps après avoir pratiqué la méthode du Double Désir Yin et Yang. Tous les méridiens de mon corps ont été transformés par la méthode du Double Désir Yin et Yang. » À cet instant, la douleur crispa le visage de Bai Wei. L'énergie Yin à l'intérieur de son corps s'agita et cette étrange marque réapparut.
 

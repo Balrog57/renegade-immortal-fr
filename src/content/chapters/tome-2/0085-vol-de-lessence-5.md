@@ -36,7 +36,7 @@ Le petit être affichait un regard confus tandis que son corps tremblait. Lentem
 
 Wang Lin ne cilla même pas. D'un revers de main, il fit apparaître une lueur rouge. Le petit être sembla terrifié par cette lumière et tenta de s'enfuir, mais la zone de trois pieds entourant le corps de Teng Li agissait comme une prison. Peu importait ses efforts, il ne pouvait s'échapper.
 
-Finalement, réalisant qu'il était piégé, le petit être afficha un regard vindicatif et chargea vers la lumière rouge.
+Finalement, comprenant qu'il était piégé, le petit être afficha un regard vindicatif et chargea vers la lumière rouge.
 
 Wang Lin garda un visage impassible et agita la main. La lueur rouge encercla la petite silhouette à plusieurs reprises avant de la tirer lentement vers lui.
 
@@ -66,7 +66,7 @@ Wang Lin fut surpris, mais Situ Nan intervint rapidement: « Ne t'en fais pas, i
 
 Sans répondre, Wang Lin pointa le petit être du doigt. Ce dernier cessa immédiatement de se débattre, puis se rétracta jusqu'à devenir une sphère émettant une lumière violette.
 
-L'avatar illusionnaire sembla réaliser que l'âme de Teng Li était en train d'être raffinée. Il lança d'une voix pleine de rancœur et d'un ton sombre: « Quiconque tue un membre de ma famille Teng sera maudit, tu es un homme mort! Moi, Teng Huayuan, je te retrouverai un jour... » Sur ces mots, la lumière jaune se dissipa lentement.
+L'avatar illusionnaire sembla comprendre que l'âme de Teng Li était en train d'être raffinée. Il lança d'une voix pleine de rancœur et d'un ton sombre: « Quiconque tue un membre de ma famille Teng sera maudit, tu es un homme mort! Moi, Teng Huayuan, je te retrouverai un jour... » Sur ces mots, la lumière jaune se dissipa lentement.
 
 Sur le sommet d'une montagne située à plus de dix mille kilomètres de là, un vieil homme en robes noires se redressa, l'expression sombre. Ses yeux s'illuminèrent. Serrant le poing, il murmura: « Li'er, ton arrière-grand-père le jure: je te vengerai, même s'il me faut fouiller le ciel jusqu'à ses confins et descendre aux Sources Jaunes! » Sur ces mots, il frappa sa poitrine du poing droit et cracha un sang noir. Sa main droite traça une ligne et agita rapidement ce sang; des ondulations d'un rouge sombre se propagèrent en cercles, se changeant en d'innombrables symboles étranges qui flottèrent entre le ciel et la terre.
 

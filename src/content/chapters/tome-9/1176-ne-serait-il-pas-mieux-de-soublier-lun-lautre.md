@@ -62,7 +62,7 @@ Alors qu'elle était assise près de lui, une brise fit flotter quelques mèches
 
 À cet instant, les enchères débutèrent. L'homme responsable de la vente était un Ancien de la Secte Bao Yu au visage carré. Il flottait au-dessus de la place, présentant le premier article: un trésor en forme de cloche, gravé de nombreux tatouages de bêtes féroces.
 
-En réalisant que quelques mèches de ses cheveux frôlaient Wang Lin, le visage de Li Qianmei rougit légèrement. Elle les ramena rapidement en arrière pour les attacher négligemment.
+En se rendant compte que quelques mèches de ses cheveux frôlaient Wang Lin, le visage de Li Qianmei rougit légèrement. Elle les ramena rapidement en arrière pour les attacher négligemment.
 
 « Quand? », demanda Wang Lin sans la regarder, ses yeux fixés sur l'Ancien qui expliquait les propriétés du trésor.
 

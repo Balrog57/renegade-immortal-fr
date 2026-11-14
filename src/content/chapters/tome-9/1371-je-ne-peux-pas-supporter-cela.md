@@ -24,7 +24,7 @@ Bien que le Clan Shan Lei ait été détruit, de nombreux membres avaient quitt�
 
 Wang Lin demanda doucement: « Une marionnette? »
 
-Zhong Dahong, tout excité, répondit promptement: « Maître, cette marionnette est très coûteuse ici et elle est faite de matériaux inconnus. Elle peut manifester la puissance d'un cultivateur normal et possède même un sens divin. C'est une merveille! »
+Zhong Dahong, tout enthousiaste, répondit promptement: « Maître, cette marionnette est très coûteuse ici et elle est faite de matériaux inconnus. Elle peut manifester la puissance d'un cultivateur normal et possède même un sens divin. C'est une merveille! »
 
 L'expression de Wang Lin resta imperturbable. Il était intéressé par la marionnette. Après un court instant de réflexion, il demanda lentement: « Y a-t-il des nouvelles concernant le Clan Huo Que? »
 
@@ -194,7 +194,7 @@ Zhong Dahong prit une profonde inspiration, une intention meurtrière brillant d
 
 Tous les cultivateurs de la planète ressentirent un tremblement dans leur âme. Le ciel changea de couleur, la terre trembla et les nuages se dispersèrent!
 
-En un instant, Wang Lin avait conduit Zhong Dahong jusqu'à la ville en ruine. Il relâcha sa prise pour laisser Zhong Dahong flotter à ses côtés. Ce dernier, surexcité, pointa la cité du doigt: « Maître, le Clan An Xie est là! »
+En un instant, Wang Lin avait conduit Zhong Dahong jusqu'à la ville en ruine. Il relâcha sa prise pour laisser Zhong Dahong flotter à ses côtés. Ce dernier, enfiévré, pointa la cité du doigt: « Maître, le Clan An Xie est là! »
 
 Les yeux de Wang Lin brillaient comme des torches alors qu'il contemplait la ville en contrebas.
 

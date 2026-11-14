@@ -74,7 +74,7 @@ L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royau
 
 « Et le Souverain Céleste aux Sept Couleurs… Je pensais qu’il était mort, mais… est-il vraiment mort?
 
-« Le monde des grottes n'est définitivement pas aussi simple. Quel genre de secret y est dissimulé?!
+« Le monde des grottes n'est assurément pas aussi simple. Quel genre de secret y est dissimulé?!
 
 « Je pensais avoir tout appris à l'époque, mais ce que j'avais appris n'était-il que la surface d'une vérité cachée? Je me croyais au sommet de la montagne, pensant voir le monde, sans savoir qu'au-delà des cimes, une paire d'yeux dans les cieux observait mon monde! » Wang Lin ressentit instantanément un frisson.
 

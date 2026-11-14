@@ -92,11 +92,11 @@ C'étaient les mots de Xie Qing lorsqu'il était monté sur la montagne. À l'é
 
 Il n'avait eu aucune envie de méditer sur cette dernière sentence et, même s'il l'avait fait, il n'y aurait trouvé aucune réponse, ce n'aurait été qu'une banalité.
 
-Cependant, en observant le cycle de réincarnation de la troisième âme, il l'avait vue se réincarner des centaines de fois sous forme de poisson, avant de réaliser que la troisième âme était Xie Qing. Comment ne pas comprendre le sens de ces mots désormais?
+Cependant, en observant le cycle de réincarnation de la troisième âme, il l'avait vue se réincarner des centaines de fois sous forme de poisson, avant de comprendre que la troisième âme était Xie Qing. Comment ne pas comprendre le sens de ces mots désormais?
 
 « Ainsi, c'est vrai... je suis un poisson dans l'eau... » Wang Lin leva amèrement les yeux vers la lumière chaleureuse émanant de la maison. Il se remémora les paroles de Xie Qing et comprit.
 
-Pourquoi avait-il rencontré Su Dao dans le Dao du Rêve, et pourquoi ce dernier l'avait-il guidé pour devenir le grand érudit non seulement de Zhao, mais de toute la planète Suzaku? Tout cela n'était que karma. Wang Lin pensait avoir accompli son karma, mais il réalisait que le karma était une chose que l'on pouvait percevoir sans jamais pouvoir la saisir!
+Pourquoi avait-il rencontré Su Dao dans le Dao du Rêve, et pourquoi ce dernier l'avait-il guidé pour devenir le grand érudit non seulement de Zhao, mais de toute la planète Suzaku? Tout cela n'était que karma. Wang Lin pensait avoir accompli son karma, mais il comprenait que le karma était une chose que l'on pouvait percevoir sans jamais pouvoir la saisir!
 
 « À l'époque, j'avais involontairement donné des conseils à Xie Qing et je l'avais pris pour disciple. Il était la troisième âme du Souverain Céleste aux Sept Couleurs. Cela a créé un lien entre nous; c'est là la cause karmique!
 

@@ -20,7 +20,7 @@ Avec Wang Lin à leurs côtés, les chances de succès des trois étaient désor
 
 Qian Feng ne sous-estimait pas Wang Lin simplement parce qu'il était au stade initial de la Transformation de l'Âme. En réalité, au fond de lui, il considérait que Wang Lin était un adversaire digne de ce nom. Il savait également que le drapeau des âmes d'un milliard que possédait Wang Lin pouvait l'anéantir, et il le redoutait profondément.
 
-C'est pour cette raison qu'il avait utilisé Hongdie pour retarder Wang Lin: afin de pouvoir s'emparer du Cristal de la Planète de Culture sans avoir à l'affronter. Cependant, après être arrivé à la montagne spirituelle, il réalisa que plusieurs obstacles se dressaient encore avant d'atteindre le cristal.
+C'est pour cette raison qu'il avait utilisé Hongdie pour retarder Wang Lin: afin de pouvoir s'emparer du Cristal de la Planète de Culture sans avoir à l'affronter. Cependant, après être arrivé à la montagne spirituelle, il comprit que plusieurs obstacles se dressaient encore avant d'atteindre le cristal.
 
 Il ne voyait plus Wang Lin comme un faible, contrairement à leur première rencontre; désormais, il le considérait comme son égal, même si, au fond de son cœur, un soupçon d'orgueil subsistait, profondément enfoui.
 
@@ -98,7 +98,7 @@ C'est pourquoi il avait décidé d'avancer seul. Malgré ses soupçons, Qian Fen
 
 En réalité, même si Qian Feng n'avait pas accepté son plan ou n'avait pas proposé la coopération, Wang Lin l'aurait affronté seul de toute façon. Il ne croyait pas que Qian Feng s'abstiendrait de l'attaquer par surprise alors que lui-même affronterait la menace de l'épée. Certes, il aurait été plus difficile d'attirer Qian Feng à moins de cent pieds, mais Wang Lin avait un plan B et était sûr à 80 % de réussir à l'approcher.
 
-La proposition de Qian Feng de travailler ensemble n'avait fait que confirmer les soupçons de Wang Lin: le cultivateur n'avait pas pu résister à la tentation et abandonnait toute idée de coopération. Il comptait utiliser l'excuse de « l'aide pour contrer l'épée » pour se rapprocher, sans réaliser que Wang Lin avait déjà tout lu en lui.
+La proposition de Qian Feng de travailler ensemble n'avait fait que confirmer les soupçons de Wang Lin: le cultivateur n'avait pas pu résister à la tentation et abandonnait toute idée de coopération. Il comptait utiliser l'excuse de « l'aide pour contrer l'épée » pour se rapprocher, sans se rendre compte que Wang Lin avait déjà tout lu en lui.
 
 Le sens divin de Zhou Yi émanant de la pagode joua un rôle crucial: il interrompit suffisamment l'énergie de l'épée pour permettre à Wang Lin de s'écarter, faisant de Qian Feng la cible la plus proche.
 

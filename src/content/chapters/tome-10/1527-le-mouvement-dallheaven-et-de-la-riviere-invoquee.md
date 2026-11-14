@@ -46,7 +46,7 @@ Si l'on reliait ces deux morceaux de tissu, ils auraient ressemblé à une poup�
 
 « C'est un avatar! » Wang Lin fit un pas en avant et atteignit l'endroit où se trouvait le Grand Maître Yun Luo. Ses yeux étaient empreints d'une intention meurtrière alors qu'il fixait les deux morceaux de tissu. D'un revers de manche, il libéra un feu monstrueux qui consuma ces vêtements.
 
-« Même s'il s'agit d'un avatar, je trouverai ton corps originel! » Wang Lin avait pris la décision de tuer le Grand Maître Yun Luo. Dès qu'il réalisa qu'il s'agissait d'un avatar, sa main gauche forma un sceau et les deux morceaux de vêtements en flammes s'effondrèrent.
+« Même s'il s'agit d'un avatar, je trouverai ton corps originel! » Wang Lin avait pris la décision de tuer le Grand Maître Yun Luo. Dès qu'il comprit qu'il s'agissait d'un avatar, sa main gauche forma un sceau et les deux morceaux de vêtements en flammes s'effondrèrent.
 
 Dans leur chute, deux filaments furent extraits par le sort de Wang Lin. Ils s'entrelacèrent comme deux serpents pour former un vortex!
 

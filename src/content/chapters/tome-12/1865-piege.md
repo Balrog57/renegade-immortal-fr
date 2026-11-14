@@ -34,7 +34,7 @@ Elle vit le point représentant Xu Decai s'évanouir soudainement!
 
 « Ceci... ceci est... » Le visage de la femme pâlit instantanément et ses yeux se remplirent d'incrédulité. Sans hésiter, elle transmit cette nouvelle par une méthode spéciale aux trois cultivateurs de la Tribulation du Vide présents dans la Prairie Ji Tian!
 
-L'expression des deux cultivateurs du stade intermédiaire était extrêmement sombre alors qu'ils volaient. Tous deux avaient poursuivi la boussole pour finalement réaliser qu'ils avaient été dupés. Ils étaient furieux, mais n'avaient aucun exutoire pour leur colère.
+L'expression des deux cultivateurs du stade intermédiaire était extrêmement sombre alors qu'ils volaient. Tous deux avaient poursuivi la boussole pour finalement se rendre compte qu'ils avaient été dupés. Ils étaient furieux, mais n'avaient aucun exutoire pour leur colère.
 
 Alors qu'ils volaient, leurs expressions changèrent et ils se figèrent en plein ciel en recevant le message!
 

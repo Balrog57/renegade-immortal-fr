@@ -60,7 +60,7 @@ Fixant ce point vert éclatant, une intention meurtrière traversa le regard de 
 
 « Yun Kong, tu es le prochain! » Wang Lin fusionna avec la formation de restriction et disparut. Lorsqu'il réapparut, il se trouvait au centre de la Mer Dan.
 
-Dès son apparition, il remarqua que la mer autour de lui tournait et que des grondements tonitruants retentissaient. Il avait l'impression d'être aspiré par le courant. En observant la boussole, il réalisa qu'il n'était pas loin de Yun Kong. Cependant, Wang Lin observa la mer en plein tourbillonnement.
+Dès son apparition, il remarqua que la mer autour de lui tournait et que des grondements tonitruants retentissaient. Il avait l'impression d'être aspiré par le courant. En observant la boussole, il se rendit compte qu'il n'était pas loin de Yun Kong. Cependant, Wang Lin observa la mer en plein tourbillonnement.
 
 « Peut-être n'ai-je pas besoin d'abandonner les 30 millions d'âmes dao... » songea Wang Lin, cessant toute progression. Au lieu de cela, il sombra vers les abysses pour s'y dissimuler.
 

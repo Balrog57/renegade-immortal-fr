@@ -30,7 +30,7 @@ Les huit personnes sur les piliers se redressèrent. L'un d'eux, arborant une ex
 
 Wang Lin avait déjà planifié ses paroles durant le voyage. Gardant un calme imperturbable, il déclara froidement: « Je suis Wang Lin. Veuillez informer mon oncle-maître Ye Zizai que j'ai une affaire importante à lui annoncer. »
 
-Le jeune homme fut déconcerté. Il regarda ses compagnons, puis reprit: « Senior, nous ne pouvons pas décider de cette affaire. Pourquoi ne pas me suivre pour voir l'Ancien en charge des affaires? »
+Le jeune homme fut déconcerté. Il regarda ses compagnons, puis reprit: « Senior, nous ne pouvons pas décider de cette affaire. Pourquoi ne pas me suivre pour voir l'Ancien chargé des affaires? »
 
 Wang Lin acquiesça. Il sortit de la formation et Adai le suivit.
 

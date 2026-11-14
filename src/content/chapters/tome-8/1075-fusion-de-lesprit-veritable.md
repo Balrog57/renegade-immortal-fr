@@ -44,7 +44,7 @@ Le regard perçant de Suzaku balaya le sol jusqu'à ce qu'il se pose sur Wang Li
 
 En un instant, l'esprit véritable de Suzaku surgit de la mer de flammes. Cette mer devint les plumes de son corps, et le reste du brasier, derrière lui, se mua en plusieurs plumes de queue.
 
-Ce n'est qu'une fois sa forme entière révélée que tous réalisèrent que cette vaste mer de flammes faisait partie intégrante du corps de Suzaku!
+Ce n'est qu'une fois sa forme entière révélée que tous comprirent que cette vaste mer de flammes faisait partie intégrante du corps de Suzaku!
 
 Un bruit d'aspirations saccadées résonna parmi la foule.
 

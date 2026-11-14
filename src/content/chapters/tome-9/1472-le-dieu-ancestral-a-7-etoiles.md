@@ -18,7 +18,7 @@ La terrifiante dix-huitième respiration descendit!
 
 Au même instant, Tuo Sen vit distinctement la septième étoile qui émergeait de son cocon entre les sourcils de Wang Lin!
 
-Personne ne connaissait mieux le corps de dieu ancien de Wang Lin que Tuo Sen. En voyant cela, il comprit instantanément la situation. Il réalisa que Wang Lin était en train de recevoir l'héritage qui lui appartenait originellement!!
+Personne ne connaissait mieux le corps de dieu ancien de Wang Lin que Tuo Sen. En voyant cela, il comprit instantanément la situation. Il comprit que Wang Lin était en train de recevoir l'héritage qui lui appartenait originellement!!
 
 « Tu as pris mon héritage de mémoire et maintenant tu vas voler mon héritage de Dao Gu!! » Les yeux de Tuo Sen étaient injectés de sang; malgré ses blessures, il chargea comme un fou alors que la dix-huitième respiration s'abattait.
 

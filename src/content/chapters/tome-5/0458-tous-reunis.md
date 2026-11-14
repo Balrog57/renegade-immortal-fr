@@ -58,7 +58,7 @@ Cette secousse fut plus longue que la précédente; elle dura trente respiration
 
 Certains cultivateurs tentaient encore d'entrer dans le Tombeau Suzaku au pied du mont Suzaku, mais tous ceux qui s'aventuraient à l'intérieur étaient instantanément tués par les failles.
 
-Graduellement, de plus en plus de personnes tentèrent l'approche, comme si le Tombeau Suzaku avait perdu la restriction qui en empêchait l'accès. Mais après un moment, certains réalisèrent que quelque chose n'allait pas. La situation devint si étrange que plus personne n'osa franchir ce passage. À leurs yeux, ce passage était devenu une bête démoniaque dévorant les cultivateurs. Quiconque y pénétrait était voué à la mort.
+Graduellement, de plus en plus de personnes tentèrent l'approche, comme si le Tombeau Suzaku avait perdu la restriction qui en empêchait l'accès. Mais après un moment, certains comprirent que quelque chose n'allait pas. La situation devint si étrange que plus personne n'osa franchir ce passage. À leurs yeux, ce passage était devenu une bête démoniaque dévorant les cultivateurs. Quiconque y pénétrait était voué à la mort.
 
 Sur la montagne spirituelle au centre du Tombeau Suzaku, les fissures sur la porte s'accentuèrent et certaines finirent par se rejoindre.
 

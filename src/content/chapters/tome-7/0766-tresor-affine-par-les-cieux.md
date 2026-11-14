@@ -70,7 +70,7 @@ Alors que les bords du fragment se détachaient sous les assauts incessants, le 
 
 La puissance contenue dans ce fragment était inconcevable, car sa matière n'était pas ordinaire: c’était un fragment du Royaume Céleste! Si cela seul suffisait, ce ne serait pas si exceptionnel, mais ce n'était pas un objet raffiné par des cultivateurs, c'était un objet raffiné par les Cieux eux-mêmes!
 
-Xue Zu comprit progressivement la situation et prit une profonde inspiration. Ses yeux brillèrent de cupidité. Peu de trésors pouvaient tenter quelqu'un de son niveau de culture. Mais en réalisant que ce fragment se transformait par pur hasard en un trésor magique, son cœur se mit soudain à battre la chamade.
+Xue Zu comprit progressivement la situation et prit une profonde inspiration. Ses yeux brillèrent de cupidité. Peu de trésors pouvaient tenter quelqu'un de son niveau de culture. Mais en comprenant que ce fragment se transformait par pur hasard en un trésor magique, son cœur se mit soudain à battre la chamade.
 
 « Les gains et les pertes sont dictés par le destin. Ce vieil homme a trop perdu cette fois-ci. Si ce fragment est affiné par les cieux, sa puissance sera d'une tout autre dimension. Il pourrait manifester la véritable puissance du Royaume Céleste. Ce trésor m'est destiné! » L'excitation transparaissait dans le regard de Xue Zu.
 

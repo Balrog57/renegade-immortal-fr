@@ -60,7 +60,7 @@ Les pupilles de Xu Decai se rétractèrent sous l'effet de la terreur. Il recula
 
 Il ignorait que le Dao Céleste de Wang Lin contenait un objet nommé la Pierre Spatiale! Wang Lin avait quitté le monde de la grotte avec son Dao Céleste, mais il avait laissé les lois établies par celui-ci, qui devaient perdurer à jamais.
 
-Wang Lin recula rapidement jusqu'à une distance de dix mille pieds, puis avala la Pierre Spatiale. Ce fut la première fois qu'il put reprendre son souffle et relâcher un peu la pression de ce combat. Des vagues de douleur parcoururent son corps. Il jeta un regard solennel et excité vers Xu Decai!
+Wang Lin recula rapidement jusqu'à une distance de dix mille pieds, puis avala la Pierre Spatiale. Ce fut la première fois qu'il put reprendre son souffle et relâcher un peu la pression de ce combat. Des vagues de douleur parcoururent son corps. Il jeta un regard solennel et enfiévré vers Xu Decai!
 
 « Un cultivateur ne peut pas lancer des sorts avec une telle célérité. Cet homme doit avoir rencontré une fortune immense et appris un sortilège spécial! C'est normalement impossible! Si je pouvais apprendre un tel sort... »
 

@@ -52,7 +52,7 @@ Pourtant, Mu Bingmei comprenait que rien de tout cela n'avait de lien avec elle.
 
 Il semblait que leur destin était d'être ni familiers, ni inconnus. Ce sentiment d'indifférence entre eux existerait pour toujours.
 
-Nul ne réalisa que Wang Shanshan, de la Secte Shen, avait un éclat étrange dans les yeux en fixant Wang Lin. Elle sortit délicatement une pierre de jade et enregistra tout ce dont elle avait été témoin. Puis, elle pressa le jade qui disparut dans sa main.
+Nul ne se rendit compte que Wang Shanshan, de la Secte Shen, avait un éclat étrange dans les yeux en fixant Wang Lin. Elle sortit délicatement une pierre de jade et enregistra tout ce dont elle avait été témoin. Puis, elle pressa le jade qui disparut dans sa main.
 
 Par cette méthode singulière, Wang Shanshan transmit tout ce qu'elle avait vu à son maître de la Secte Shen. Elle l'avait fait sans préméditation; elle voulait simplement montrer un génie de la Mer Yun à son mentor. Elle pensait même que celui-ci chercherait certainement à recruter cet homme au sein de la Secte Shen après avoir vu cela!
 

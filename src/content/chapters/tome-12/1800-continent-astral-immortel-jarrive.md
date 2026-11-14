@@ -56,7 +56,7 @@ Laissons de côté les affaires du Continent Xian Gang. Dans le vide, le corps d
 
 À mesure qu'il avançait, la pression des lois du Continent Xian Gang semblait diminuer considérablement. L'intensité ressentie était devenue supportable. Bien qu'il ait perdu sa direction, la bête moustique semblait percevoir quelque chose et continuait de progresser dans cette direction avec Wang Lin.
 
-En chemin, le Roi Moustique était très excité. Il jetait parfois un regard en arrière vers Wang Lin en poussant un cri de joie. Il aimait véritablement être aux côtés de Wang Lin; il se sentait si à l'aise, comme s'il était auprès de ses parents.
+En chemin, le Roi Moustique était très enthousiaste. Il jetait parfois un regard en arrière vers Wang Lin en poussant un cri de joie. Il aimait véritablement être aux côtés de Wang Lin; il se sentait si à l'aise, comme s'il était auprès de ses parents.
 
 Cependant, même avec le Roi Moustique pour guider la voie, plus ils s'enfonçaient dans le vide, plus la pression des lois du Continent Xian Gang devenait puissante.
 

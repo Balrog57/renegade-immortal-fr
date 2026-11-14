@@ -86,7 +86,7 @@ Wang Lin avait déjà utilisé son Sens Divin pour inspecter les environs. Des g
 
 Les matrices du champ de bataille étranger sont normalement closes et ne s'ouvrent qu'à des moments précis. Il restait encore deux jours avant leur activation.
 
-Les gens, à l'intérieur de la matrice, scrutaient nerveusement l'extérieur; au moindre mouvement, la panique les saisissait. Mais progressivement, ils réalisèrent que ces créatures n'erraient qu'à l'extérieur et n'osaient pas toucher le bouclier protecteur.
+Les gens, à l'intérieur de la matrice, scrutaient nerveusement l'extérieur; au moindre mouvement, la panique les saisissait. Mais progressivement, ils comprirent que ces créatures n'erraient qu'à l'extérieur et n'osaient pas toucher le bouclier protecteur.
 
 En constatant cela, un soupir de soulagement collectif parcourut la foule.
 

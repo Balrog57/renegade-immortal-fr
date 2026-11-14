@@ -50,7 +50,7 @@ Le Maître de la Secte Xun Luan était livide. Bien qu'il fût un cultivateur au
 
 « Dans la région de rang 7, la Secte Xun Luan n'est qu'une petite secte. S'opposer à un tel être pour un simple Ancien ne serait pas sage! » Ses yeux brillèrent et il se tourna vers l'Ancien principal. Ce dernier possédait une culture profonde, étant au stade intermédiaire du Briseur du Nirvana.
 
-Même l'Ancien principal perdit presque la raison en réalisant que Wang Lin était l'individu terrifiant qui avait dévasté la région de rang 7. Il avait vu personnellement Wang Lin utiliser l'Empreinte de l'Esprit Guerrier et savait qu'il n'était pas de taille. Sentant le regard de son Maître de Secte, ils comprirent instantanément leur situation, mais hésitèrent.
+Même l'Ancien principal perdit presque la raison en comprenant que Wang Lin était l'individu terrifiant qui avait dévasté la région de rang 7. Il avait vu personnellement Wang Lin utiliser l'Empreinte de l'Esprit Guerrier et savait qu'il n'était pas de taille. Sentant le regard de son Maître de Secte, ils comprirent instantanément leur situation, mais hésitèrent.
 
 Cependant, cette hésitation vola en éclats alors que Wang Lin avançait. La tragédie de la Secte Xian Yin était encore fraîche sous leurs yeux. Le Maître de la Secte serra les dents et s'écarta sur le côté. Simultanément, l'Ancien principal fit de même.
 

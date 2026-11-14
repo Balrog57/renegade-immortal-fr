@@ -32,7 +32,7 @@ Parmi la troisième génération de la famille Yao, seules deux personnes avaien
 
 Après avoir détourné son regard, elle fit un pas en avant et reprit la poursuite, l'expression glaciale.
 
-Cette traque dura dix jours. Wang Lin finit par réaliser que quelque chose n'allait pas et redoubla de prudence.
+Cette traque dura dix jours. Wang Lin finit par se rendre compte que quelque chose n'allait pas et redoubla de prudence.
 
 Durant ces dix jours, Yao Bingyun le suivit de près. En temps normal, avec son tempérament, elle ne se serait jamais mêlée des querelles familiales. Si elle en avait eu le choix, elle aurait préféré passer son temps en culture isolée pour contempler les cieux.
 

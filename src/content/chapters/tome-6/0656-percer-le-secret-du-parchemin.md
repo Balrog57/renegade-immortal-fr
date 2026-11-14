@@ -70,7 +70,7 @@ Il pouvait affronter tous ses ennemis avec impassibilité. Peu importe leur puis
 
 Cependant, il existait une force capable d'écraser ce calme!
 
-Ce n'est qu'après avoir perdu quelque chose que l'on réalise qu'on le désirait. Ce n'est qu'après avoir perdu quelque chose que l'on comprend qu'on tenait à le chérir...
+Ce n'est qu'après avoir perdu quelque chose que l'on se rend compte qu'on le désirait. Ce n'est qu'après avoir perdu quelque chose que l'on comprend qu'on tenait à le chérir...
 
 Si quelqu'un était toujours calme, rationnel et inébranlable, seraient-ils encore considérés comme des êtres humains? Wang Lin ne pouvait pas l'être.
 

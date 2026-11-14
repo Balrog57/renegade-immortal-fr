@@ -82,7 +82,7 @@ Song Qing et les autres anciens accoururent pour protéger Chen Bailiang.
 
 Le drapeau de restriction suivit de près le Royaume Ji, atteignant un autre cultivateur de l'Âme Naissante avant de l'encercler.
 
-L'expression du cultivateur était sombre, mais tant qu'il n'était pas confronté à l'éclair rouge, il ne craignait rien outre mesure. Mais juste au moment où il allait sortir du rideau noir, tout devint soudainement noir. Il réalisa qu'il venait d'entrer dans une sorte de restriction.
+L'expression du cultivateur était sombre, mais tant qu'il n'était pas confronté à l'éclair rouge, il ne craignait rien outre mesure. Mais juste au moment où il allait sortir du rideau noir, tout devint soudainement noir. Il comprit qu'il venait d'entrer dans une sorte de restriction.
 
 Tout cela se produisit avec une rapidité fulgurante. Presque au même instant où Wang Lin lança la foudre divine, il attaqua Chen Bailiang avec son Royaume Ji et piégea un autre cultivateur avec son drapeau.
 

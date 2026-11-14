@@ -14,7 +14,7 @@ Le Sens Divin du Royaume Ji surgit comme l'éclair et traversa chacune des âmes
 
 Le démon se détendit secrètement tout en fixant Wang Lin, mais il se plaignit intérieurement: « C'est trop! Ce sont toutes des âmes que j'ai réussi à arracher à l'esprit de cette maudite épée! Tôt ou tard, quoi qu'il arrive, je me battrai contre toi! Hmph, attends seulement que ma culture revienne à l'Âme Naissante! »
 
-Alors qu'il réfléchissait à la manière dont il se débarrasserait de Wang Lin une fois revenu au stade de l'Âme Naissante, son corps fut saisi par ce dernier et projeté en arrière dans le tendon du dragon. Le démon poussa quelques soupirs de frustration. L'envie de tout donner contre Wang Lin ressurgit, mais elle s'éteignit aussitôt lorsqu'il réalisa qu'il n'obtiendrait aucun résultat satisfaisant, même en brisant son noyau doré.
+Alors qu'il réfléchissait à la manière dont il se débarrasserait de Wang Lin une fois revenu au stade de l'Âme Naissante, son corps fut saisi par ce dernier et projeté en arrière dans le tendon du dragon. Le démon poussa quelques soupirs de frustration. L'envie de tout donner contre Wang Lin ressurgit, mais elle s'éteignit aussitôt lorsqu'il comprit qu'il n'obtiendrait aucun résultat satisfaisant, même en brisant son noyau doré.
 
 Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver. Repensant à la puissance du cultivateur à l'épée Xie Donglai, il sortit aussitôt des pierres spirituelles. Il allait les utiliser pour déployer sur lui plus d'une centaine de formations défensives de la carapace de tortue.
 

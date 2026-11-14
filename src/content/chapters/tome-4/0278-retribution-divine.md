@@ -50,7 +50,7 @@ Le visage de Wang Lin était pâle et sa main droite tremblait tandis qu'il rega
 
 Soudain, un éclair rouge jaillit des nuages. Cet éclair était d'une rapidité incroyable. Au moment précis où il apparut, il frappa la tour de glace. Ce filament d'éclair sembla déclencher le reste des nuages. Dans la masse nuageuse, l'électricité rouge s'assemblait pour former un éclair violet aussi épais qu'un bras, avant de s'abattre du ciel dans un fracas de tonnerre.
 
-La vieille femme était sur le point d'esquiver à l'intérieur de la tour de glace lorsqu'elle réalisa que ses environs étaient verrouillés par une force destructrice, la rendant incapable de tout mouvement.
+La vieille femme était sur le point d'esquiver à l'intérieur de la tour de glace lorsqu'elle se rendit compte que ses environs étaient verrouillés par une force destructrice, la rendant incapable de tout mouvement.
 
 Un regard de désespoir se lut sur son visage. Elle n'aurait jamais cru attirer la Tribulation Céleste alors qu'elle ne faisait que traquer un simple junior de l'Âme Naissante au stade avancé.
 
@@ -72,7 +72,7 @@ Soudain, la masse de nuages rouges en pleine dissipation commença à bouger à 
 
 L'homme d'âge moyen était extrêmement inquiet; il savait que c'était une opportunité rarissime. S'il la manquait, il ignorait s'il reverrait jamais une telle chance de sa vie.
 
-Pourtant, les nuages refusaient de se condenser et il ne put que les regarder se dissiper. C'était comme contempler une montagne d'or et d'argent devant soi, pour réaliser, au moment de la saisir, qu'un abîme infranchissable vous en séparait.
+Pourtant, les nuages refusaient de se condenser et il ne put que les regarder se dissiper. C'était comme contempler une montagne d'or et d'argent devant soi, pour comprendre, au moment de la saisir, qu'un abîme infranchissable vous en séparait.
 
 Anxieux, l'homme se mordit le doigt et traça des symboles de sang. Les symboles s'envolèrent un à un vers les nuages rouges.
 

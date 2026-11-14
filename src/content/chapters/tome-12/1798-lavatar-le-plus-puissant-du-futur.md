@@ -100,6 +100,6 @@ Simultanément, ses sept essences atteignirent leur apogée en un instant.
 
 Il pouvait vaguement ressentir qu'une autre version de lui-même existait dans ce monde. En ouvrant les yeux, Wang Lin entendit les cris de joie du Roi Moustique.
 
-Il vit le moustique excité et la structure géante, semblable à une coquille de pierre en forme de fruit. Un instant, il eut l'impression de voir son propre double!
+Il vit le moustique agité et la structure géante, semblable à une coquille de pierre en forme de fruit. Un instant, il eut l'impression de voir son propre double!
 
 « Ceci... Qu'est-ce que c'est... » Pendant un moment, l'esprit de Wang Lin fut plongé dans la confusion.

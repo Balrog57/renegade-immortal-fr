@@ -16,7 +16,7 @@ Le père de Tie Zhu eut soudain l'impression d'avoir vieilli de plus de dix ans 
 
 Tie Zhu se mordit les lèvres jusqu'au sang. Il s'effondra au sol et se prosterna plusieurs fois en frappant le sol du front. Il murmura: « Maman, Papa, Tie Zhu n'a pas été choisi par les immortels. Je suis désolé, je... Je vous revaudrai votre éducation dans une prochaine vie. »
 
-La mère de Tie Zhu réalisa que son fils sombrait dans le désespoir. Elle se précipita pour l'aider à se relever et lui murmura: « Mon enfant, ne t'inquiète pas. Et si tu n'as pas été choisi par les immortels? L'année prochaine, il y aura l'examen du district. Ne sois pas si dur envers toi-même. Et surtout, ne fais rien de stupide. Ton père et ta mère comptent encore sur ta présence à nos funérailles. »
+La mère de Tie Zhu comprit que son fils sombrait dans le désespoir. Elle se précipita pour l'aider à se relever et lui murmura: « Mon enfant, ne t'inquiète pas. Et si tu n'as pas été choisi par les immortels? L'année prochaine, il y aura l'examen du district. Ne sois pas si dur envers toi-même. Et surtout, ne fais rien de stupide. Ton père et ta mère comptent encore sur ta présence à nos funérailles. »
 
 Le père de Tie Zhu reprit ses esprits en comprenant l'état de détresse dans lequel se trouvait son fils. Le cœur serré, il courut vers lui et, le prenant dans ses bras, dit nerveusement: « Tie Zhu, ne fais surtout rien de stupide. Écoute ton père. Rentrons à la maison et travaillons dur pour l'examen du district de l'année prochaine. »
 

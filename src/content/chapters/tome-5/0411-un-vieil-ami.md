@@ -26,7 +26,7 @@ Wang Zhuo laissa échapper un sourire amer en regardant un autre membre de sa se
 
 En un instant, la météorite disparut et un homme aux longs cheveux flottants, vêtu de blanc, apparut, parcourant la distance en quelques pas seulement.
 
-Les expressions des quatre membres du Clan changèrent radicalement. Ils réalisèrent que cet homme vêtu de blanc dégageait une aura qui les faisait trembler; ils n'avaient ressenti un tel pouvoir que chez les chamans à sept feuilles ou plus de leur propre clan.
+Les expressions des quatre membres du Clan changèrent radicalement. Ils comprirent que cet homme vêtu de blanc dégageait une aura qui les faisait trembler; ils n'avaient ressenti un tel pouvoir que chez les chamans à sept feuilles ou plus de leur propre clan.
 
 « Transformation de l'Âme… » L'un des quatre membres du Clan Xian Yi trembla et s'exclama. Sans la moindre hésitation, il fit demi-tour et s'enfuit. Les trois autres le suivirent précipitamment.
 

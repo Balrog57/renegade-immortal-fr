@@ -34,7 +34,7 @@ Toutefois, ses seules connaissances ne lui permettaient pas de savoir s'il y par
 
 Wang Lin chercha pendant sept jours selon les indications de la carte avant de finalement découvrir un autre ancien réseau de transfert. Ce réseau se trouvait dans un canyon; des bêtes démoniaques rôdaient alentour, mais la bête moustique les élimina et l'endroit fut bientôt dégagé.
 
-Ce qui surprit le plus Wang Lin fut l'état de ce réseau: il était parfaitement intact. Après l'avoir étudié un moment, son regard se posa sur une section spécifique. Cette partie était nettement différente des autres. Wang Lin fut stupéfait; il réalisa que cette section avait été ajoutée ultérieurement par quelqu'un ayant réparé cet ancien réseau.
+Ce qui surprit le plus Wang Lin fut l'état de ce réseau: il était parfaitement intact. Après l'avoir étudié un moment, son regard se posa sur une section spécifique. Cette partie était nettement différente des autres. Wang Lin fut stupéfait; il comprit que cette section avait été ajoutée ultérieurement par quelqu'un ayant réparé cet ancien réseau.
 
 Wang Lin réfléchit. Il ne parvenait pas à deviner qui avait réparé ce réseau de transfert. Son but était-il le même que le sien, partir par téléportation?
 

@@ -42,7 +42,7 @@ Des caractères étaient gravés sur ce crâne, émettant une lueur froide et un
 
 « Vous... Quelle méthode avez-vous conçue... » Le gaz noir autour de Tian Yunzi continuait de bouillonner. Face au calme imperturbable de Wang Lin, ses paroles ne firent qu'emplir son cœur d'effroi.
 
-Il réalisa que tout ce qu'il savait était désormais bien différent. Il sentit soudain une calamité s'abattre sur lui en entendant Wang Lin évoquer cette idée folle et cette méthode.
+Il comprit que tout ce qu'il savait était désormais bien différent. Il sentit soudain une calamité s'abattre sur lui en entendant Wang Lin évoquer cette idée folle et cette méthode.
 
 Wang Lin fixa calmement Tian Yunzi.
 

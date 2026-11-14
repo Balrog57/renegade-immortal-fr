@@ -42,7 +42,7 @@ Quant au jeune homme en robe bleue qui ne semblait pas appartenir à la Secte Da
 
 Hormis ces trois-là, la femme nommée Qian Qin affichait une expression troublante, partagée entre l'angoisse et la lutte intérieure.
 
-La culture et la force mentale de ces jeunes disciples n'étaient pas comparables à celles des deux anciens. Bien que ces derniers aient été profondément ébranlés en réalisant que la situation avait dégénéré, leurs expressions restaient calmes, ne laissant paraître qu'une mine plutôt sombre.
+La culture et la force mentale de ces jeunes disciples n'étaient pas comparables à celles des deux anciens. Bien que ces derniers aient été profondément ébranlés en comprenant que la situation avait dégénéré, leurs expressions restaient calmes, ne laissant paraître qu'une mine plutôt sombre.
 
 L'expression de Wang Lin demeurait sereine tandis que son regard les balayait un à un. Puis, d'un geste nonchalant, il pointa le vide; des mèches de gaz gris jaillirent alors des restes de chair éparpillés dans la vallée pour se rassembler promptement.
 

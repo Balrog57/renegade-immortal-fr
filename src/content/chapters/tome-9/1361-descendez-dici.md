@@ -58,7 +58,7 @@ La terre sainte vibrait comme si des dragons s'agitaient sous la terre. Des brui
 
 Le tonnerre éternel à l'intérieur du temple avait été considérablement affaibli. Au moment où le dragon de tonnerre de Wang Lin brisa la formation, un fracas tonitruant jaillit du tonnerre éternel. Une tempête d'éclairs éclata dans le temple, le déchirant en morceaux qui se dispersèrent dans toutes les directions.
 
-À l'instant où le temple s'effondra, le tonnerre éternel sembla réaliser qu'il était en danger et commença à rétrécir! Puis, il s'élança vers le vide infini!
+À l'instant où le temple s'effondra, le tonnerre éternel sembla comprendre qu'il était en danger et commença à rétrécir! Puis, il s'élança vers le vide infini!
 
 Un vortex géant apparut dans le vide lointain. Le vortex était enveloppé de tonnerre, et le tonnerre éternel se dirigeait droit vers son centre!
 

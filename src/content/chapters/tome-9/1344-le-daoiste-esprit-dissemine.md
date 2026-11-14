@@ -62,7 +62,7 @@ Une fois cela fait, l'aura entourant le jeune homme se rétracta en son corps et
 
 Les yeux de Wang Lin brillèrent d'intérêt et il s'avança à son tour, traversant le vide aux côtés du jeune homme chauve.
 
-« Ce vieil homme a atteint le stade de la Formation de l'Âme et a compris les lois des cieux dès l'âge de cent ans. Après avoir observé plusieurs Tribulations Célestes, j'ai réalisé que les soi-disant Célestes n'étaient pas ce que nos ancêtres nous avaient décrit... À cause de ce doute, j'avais supprimé ma culture pour ne pas atteindre le sommet du stade de la Formation de l'Âme. Au lieu de cela, je cherchais secrètement la vérité... » Le jeune homme marchait en tête et, à chaque pas, il traversait un monde, s'enfonçant dans les profondeurs des 7 Millions de Mondes.
+« Ce vieil homme a atteint le stade de la Formation de l'Âme et a compris les lois des cieux dès l'âge de cent ans. Après avoir observé plusieurs Tribulations Célestes, j'ai compris que les soi-disant Célestes n'étaient pas ce que nos ancêtres nous avaient décrit... À cause de ce doute, j'avais supprimé ma culture pour ne pas atteindre le sommet du stade de la Formation de l'Âme. Au lieu de cela, je cherchais secrètement la vérité... » Le jeune homme marchait en tête et, à chaque pas, il traversait un monde, s'enfonçant dans les profondeurs des 7 Millions de Mondes.
 
 Wang Lin gardait une expression sereine tout en voyageant avec lui à travers les mondes. À cet instant, des capitales mortelles, des pans entiers de l'espace, et même la pluie printanière ou le vent d'automne défilaient sans cesse autour d'eux.
 

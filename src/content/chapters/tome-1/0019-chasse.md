@@ -12,7 +12,7 @@ Wang Lin ricana intérieurement, mais afficha un visage d'innocence en disant: �
 
 Sun Dazhu en eut le vertige. Il fixa Wang Lin intensément pendant un long moment. Il commença à douter: ces gourdes étaient-elles aussi nombreuses qu'il l'avait supposé, ou n'y en avait-il qu'une, que ce gamin stupide avait ramassée par pur hasard?
 
-Après réflexion, il réalisa que les propos de Wang Lin étaient cohérents. Ce n'est qu'en atteignant le premier niveau de la Condensation de Qi que l'on peut déceler l'énergie spirituelle environnante. En y songeant, il regretta d'avoir introduit des substances dans sa nourriture. Le talent de ce gamin était déjà médiocre, et avec ce médicament, il lui faudrait au moins trente à cinquante ans avant d'atteindre le premier niveau de la Condensation de Qi.
+Après réflexion, il comprit que les propos de Wang Lin étaient cohérents. Ce n'est qu'en atteignant le premier niveau de la Condensation de Qi que l'on peut déceler l'énergie spirituelle environnante. En y songeant, il regretta d'avoir introduit des substances dans sa nourriture. Le talent de ce gamin était déjà médiocre, et avec ce médicament, il lui faudrait au moins trente à cinquante ans avant d'atteindre le premier niveau de la Condensation de Qi.
 
 Sun Dazhu soupira, mais il n'était pas prêt à renoncer. Il sortit avec hésitation une pierre spirituelle de faible qualité et la lança à Wang Lin. « Voici la pierre spirituelle de faible qualité promise. Utilise-la pour cultiver et cherche à atteindre rapidement le premier niveau de la Condensation de Qi. »
 

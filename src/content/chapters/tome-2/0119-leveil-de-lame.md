@@ -56,13 +56,13 @@ C'est grâce à cela qu'il avait pu dévorer toutes ces créatures aussi mystér
 
 Situ Nan n'était pas mort, mais était entré dans un état de sommeil permanent. La dernière chose qu'il fit avant de sombrer fut d'envelopper les âmes des parents de Wang Lin avec son Âme Naissante pour s'endormir à leurs côtés. Les parents de Wang Lin n'étant pas des cultivateurs, ils n'avaient aucune chance d'être ressuscités ou de posséder un corps; Wang Lin voulait simplement les garder près de lui pour qu'ils ne disparaissent pas.
 
-Une fois tous ses souvenirs retrouvés, il réalisa que son Sens Divin était devenu immense. Le corps du géant semblait incapable de supporter une telle puissance et commença à se désintégrer.
+Une fois tous ses souvenirs retrouvés, il comprit que son Sens Divin était devenu immense. Le corps du géant semblait incapable de supporter une telle puissance et commença à se désintégrer.
 
 Impuissant, Wang Lin quitta le corps du géant. Le froid revint une fois de plus. Il flotta dans l'espace, cherchant un nouveau corps à posséder. Ce processus de voyage à travers le vide pour trouver un cadavre dura très longtemps. De même, les créatures mystérieuses continuaient d'affluer pour être dévorées.
 
 Son Sens Divin devint encore plus vaste. Dévorer ces entités était progressivement devenu une habitude pour Wang Lin. Peu à peu, il passa de la dévoration passive à l'attaque active.
 
-On pourrait dire que Wang Lin était resté ici trop longtemps. Assez longtemps pour fouiller ses propres souvenirs à maintes reprises et analyser tout ce qu'il avait accompli. Lorsqu'il eut fini, il réalisa qu'il n'avait plus rien à faire. C'est alors qu'il se souvint soudainement du livre de formations qu'il avait obtenu.
+On pourrait dire que Wang Lin était resté ici trop longtemps. Assez longtemps pour fouiller ses propres souvenirs à maintes reprises et analyser tout ce qu'il avait accompli. Lorsqu'il eut fini, il comprit qu'il n'avait plus rien à faire. C'est alors qu'il se souvint soudainement du livre de formations qu'il avait obtenu.
 
 Il en rappela immédiatement le contenu et se mit à le déduire sans relâche. Lorsqu'il eut parfaitement maîtrisé les formations de base, il retomba dans l'ennui.
 

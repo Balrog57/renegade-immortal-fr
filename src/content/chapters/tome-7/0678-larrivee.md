@@ -79,7 +79,7 @@ Les yeux de Liu Mei ne montraient qu'une pointe d'indifférence, comme si rien a
 
 Dans une ville située dans la partie sud de la planète Ran Yun, un jeune homme était assis dans une demeure. Ce jeune homme ressemblait trait pour trait à Sun Xi, et son visage était empreint d'une profonde amertume.
 
-Depuis quatre ans, après avoir réalisé qu'ils avaient commis une erreur fatale en tuant un membre de la famille Huan, les trois s'étaient consacrés entièrement au raffinage de clones. Ils n'avaient pas utilisé de méthodes spéciales, et ces clones étaient si faibles qu'ils étaient incapables de combattre. Cependant, c'était tout de même un moyen de survie.
+Depuis quatre ans, après avoir compris qu'ils avaient commis une erreur fatale en tuant un membre de la famille Huan, les trois s'étaient consacrés entièrement au raffinage de clones. Ils n'avaient pas utilisé de méthodes spéciales, et ces clones étaient si faibles qu'ils étaient incapables de combattre. Cependant, c'était tout de même un moyen de survie.
 
 L'ancêtre de la famille Ran avait secrètement affiné un clone pendant des centaines d'années, atteignant un niveau lui permettant de quitter la planète. Il s'était échappé avec les autres membres du clan en secret il y a deux ans. Quant à Xiaoyao Sanren, ses capacités étaient plus limitées; il ne pouvait pas diviser son âme originelle pour créer un clone, mais il possédait d'autres moyens dont personne à l'extérieur ne connaissait la nature exacte.
 

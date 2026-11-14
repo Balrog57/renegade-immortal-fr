@@ -42,7 +42,7 @@ Par conséquent, il pouvait utiliser le lien avec son propre sang pour localiser
 
 « Tomber entre les mains de ton Grand-père Xu est une bénédiction pour toi! Ton Grand-père Xu est seul depuis des milliers d'années, il ne te tuera pas. Mon petit précieux Jinbiao, sois sans crainte, ton Grand-père Xu ne sera pas trop cruel... »
 
-Ces cris déchirants s'élevaient à tour de rôle, d'une horreur inhumaine... Wang Lin fronça les sourcils et laissa échapper une toux sèche. Alors que sa toux résonnait dans l'espace de stockage, les cris s'arrêtèrent brusquement. Peu après, la voix excitée de Xu Liguo retentit et il jaillit de l'espace de stockage tel un trait de lumière noire.
+Ces cris déchirants s'élevaient à tour de rôle, d'une horreur inhumaine... Wang Lin fronça les sourcils et laissa échapper une toux sèche. Alors que sa toux résonnait dans l'espace de stockage, les cris s'arrêtèrent brusquement. Peu après, la voix exaltée de Xu Liguo retentit et il jaillit de l'espace de stockage tel un trait de lumière noire.
 
 Xu Liguo tenait un homme. Ses vêtements étaient en lambeaux, comme s'il venait d'être violé, et il paraissait extrêmement hagard. Ses yeux étaient pétrifiés par l'horreur alors que Xu Liguo le présentait devant Wang Lin.
 

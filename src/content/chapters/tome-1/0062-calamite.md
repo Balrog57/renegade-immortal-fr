@@ -30,7 +30,7 @@ Wang Lin fut stupéfait. Il reposa le jade et en saisit un autre.
 
 « Technique du Tonnerre des Neuf Cieux. »
 
-« Mais c'est quoi cette ordure? Ce n'est clairement qu'une médiocre technique de tonnerre. Pourquoi lui donner un nom aussi impressionnant? Quelle horreur! »
+« Mais qu'est-ce que c'est que cette ordure? Ce n'est clairement qu'une médiocre technique de tonnerre. Pourquoi lui donner un nom aussi impressionnant? Quelle horreur! »
 
 « Invocation Immortelle. »
 

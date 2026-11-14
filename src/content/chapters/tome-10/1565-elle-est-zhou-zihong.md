@@ -24,7 +24,7 @@ Ses paroles provoquèrent un tollé parmi les cultivateurs environnants.
 
 « Plus le niveau de culture est bas, plus l'écart entre les gens est faible. Bien que la différence ne soit pas grande, les sorts et les trésors qu'un cultivateur de l'Établissement des Fondations peut utiliser sont très limités. Je ne m'attendais pas à ce que le Seigneur du Royaume Scellé soit déjà aussi puissant à cette époque; il n'est pas étonnant qu'il ait pu renverser la situation dans la Mer Yun! »
 
-Tandis qu'ils débattaient, l'homme en blanc qui venait d'entrer se frotta le nez et s'approcha du cultivateur en noir. Il adressa un sourire gracieux au cultivateur excité et posa sa main sur lui. Il pressa le cultivateur en noir, qui s'apprêtait à se lever, pour le contraindre à rester assis.
+Tandis qu'ils débattaient, l'homme en blanc qui venait d'entrer se frotta le nez et s'approcha du cultivateur en noir. Il adressa un sourire gracieux au cultivateur agité et posa sa main sur lui. Il pressa le cultivateur en noir, qui s'apprêtait à se lever, pour le contraindre à rester assis.
 
 « Maître... » Le cultivateur en noir était Treize. Ses yeux brillaient d'excitation et son esprit était embrumé. Wang Lin était apparu si soudainement que Treize n'avait eu aucun avertissement.
 

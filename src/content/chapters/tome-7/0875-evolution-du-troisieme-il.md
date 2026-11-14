@@ -30,7 +30,7 @@ Quant au deuxième essai, la raison pour laquelle Xu Mu avait pu dévorer l'espr
 
 Cependant, à cet instant, ses yeux brillaient d'un éclat inédit. Il fit trois pas en avant et fixa Wang Lin. C'était comme si quelque chose rugissait dans son cœur.
 
-« Une respiration! Ce Xu Mu a pu entrer dans cet état en seulement une respiration! » Même avec la force mentale de Lie Yunzi, il était excité. Dans toute l'histoire de la famille Zhan, personne n'avait été capable d'entrer dans cet état en une respiration. Même son ancêtre, doté d'un talent défiant le ciel, avait mis deux respirations!
+« Une respiration! Ce Xu Mu a pu entrer dans cet état en seulement une respiration! » Même avec la force mentale de Lie Yunzi, il était transporté. Dans toute l'histoire de la famille Zhan, personne n'avait été capable d'entrer dans cet état en une respiration. Même son ancêtre, doté d'un talent défiant le ciel, avait mis deux respirations!
 
 À cet instant, Lie Yunzi avait déjà oublié Xu Ting. Toutes ses pensées étaient désormais occupées par Wang Lin!
 

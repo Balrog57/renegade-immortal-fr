@@ -62,7 +62,7 @@ Au moment où elle apparut au-dessus du palais, huit regards semblèrent l'obser
 
 Le corps de la jeune fille trembla, puis elle tira la langue. Ces huit regards appartenaient aux huit commandants en chef, et plusieurs d'entre eux affichaient un léger sourire.
 
-Wang Lin observait la suite de la compétition quand il ressentit soudainement quelque chose. Il entretenait un lien avec Xu Liguo, qui se trouvait à l'intérieur de l'épée céleste. Après tout, Xu Liguo avait été personnellement affiné par Wang Lin. À cet instant, Xu Liguo ne restait pas sagement dans l'épée céleste, mais hurlait dans l'esprit de Wang Lin sur un ton extrêmement excité.
+Wang Lin observait la suite de la compétition quand il ressentit soudainement quelque chose. Il entretenait un lien avec Xu Liguo, qui se trouvait à l'intérieur de l'épée céleste. Après tout, Xu Liguo avait été personnellement affiné par Wang Lin. À cet instant, Xu Liguo ne restait pas sagement dans l'épée céleste, mais hurlait dans l'esprit de Wang Lin sur un ton extrêmement exalté.
 
 « Maître! Laissez-moi sortir! Mon printemps est enfin arrivé! Vite, laissez-moi sortir! »
 

@@ -22,7 +22,7 @@ D'innombrables éclairs se formèrent là où l'âme originelle de Wang Lin avai
 
 « Tu veux obtenir mon corps de sang? Tu te surestimes! » Les yeux de Xue Zu se rétrécirent alors que sa main traçait un sceau, une lumière sanguine recouvrant son corps. La pluie d'éclairs ne pénétra pas cette protection de sang, mais tourbillonna autour d'elle.
 
-Xue Zu fut stupéfait. Son expression changea lorsqu'il réalisa que quelque chose n'allait pas, mais il était trop tard. Les éclairs de la Tribulation Céleste qui poursuivaient Wang Lin s'abattirent désormais avec fureur sur Xue Zu.
+Xue Zu fut stupéfait. Son expression changea lorsqu'il comprit que quelque chose n'allait pas, mais il était trop tard. Les éclairs de la Tribulation Céleste qui poursuivaient Wang Lin s'abattirent désormais avec fureur sur Xue Zu.
 
 « Wang Lin! » Xue Zu serra les dents alors que la lumière de sang brillait intensément, repoussant immédiatement l'âme originelle de Wang Lin. Cependant, durant ce processus, les éclairs de la Tribulation Céleste continuèrent de tomber. Ils traversèrent l'âme originelle de Wang Lin pour frapper directement Xue Zu. Ce dernier recula précipitamment, voulant quitter ces nuages de Tribulation Céleste.
 

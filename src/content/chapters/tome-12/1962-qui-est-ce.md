@@ -102,7 +102,7 @@ Le Grand Empyréen Wu Feng restait calme, mais un sourire apparut au coin de ses
 
 Ce mouvement fut vu par tous, et les cultivateurs s'écrièrent soudainement:
 
-« Encore neuf respirations pour franchir un palais. Ce Wang Lin n'est définitivement pas celui que nous pensions! »
+« Encore neuf respirations pour franchir un palais. Ce Wang Lin n'est assurément pas celui que nous pensions! »
 
 « Cet homme possède une culture puissante et est hors de notre portée. Il cachait clairement sa force pour ne pas trop se mettre en avant. S'il n'avait pas été poussé par l'Empereur Céleste, il n'aurait jamais tenté d'aller plus loin! »
 

@@ -58,7 +58,7 @@ Après une courte réflexion, Wang Lin s'engagea sur le petit sentier entre les 
 
 En progressant, Wang Lin observa la surface des deux montagnes qui bordaient ce passage étroit. Des zones humides marquaient les parois lisses, et parfois, des gouttes d'eau s'en écoulaient.
 
-Après avoir parcouru plusieurs centaines de pieds, l'expression de Wang Lin changea: il réalisa que quelque chose clochait! Il examina attentivement les parois rocheuses et ses yeux s'illuminèrent.
+Après avoir parcouru plusieurs centaines de pieds, l'expression de Wang Lin changea: il comprit que quelque chose clochait! Il examina attentivement les parois rocheuses et ses yeux s'illuminèrent.
 
 « Si cet endroit est humide toute l'année, de la mousse devrait y pousser. Après tout, le reste du lieu ressemble à la planète extérieure. Pourtant, ici, on dirait que l'humidité n'est apparue que récemment! »
 

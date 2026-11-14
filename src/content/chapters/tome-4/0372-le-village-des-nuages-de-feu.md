@@ -106,7 +106,7 @@ Wang Lin ouvrit les yeux, retrouvant soudainement toute sa lucidité.
 
 Un cri misérable retentit au loin, mais il n'atteignit la prison que sous la forme d'un écho ténu. Cependant, dans ce silence de mort, le cri semblait résonner éternellement.
 
-Depuis que Wang Lin avait perdu toute son énergie spirituelle et que son âme originelle s'était effondrée, ses yeux ne pouvaient plus tout percer comme autrefois. Bien que l'obscurité soit totale, il réalisa qu'il était enfermé dans un espace exigu. Ses bras étaient liés et son corps pendait dans l'eau glacée.
+Depuis que Wang Lin avait perdu toute son énergie spirituelle et que son âme originelle s'était effondrée, ses yeux ne pouvaient plus tout percer comme autrefois. Bien que l'obscurité soit totale, il se rendit compte qu'il était enfermé dans un espace exigu. Ses bras étaient liés et son corps pendait dans l'eau glacée.
 
 L'eau, dont il ne pouvait deviner la couleur, lui montait jusqu'au cou et dégageait une odeur fétide qui provoquait la nausée. L'eau était mouvante et de petites vagues venaient parfois lui éclabousser la bouche et le nez, et baigner ses blessures. Wang Lin retint son souffle et releva la tête. Il se sentait comme scellé au fond d'un puits. Une fois les cris finis, le silence d'une tombe retomba sur les lieux.
 

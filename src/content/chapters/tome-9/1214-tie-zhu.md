@@ -72,7 +72,7 @@ Les yeux de Wang Lin trahirent une trace de confusion. Ne sachant que faire, il 
 
 « Deuxième frère, belle-sœur, je dois vous annoncer quelque chose. La Secte Heng Yue recrute des disciples. Je veux que Tie Zhu tente sa chance. Une fois entré dans la secte, il deviendra un immortel. C'est une opportunité extrêmement rare. »
 
-« Un... Immortel? Est-ce possible pour cet enfant? » Le père de Wang Lin était excité mais incertain.
+« Un... Immortel? Est-ce possible pour cet enfant? » Le père de Wang Lin était fébrile mais incertain.
 
 « Les immortels acceptent des disciples et il y a une sorte d'épreuve. Laissez Tie Zhu la passer. »
 

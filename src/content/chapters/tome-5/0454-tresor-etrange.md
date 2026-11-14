@@ -64,7 +64,7 @@ Xu Liguo lui ouvrait la voie. Toutes les épées de trésor qu'ils croisaient so
 
 La scène était singulière; c'était comme si toutes ces épées de trésor redoutaient Xu Liguo. Les yeux de Wang Lin pétillaient alors qu'il observait ce spectacle avec calme et continuait d'avancer.
 
-Xu Liguo était surexcité, poussant des rugissements de triomphe. Il volait ici et là avec l'épée céleste, laissant échapper des cris enthousiastes.
+Xu Liguo était exalté, poussant des rugissements de triomphe. Il volait ici et là avec l'épée céleste, laissant échapper des cris enthousiastes.
 
 Une à une, les épées de trésor émergèrent des bassins pour se rassembler autour du bassin central. Une fois là, elles cessèrent de fuir et restèrent en lévitation, dégageant une puissante intention d'épée et une aura glaciale.
 

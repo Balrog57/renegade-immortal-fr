@@ -44,7 +44,7 @@ Cette figure n'était pas humaine, mais celle d'une bête féroce ressemblant à
 
 Un instant plus tard, la bête féroce leva soudainement la tête, révélant un regard sauvage. Elle bondit au-dessus des quatre généraux et chargea en avant.
 
-Des grondements de tonnerre résonnèrent et les quatre généraux, excités, se mirent à sa suite. Les yeux du Vieux Fantôme Zhan s'illuminèrent; il peinait à dissimuler son impatience alors qu'il la suivait.
+Des grondements de tonnerre résonnèrent et les quatre généraux, enfiévrés, se mirent à sa suite. Les yeux du Vieux Fantôme Zhan s'illuminèrent; il peinait à dissimuler son impatience alors qu'il la suivait.
 
 La bête géante continuait de renifler en avançant. Finalement, elle arriva devant un continent abandonné et commença à rugir contre lui.
 

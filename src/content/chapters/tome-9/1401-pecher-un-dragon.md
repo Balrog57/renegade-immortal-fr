@@ -114,7 +114,7 @@ Le vieil homme resta debout près de lui et l'examina, affichant un sourire sati
 
 « Il devrait être la sixième génération de Suzaku de mon clan... Pas mal, vraiment pas mal! » Plus il l'observait, plus sa joie grandissait. Il s'accroupit même pour lui pincer les joues, puis tapota soigneusement le corps de Wang Lin.
 
-« Oui, c'est définitivement un membre de mon Clan Suzaku et non une création de notre ennemi. Cependant, le corps de ce petit est en fait celui d'un Dieu Ancien... Haha, pas mal, pas mal du tout! » L'excitation brillait dans les yeux du vieil homme.
+« Oui, c'est assurément un membre de mon Clan Suzaku et non une création de notre ennemi. Cependant, le corps de ce petit est en fait celui d'un Dieu Ancien... Haha, pas mal, pas mal du tout! » L'excitation brillait dans les yeux du vieil homme.
 
 « Le quatrième Suzaku était trop frivole et ne pouvait cultiver mon sortilège. Le sixième semble plutôt froid et devrait être capable de... » Alors qu'il continuait à tâter le corps de Wang Lin, il s'interrompit brusquement.
 

@@ -48,7 +48,7 @@ Ils virent Wang Lin s'approcher pour saisir la pierre de jade du troisième viei
 
 Son regard se posa sur le dernier ancien. Une intention meurtrière fulgurante brilla dans les yeux de Wang Lin.
 
-« Celui qui raffine un trésor avec des âmes de bébés ne peut être pardonné! » Le dernier vieillard était celui qui avait projeté les sept perles de jade, et ses yeux étaient pétris de terreur. Wang Lin était bien plus puissant que ce qu'il imaginait d'un cultivateur du Purificateur du Nirvana. S'ils avaient su qu'il était aussi redoutable, ils n'auraient jamais osé faire preuve d'une telle arrogance. Ils n'avaient pas réalisé qu'ils avaient provoqué un être aussi terrifiant.
+« Celui qui raffine un trésor avec des âmes de bébés ne peut être pardonné! » Le dernier vieillard était celui qui avait projeté les sept perles de jade, et ses yeux étaient pétris de terreur. Wang Lin était bien plus puissant que ce qu'il imaginait d'un cultivateur du Purificateur du Nirvana. S'ils avaient su qu'il était aussi redoutable, ils n'auraient jamais osé faire preuve d'une telle arrogance. Ils ne s'étaient pas rendu compte qu'ils avaient provoqué un être aussi terrifiant.
 
 Pourtant, une lueur d'espoir le traversa: bien que Wang Lin ait détruit les corps de ses compagnons, il n'avait pas endommagé leurs âmes originelles. Cela signifiait que Wang Lin devait également craindre le Royaume Kun Xu. Mais les paroles de ce dernier firent trembler son cœur.
 

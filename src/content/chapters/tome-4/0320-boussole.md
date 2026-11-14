@@ -16,7 +16,7 @@ Sur ce, il s'envola rapidement au loin et cessa de parler de piéger Wang Lin.
 
 Wang Lin resta sur place, regardant froidement Sun Tai disparaître à l'horizon. Ce n'est qu'une fois celui-ci parti que Wang Lin se détendit enfin un peu.
 
-Le niveau de culture de ce Sun Tai était trop élevé. Ce type d'esclave était une chose que Wang Lin ne voudrait jamais avoir. Il semblait même que Zhou Yi n'ait pas réalisé que Sun Tai possédait une quatrième âme.
+Le niveau de culture de ce Sun Tai était trop élevé. Ce type d'esclave était une chose que Wang Lin ne voudrait jamais avoir. Il semblait même que Zhou Yi ne se soit pas rendu compte que Sun Tai possédait une quatrième âme.
 
 Wang Lin pensa secrètement: « Même s'il possède une quatrième âme, si sa troisième âme venait à mourir, son niveau de culture chuterait considérablement. Cela pourrait même laisser une blessure cachée. Sinon, Sun Tai ne se serait pas laissé effrayer par mes simples paroles. » Il se retourna et s'envola vers Chi Hu et la boussole.
 

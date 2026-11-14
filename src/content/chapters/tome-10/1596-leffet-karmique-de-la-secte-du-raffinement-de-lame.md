@@ -38,7 +38,7 @@ Il se massa le front et regarda Da Fu. En voyant le sourire de ce dernier, il se
 
 « Tu es puissant. C'est toi qui, en rêve, es monté au palais céleste pour faire disparaître l'orage, d'accord? »
 
-Da Fu devint tout excité et se sentit encore plus fier.
+Da Fu devint tout exalté et se sentit encore plus fier.
 
 Le temps passa rapidement. L'examen impérial du comté devait se tenir dans cinq jours. Tous les érudits venus pour l'épreuve attendaient avec impatience la fin de ce délai. Le matin du sixième jour, le ciel était toujours radieux et tous les candidats sortirent des diverses auberges en hâte vers les différents centres d'examen.
 

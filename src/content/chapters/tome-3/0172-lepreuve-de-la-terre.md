@@ -26,7 +26,7 @@ Ces tours attiraient surtout le regard car elles étaient entièrement taillées
 
 L'épée volante marqua une pause ici avant de repartir à travers le vortex pour revenir dans la main de Wang Lin.
 
-À l'extérieur du vortex géant, Wang Lin ouvrit les yeux, retira son Sens Divin de l'épée et la rangea dans son sac de rangement. Après une courte réflexion, il sortit le tendon de dragon et le secoua; le démon en jaillit immédiatement. Excité, il fixa Wang Lin et hurla: « Qui allons-nous tuer cette fois?... Hein... mais c'est quoi cet endroit? » Le démon, jusque-là surexcité, fut soudainement décontenancé par ce qu'il vit.
+À l'extérieur du vortex géant, Wang Lin ouvrit les yeux, retira son Sens Divin de l'épée et la rangea dans son sac de rangement. Après une courte réflexion, il sortit le tendon de dragon et le secoua; le démon en jaillit immédiatement. Impatient, il fixa Wang Lin et hurla: « Qui allons-nous tuer cette fois?... Hein... mais c'est quoi cet endroit? » Le démon, jusque-là enfiévré, fut soudainement décontenancé par ce qu'il vit.
 
 Il vola rapidement dans les environs, scruta le vortex géant, puis reporta son regard sur Wang Lin. Il se frotta les mains et dit avec prudence: « Toi... ne me dis pas que tu veux que j'entre là-dedans? Non, c'est impossible! Absolument impossible! »
 

@@ -50,7 +50,7 @@ Durant ces sept jours, quatre personnes parmi les disciples de la secte extérie
 
 Parmi elles se trouvait un vieil homme aux cheveux gris au stade avancé de la Formation du Noyau. Tous ceux qu'il croisait étaient tués par la même technique: il lui suffisait de pointer du doigt son adversaire, de prononcer le mot « meurs », et l'ennemi s'effondrait, mort.
 
-En voyant cette technique, Wang Lin pensa immédiatement au Royaume Ji et fut frappé de stupeur. Cependant, en y regardant de plus près, il réalisa que ce sort différait du Royaume Ji.
+En voyant cette technique, Wang Lin pensa immédiatement au Royaume Ji et fut frappé de stupeur. Cependant, en y regardant de plus près, il comprit que ce sort différait du Royaume Ji.
 
 « Un sort de la mort? » Après réflexion, Wang Lin en devina le nom. Dans la Mer Xiu Mo, son propre Royaume Ji avait été confondu avec un tel sort; c'est ainsi qu'il l'avait appris. Ce sort de la mort était extrêmement difficile à cultiver. En cinq cents ans de culture, c'était la première fois qu'il en voyait un.
 

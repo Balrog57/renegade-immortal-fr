@@ -16,7 +16,7 @@ Si cela avait été son seul trait, cela n'aurait pas été surprenant, mais tou
 
 Trop de gens voulaient percer son secret, déclenchant ainsi un bain de sang. Peu importait le nombre d'assaillants, et même lorsque certains vieux monstres qui ne s'impliquaient d'ordinaire jamais dans de telles affaires se mirent en mouvement, aucun ne parvint à trouver la moindre trace de Liu Wen. C'était comme s'il pouvait prédire tous les dangers et les éviter!
 
-Plus tard, réalisant qu'il ne pourrait résister à tous par sa seule puissance, il disparut. Il devint une légende étrange dans l'ancien monde de la culture. Ce n'est que bien plus tard que les gens comprirent qu'il avait dû pénétrer dans l'un des trois grands royaumes. Cela ne pouvait être le Royaume Ji; il devait s'agir du Royaume Dao ou du Royaume Shi.
+Plus tard, comprenant qu'il ne pourrait résister à tous par sa seule puissance, il disparut. Il devint une légende étrange dans l'ancien monde de la culture. Ce n'est que bien plus tard que les gens comprirent qu'il avait dû pénétrer dans l'un des trois grands royaumes. Cela ne pouvait être le Royaume Ji; il devait s'agir du Royaume Dao ou du Royaume Shi.
 
 Quant à savoir lequel, après avoir recoupé tous les événements, ils déterminèrent que c'était le Royaume Shi!
 

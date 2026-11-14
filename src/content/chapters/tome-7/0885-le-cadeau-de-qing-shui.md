@@ -30,7 +30,7 @@ Privée d'injection de force vitale, l'Âme Naissante de Li Muwan commença à s
 
 « Continue d'absorber ma durée de vie... » Wang Lin regarda Li Muwan d'un regard empreint de douceur. Cette femme l'avait attendu pendant des centaines d'années pour une simple promesse.
 
-Seule cette femme avait réussi à s'immiscer dans son cœur au cours de ces mille ans de culture. Pourtant, ce n'est qu'après son départ, alors qu'il n'avait plus que des souvenirs pour l'accompagner dans sa solitude, qu'il réalisa qu'il s'était toujours soucié d'elle.
+Seule cette femme avait réussi à s'immiscer dans son cœur au cours de ces mille ans de culture. Pourtant, ce n'est qu'après son départ, alors qu'il n'avait plus que des souvenirs pour l'accompagner dans sa solitude, qu'il comprit qu'il s'était toujours soucié d'elle.
 
 Il la regarda, se remémorant les instants de vie ou de mort et la tristesse d'être sans foyer...
 

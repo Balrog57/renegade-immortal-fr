@@ -32,7 +32,7 @@ Le regard de l'homme en noir s'illumina: « Très puissant! »
 
 Un rayon de lumière apparut à l'horizon et se mua en un jeune homme vêtu de blanc. Son apparence était ordinaire, sans rien de particulier. Il flottait dans les airs sans même accorder un regard aux quatre personnes en dessous de lui. Il observa froidement les nuages, puis fit un pas.
 
-« C'est lui! » Le jeune homme en robe rouge fut frappé de stupeur en le voyant, et une pointe de peur apparut dans ses yeux. Il réalisa que la culture de cet individu avait déjà atteint le stade Ascendant! Ses pensées s'emballèrent avant qu'il ne reprenne son sourire: « Junior frère Wang, veuillez patienter! »
+« C'est lui! » Le jeune homme en robe rouge fut frappé de stupeur en le voyant, et une pointe de peur apparut dans ses yeux. Il comprit que la culture de cet individu avait déjà atteint le stade Ascendant! Ses pensées s'emballèrent avant qu'il ne reprenne son sourire: « Junior frère Wang, veuillez patienter! »
 
 Le jeune homme en blanc était Wang Lin. Il s'arrêta et se retourna pour observer les quatre individus. Il ne regarda pas d'abord les deux femmes ni le jeune homme en robe rouge, mais fixa l'homme en noir.
 
@@ -40,7 +40,7 @@ Le jeune homme en blanc était Wang Lin. Il s'arrêta et se retourna pour observ
 
 Parmi les quatre, hormis l'homme en noir, les trois autres étaient tous des cultivateurs au sommet du stade de la Transformation de l'Âme. Cependant, l'homme de la Division Rouge avait manifestement déjà un pied dans le stade Ascendant et pouvait l'atteindre à tout moment. Il craignait probablement l'épreuve de vie ou de mort liée à ce passage, c'est pourquoi il n'avait jamais franchi le pas!
 
-L'homme en robe rouge dit: « Junior frère, mon nom est Du Jian. » Après une courte réflexion, il réalisa que Wang Lin ne connaissait probablement pas son nom.
+L'homme en robe rouge dit: « Junior frère, mon nom est Du Jian. » Après une courte réflexion, il comprit que Wang Lin ne connaissait probablement pas son nom.
 
 Wang Lin joignit les mains: « Salutations, Senior frère Du. »
 

@@ -114,7 +114,7 @@ Maître Yan Leizi hésita un instant avant de joindre ses mains: « Senior Wang 
 
 Wang Lin secoua la tête. Après la destruction du Clan Shan Lei, il avait été traqué et avait dû fuir précipitamment, n'ayant plus eu aucun contact avec le Daoïste Esprit Dispersé.
 
-Puis Wang Lin parla de la poursuite menée par le Conseil Souverain dans le Royaume Extérieur. Ces récits palpitants firent briller les yeux de Maître Lu Fu. Il comprit que toutes les expériences de Wang Lin étaient authentiques, et il réalisa qu'il avait dû être incroyablement fort pour survivre à un tel calvaire.
+Puis Wang Lin parla de la poursuite menée par le Conseil Souverain dans le Royaume Extérieur. Ces récits palpitants firent briller les yeux de Maître Lu Fu. Il comprit que toutes les expériences de Wang Lin étaient authentiques, et il comprit qu'il avait dû être incroyablement fort pour survivre à un tel calvaire.
 
 Wang Lin ne mentionna pas la Terre Déchue ni d'autres affaires cruciales. Pourtant, cela suffisait à stupéfier Maître Lu Fu, surtout lorsqu'il entendit parler de ce qui concernait le Souverain.
 

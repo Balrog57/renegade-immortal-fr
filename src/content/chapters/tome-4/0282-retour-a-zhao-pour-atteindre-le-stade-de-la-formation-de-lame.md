@@ -60,7 +60,7 @@ En un clin d'œil, Wang Lin passa trois ans dans cette petite ville. En ajoutant
 
 Il ne restait plus qu'un an avant l'échéance des dix ans. Il sentait que le moment de franchir le stade de la Formation de l'Âme approchait.
 
-Il ignorait si son passage à ce stade ébranlerait le ciel et la terre. Cependant, à mesure qu'il s'en rapprochait, il réalisait que son ascension provoquerait un bouleversement qui alerterait tout le monde.
+Il ignorait si son passage à ce stade ébranlerait le ciel et la terre. Cependant, à mesure qu'il s'en rapprochait, il comprenait que son ascension provoquerait un bouleversement qui alerterait tout le monde.
 
 C'est pourquoi, ce jour-là, Wang Lin sortit de la tour de glace et partit.
 

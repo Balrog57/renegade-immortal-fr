@@ -52,7 +52,7 @@ Si le tonnerre éternel n'avait pas utilisé sa puissance pour perturber la temp
 
 Pourtant, malgré cela, il restait gravement blessé!
 
-Une douleur intense peut mener à la folie, et le désespoir peut rendre fou. C'était précisément ce que vivait l'Ancien. La souffrance des âmes dévorantes envahissait son corps, tandis que le désespoir embrumait son esprit lorsqu'il réalisa que même le tonnerre éternel ne parvenait pas à rompre l'assaut. Comment pourrait-il s'en sortir?
+Une douleur intense peut mener à la folie, et le désespoir peut rendre fou. C'était précisément ce que vivait l'Ancien. La souffrance des âmes dévorantes envahissait son corps, tandis que le désespoir embrumait son esprit lorsqu'il comprit que même le tonnerre éternel ne parvenait pas à rompre l'assaut. Comment pourrait-il s'en sortir?
 
 Sombrant dans la démence, il cessa de fuir. Ses mains formèrent un sceau et il agita le bras en rugissant: « Nul ne peut tuer ce vieil homme! Je sacrifie 3 000 ans de vie pour éveiller ma marque de tonnerre et utiliser le sort de mon ancêtre du troisième pas! Éternel Tonnerre Yin et Yang, apparais! »
 

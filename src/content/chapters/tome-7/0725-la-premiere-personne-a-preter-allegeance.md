@@ -24,7 +24,7 @@ Cette personne avait été très déçue et s'en était allée. Quelqu'un avait 
 
 « Ce sort se nomme "Vision du Dao". Je ne l'ai pas créé, et vous êtes tous capables de l'exécuter... »
 
-L'homme aux cheveux noirs prit une profonde inspiration, descendit immédiatement de la Bête du Tonnerre et se tint respectueusement là où il était. Maintenant qu'il n'était plus sous le regard de Wang Lin, il réalisa qu'une autre personne était assise sur un astéroïde à proximité.
+L'homme aux cheveux noirs prit une profonde inspiration, descendit immédiatement de la Bête du Tonnerre et se tint respectueusement là où il était. Maintenant qu'il n'était plus sous le regard de Wang Lin, il se rendit compte qu'une autre personne était assise sur un astéroïde à proximité.
 
 L'homme aux cheveux noirs fut stupéfait en voyant cette personne. Il comprit immédiatement qu'il s'agissait d'une marionnette. Puis, son regard se porta sur la Bête du Tonnerre aux cornes argentées au bord du lac de tonnerre.
 

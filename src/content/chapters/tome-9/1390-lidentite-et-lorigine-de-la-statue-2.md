@@ -28,7 +28,7 @@ Après en être sorti, je me retrouvai dans un système stellaire étranger. Plu
 
 Wang Lin fronça les sourcils et commença à réfléchir.
 
-Une lueur passa dans les yeux de Tan Lang. À mi-chemin de son récit, il réalisa que son corps n'était plus figé. Le sort d'arrêt semblait avoir expiré.
+Une lueur passa dans les yeux de Tan Lang. À mi-chemin de son récit, il se rendit compte que son corps n'était plus figé. Le sort d'arrêt semblait avoir expiré.
 
 Voyant Wang Lin plongé dans ses pensées, Tan Lang devint extrêmement nerveux; il recula lentement avant de soudainement accélérer. Juste au moment où il allait s'échapper, Wang Lin leva la main droite et fit un geste désinvolte.
 

@@ -104,7 +104,7 @@ Ce cri collectif se fondit avec les lamentations du nuage noir. Lorsqu'il atteig
 
 Du sang jaillit de la bouche de certains ayant un faible niveau de culture; il était évident que leurs entrailles avaient été ébranlées et leurs âmes originelles blessées. Ce cri parvint néanmoins à éclaircir l'esprit de tous.
 
-L'expression de l'homme en or changea radicalement. Il recula instinctivement, le visage déformé par la terreur. Si lui était dans cet état, les cultivateurs environnants étaient dans un état bien pire. Chacun d'eux eut un souffle court, le cœur battant la chamade, réalisant que la situation était critique.
+L'expression de l'homme en or changea radicalement. Il recula instinctivement, le visage déformé par la terreur. Si lui était dans cet état, les cultivateurs environnants étaient dans un état bien pire. Chacun d'eux eut un souffle court, le cœur battant la chamade, comprenant que la situation était critique.
 
 Quant à Sun Yunshan, l'excitation qui brûlait en lui surpassait largement le choc. Il criait intérieurement: « C'est lui, c'est vraiment lui! »
 

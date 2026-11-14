@@ -62,7 +62,7 @@ Yun Fei remarqua le regard de Wang Lin se poser sur la cité et se hâta de l'in
 
 Wang Lin ne fit que balayer la ville du regard avant de fixer sans ciller l'immense Qi Lin, à l'intérieur de la porte de la montagne.
 
-Il frappa son sac de rangement de la main droite, et un morceau de jade apparut. Ce jade avait été offert à Wang Lin par Li Muwan en cadeau d'adieu; il consignait tous les réseaux de formation du dragon vert gardien de la Secte Dou Xie. Après l'avoir examiné, il réalisa que la bête Qi Lin présentait des similitudes avec le dragon vert de la Secte Dou Xie.
+Il frappa son sac de rangement de la main droite, et un morceau de jade apparut. Ce jade avait été offert à Wang Lin par Li Muwan en cadeau d'adieu; il consignait tous les réseaux de formation du dragon vert gardien de la Secte Dou Xie. Après l'avoir examiné, il comprit que la bête Qi Lin présentait des similitudes avec le dragon vert de la Secte Dou Xie.
 
 Bien plus tard, il détourna le regard et commença à flotter nonchalamment vers les montagnes qui entouraient la cité. Yun Fei le suivit rapidement sur son épée volante.
 

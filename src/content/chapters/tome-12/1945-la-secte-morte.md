@@ -32,7 +32,7 @@ C'est aussi pour cette raison que, lorsque Wang Lin et Liu Jinbiao se tenaient l
 
 Il serait inapproprié de les qualifier de fantômes, car Wang Lin ne voyait aucun spectre. C'était seulement un rêve qui ignorait la mort... Dans ce songe, même si un étranger venait, il lui serait difficile de s'en apercevoir. Il pourrait même être attiré dans ce rêve et voir apparaître des scènes semblables à des illusions. En réalité, c'est parce que le rêve de l'étranger fusionne avec ce lieu et s'y intègre.
 
-Cet endroit avait été détruit il y a d'innombrables années. Il ignorait depuis combien de temps... Mais il comprenait que les gens venaient ici sans réaliser qu'il s'agissait d'une secte morte. Ils séjournaient comme des invités, puis repartaient...
+Cet endroit avait été détruit il y a d'innombrables années. Il ignorait depuis combien de temps... Mais il comprenait que les gens venaient ici sans se rendre compte qu'il s'agissait d'une secte morte. Ils séjournaient comme des invités, puis repartaient...
 
 Mais il était impossible qu'il soit le premier à voir clair dans ce lieu!
 

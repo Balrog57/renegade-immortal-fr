@@ -16,7 +16,7 @@ Après y avoir passé une journée entière, toute l'énergie spirituelle conten
 
 Cette fois-ci était différente. Bien qu'elle se dispersât toujours, une infime parcelle subsistait dans son corps. Certes, la quantité était dérisoire, mais ces résultats renforçaient considérablement la confiance de Wang Lin. Après avoir réfléchi un long moment, il ne parvint pas à comprendre l'origine de cette différence; il ne pouvait donc que spéculer qu'elle était due à la mystérieuse perle de pierre.
 
-Comme il ne pouvait quitter le rêve de sa propre volonté pour aller chercher davantage d'eau de source, il fut contraint de continuer à cultiver pendant une longue période. Il finit par réaliser qu'il existait une distinction fondamentale entre l'espace du rêve et le monde extérieur. À l'extérieur, bien qu'il n'eût pas la sensation de l'énergie spirituelle pénétrant en lui comme des fourmis grimpantes, il avait constaté, après un mois de persévérance, que chaque séance le laissait rafraîchi et apaisé.
+Comme il ne pouvait quitter le rêve de sa propre volonté pour aller chercher davantage d'eau de source, il fut contraint de continuer à cultiver pendant une longue période. Il finit par comprendre qu'il existait une distinction fondamentale entre l'espace du rêve et le monde extérieur. À l'extérieur, bien qu'il n'eût pas la sensation de l'énergie spirituelle pénétrant en lui comme des fourmis grimpantes, il avait constaté, après un mois de persévérance, que chaque séance le laissait rafraîchi et apaisé.
 
 Ici, cependant, une fois l'énergie spirituelle de l'eau de source épuisée, il ne ressentait aucune sensation de fraîcheur ou de confort. Au contraire, à force de cultiver, il se sentait essoufflé.
 

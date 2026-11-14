@@ -196,7 +196,7 @@ Ce sentiment émanait de ses yeux. Ses yeux semblaient contenir toutes choses, e
 
 Wang Lin avait passé ces sept dernières années à affiner son regard. Il avait rencontré d'innombrables restrictions, exigeant toutes une étude et un examen minutieux. Il avait failli être tué par elles à plusieurs reprises.
 
-C'était particulièrement vrai pour certaines restrictions qui avaient manifestement d'autres protections ajoutées par-dessus. Heureusement, Wang Lin était toujours resté prudent et avait remarqué que ces restrictions différaient de celles de la montagne. Après les avoir étudiées, il réalisa que la personne située au-dessus de lui était également une experte en restrictions.
+C'était particulièrement vrai pour certaines restrictions qui avaient manifestement d'autres protections ajoutées par-dessus. Heureusement, Wang Lin était toujours resté prudent et avait remarqué que ces restrictions différaient de celles de la montagne. Après les avoir étudiées, il comprit que la personne située au-dessus de lui était également une experte en restrictions.
 
 Rien qu'en observant ces dernières, Wang Lin pouvait voir que la compréhension de cet expert était bien plus profonde que la sienne.
 

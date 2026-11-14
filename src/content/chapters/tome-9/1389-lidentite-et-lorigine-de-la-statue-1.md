@@ -38,7 +38,7 @@ L'espace était resté le même, le monde était toujours le même. Les yeux de 
 
 Wang Lin réfléchissait silencieusement.
 
-Peu importait le nombre d'années passées dans cet état mystérieux, car après son réveil, Wang Lin réalisa que cela n'avait duré qu'un instant!
+Peu importait le nombre d'années passées dans cet état mystérieux, car après son réveil, Wang Lin comprit que cela n'avait duré qu'un instant!
 
 S'il y avait eu un temps réel, ce fut l'instant précis où son regard avait croisé celui de la statue!
 
@@ -72,7 +72,7 @@ Tan Lang n'osa rien cacher et parla précipitamment.
 
 « Après avoir échappé au Serpent aux yeux de lune, je ne suis pas mort, mais je me suis caché sur une planète à moitié abandonnée dans Luotian. Je m'y cachais pour vous échapper et j'ai passé du temps à récupérer mes forces.
 
-« Après un long moment, ne voyant aucune trace de votre poursuite, j'ai réalisé que vous pensiez probablement que j'étais mort. J'ai alors retrouvé une certaine paix d'esprit et je me suis concentré sur ma guérison sur cette planète jusqu'à ce que je sois totalement rétabli. C'est alors que j'ai décidé de partir.
+« Après un long moment, ne voyant aucune trace de votre poursuite, je me suis rendu compte que vous pensiez probablement que j'étais mort. J'ai alors retrouvé une certaine paix d'esprit et je me suis concentré sur ma guérison sur cette planète jusqu'à ce que je sois totalement rétabli. C'est alors que j'ai décidé de partir.
 
 « À ce moment-là, vous n'étiez plus dans Luotian. L'ensemble du Système Stellaire de Luotian était extrêmement désert, car la majorité des cultivateurs étaient partis vers le Système Stellaire de l'Alliance pour la guerre. Cela m'a donné une opportunité.
 

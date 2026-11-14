@@ -64,7 +64,7 @@ Ce n'est que lorsque Wang Lin fut loin que les patrouilleurs se regardèrent. L'
 
 L'un des membres de la patrouille s'exclama avec mécontentement: « Il n'est plus l'Empereur Divin, pourquoi lui témoignons-nous tant de respect? »
 
-De retour dans la région orientale, Wang Lin réalisa que l'atmosphère était étrange. Tous les membres des Quatre Sectes Divines qui le croisaient affichaient des expressions singulières, mais personne ne l'arrêta.
+De retour dans la région orientale, Wang Lin se rendit compte que l'atmosphère était étrange. Tous les membres des Quatre Sectes Divines qui le croisaient affichaient des expressions singulières, mais personne ne l'arrêta.
 
 Peu de temps après, un champ d'étoiles rouge apparut devant lui: c'était là le domaine de la Secte Divine de Suzaku. Pourtant, alors qu'il s'apprêtait à y entrer, il s'arrêta et fit volte-face.
 

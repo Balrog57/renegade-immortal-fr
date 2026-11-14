@@ -77,7 +77,7 @@ Wang Lin leva la main droite et le jade qu'avait fourni l'Estimé Qing Niu appar
 
 « Tu peux entrer dans le Pavillon Cang Hun et choisir un sort! » La statue de pierre envoya ce message par Sens Divin avant de s'immobiliser. La distorsion spatiale disparut et elle reprit son apparence de statue normale.
 
-« Quelle vitesse! » Les pupilles de Wang Lin se rétractèrent. Il n'avait pas pu distinguer clairement le mouvement de la statue. Après réflexion, il réalisa que la lumière rouge était la langue de la bête.
+« Quelle vitesse! » Les pupilles de Wang Lin se rétractèrent. Il n'avait pas pu distinguer clairement le mouvement de la statue. Après réflexion, il comprit que la lumière rouge était la langue de la bête.
 
 Une fois la statue redevenue immobile, une ouverture se forma dans le pavillon à neuf étages. Une vague de fluctuations d'âme s'en échappa, intensifiant la pression ambiante.
 

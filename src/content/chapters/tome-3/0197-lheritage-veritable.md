@@ -13,7 +13,7 @@ Au moment où Wang Lin entra dans la faille, les trois sacs contenant les pierre
 
 Wang Lin savait déjà qu'avec la personnalité de ces dix individus, ils ne céderaient pas leurs trésors gratuitement. Ils avaient dû placer une technique sur ces objets pour pouvoir les contrôler à distance. C'est pourquoi, dès qu'il reçut ces articles, il resta sur ses gardes. Il décida d'utiliser cette faille, capable de couper le sens divin, comme contre-mesure.
 
-Au moment où le corps de Wang Lin pénétra dans la faille, l'expression du vieil homme changea en réalisant que son sens divin était obstrué.
+Au moment où le corps de Wang Lin pénétra dans la faille, l'expression du vieil homme changea en comprenant que son sens divin était obstrué.
 
 Le sourire sarcastique de Tuo Sen s'élargit. Il poussa un grognement et agita sa main droite, faisant apparaître un cercle de lumière rouge. D'abord petit, celui-ci commença rapidement à s'étendre. Sa main ne cessa de bouger, formant d'autres cercles rouges qu'il projeta dans toutes les directions.
 
@@ -67,7 +67,7 @@ Tout cela s'était produit en un temps record. Wang Lin avait toujours été d'u
 
 Il avait donc utilisé la méthode de l'héritage de la mémoire pour se dissimuler dans la faille, profitant de sa capacité à bloquer le sens divin pour neutraliser les effets de ces trésors. Ce n'est qu'après avoir soigneusement examiné les objets et constaté que leur lueur s'était estompée et leur force destructrice dissipée qu'il s'était un peu détendu.
 
-Ainsi, après avoir ouvert la faille, il avait envoyé les âmes de petites bêtes en éclaireurs. Il avait réalisé que l'attention du vieil homme et de l'homme couvert d'écailles était focalisée sur lui. Wang Lin avait observé l'homme sortir de la créature plus tôt et avait compris qu'il pouvait lutter d'égal à égal avec Tuo Sen. Compte tenu de ces facteurs, il n'avait pas osé sortir prématurément.
+Ainsi, après avoir ouvert la faille, il avait envoyé les âmes de petites bêtes en éclaireurs. Il s'était rendu compte que l'attention du vieil homme et de l'homme couvert d'écailles était focalisée sur lui. Wang Lin avait observé l'homme sortir de la créature plus tôt et avait compris qu'il pouvait lutter d'égal à égal avec Tuo Sen. Compte tenu de ces facteurs, il n'avait pas osé sortir prématurément.
 
 Après une réflexion approfondie, il avait envoyé quatre tornades noires en y cachant une partie de son sens divin avant de se replier rapidement dans la faille. Tout ce qui s'était passé entre Tuo Sen et les autres, il l'avait vu à travers ces tornades, notamment la capacité surnaturelle de Tuo Sen, ce qui confirmait sa décision initiale: s'il avait suivi les instructions du vieil homme pour tenter de sceller Tuo Sen, il serait mort comme les six autres avant même d'avoir pu achever le sceau.
 

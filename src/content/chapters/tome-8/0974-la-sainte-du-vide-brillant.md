@@ -58,7 +58,7 @@ De loin, la planète Da Luo semblait être imprégnée d'une énergie d'épée e
 
 Cette énergie d'épée n'était pas émise par des cultivateurs, mais par la planète Da Luo elle-même!
 
-C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin réalisa que si quelqu'un parvenait à canaliser cette énergie d'épée, son pouvoir serait capable de secouer la terre!
+C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin comprit que si quelqu'un parvenait à canaliser cette énergie d'épée, son pouvoir serait capable de secouer la terre!
 
 « La planète Da Luo n'appartient pas à la zone de la planète Tian Yun. Ce vieil homme a déployé des efforts acharnés pour accomplir une mission de rang Humain de la Secte Kun Xu et a été récompensé par cette planète! »
 

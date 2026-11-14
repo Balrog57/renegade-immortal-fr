@@ -60,7 +60,7 @@ Les yeux de Wang Lin se plissèrent tandis qu'il songeait: « Se pourrait-il que
 
 Yao Xixue ne daigna même pas regarder Wang Lin; elle franchit rapidement la plateforme et continua sa progression.
 
-Le temps s'écoula rapidement, et en un clin d'œil, un mois passa. Durant ce mois, Wang Lin n'avait pas eu grand-chose à faire, car Yao Xixue ne lui avait laissé aucune opportunité d'agir. Après avoir tenté l'expérience deux fois sans obtenir de symbole doré, elle réalisa que sa méthode était erronée. En repensant à ce que Wang Lin avait fait, elle commença à comprendre.
+Le temps s'écoula rapidement, et en un clin d'œil, un mois passa. Durant ce mois, Wang Lin n'avait pas eu grand-chose à faire, car Yao Xixue ne lui avait laissé aucune opportunité d'agir. Après avoir tenté l'expérience deux fois sans obtenir de symbole doré, elle comprit que sa méthode était erronée. En repensant à ce que Wang Lin avait fait, elle commença à comprendre.
 
 Elle redoutait énormément ces symboles dorés et, pour empêcher Wang Lin de les obtenir, elle décida de faire tout le travail elle-même. Elle ne brisait plus les statues, mais utilisait les jades de sang pour les sceller. C'était la méthode qu'elle avait employée lors de ses trois dernières visites.
 

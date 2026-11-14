@@ -56,7 +56,7 @@ Cependant, comme Wang Lin était seul face à une horde qui ne connaissait pas l
 
 Finalement, à force de trop se téléporter, l'épée volante commença à se déformer. Après tout, l'esprit de l'épée ne faisait qu'occuper un nouveau corps sans y être fusionné. Elle présentait des bosses et certaines parties avaient complètement fondu. Si le propriétaire original de l'épée avait été ressuscité, il ne la reconnaîtrait plus.
 
-Wang Lin réalisa que ce n'était pas une solution viable sur le long terme alors que les bêtes se multipliaient. Malgré ses réserves de liquide spirituel, s'il venait à en manquer et qu'il ne pouvait plus se régénérer assez vite, il mourrait.
+Wang Lin comprit que ce n'était pas une solution viable sur le long terme alors que les bêtes se multipliaient. Malgré ses réserves de liquide spirituel, s'il venait à en manquer et qu'il ne pouvait plus se régénérer assez vite, il mourrait.
 
 Il serra les dents et changea de trajectoire. Il ne se dirigea plus vers Xuan Wu, mais vers le Temple Zhan Shen. Il ne croyait pas que ce sanctuaire avait été anéanti par ces premières bêtes. S'il avait été lui-même l'ancêtre du Temple Zhan Shen, il aurait certainement choisi de migrer en bloc, et une telle chose ne se faisait pas sur un coup de tête : cela prendrait forcément du temps.
 

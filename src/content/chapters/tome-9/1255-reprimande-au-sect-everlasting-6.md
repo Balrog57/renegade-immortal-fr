@@ -96,7 +96,7 @@ Lorsqu'il avait tué les membres de la Secte Xian Yin et Zhao Long, on pouvait c
 
 Mais ceci était totalement différent!
 
-Le niveau de culture de Yun Shan n'était guère inférieur au leur. Ils ressentirent une amertume cuisante en réalisant que s'ils avaient été à la place de Yun Shan... ils auraient tout de même perdu!
+Le niveau de culture de Yun Shan n'était guère inférieur au leur. Ils ressentirent une amertume cuisante en comprenant que s'ils avaient été à la place de Yun Shan... ils auraient tout de même perdu!
 
 Plus important encore, Lu Zihao restait d'un calme olympien, comme s'il n'avait pas utilisé toute sa puissance. Cela fit vaciller leurs cœurs.
 

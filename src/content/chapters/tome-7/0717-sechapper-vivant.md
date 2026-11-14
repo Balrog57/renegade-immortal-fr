@@ -109,7 +109,7 @@ Son cœur rata un battement; il glissa la couronne dans son sac et partit sans m
 
 Le doigt de l'ancien dieu se dissipa lentement. Le gigantesque Serpent aux yeux de lune observa Wang Lin au loin, semblant réfléchir. Il regarda ensuite le fourneau que ses tentacules retenaient, puis, après une courte hésitation, il se lança à la poursuite de Wang Lin.
 
-Wang Lin ne put s'empêcher de maudire la situation en réalisant que le serpent le traquait.
+Wang Lin ne put s'empêcher de maudire la situation en comprenant que le serpent le traquait.
 
 Il devait admettre qu'il avait été imprudent cette fois. Il n'avait pas prévu que l'apparition de Tan Lang provoquerait un tel éveil chez la créature.
 

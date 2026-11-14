@@ -96,7 +96,7 @@ Une autre occasion, dans un pays de culture de rang 5, impliqua un cultivateur d
 
 Avec le recul, Wang Lin estima que même Hongdie était légèrement inférieure à cet homme. Finalement, Wang Lin avait réussi à lutter jusqu'à l'égalité contre lui.
 
-Au cours de ces sept mois, Wang Lin réalisa que parmi les cultivateurs de la Formation de l'Âme, Hongdie n'était pas la plus puissante. Bien que ces individus n'aient pas encore atteint le stade de la Transformation de l'Âme, ils étaient redoutables.
+Au cours de ces sept mois, Wang Lin comprit que parmi les cultivateurs de la Formation de l'Âme, Hongdie n'était pas la plus puissante. Bien que ces individus n'aient pas encore atteint le stade de la Transformation de l'Âme, ils étaient redoutables.
 
 Surtout ceux possédant des domaines spéciaux; ils possédaient une puissance redoutable.
 

@@ -112,7 +112,7 @@ Il se rappelait qu'une telle chose s'était produite dans sa propre famille. Il 
 
 « Le mot « nào » (tumulte) évoque l'absence de calme, le mouvement et le désordre, mais aussi une forme de trouble et d'irritation psychologiques. » Les yeux de Wang Lin s'illuminèrent tandis qu'il fixait le jade.
 
-Ce n'est que lorsqu'il devint cultivateur et qu'il prit du recul qu'il réalisa que la prétendue hantise n'était qu'une énergie de rancœur existant entre le ciel et la terre qui, à un certain moment, s'emparait de l'esprit de certaines personnes. Cela les troublait et les inquiétait, au point qu'ils croyaient voir des fantômes.
+Ce n'est que lorsqu'il devint cultivateur et qu'il prit du recul qu'il comprit que la prétendue hantise n'était qu'une énergie de rancœur existant entre le ciel et la terre qui, à un certain moment, s'emparait de l'esprit de certaines personnes. Cela les troublait et les inquiétait, au point qu'ils croyaient voir des fantômes.
 
 C'était là le cœur de l'illusion multicouche! Et l'origine même des illusions!
 

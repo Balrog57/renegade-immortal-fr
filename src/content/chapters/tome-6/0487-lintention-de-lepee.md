@@ -34,7 +34,7 @@ Zhang Xiangfan fut déconcerté. Il hocha la tête et répondit: « L'épée vol
 
 Le regard de Wang Lin resta impassible tandis qu'il tendait la main. Lorsqu'il saisit l'épée verte, il la tira vers lui pour l'examiner attentivement.
 
-Lorsqu'il avait rangé son épée plus tôt, l'intention d'épée que Wang Lin avait ressentie avait disparu. Maintenant qu'il l'avait invoquée à nouveau, Wang Lin réalisa que ce n'était pas Zhang Xiangfan qui dégageait cette intention, mais bien cette épée volante.
+Lorsqu'il avait rangé son épée plus tôt, l'intention d'épée que Wang Lin avait ressentie avait disparu. Maintenant qu'il l'avait invoquée à nouveau, Wang Lin comprit que ce n'était pas Zhang Xiangfan qui dégageait cette intention, mais bien cette épée volante.
 
 Le cœur de Wang Lin se mit à trembler lorsqu'il effleura doucement la lame de sa main gauche. Pour n'importe qui d'autre, il aurait été très difficile de percevoir l'intention d'épée contenue dans cette arme. Si quelqu'un d'autre l'avait trouvée, il aurait compris que cette épée n'était pas normale. Cependant, pour Wang Lin, ce contact déclencha un tressaillement profond. Un sentiment extrêmement familier envahit son âme en ressentant cette intention.
 

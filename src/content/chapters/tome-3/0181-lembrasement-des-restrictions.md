@@ -162,7 +162,7 @@ L'Empereur Antique ricana: « Un malentendu? Depuis que je suis entré dans le s
 
 L'Empereur Antique livra alors tout ce qu'il avait analysé ces dernières années. Il avait cherché à identifier ce mystérieux jeune homme et avait conclu que seul l'individu aux côtés du Seigneur Démon des Six Désirs en avait les qualifications.
 
-Le Seigneur Démon des Six Désirs analysa les paroles de l'Empereur Antique et réalisa que, si cela était vrai, un quatrième individu évoluait dans ce royaume.
+Le Seigneur Démon des Six Désirs analysa les paroles de l'Empereur Antique et comprit que, si cela était vrai, un quatrième individu évoluait dans ce royaume.
 
 Si c'était le cas, cela porterait malheur à l'avenir. Cet homme ne s'était pas présenté lui-même, mais avait laissé passer l'Empereur Antique. Son intention était limpide.
 

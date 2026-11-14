@@ -30,7 +30,7 @@ Il scruta son propre sac de rangement avec son sens divin et eut un ricanement i
 
 Il ne croyait pas que ces dix personnes lui permettraient si facilement de conserver ces objets. Ce qu'il avait affirmé auparavant n'était qu'un leurre pour les égarer.
 
-Grâce à son expérience dans l'usage des fissures, Wang Lin réalisa que celles ouvertes par l'héritage étaient différentes. En y pénétrant, on n'était pas obligé de ressortir immédiatement de l'autre côté, car il existait un espace intermédiaire entre l'entrée et la sortie. Cet espace était saturé d'énergie chaotique qui empêchait tout sens divin d'y pénétrer.
+Grâce à son expérience dans l'usage des fissures, Wang Lin comprit que celles ouvertes par l'héritage étaient différentes. En y pénétrant, on n'était pas obligé de ressortir immédiatement de l'autre côté, car il existait un espace intermédiaire entre l'entrée et la sortie. Cet espace était saturé d'énergie chaotique qui empêchait tout sens divin d'y pénétrer.
 
 Il l'avait testé auparavant: après avoir imprégné une épée volante de son Sens Divin, il l'avait lancée dans une fissure, et avait perdu toute connexion avec elle. Ce n'est qu'une fois l'épée sortie de l'autre côté que le lien fut rétabli.
 
@@ -82,7 +82,7 @@ L'incantation créa dix cercles qui apparurent instantanément autour des dix pe
 
 Tuo Sen tourna brusquement la tête pour fixer le visage avec froideur. Son expression s'assombrit: « Il semble que si tu as été le seul à m'échapper à l'époque, c'est parce que cet animal t'a sauvé! »
 
-La tête fendit sa bouche en un rictus, les yeux emplis d'un ressentiment venimeux. Sa voix, chargée de haine, déclama mot pour mot: « À l'époque où nous, les onze, avons cru à tes mensonges, brisé le sceau que l'Ancien Dieu Tu Si avait placé sur toi et t'avons rendu ta liberté, nous avons réalisé que c'était la plus grande erreur de notre vie. Aujourd'hui, nous allons effacer cette erreur. Peu importe qu'il s'agisse de l'héritage du pouvoir ou de celui de la mémoire, les deux seront à nous. »
+La tête fendit sa bouche en un rictus, les yeux emplis d'un ressentiment venimeux. Sa voix, chargée de haine, déclama mot pour mot: « À l'époque où nous, les onze, avons cru à tes mensonges, brisé le sceau que l'Ancien Dieu Tu Si avait placé sur toi et t'avons rendu ta liberté, nous avons compris que c'était la plus grande erreur de notre vie. Aujourd'hui, nous allons effacer cette erreur. Peu importe qu'il s'agisse de l'héritage du pouvoir ou de celui de la mémoire, les deux seront à nous. »
 
 Tuo Sen fit pivoter sa lance. Un sourire sarcastique étira ses lèvres et il dit calmement: « D'abord, dix personnes qui me trahissent, ensuite cet animal qui cachait tout un autre monde dans sa gueule... Ce ne sont sûrement pas là tous vos tours? Si vous en avez d'autres, montrez-les donc. » Sur ces mots, il posa son regard sur Wang Lin et les centaines de cultivateurs démoniaques médusés qui se trouvaient hors du champ de bataille.
 

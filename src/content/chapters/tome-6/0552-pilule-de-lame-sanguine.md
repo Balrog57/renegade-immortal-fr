@@ -98,7 +98,7 @@ Wang Lin réfléchit un instant: « As-tu entendu parler de la Pilule de l'Âme 
 
 « La Pilule de l'Âme Sanguine!!! » Cao Yidou s'emballa immédiatement. Son excitation était plus grande que lorsque Wang Lin lui avait promis un corps de Transformation de l'Âme.
 
-« Maître, cette pilule est considérée comme l'un des trois trésors suprêmes de la planète Tian Yun! Elle possède le pouvoir de défier les cieux et de changer le destin en permettant aux cultivateurs de renaître des morts! Elle n'appartient qu'à Xue Zu; nul ne sait comment il a pu l'obtenir! » Cao Yidou parlait de plus en plus vite, surexcité.
+« Maître, cette pilule est considérée comme l'un des trois trésors suprêmes de la planète Tian Yun! Elle possède le pouvoir de défier les cieux et de changer le destin en permettant aux cultivateurs de renaître des morts! Elle n'appartient qu'à Xue Zu; nul ne sait comment il a pu l'obtenir! » Cao Yidou parlait de plus en plus vite, enfiévré.
 
 Wang Lin ouvrit sa main droite, où la pilule de cire émettait un étrange scintillement. « Sais-tu ce que c'est? »
 

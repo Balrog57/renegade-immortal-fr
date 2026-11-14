@@ -60,7 +60,7 @@ Tout en réfléchissant, l'homme robuste accéléra la cadence. Il franchissait 
 
 « De plus, les crânes des ancêtres du Clan Xian Yi étaient très mystérieux. Lors de leur raffinage, ils ont fini par fusionner en un seul tatouage. »
 
-Au loin, les membres du Clan Xian Xuan s'approchèrent, fixant l'homme robuste avec stupéfaction. Le vieil homme, anormalement excité, s'élança et cria: « Ta Shan! »
+Au loin, les membres du Clan Xian Xuan s'approchèrent, fixant l'homme robuste avec stupéfaction. Le vieil homme, anormalement fébrile, s'élança et cria: « Ta Shan! »
 
 L'expression de l'homme robuste était glaciale; il ne daigna même pas regarder le vieil homme. Il s'arrêta sur ordre de Wang Lin et resta immobile. Ce dernier sauta de l'épaule du géant pour atterrir au sol.
 

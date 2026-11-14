@@ -40,7 +40,7 @@ C'était la différence entre les généraux et les soldats. Les petites créatu
 
 En s'approchant, Wang Lin put voir qu'au milieu de cet immense amas de tourbillons se dressait une tour noire vertigineuse. Meng Tuozi devait être à l'intérieur.
 
-Wang Lin n'était pas pressé. S'il avait ordonné au second démon de le mener ici, c'était parce qu'il avait réalisé qu'il pouvait s'approcher sans être détecté. Il agissait selon les opportunités offertes. Il ne comptait pas tuer Meng Tuozi, mais s'il s'y prenait bien, il pourrait encore lui dérober quelques trésors.
+Wang Lin n'était pas pressé. S'il avait ordonné au second démon de le mener ici, c'était parce qu'il avait compris qu'il pouvait s'approcher sans être détecté. Il agissait selon les opportunités offertes. Il ne comptait pas tuer Meng Tuozi, mais s'il s'y prenait bien, il pourrait encore lui dérober quelques trésors.
 
 Le marquage du sens divin laissé sur le second démon différait de celui laissé sur Xu Liguo. Le démon Xu Liguo avait été cultivé pendant très longtemps, si bien que le marquage de Wang Lin y était profondément ancré. En réalité, Wang Lin n'aurait même pas eu besoin de son Royaume Ji; une simple pensée lui aurait suffi pour détruire Xu Liguo. Cependant, en circonstances normales, il n'utiliserait pas ce marquage pour attaquer. Il le gardait comme dernier recours.
 

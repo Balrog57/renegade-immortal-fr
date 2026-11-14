@@ -112,7 +112,7 @@ Le Sens Divin scanna de nouveau le Seigneur Démon des Six Désirs mais n'interv
 
 En subissant l'attaque, il réalisa soudainement l'anomalie: ce Sens Divin n'appartenait pas à un cultivateur, mais à une âme errante sur le point de devenir un dévoreur d'âmes. C'était la première fois que Wang Lin rencontrait une âme errante d'une telle envergure, mais une âme errante restait une âme errante. Tant qu'elle n'était pas devenue un dévoreur d'âmes, elle demeurait inférieure à ces derniers, malgré sa taille. Le fossé à franchir était immense.
 
-Cette grande âme errante osait attaquer Wang Lin, qui était lui-même un dévoreur d'âmes. Du point de vue de ce dernier, cette entité n'était rien d'autre qu'un super tonique. S'il parvenait à la dévorer, son propre esprit ne ferait pas que retrouver son état initial, il pourrait le surpasser à un degré inimaginable.
+Cette grande âme errante osait attaquer Wang Lin, qui était lui-même un dévoreur d'âmes. Du point de vue de ce dernier, cette entité n'était rien d'autre qu'un puissant tonique. S'il parvenait à la dévorer, son propre esprit ne ferait pas que retrouver son état initial, il pourrait le surpasser à un degré inimaginable.
 
 À cet instant, l'attaque de l'âme errante pénétra dans le corps de Wang Lin; l'âme errante se figea aussitôt, puis fut saisie de stupeur.
 « Un dévoreur d'âmes! Tu... tu es un dévoreur d'âmes! » s'exclama l'âme errante. Malgré la surprise dans sa voix, une pointe d'excitation s'en dégageait.
@@ -137,7 +137,7 @@ Aussitôt, tous les cultivateurs de la Mer de Sang sautèrent de leurs piliers o
 
 À côté de ces lignes, plusieurs autres paragraphes manuscrits apparurent:
 
-« En entrant dans le troisième essai, j'ai immédiatement réalisé que cet endroit était une faille reliée au Nirvana. Après avoir cherché, j'ai trouvé l'entrée du Nirvana, mais je n'y suis pas entré.
+« En entrant dans le troisième essai, j'ai immédiatement compris que cet endroit était une faille reliée au Nirvana. Après avoir cherché, j'ai trouvé l'entrée du Nirvana, mais je n'y suis pas entré.
 
 « La Terre Gu Shen a été exagérée par les rumeurs. Hormis le troisième essai qui est un peu intéressant, les autres épreuves ne valent pas la peine d'être mentionnées. Je voulais initialement partir, mais puisque je suis ici, autant explorer, sinon j'aurais simplement perdu mon temps.
 

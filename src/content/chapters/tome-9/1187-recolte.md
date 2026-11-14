@@ -92,7 +92,7 @@ Lorsque son sens divin balaya l'arme, il remarqua une aura inhabituelle. Elle lu
 
 Après avoir réfléchi, Wang Lin se rendit dans la troisième pièce et vit le squelette au sol. Cette bête n'était pas très grande, de la taille d'un homme, et ressemblait à un cerf.
 
-Ses os étaient totalement noirs et beaucoup s'étaient transformés en poussière. En y regardant de plus près, il réalisa que cette poussière était récente; l'homme avait manifestement causé cela en récupérant l'épée.
+Ses os étaient totalement noirs et beaucoup s'étaient transformés en poussière. En y regardant de plus près, il comprit que cette poussière était récente; l'homme avait manifestement causé cela en récupérant l'épée.
 
 En observant le squelette, Wang Lin fronça les sourcils. Quelque chose clochait. Pourquoi un cerf se trouvait-il dans une telle grotte? De plus, il était évident que cette courte épée était extraordinaire malgré son sceau. Une fois libérée, sa puissance serait inimaginable. Pourtant, un tel trésor avait été laissé là, planté dans ce cerf.
 

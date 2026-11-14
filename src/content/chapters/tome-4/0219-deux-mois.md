@@ -40,7 +40,7 @@ Wang Lin ne pénétra pas dans la pièce, mais pointa son front. Xu Liguo en sor
 
 « Peu importe comment tu t'en occupes, découvre où se trouve le singe spirituel et prends leurs deux âmes, puis viens me retrouver. » Wang Lin fit volte-face et quitta lentement la pièce.
 
-Xu Liguo n'avait jamais été aussi excité. Il sentait que suivre Wang Lin était sans aucun doute la meilleure décision à prendre. En cet instant, il avait l'impression que son sang bouillonnait, bien qu'il n'en eût plus depuis qu'il était devenu un démon. Mais cela n'altérait en rien ses sensations.
+Xu Liguo n'avait jamais été aussi exalté. Il sentait que suivre Wang Lin était sans aucun doute la meilleure décision à prendre. En cet instant, il avait l'impression que son sang bouillonnait, bien qu'il n'en eût plus depuis qu'il était devenu un démon. Mais cela n'altérait en rien ses sensations.
 
 Xu Liguo esquissa un sourire perfide et franchit le paravent.
 

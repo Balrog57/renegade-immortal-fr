@@ -72,7 +72,7 @@ Un vortex elliptique apparut soudainement près d'un édifice ressemblant à une
 
 Le corps de Yu Fei surgit du vortex. Son visage était livide et son bras gauche continuait de saigner. Une fois sorti, le vortex derrière lui se rétracta brusquement.
 
-En réalisant qu'il était revenu dans son familier Royaume Sha Yu, il se détendit, bien que terrifié par ce qui venait de se passer. Il leva les yeux vers la tour et s'apprêta à parler.
+En se rendant compte qu'il était revenu dans son familier Royaume Sha Yu, il se détendit, bien que terrifié par ce qui venait de se passer. Il leva les yeux vers la tour et s'apprêta à parler.
 
 Cependant, à cet instant précis, une aura extrêmement puissante jaillit de la tour dans un rugissement de colère.
 

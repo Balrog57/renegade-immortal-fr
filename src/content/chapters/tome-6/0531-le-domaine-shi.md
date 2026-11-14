@@ -50,7 +50,7 @@ Le pays le plus proche est le Pays Tian Yao. Luo Yun s'était rendu plus tôt à
 
 Cet endroit utilise des rangs pour mesurer l'énergie spirituelle démoniaque. Trois rangs d'énergie spirituelle démoniaque équivalent à la quantité dont un cultivateur de l'Établissement des Fondations a besoin! »
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il agitait la main et qu'un cristal apparut dans sa paume. C'était le cristal démoniaque provenant du dantian de Luo Yun. Après avoir examiné le cristal, il réalisa qu'il contenait deux rangs d'énergie spirituelle démoniaque.
+Les yeux de Wang Lin s'illuminèrent alors qu'il agitait la main et qu'un cristal apparut dans sa paume. C'était le cristal démoniaque provenant du dantian de Luo Yun. Après avoir examiné le cristal, il comprit qu'il contenait deux rangs d'énergie spirituelle démoniaque.
 
 « Pas étonnant que ce Luo Yun ait voulu me tuer. Le cristal démoniaque que j'ai absorbé dans la vallée ne contient qu'un seul rang, et en y ajoutant les deux rangs d'ici, cela fera trois rangs!
 

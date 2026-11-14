@@ -54,7 +54,7 @@ Le jeune homme fronça les sourcils, mais cela ne dura qu'un instant. Il esquiss
 
 L'Oncle Quatrième leva les yeux vers le ciel et murmura: « Tie Zhu, tu dois être choisi! »
 
-Wang Lin sentit son corps s'alléger, tandis que le vent fouettant son visage lui causait une vive douleur. En y regardant de plus près, il réalisa qu'il était retenu sous le bras du jeune homme et qu'ils fendaient le ciel à toute allure. Le village ne devint bientôt plus que de petits points noirs, gros comme une paume, dans leur sillage.
+Wang Lin sentit son corps s'alléger, tandis que le vent fouettant son visage lui causait une vive douleur. En y regardant de plus près, il comprit qu'il était retenu sous le bras du jeune homme et qu'ils fendaient le ciel à toute allure. Le village ne devint bientôt plus que de petits points noirs, gros comme une paume, dans leur sillage.
 
 Au bout de quelques instants, la force du vent lui fit pleurer les yeux, qui devinrent rouges.
 

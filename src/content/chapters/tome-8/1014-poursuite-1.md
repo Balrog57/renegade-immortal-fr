@@ -68,7 +68,7 @@ Ce type de regard n'avait pas brillé dans ses yeux depuis longtemps. Grâce à 
 
 Il avança lentement.
 
-Grâce à sa force mentale, il réalisa que bien qu'il y ait une chance que le gaz gris apparaisse, cela était principalement dû à l'utilisation de son sens divin.
+Grâce à sa force mentale, il comprit que bien qu'il y ait une chance que le gaz gris apparaisse, cela était principalement dû à l'utilisation de son sens divin.
 
 Bien que la puissance du gaz gris fût forte au début, il pouvait encore y résister. Cependant, il avait le vague sentiment que s'il déployait à nouveau son sens divin, ce qui surgirait ne serait pas du gaz gris, mais tout autre chose.
 

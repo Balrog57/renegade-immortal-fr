@@ -76,7 +76,7 @@ Tandis que la rune brillait, le continent accélérait encore. Malgré les grond
 
 Une fissure aux sept couleurs apparut là où se trouvait auparavant le centre du continent sauvage! Elle n'était pas très large, ne mesurant que cinq pieds de large, mais l'éclat septicolore la rendait extrêmement visible dans le vide spatial!
 
-« C'est donc ça! » haleta le garçon en fixant la faille, surexcité. Ses traits étaient déjà déformés par l'émotion, et sous l'effet de cette excitation, son visage devint proprement terrifiant.
+« C'est donc ça! » haleta le garçon en fixant la faille, enfiévré. Ses traits étaient déjà déformés par l'émotion, et sous l'effet de cette excitation, son visage devint proprement terrifiant.
 
 « Quel coup d'éclat! » L'homme robuste, Chen Tianjun de la Secte Yi Shou, observa Cang Songzi avant de reporter son regard sur la fissure aux sept couleurs.
 

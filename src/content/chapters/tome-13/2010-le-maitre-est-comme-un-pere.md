@@ -28,7 +28,7 @@ Mais s'il s'agissait bien de l'individu qu'il avait en tête, il devait voir de 
 
 « Mais il n'est sûrement pas un descendant direct de l'Ancêtre Ancien. Je ne crois pas qu'il obtiendra jamais la reconnaissance du Grand Empyréen Gu Dao!! » L'Empereur du Dao Gu conservait son sourire serein, mais sous cette façade se cachaient des siècles de jalousie!
 
-Cette jalousie brûlait en lui depuis que Wang Lin avait obtenu le sang d'âme, et elle atteignit son paroxysme lorsqu'il réalisa que Wang Lin était bel et bien l'Ascendant Empyréen aux Cheveux Blancs, le numéro un sous les Grands Empyréens. Sa rancœur fut soudainement attisée, mais il parvint à la réprimer.
+Cette jalousie brûlait en lui depuis que Wang Lin avait obtenu le sang d'âme, et elle atteignit son paroxysme lorsqu'il comprit que Wang Lin était bel et bien l'Ascendant Empyréen aux Cheveux Blancs, le numéro un sous les Grands Empyréens. Sa rancœur fut soudainement attisée, mais il parvint à la réprimer.
 
 L'expression de Wang Lin resta calme alors que son regard balayait l'empereur. Lorsqu'il posa ses yeux sur le vieil homme qui avait rugi contre lui, une lueur perçante jaillit de ses prunelles.
 
@@ -122,7 +122,7 @@ Ce pays était une vaste plaine dépourvue de montagnes. L'étendue était recou
 
 Dans la partie septentrionale de cette plaine, se trouvait un bassin profond exhalant une odeur de décomposition. Cela contrastait violemment avec le reste de la plaine, comme si cet endroit n'aurait jamais dû exister.
 
-« Ceci fut découvert par le Grand Empyréen de la génération précédente du Dao Gu et fut scellé pour être préservé. Après qu'il m'ait été transmis, j'avais l'intention de l'utiliser plus tard pour raffiner un trésor de foi, mais après t'avoir pris comme disciple, j'ai réalisé que cet endroit te serait d'une grande aide. Je te l'offre donc! »
+« Ceci fut découvert par le Grand Empyréen de la génération précédente du Dao Gu et fut scellé pour être préservé. Après qu'il m'ait été transmis, j'avais l'intention de l'utiliser plus tard pour raffiner un trésor de foi, mais après t'avoir pris comme disciple, j'ai compris que cet endroit te serait d'une grande aide. Je te l'offre donc! »
 
 « Ce bassin existe depuis fort longtemps. Je l'ai étudié et j'ai déterminé qu'il s'agissait probablement d'un ancien champ de bataille. Il contient une puissante intention meurtrière qui devrait aider ton essence de massacre à se renforcer! »
 

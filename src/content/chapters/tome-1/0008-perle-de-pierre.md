@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 8 - Stone Bead
 slug: perle-de-pierre
 ---
-Tie Zhu était livide lorsqu'il se redressa pour scruter les environs. Il réalisa qu'il se trouvait dans une petite grotte naturelle. La lumière du soleil filtrait par l'entrée, révélant un sol jonché d'ossements d'oiseaux et d'animaux.
+Tie Zhu était livide lorsqu'il se redressa pour scruter les environs. Il se rendit compte qu'il se trouvait dans une petite grotte naturelle. La lumière du soleil filtrait par l'entrée, révélant un sol jonché d'ossements d'oiseaux et d'animaux.
 
 Sur le mur derrière lui se trouvait un trou noir de la taille d'un poing. Il ne pouvait en déterminer la profondeur, mais une inspection plus attentive permit de lever le voile sur un mystère: la force d'aspiration qui l'avait projeté dans la grotte lors de sa chute provenait de ce trou. Les ossements d'oiseaux éparpillés sur le sol venaient sans doute d'oiseaux aspirés comme lui, et morts de leur chute.
 

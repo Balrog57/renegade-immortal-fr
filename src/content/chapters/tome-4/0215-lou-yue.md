@@ -166,7 +166,7 @@ Cheng Xian fut surpris: « La pilule d'Établissement des Fondations est une pil
 
 Wang Lin fronça légèrement les sourcils. Il soupira intérieurement, pensant qu'il devrait retourner chercher Li Muwan.
 
-« Mais puisque le frère le demande, je vais essayer de t'aider. Je ne l'ai pas, mais mon maître doit certainement la posséder. Donne-moi trois jours. Je serai capable de la lui voler en trois jours! » Cheng Xian afficha un sourire fier avant de discuter un peu avec Wang Lin. Il regarda le ciel et ajouta: « Aujourd'hui, la Senior sœur Tong a organisé un rendez-vous avec moi à l'extérieur, je n'aurai pas le temps de rester. Quant à la pilule d'Établissement des Fondations, ne t'inquiète pas, je m'en occupe! » Il repartit en hâte, très excité, sur son singe spirituel qui n'y mettait guère du sien.
+« Mais puisque le frère le demande, je vais essayer de t'aider. Je ne l'ai pas, mais mon maître doit certainement la posséder. Donne-moi trois jours. Je serai capable de la lui voler en trois jours! » Cheng Xian afficha un sourire fier avant de discuter un peu avec Wang Lin. Il regarda le ciel et ajouta: « Aujourd'hui, la Senior sœur Tong a organisé un rendez-vous avec moi à l'extérieur, je n'aurai pas le temps de rester. Quant à la pilule d'Établissement des Fondations, ne t'inquiète pas, je m'en occupe! » Il repartit en hâte, très enthousiaste, sur son singe spirituel qui n'y mettait guère du sien.
 
 Il ne fallut pas trois jours: le lendemain à midi, Cheng Xian ne vint pas lui-même; ce fut le plus grand des deux singes spirituels qui rugit quelques fois devant la cour de Wang Lin, jeta un jade et repartit.
 

@@ -18,7 +18,7 @@ Les secousses s'intensifièrent violemment, puis une créature ressemblant à un
 
 La partie de la créature dépassant du sol mesurait déjà plus de cent pieds de long. Son corps entier était rouge et divisé en sections semblables à du bambou; elle était absolument terrifiante.
 
-Pourtant, aucune trace de peur ne marquait le visage de Zhou Ru; au contraire, elle semblait excitée. Elle jeta ses fruits, frappa la tête de Petit Blanc et s'exclama: « Petit Blanc, tu dois regarder attentivement; c'est ainsi que nous pourrons retrouver l'oncle! »
+Pourtant, aucune trace de peur ne marquait le visage de Zhou Ru; au contraire, elle semblait enthousiaste. Elle jeta ses fruits, frappa la tête de Petit Blanc et s'exclama: « Petit Blanc, tu dois regarder attentivement; c'est ainsi que nous pourrons retrouver l'oncle! »
 
 Petit Blanc roula des yeux et poussa un rugissement vers le ver géant.
 

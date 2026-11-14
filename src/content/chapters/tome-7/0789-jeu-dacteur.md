@@ -12,7 +12,7 @@ Tout cela parce que Wang Lin était apparu à cinq cents pieds de la porte céle
 
 En un instant, Wang Lin était devenu le centre de toutes les attentions.
 
-L'expression de Wang Lin s'assombrit lorsqu'il réalisa que tous ses chemins de fuite avaient été bloqués par l'homme aux cheveux blancs.
+L'expression de Wang Lin s'assombrit lorsqu'il se rendit compte que tous ses chemins de fuite avaient été bloqués par l'homme aux cheveux blancs.
 
 Ce verrouillage était invisible à l'œil nu, mais son sens divin percevait des lames acérées émanant de toutes les directions. Peu importe où il allait, c'était comme s'il se heurtait à une lame tranchante.
 

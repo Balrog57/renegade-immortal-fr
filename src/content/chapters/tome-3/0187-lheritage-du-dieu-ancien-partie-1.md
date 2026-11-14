@@ -84,7 +84,7 @@ Cependant, sur cet os de la main, il ne restait que quatre doigts et demi; la mo
 
 Dès l'apparition de l'os, plusieurs éclairs violets dans le tourbillon s'immobilisèrent instantanément, comme si le temps s'était arrêté. Le Seigneur Démon des Six Désirs ne prit même pas garde à elles alors qu'il saisissait l'os presque complet et crachait une bouffée d'énergie spirituelle.
 
-L'énergie fut rapidement absorbée par l'os. Ensuite, le Seigneur Démon des Six Désirs commença à exécuter des séries de sceaux manuels avec l'os. Si Wang Lin avait été présent, il aurait réalisé qu'il s'agissait des mêmes sceaux que ceux obtenus auprès de l'Empereur Antique, mais au lieu d'environ 400 séries, il y en avait plus de 1000.
+L'énergie fut rapidement absorbée par l'os. Ensuite, le Seigneur Démon des Six Désirs commença à exécuter des séries de sceaux manuels avec l'os. Si Wang Lin avait été présent, il aurait compris qu'il s'agissait des mêmes sceaux que ceux obtenus auprès de l'Empereur Antique, mais au lieu d'environ 400 séries, il y en avait plus de 1000.
 
 Ces mille et plus sceaux furent tous exécutés par cet os. Peu à peu, un tourbillon apparut devant lui. Les yeux du Seigneur Démon des Six Désirs s'illuminèrent. S'il avait osé venir ici, c'est parce qu'il sentait avoir pleinement compris les mystères de cet os et que, grâce à lui, il pourrait repartir comme il l'avait fait il y a mille ans.
 
@@ -130,7 +130,7 @@ Progressivement, la quantité de Qi noir s'accumula jusqu'à couvrir une vaste z
 
 Son expression devenait de plus en plus exaltée, et une agréable surprise y apparut: il sentait clairement que le Désir de Peur dans le corps du Dieu Ancien était bien plus vaste qu'il ne l'avait imaginé, dépassant largement ses attentes.
 
-Le temps passa lentement. À cent mille milles de là, le Magicien Démon Céleste afficha une expression excitée en regardant vers le Seigneur Démon des Six Désirs. Il marmonna pour lui-même: « Absorbe, mon bon disciple, continue d'absorber. Pour le plan de ton maître, tu dois livrer une performance magistrale! »
+Le temps passa lentement. À cent mille milles de là, le Magicien Démon Céleste afficha une expression exaltée en regardant vers le Seigneur Démon des Six Désirs. Il marmonna pour lui-même: « Absorbe, mon bon disciple, continue d'absorber. Pour le plan de ton maître, tu dois livrer une performance magistrale! »
 
 Il laissa échapper un sourire étrange. Ses mains se joignirent puis s'étendirent soudain, propageant un anneau de lumière bleue qui couvrit instantanément tout ce qui se trouvait dans un rayon de dix mille milles. Une pensée traversa son esprit et son sourire s'élargit: « Bon disciple. Autrefois, ton maître avait bien calculé: ton obsession serait le plus grand obstacle de ta culture. Mais je vois maintenant que cette obsession sera la cause directe qui permettra à ce vieil homme de réussir. »
 

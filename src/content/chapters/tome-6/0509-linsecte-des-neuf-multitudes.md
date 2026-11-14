@@ -34,7 +34,7 @@ C'était comme si une paire d'yeux les observait, mais lorsqu'ils tentaient de v
 
 « Peu importe. Cet endroit est tout simplement trop étrange. Une fois notre tâche accomplie, le mieux sera de partir au plus vite. Chaque seconde passée ici rend ma respiration plus difficile; c'est comme si une montagne immense pesait sur mes épaules. J'ai même l'impression que je vais craquer, perdre le contrôle et tuer quelqu'un. C'est un sentiment que je n'avais pas éprouvé depuis que j'ai atteint le stade de la Formation de l'Âme. »
 
-Les yeux du petit vieillard s'illuminèrent, puis il envoya rapidement son message: « Hein? Vous aussi, vous ressentez cette pulsion meurtrière? Quand j'ai tué cette bête tout à l'heure, j'ai failli perdre le contrôle de moi-même. Shi Fang, il y a définitivement quelque chose qui ne va pas ici. Devrions-nous partir maintenant? »
+Les yeux du petit vieillard s'illuminèrent, puis il envoya rapidement son message: « Hein? Vous aussi, vous ressentez cette pulsion meurtrière? Quand j'ai tué cette bête tout à l'heure, j'ai failli perdre le contrôle de moi-même. Shi Fang, il y a assurément quelque chose qui ne va pas ici. Devrions-nous partir maintenant? »
 
 L'Ancien nommé Shi réfléchit un instant, puis, jetant un regard aux juniors devant eux, déclara: « Nous sommes déjà allés si loin, et il reste moins de trois jours de route. Il ne devrait pas y avoir de problème; nous devons simplement accélérer la cadence! »
 

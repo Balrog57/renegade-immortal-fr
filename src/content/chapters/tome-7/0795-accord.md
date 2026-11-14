@@ -8,7 +8,7 @@ slug: accord
 ---
 Alors qu'il était plongé dans la confusion, une lumière rouge sang jaillit de ses yeux et enveloppa instantanément son corps; il serra alors le jade céleste et l'avala, fixant Maître Yan Leizi d'un regard féroce.
 
-Lorsque Maître Yan Leizi réalisa que quelque chose ne tournait pas rond, sa main droite bougea avec célérité et les 49 fragments apparurent immédiatement devant lui. À cet instant précis, Qing Shui laissa échapper un rugissement assourdissant, empreint de la puissance des cieux.
+Lorsque Maître Yan Leizi se rendit compte que quelque chose ne tournait pas rond, sa main droite bougea avec célérité et les 49 fragments apparurent immédiatement devant lui. À cet instant précis, Qing Shui laissa échapper un rugissement assourdissant, empreint de la puissance des cieux.
 
 Ce cri résonna tel un coup de tonnerre. De nombreuses fissures se formèrent devant Qing Shui, se déchirèrent et se précipitèrent droit sur Maître Yan Leizi.
 

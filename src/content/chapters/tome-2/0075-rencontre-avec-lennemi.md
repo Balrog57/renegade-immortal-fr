@@ -18,7 +18,7 @@ La scène qu'il avait entrevue l'avait totalement terrassé. C'était un vérita
 
 Liu San fronça les sourcils et s'apprêtait à prendre la parole quand un cri atroce retentit soudain au loin. Une énorme tête décrivit un arc dans les airs, lancée de loin, retomba au sol et roula jusqu'à s'immobiliser près du feu.
 
-Le visage de Liu San changea radicalement. Il se redressa brusquement, réalisant que cette tête appartenait à l'un de leurs patrouilleurs.
+Le visage de Liu San changea radicalement. Il se redressa brusquement, comprenant que cette tête appartenait à l'un de leurs patrouilleurs.
 
 Yang Sen saisit la tête. Il serra le poing et dit d'une voix déchirée: « Er Gou, ton frère aîné jure de te venger! »
 

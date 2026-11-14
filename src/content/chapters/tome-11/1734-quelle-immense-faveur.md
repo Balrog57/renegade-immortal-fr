@@ -32,7 +32,7 @@ Simultanément, à l'extérieur de la tour, des acclamations incessantes retenti
 
 Le Général de l'Eau était le plus enthousiaste. Il continuait de faire de grands gestes, et la sphère d'eau ne cessait de se condenser. La sphère mesurait désormais moins de 100 000 pieds de large et se comprimait de plus en plus vite. L'eau était trouble et des grondements en émanaient; c'était le son de l'eau qui se condensait, une mélodie céleste aux oreilles du Général de l'Eau.
 
-« C'est trop lent. Je dois accélérer pour éviter tout accident! » Pour une raison inconnue, bien que le Général de l'Eau soit excité, il ressentit soudain un pressentiment terrifiant à mesure que la sphère rétrécissait. Ce sentiment surgit si brusquement qu'il en fut lui-même perplexe.
+« C'est trop lent. Je dois accélérer pour éviter tout accident! » Pour une raison inconnue, bien que le Général de l'Eau soit enfiévré, il ressentit soudain un pressentiment terrifiant à mesure que la sphère rétrécissait. Ce sentiment surgit si brusquement qu'il en fut lui-même perplexe.
 
 Cependant, cette confusion ne fit qu'accroître son inquiétude, et la seule chose qu'il put faire fut de forcer la condensation de la sphère encore plus rapidement!
 

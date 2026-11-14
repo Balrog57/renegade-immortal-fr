@@ -54,7 +54,7 @@ Les tatouages sur sa peau mouvaient comme de l'eau courante, comme si une force 
 
 À la surprise de Yun Quezi, le respect qu'il éprouvait autrefois pour le garçon à la grosse tête s'était transformé; c'était comme si une force étouffait ce sentiment.
 
-Wang Lin fut également affecté. Dès son entrée, il réalisa que le haricot céleste que Qing Shui lui avait offert était opprimé. C'était comme s'il avait été immergé dans l'eau, ralentissant considérablement ses mouvements.
+Wang Lin fut également affecté. Dès son entrée, il comprit que le haricot céleste que Qing Shui lui avait offert était opprimé. C'était comme s'il avait été immergé dans l'eau, ralentissant considérablement ses mouvements.
 
 L'environnement était d'un silence absolu et d'une noirceur totale. Pourtant, Wang Lin et ses compagnons voyaient tout distinctement. Cette 17e couche n'était pas vaste, mais d'innombrables chaînes pendaient des murs pour maintenir les cadavres en place.
 

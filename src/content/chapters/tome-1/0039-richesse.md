@@ -26,7 +26,7 @@ L'homme corpulent rit de bon cœur. Après avoir fini de s'esclaffer, il fit un 
 
 Wang Lin le remercia rapidement et se dirigea vers le pavillon. Lorsqu'il fut à cinquante pieds de l'entrée, il détecta soudainement des ondes d'énergie émanant du bâtiment, comme si elles tentaient de lui barrer la route.
 
-En voyant cela, le gros homme réalisa qu'il avait oublié de désactiver la formation qui entourait le pavillon. Il voulut avertir Wang Lin, mais au moment même où il allait parler, il s'interrompit brusquement, comme si une arête de poisson lui était restée coincée dans la gorge. Ses yeux s'agrandirent et il fixa Wang Lin avec une expression d'incrédulité totale.
+En voyant cela, le gros homme se rendit compte qu'il avait oublié de désactiver la formation qui entourait le pavillon. Il voulut avertir Wang Lin, mais au moment même où il allait parler, il s'interrompit brusquement, comme si une arête de poisson lui était restée coincée dans la gorge. Ses yeux s'agrandirent et il fixa Wang Lin avec une expression d'incrédulité totale.
 
 Wang Lin ressentit la résistance et se remémora la honte subie autrefois. Il laissa échapper un reniflement et continua d'avancer: cinquante pieds, quarante pieds, trente pieds, vingt pieds, dix pieds!
 
@@ -68,7 +68,7 @@ De retour dans le jardin de Sun Dazhu, Wang Lin sortit l'épée. Sun Dazhu resta
 
 Trois jours plus tard, la cloche de la Secte Heng Yue sonna neuf coups. Son écho résonna longuement à travers la montagne. Le chef de secte, tous les Anciens et leurs disciples respectifs s'étaient rassemblés devant le hall principal.
 
-Ils virent un point noir apparaître dans le ciel. Ce point se rapprochait d'eux inexorablement, jusqu'à ce qu'ils réalisent qu'il s'agissait d'un mille-pattes long d'environ mille pieds. La créature était d'un noir absolu et avançait sur des nuages sombres, des grondements de tonnerre résonnant dans son vol, tandis qu'elle se ruait rapidement vers eux.
+Ils virent un point noir apparaître dans le ciel. Ce point se rapprochait d'eux inexorablement, jusqu'à ce qu'ils comprennent qu'il s'agissait d'un mille-pattes long d'environ mille pieds. La créature était d'un noir absolu et avançait sur des nuages sombres, des grondements de tonnerre résonnant dans son vol, tandis qu'elle se ruait rapidement vers eux.
 
 Tous les disciples internes de la Secte Heng Yue retinrent leur souffle, le regard empreint de terreur. Le visage de certaines disciples devint livide et leurs jambes se dérobèrent.
 

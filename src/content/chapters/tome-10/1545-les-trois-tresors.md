@@ -90,7 +90,7 @@ La colère fit briller les yeux du fou qui se mit à rugir. Il se débattit et u
 
 Wang Lin le regarda froidement. C'était un homme calme qui n'aimait pas céder aux caprices d'autrui. Voyant la détermination du fou, il laissa échapper un reniflement glacial et agita sa main droite. Deux rayons de lumière jaillirent de son espace de stockage.
 
-Un rugissement excité s'éleva du premier rayon.
+Un rugissement enfiévré s'éleva du premier rayon.
 
 « Je ne reviens pas, quoi qu'il arrive, je ne reviens pas! Chaque fois que tu as besoin de moi, tu me sors, puis tu me rejettes quand tu n'as plus besoin de moi! Bien que je sois un esprit d'épée, j'ai accompli de grands mérites pour un démon comme toi. Tu ne peux pas me traiter ainsi! » Ce rayon était Xu Liguo. Dès qu'il apparut, il vit le fou.
 

@@ -76,7 +76,7 @@ La silhouette de Wang Lin se déplaça comme l'éclair. Sans un mot, il chargea,
 
 Une lame en forme de demi-lune fut projetée aussitôt après le coup d'épée.
 
-Lorsque le Deuxième Frère réalisa qu'il ne pouvait pas reculer assez vite, il forma un sceau et cria: « Technique interdite, Corps Démoniaque Immortel! »
+Lorsque le Deuxième Frère comprit qu'il ne pouvait pas reculer assez vite, il forma un sceau et cria: « Technique interdite, Corps Démoniaque Immortel! »
 
 À cet instant, une série de craquements retentit dans son corps. Au moment où l'énergie tranchante de l'épée céleste l'atteignit, il se transforma en brume noire.
 

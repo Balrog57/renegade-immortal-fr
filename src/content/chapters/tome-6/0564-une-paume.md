@@ -104,7 +104,7 @@ Wang Lin devait l'admettre: il manquait de techniques de combat!
 
 Même en utilisant ses trésors, il n'était pas certain de pouvoir l'emporter. C'était la première fois depuis des centaines d'années que Wang Lin affrontait un égal en termes de culture et qu'il ne se sentait pas vainqueur; s'il était le moindre peu imprudent, il perdrait!
 
-De plus, il se trouvait dans la ville du général démon. Son but était de sauver Treize, et s'il était blessé, toute chance de sauvetage s'envolerait. En réalisant qu'il ne pouvait pas gagner par la force brute, une idée lui vint: une ruse!
+De plus, il se trouvait dans la ville du général démon. Son but était de sauver Treize, et s'il était blessé, toute chance de sauvetage s'envolerait. En comprenant qu'il ne pouvait pas gagner par la force brute, une idée lui vint: une ruse!
 
 Flottant les yeux clos, il se remémora l'empreinte de main géante qu'il avait vue dans le Royaume Céleste. À l'époque, il y avait passé un temps infini pour tenter de la comprendre, avant de l'utiliser contre Hongdie. Cependant, cette paume n'avait été que forme, sans puissance réelle derrière elle.
 

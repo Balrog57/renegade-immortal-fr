@@ -26,7 +26,7 @@ En réalité, même si des cultivateurs passaient par là, ils auraient eu du ma
 
 À cet instant, Wang Lin tenait un bloc de bois carré entre ses mains. Ses mouvements étaient précis, et une créature en forme de tortue émergeait progressivement du bois.
 
-Contemplant la sculpture, il posa son couteau et saisit une cruche. Alors qu'il s'apprêtait à boire, il réalisa qu'il n'y avait plus une goutte de vin.
+Contemplant la sculpture, il posa son couteau et saisit une cruche. Alors qu'il s'apprêtait à boire, il se rendit compte qu'il n'y avait plus une goutte de vin.
 
 En temps normal, Da Niu serait venu le regarder sculpter en lui apportant une cruche de vin.
 

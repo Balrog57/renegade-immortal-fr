@@ -26,7 +26,7 @@ La rose bleue se dissipa lentement devant Wang Lin, se transformant en particule
 
 Celle-ci émit des éclats de lumière bleue pendant un long moment, avant que l'éclat ne s'estompe progressivement pour reprendre son aspect normal.
 
-Wang Lin fronça les sourcils en ramassant la couronne pour l'examiner. Peu après, il sembla réaliser quelque chose.
+Wang Lin fronça les sourcils en ramassant la couronne pour l'examiner. Peu après, il sembla comprendre quelque chose.
 
 Cette couronne semblait avoir acquis une once d'esprit par rapport à auparavant. Wang Lin l'examina attentivement et put vaguement distinguer, à l'intérieur, la silhouette d'un être qui dansait avec une épée.
 
@@ -62,7 +62,7 @@ Au moment où le sang fut absorbé, l'esprit de Wang Lin trembla. C'était comme
 
 Simultanément, un symbole imprégné d'une aura ancienne apparut dans son esprit. Wang Lin regarda la Perle Défiant le Ciel avec un regard déterminé.
 
-Il avait attendu près de mille ans pour enfin achever la Perle Défiant le Ciel, mais au lieu d'être excité, il restait prudent et calme.
+Il avait attendu près de mille ans pour enfin achever la Perle Défiant le Ciel, mais au lieu d'être exalté, il restait prudent et calme.
 
 Ce trésor l'avait accompagné durant une très longue période, mais en fin de compte, sa compréhension de celui-ci était trop superficielle.
 

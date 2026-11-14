@@ -86,7 +86,7 @@ Cette ombre était une tête. Une tête aussi vaste que le monde, occupant la ma
 
 Ce sentiment émanait de sa lignée, du sang de l'âme qu'il avait obtenu de l'Ancêtre Ancien!
 
-Si Wang Lin s'était rendu auprès du clan du Dao Gu sur le Continent Xian Gang pour voir la statue imposante dressée dans la cité céleste, qui contemplait le monde avec mépris, il aurait réalisé que la tête apparue était identique à celle de cette statue!
+Si Wang Lin s'était rendu auprès du clan du Dao Gu sur le Continent Xian Gang pour voir la statue imposante dressée dans la cité céleste, qui contemplait le monde avec mépris, il aurait compris que la tête apparue était identique à celle de cette statue!
 
 « Ancêtre Ancien! » Au loin, le corps de Xuan Luo trembla. Il contempla la tête avec une immense révérence.
 

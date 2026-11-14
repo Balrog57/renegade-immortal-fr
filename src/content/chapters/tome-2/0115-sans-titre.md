@@ -20,7 +20,7 @@ Une brise légère souffla et l'odeur du sang se propagea. Les petites sectes al
 
 Soudain, l'environnement retomba dans le mutisme alors que la formation recommençait à briller.
 
-Cette fois, un très grand nombre de personnes en sortirent. Elles apparurent les unes après les autres; Teng Huayuan réalisa qu'il s'agissait des disciples de la Secte Xuan Dao, mais il les observa néanmoins avec une vigilance accrue.
+Cette fois, un très grand nombre de personnes en sortirent. Elles apparurent les unes après les autres; Teng Huayuan comprit qu'il s'agissait des disciples de la Secte Xuan Dao, mais il les observa néanmoins avec une vigilance accrue.
 
 Soudain, l'expression de Teng Huayuan changea radicalement, son visage se muant en un masque d'intention meurtrière. Son corps disparut dans un mouvement fulgurant pour réapparaître aux côtés d'un disciple de la Secte Xuan Dao. « Tu es enfin sorti! » tonna-t-il, tout en projetant sa main vers la tête du jeune homme qui venait de s'avancer.
 

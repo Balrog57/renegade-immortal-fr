@@ -70,7 +70,7 @@ Wang Ping secoua la tête en souriant. « Papa, tu m'as appris que si je rencont
 
 Wang Ping regarda Wang Lin. Son sourire révélait sa nature libre, mais une pointe de regret y perçait...
 
-« Papa, moi, Wang Ping, je n'ai pas de mère, seulement un père. Merci d'avoir été à mes côtés. » Wang Ping sentit ses yeux s'embrumer, mais il réalisa qu'il n'avait plus de larmes.
+« Papa, moi, Wang Ping, je n'ai pas de mère, seulement un père. Merci d'avoir été à mes côtés. » Wang Ping sentit ses yeux s'embrumer, mais il comprit qu'il n'avait plus de larmes.
 
 « Il se trouve que je n'ai même plus de larmes... » Wang Ping regarda amèrement son père et murmura: « Papa, prends soin de toi... Ping Er n'a pas pu tenir sa promesse de t'accompagner à travers les générations... »
 

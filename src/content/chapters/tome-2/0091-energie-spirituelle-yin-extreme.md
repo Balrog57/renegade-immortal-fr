@@ -59,7 +59,7 @@ Voyant la lumière rouge se scinder, Wang Lin afficha un sourire de satisfaction
 
 Au fur et à mesure qu'il avançait, les deux lumières rouges continuaient de briller intensément tandis que le rang augmentait. Bonne qualité: rang 2, rang 3... jusqu'au rang 5. Wang Lin s'arrêta. Devant lui s'étendait une large route bordée de bâtiments en ruines de chaque côté. Il était évident qu'il y a fort longtemps, cet endroit était très peuplé.
 
-Wang Lin évalua la distance et réalisa qu'il n'avait parcouru même pas un millième de la superficie de la ville; il accéléra donc le pas.
+Wang Lin évalua la distance et se rendit compte qu'il n'avait parcouru même pas un millième de la superficie de la ville; il accéléra donc le pas.
 
 La lumière rouge émise par la technique était très voyante dans la nuit. Le sens divin de Wang Lin était déployé, scrutant sans cesse ses environs. La qualité de l'énergie Yin ne cessait d'augmenter: bonne qualité, rang 6, 7, 8...
 
