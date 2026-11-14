@@ -44,7 +44,7 @@ Wang Lin fut surpris et scruta attentivement les yeux de la femme. Il vit qu'ell
 
 La femme releva la tête, dévoilant une beauté incomparable qui aurait fait chavirer le cœur de n'importe quel homme. Elle secoua la tête et rit: « Mille kilomètres... Je vais vous appeler Ma Liang. Ma Liang, mille kilomètres ne représentent que quelques respirations pour moi. Si je voulais vous tuer, à moins que vous ne puissiez vous échapper à dix mille kilomètres, cela serait inutile. Soit, si vous insistez, allez-y. »
 
-Sans un mot, le corps de Wang Lin s'élança dans les airs, laissant derrière lui une traînée de lumière arc-en-ciel. Une heure plus tard, il avait déjà parcouru trois mille kilomètres. Il s'arrêta à l'embouchure d'un volcan pour reprendre son souffle. Après avoir ajusté son énergie spirituelle, il pointa le milieu de son front et une tache de lumière d'un blanc nacré en sortit.
+Sans un mot, le corps de Wang Lin s'élança dans les airs, laissant derrière lui une traînée de lumière arc-en-ciel. Une demi-heure plus tard, il avait déjà parcouru trois mille kilomètres. Il s'arrêta à l'embouchure d'un volcan pour reprendre son souffle. Après avoir ajusté son énergie spirituelle, il pointa le milieu de son front et une tache de lumière d'un blanc nacré en sortit.
 
 Wang Lin ne daigna même pas un second regard à l'objet avant de s'élancer à nouveau. En chemin, il se demandait si les paroles de la femme étaient sincères ou non, mais quoi qu'il en soit, il n'était pas prudent d'offenser une cultivatrice de l'Âme Naissante pour le moment.
 

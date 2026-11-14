@@ -86,7 +86,7 @@ Il ne lui fallut même pas un demi-bâton d'encens pour faire ce voyage aller-re
 
 Pour former la tête, l'essence de feu ne suffisait pas. Ce dont il avait le plus besoin était la volonté du feu.
 
-Une heure plus tard, Du Qing vint le saluer, apportant certaines des âmes de feu terrestre récupérées par les disciples, ainsi qu'une carte. Il s'agissait d'une carte complète du Continent Tian Niu, sur laquelle les veines secondaires et enfantines étaient marquées.
+Une demi-heure plus tard, Du Qing vint le saluer, apportant certaines des âmes de feu terrestre récupérées par les disciples, ainsi qu'une carte. Il s'agissait d'une carte complète du Continent Tian Niu, sur laquelle les veines secondaires et enfantines étaient marquées.
 
 Wang Lin ne prit pas la peine de feindre la politesse et absorba directement ces âmes de feu terrestre. Cependant, elles contenaient peu de volonté de feu, ce qui n'aidait que très peu à la formation de son corps véritable d'essence de feu.
 

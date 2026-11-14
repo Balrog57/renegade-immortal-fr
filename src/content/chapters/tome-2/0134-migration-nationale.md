@@ -58,7 +58,7 @@ Le temps passa lentement tandis qu'il s'immergeait dans l'étude de la Technique
 
 Une lueur de joie éclaira son visage et il ne put s'empêcher de murmurer: « Ce corps de Ma Liang a bien plus de talent et de racine spirituelle que mon précédent. Bien qu'il ne soit pas exceptionnel, il reste de qualité moyenne, ce qui rend l'apprentissage de cette pseudo-Technique d'Évasion Terrestre abordable. Mais je devrai encore m'entraîner longtemps pour la maîtriser véritablement. »
 
-Wang Lin sortit le seau en bois rempli de liquide spirituel, en but une grande gorgée, puis s'assit en méditation pour respirer. Une heure plus tard, toute la fatigue due à une nuit passée à tâtonner sur la Technique d'Évasion Terrestre avait disparu.
+Wang Lin sortit le seau en bois rempli de liquide spirituel, en but une grande gorgée, puis s'assit en méditation pour respirer. Une demi-heure plus tard, toute la fatigue due à une nuit passée à tâtonner sur la Technique d'Évasion Terrestre avait disparu.
 
 Il saisit nonchalamment le troisième jade pour l'examiner. Celui-ci contenait les traces des activités quotidiennes de Sun Youcai. Il semblait que ce dernier avait pour habitude de tenir un journal. Ce jade recelait approximativement trente ans de sa vie de cultivateur.
 
@@ -102,7 +102,7 @@ La belle femme qui avait croisé Wang Lin une fois répliqua sans ménagement: �
 
 Le lettré d'âge moyen ne s'en sentit pas gêné. Il regarda la femme avec tendresse, eut un petit rire et secoua la tête en silence.
 
-« Cette affaire est pourtant simple. Les bêtes spirituelles de feu existent depuis longtemps, mais elles n'ont jamais quitté les volcans. Je pense qu'il existe des restrictions naturelles qui les retiennent. Je dois simplement renforcer l'intensité des sceaux. Au lieu de perdre notre temps à discuter, nous pourrions agir dès maintenant. J'y vais. » L'homme agita ses manches, se leva et sortit. Il mesurait près de deux mètres et possédait des yeux larges comme des fleuves, un front proéminent et une bouche vaste comme la mer.
+« Cette affaire est pourtant simple. Les bêtes spirituelles de feu existent depuis longtemps, mais elles n'ont jamais quitté les volcans. Je pense qu'il existe des restrictions naturelles qui les retiennent. Je dois simplement renforcer l'intensité des sceaux. Au lieu de perdre notre temps à discuter, nous pourrions agir dès maintenant. J'y vais. » L'homme agita ses manches, se leva et sortit. Il mesurait six pieds et trois pouces et possédait des yeux larges comme des fleuves, un front proéminent et une bouche vaste comme la mer.
 
 Voyant que le silence s'était installé, l'homme nommé Song dit: « Peu importe. J'espère que l'apparition des bêtes de feu ne fera pas céder les sceaux. Faisons ce que nous faisons d'ordinaire et scellons les volcans dont nous avons la charge. »
 

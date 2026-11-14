@@ -62,7 +62,7 @@ Les yeux de Wang Lin brillèrent et il fit un autre pas. Il ne s'arrêta pas et 
 
 Au total, sept pas!
 
-Ces sept pas firent flotter Wang Lin encore plus haut. Lorsqu'il se trouva à plus de trois mètres du sol, la lumière argentée autour de lui vacilla puis disparut.
+Ces sept pas firent flotter Wang Lin encore plus haut. Lorsqu'il se trouva à plus de dix pieds du sol, la lumière argentée autour de lui vacilla puis disparut.
 
 À l'instant où la lueur s'éteignit, Wang Lin sentit une puissante force de déchirure se rassembler autour de lui, venant de toutes les directions. À ce moment précis, son corps échappa à son contrôle et disparut.
 

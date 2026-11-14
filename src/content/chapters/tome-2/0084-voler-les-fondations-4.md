@@ -12,7 +12,7 @@ Quant à Wang Lin, puisqu'il se trouvait loin et que le zombie ciblait principal
 
 Son regard perça la brume jaunâtre pour se fixer sur Teng Li.
 
-Les ondes de choc provoquées par l'explosion commençaient à faiblir, mais presque toutes les défenses de Teng Li avaient été brisées. Lorsque la dernière couche s'effondra, Teng Li pointa un doigt de la main gauche et la grande épée suspendue dans les airs se plaça aussitôt en travers devant le zombie, afin de l'empêcher d'attaquer de nouveau. Simultanément, il recula brusquement de cent soixante-cinq mètres.
+Les ondes de choc provoquées par l'explosion commençaient à faiblir, mais presque toutes les défenses de Teng Li avaient été brisées. Lorsque la dernière couche s'effondra, Teng Li pointa un doigt de la main gauche et la grande épée suspendue dans les airs se plaça aussitôt en travers devant le zombie, afin de l'empêcher d'attaquer de nouveau. Simultanément, il recula brusquement de cinq cents pieds.
 
 Il éprouvait désormais une peur profonde envers ce zombie. Sans ses nombreux trésors, il serait déjà mort.
 

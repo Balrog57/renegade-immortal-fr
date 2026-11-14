@@ -34,7 +34,7 @@ Alors qu'il entamait sa déduction, les deux yeux géants émettaient également
 
 De plus en plus de veines sanguines apparurent dans les yeux de Wang Lin, et il en fut de même pour les deux yeux géants derrière lui.
 
-Le temps s'écoulait lentement. En un éclair, une heure s'était écoulée. Le Tigre Blanc et ses compagnons restaient solennels, surveillant attentivement les environs pour protéger Wang Lin. Leur espoir de s'en sortir dépendait entièrement de la capacité de Wang Lin à briser cette formation.
+Le temps s'écoulait lentement. En un éclair, une demi-heure s'était écoulée. Le Tigre Blanc et ses compagnons restaient solennels, surveillant attentivement les environs pour protéger Wang Lin. Leur espoir de s'en sortir dépendait entièrement de la capacité de Wang Lin à briser cette formation.
 
 Après le passage d'encore un demi-bâton d'encens, les yeux de Wang Lin s'illuminèrent et il pointa le ciel à trois reprises. À chaque geste, une ligne de sang jaillissait des deux yeux géants situés derrière lui.
 

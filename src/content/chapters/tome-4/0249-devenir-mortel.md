@@ -70,7 +70,7 @@ Wang Lin ne chercha pas d'excuse et hocha la tête.
 
 L'homme sourit, joignit les mains et sauta sur son cheval. Soudain, le cheval poussa un cri, mais au lieu de s'élancer, il fit marche arrière. Wang Lin se retourna et vit qu'à cinq kilomètres derrière lui, une file de calèches avançait lentement.
 
-Une heure plus tard, la file de calèches apparut derrière Wang Lin. Près d'une centaine de cavaliers gardaient les véhicules. Leurs yeux étaient vifs et leur port altier; il était évident qu'il s'agissait d'experts en arts martiaux.
+Une demi-heure plus tard, la file de calèches apparut derrière Wang Lin. Près d'une centaine de cavaliers gardaient les véhicules. Leurs yeux étaient vifs et leur port altier; il était évident qu'il s'agissait d'experts en arts martiaux.
 
 Lu Xing se tenait près d'une des calèches, discutant avec quelqu'un à l'intérieur. La route n'étant pas large, Wang Lin se posta sur le bas-côté dès qu'il aperçut l'attelage.
 

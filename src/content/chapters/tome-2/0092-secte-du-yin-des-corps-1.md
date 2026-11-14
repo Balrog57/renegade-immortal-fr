@@ -88,7 +88,7 @@ L'homme étrange scruta le ciel avec une expression anxieuse. Les deux hommes se
 
 Les huit piliers de lumière venus de loin convergeaient en ce point précis. L'homme étrange s'arrêta et se prosterna de tout son corps. Ses yeux brillaient de dévotion tandis qu'il entonnait des paroles mélodieuses.
 
-À mesure que sa voix montait dans les aigus, la terre trembla et une statue de 330 mètres de haut surgit du sol. La statue s'éleva à mi-hauteur avant de se figer.
+À mesure que sa voix montait dans les aigus, la terre trembla et une statue de mille pieds de haut surgit du sol. La statue s'éleva à mi-hauteur avant de se figer.
 
 Elle représentait un homme aux longs cheveux. L'homme avait des traits antiques, un regard empreint de sagesse, et tenait une lance tout en scrutant l'horizon avec un air de dédain pour le monde. Autour de lui s'enroulait un dragon dont la gueule était ouverte, comme prêt à attaquer. Les écailles du dragon étaient si détaillées qu'elles semblaient réelles.
 
@@ -100,7 +100,7 @@ Wang Lin réfléchit un instant. Sans dire un mot, il bondit à plusieurs repris
 
 Il s'assit immédiatement et traça un sceau, faisant apparaître une lumière rouge. Celle-ci se divisa aussitôt en quatre, la lumière rouge atteignit son éclat maximal, puis, dans un bang, la boule de lumière se dissipa. Wang Lin fut saisi: il comprit que la qualité d'énergie Yin de cet endroit avait atteint la limite d'un lieu de Yin infernal: qualité extrême, rang 10!
 
-Dans sa joyeuse surprise, il commença promptement à cultiver pour absorber cette énergie. Cependant, cette fois, le rayon d'aspiration n'était pas vaste, mais concentré sur la dizaine de mètres qui l'entouraient. De loin, on aurait dit qu'un halo rouge circulaire était apparu pour envelopper la tête du dragon.
+Dans sa joyeuse surprise, il commença promptement à cultiver pour absorber cette énergie. Cependant, cette fois, le rayon d'aspiration n'était pas vaste, mais concentré sur les quelques dizaines de pieds qui l'entouraient. De loin, on aurait dit qu'un halo rouge circulaire était apparu pour envelopper la tête du dragon.
 
 Wang Lin resta assis ainsi pendant cinq jours.
 

@@ -72,7 +72,7 @@ Outre ces deux-là, les divers cultivateurs des autres sectes utilisèrent toute
 
 La flamme qui avait explosé s'était propagée sur plus de 3 kilomètres avant de finalement se dissiper. Toutes les tables situées dans ce périmètre furent réduites en cendres, et même les nuages furent totalement consumés, laissant derrière eux un immense vide.
 
-La silhouette de Wang Lin se déplaça comme l'éclair. Sans un mot, il chargea, l'épée céleste à la main. Il abattit son arme et un rayon d'énergie tranchante de plus de 30 mètres de haut s'abattit sur l'homme d'âge moyen.
+La silhouette de Wang Lin se déplaça comme l'éclair. Sans un mot, il chargea, l'épée céleste à la main. Il abattit son arme et un rayon d'énergie tranchante de cent pieds de haut s'abattit sur l'homme d'âge moyen.
 
 Une lame en forme de demi-lune fut projetée aussitôt après le coup d'épée.
 
@@ -110,7 +110,7 @@ L'âme originelle afficha un regard de terreur et s'apprêta à parler, mais Wan
 
 Zhao Xingsha fixa Wang Lin avant de sourire soudainement. « Septième Frère, tu as tué le Deuxième Frère et enfreint une règle majeure de la secte. Anciens de la discipline, veuillez capturer cet homme et le livrer au Maître pour jugement! »
 
-L'expression de Wang Lin resta sereine lorsqu'il répondit froidement: « Quiconque ose s'opposer à moi est mon ennemi! » Sur ces mots, il franchit d'un pas plus de 300 mètres et marcha droit vers Zhao Xingsha!
+L'expression de Wang Lin resta sereine lorsqu'il répondit froidement: « Quiconque ose s'opposer à moi est mon ennemi! » Sur ces mots, il franchit d'un pas mille pieds et marcha droit vers Zhao Xingsha!
 
 Plusieurs anciens de la discipline figuraient parmi les disciples de la Division Pourpre environnants. Après s'être regardés avec hésitation, aucun d'eux n'osa faire le moindre pas en avant.
 

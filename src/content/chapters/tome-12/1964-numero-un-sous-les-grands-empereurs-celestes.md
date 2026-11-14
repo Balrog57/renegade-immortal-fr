@@ -52,7 +52,7 @@ Plus le temps passait, plus son attente grandissait. Finalement, cette attente a
 
 Le temps s'écoula à nouveau. Un demi-bâton d'encens, un bâton d'encens... Bientôt, une heure entière s'était écoulée!
 
-Wang Lin n'était jamais resté aussi longtemps dans un palais, mais il était désormais au cœur du 17e. Cette heure écoulée permit à la confiance de Ming Dao de croître peu à peu, comme s'il retrouvait l'espoir.
+Wang Lin n'était jamais resté aussi longtemps dans un palais, mais il était désormais au cœur du 17e. Cette demi-heure écoulée permit à la confiance de Ming Dao de croître peu à peu, comme s'il retrouvait l'espoir.
 
 « Plus cela dure, plus c'est difficile pour lui, et plus ses chances de succès diminuent. Ce Wang Lin ne réussira pas, il ne peut pas réussir! » Toute l'énergie de Ming Dao était concentrée dans son regard alors qu'il observait le sombre 17e palais.
 

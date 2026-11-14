@@ -40,7 +40,7 @@ Cet homme était vêtu de bleu, avec trois dragons azur brodés sur sa poitrine.
 
 Sima Rufeng déclara d'une voix forte: « Junior frère Wang Lin, bien que nous ne soyons pas de la même division, j'ai entendu parler de vous. Aujourd'hui, je vais vous présenter un autre Senior frère. Senior frère Wang, votre homonyme est venu ici; montrez-vous donc. »
 
-« Humph! » Un son glacial résonna dans le vide, empreint d'une froideur tranchante. Wang Lin se retourna et constata qu'une autre personne s'était manifestée à plus d'une centaine de mètres derrière lui sans qu'il ne s'en aperçoive.
+« Humph! » Un son glacial résonna dans le vide, empreint d'une froideur tranchante. Wang Lin se retourna et constata qu'une autre personne s'était manifestée à plusieurs centaines de pieds derrière lui sans qu'il ne s'en aperçoive.
 
 Cet homme portait une robe verte et se tenait là, tel un bloc de glace éternelle. Après avoir jeté un unique regard sur Wang Lin, il ferma les yeux pour se reposer.
 
@@ -90,7 +90,7 @@ Wang Lin fronça les sourcils.
 
 Elle se retourna pour lancer un regard éloquent à Wang Lin avant de murmurer: « Senior frère, la dette que je vous ai contractée autrefois est désormais remboursée. À partir de maintenant, il n'y a plus aucun lien entre nous! » Sur ces mots, elle s'élança vers la Secte Tian Yun.
 
-Wang Lin observa sa silhouette disparaître lentement, le regard brillant d'une lueur étrange. Ses yeux devinrent plus froids et il sortit l'épée céleste. D'un geste vif, il libéra une onde d'énergie d'épée large d'une dizaine de mètres qui fendit le vide voisin.
+Wang Lin observa sa silhouette disparaître lentement, le regard brillant d'une lueur étrange. Ses yeux devinrent plus froids et il sortit l'épée céleste. D'un geste vif, il libéra une onde d'énergie d'épée large de plusieurs dizaines de pieds qui fendit le vide voisin.
 
 Au début, l'énergie était puissante, mais elle s'étiolait à mesure qu'elle progressait. Après trois respirations, elle s'était totalement éteinte.
 

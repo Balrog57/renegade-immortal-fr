@@ -46,13 +46,13 @@ Les yeux de Wang Lin s'illuminèrent et il dissimula son niveau de culture. Il r
 
 Deux sens divins le balayèrent comme pour l'évaluer. Ensuite, les deux semblèrent se détendre un peu et volèrent lentement vers lui.
 
-Ils s'arrêtèrent à plusieurs centaines de mètres de Wang Lin. Aucun des deux ne paraissait très âgé. L'homme était un jeune homme vêtu d'une robe verte. Cette robe était en désordre, trouée et marquée de taches de sang déjà devenues noires. Sur sa manche figurait un symbole mystérieux; c'était clairement l'emblème d'une certaine secte.
+Ils s'arrêtèrent à plusieurs milliers de pieds de Wang Lin. Aucun des deux ne paraissait très âgé. L'homme était un jeune homme vêtu d'une robe verte. Cette robe était en désordre, trouée et marquée de taches de sang déjà devenues noires. Sur sa manche figurait un symbole mystérieux; c'était clairement l'emblème d'une certaine secte.
 
 Quant à la femme, elle n'était pas très jolie. Son visage était criblé d'innombrables petites cavités. Si un mortel la voyait en pleine nuit, il la prendrait pour un fantôme.
 
 Bien que son visage fût peu gracieux, son corps possédait un charme féminin, et elle portait une tenue de gaze blanche d'une propreté parfaite. Si l'on faisait abstraction de ses traits, elle dégageait indéniablement une certaine attirance.
 
-Alors qu'ils se trouvaient à plusieurs centaines de mètres de Wang Lin, l'homme cria: « Je suis Murong Yun. Puis-je connaître votre nom? »
+Alors qu'ils se trouvaient à plusieurs milliers de pieds de Wang Lin, l'homme cria: « Je suis Murong Yun. Puis-je connaître votre nom? »
 
 Wang Lin resta calme et esquissa un sourire. « Je suis Qing Mu! » Qing Mu était le nom que Wang Lin utilisait lorsqu'il était entré dans la Secte Lian Hun.
 
@@ -118,7 +118,7 @@ Tout s'était passé à une vitesse fulgurante. Si Wang Lin n'avait pas prêté 
 
 L'éclair disparut rapidement. Même le vieil homme sur l'épée volante fut stupéfait. Il s'arrêta, regarda derrière lui et fronça sévèrement les sourcils.
 
-Murong Yun avança de quelques mètres. Il joignit les mains et dit: « Junior Murong Yun salue Senior. »
+Murong Yun avança de quelques dizaines de pieds. Il joignit les mains et dit: « Junior Murong Yun salue Senior. »
 
 Le vieil homme lança un regard froid à Murong Yun et l'ignora. Son attention se porta sur Wang Lin alors qu'il joignait les mains et disait: « Un grand merci, Daoïste Zeng! »
 

@@ -46,7 +46,7 @@ Mais soudain, la mer de sang environnante se souleva. Tout le sang au sol commen
 
 Ce changement soudain prit tout le monde au dépourvu. Sans un mot, Wang Lin retira résolument son Sens Divin pour éviter d'être touché.
 
-L'homme aux cheveux roux poussa un grondement sourd. Ses deux mains tracèrent rapidement des sceaux et dessinèrent un cercle devant lui. Il pressa ce cercle, et une violente onde de lumière aux cinq couleurs jaillit de son corps pour former, en un instant, une barrière de lumière aux cinq couleurs dans un rayon d'environ seize mètres autour de lui.
+L'homme aux cheveux roux poussa un grondement sourd. Ses deux mains tracèrent rapidement des sceaux et dessinèrent un cercle devant lui. Il pressa ce cercle, et une violente onde de lumière aux cinq couleurs jaillit de son corps pour former, en un instant, une barrière de lumière aux cinq couleurs dans un rayon d'environ cinquante pieds autour de lui.
 
 À l'extérieur de la barrière, les fragments d'âme chargèrent et s'écrasèrent contre elle.
 
@@ -62,7 +62,7 @@ L'homme aux cheveux roux ignora le mourant. Sa main droite dessina un symbole da
 
 Peu après, les yeux de l'homme aux cheveux roux projetèrent une lueur rouge. D'un mouvement des mains, il projeta plusieurs corps de cultivateurs dans les airs. Après avoir absorbé quelques lumières rouges, ils furent eux aussi enveloppés par la lumière dorée, leurs corps étant déjà ensanglantés.
 
-Wang Lin fut alarmé. Un instant plus tard, un autre cultivateur fut saisi par l'homme aux cheveux roux. L'horreur sur son visage fut vite remplacée par une détermination farouche. Il exécuta rapidement une technique manuelle et disparut pour réapparaître à 33 mètres de là. Dès son retour, il créa une faille dans l'air et s'y précipita.
+Wang Lin fut alarmé. Un instant plus tard, un autre cultivateur fut saisi par l'homme aux cheveux roux. L'horreur sur son visage fut vite remplacée par une détermination farouche. Il exécuta rapidement une technique manuelle et disparut pour réapparaître à cent pieds de là. Dès son retour, il créa une faille dans l'air et s'y précipita.
 
 L'homme aux cheveux roux eut un regard glacial. Il ne tenta pas d'arrêter le cultivateur mais ricana. Pointant son doigt vers son propre front, il cracha: « Explose! »
 

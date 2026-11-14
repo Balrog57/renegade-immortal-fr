@@ -39,7 +39,7 @@ Lorsqu'elle fut enfoncée aux trois cinquièmes de sa longueur, il sentit une pr
 
 L'expression de Wang Lin changea brusquement lorsqu'il ressentit une intention meurtrière titanesque émanant du fourreau. Presque sans hésiter, il lâcha prise, le fourreau tourné vers le bas. L'épée fut expulsée et vola en éclats. Aussitôt après, une immense vague d'intention meurtrière jaillit du fourreau.
 
-À cet instant précis, le ciel s'obscurcit soudainement. La cuvette sous les pieds de Wang Lin fut entièrement anéantie, comme broyée par une immense meule, et une profonde faille de plusieurs centaines de mètres s'ouvrit.
+À cet instant précis, le ciel s'obscurcit soudainement. La cuvette sous les pieds de Wang Lin fut entièrement anéantie, comme broyée par une immense meule, et une profonde faille de plusieurs milliers de pieds s'ouvrit.
 
 Le cuir chevelu de Wang Lin en fut engourdi. Il regarda le fourreau et prit une grande inspiration. Puis, il rangea soigneusement l'objet dans son sac de rangement, n'osant plus y toucher.
 

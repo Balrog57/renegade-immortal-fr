@@ -48,7 +48,7 @@ Derrière les cercles illusoires vint la sphère noire créée par la technique 
 
 Ainsi, au sein de ce brouillard dense, une profonde faille s'ouvrit. De l'extérieur, cet interstice semblait sans fin. Wang Lin saisit l'opportunité et s'y engouffra avec rapidité.
 
-Une fois les quatre rangées d'ondes repoussées sur une centaine de mètres, elles furent enveloppées par le brouillard qui affluait en masse. Graduellement, incapables de résister, elles commencèrent à se contracter, et la brèche rétrécit; sans doute disparaîtrait-elle bientôt avec l'effondrement des ondes.
+Une fois les quatre rangées d'ondes repoussées sur plusieurs centaines de pieds, elles furent enveloppées par le brouillard qui affluait en masse. Graduellement, incapables de résister, elles commencèrent à se contracter, et la brèche rétrécit; sans doute disparaîtrait-elle bientôt avec l'effondrement des ondes.
 
 La vitesse de Wang Lin était prodigieuse. Il plongea vers le fond de la brèche. Il voyait bien l'ouverture diminuer, mais ce n'était pas le moment de reculer: s'il restait la moindre possibilité, il ne voulait pas mettre en œuvre le dernier plan qu'il gardait en tête.
 
@@ -200,8 +200,8 @@ Au moment où la main de Meng allait s'abattre sur lui, une voix glaciale retent
 
 Simultanément, tous les autres cultivateurs démoniaques mirent eux aussi un genou à terre.
 
-L'homme d'âge moyen qui avait anéanti le plan du Magicien Démon Céleste surgit au loin et apparut à une trentaine de mètres devant Wang Lin, le fixant d'un regard glacial.
+L'homme d'âge moyen qui avait anéanti le plan du Magicien Démon Céleste surgit au loin et apparut à cent pieds devant Wang Lin, le fixant d'un regard glacial.
 
 Wang Lin soutint son regard avec calme.
 
-« Tu es donc bel et bien un Dévoreur d'Âmes. Très bien, suis-moi! » Après avoir parlé, l'homme agita la main dans le vide, ouvrant dans le ciel une faille d'environ 330 mètres de long.
+« Tu es donc bel et bien un Dévoreur d'Âmes. Très bien, suis-moi! » Après avoir parlé, l'homme agita la main dans le vide, ouvrant dans le ciel une faille d'environ mille pieds de long.

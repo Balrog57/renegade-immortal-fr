@@ -66,13 +66,13 @@ Alors que le jeune homme sortait du restaurant, une brise provenant de la riviè
 
 Il franchit les 3,3 kilomètres avec un calme olympien, comme s'il déambulait dans son propre jardin. À chaque pas, la puissance de son aura croissait, comme si elle était destinée à augmenter sans fin.
 
-Il s'arrêta à une centaine de mètres de Wang Lin. Il était alors entièrement enveloppé d'énergie spirituelle démoniaque, mais ce qui était étrange, c'est qu'une part d'énergie spirituelle céleste se mêlait à sa nature démoniaque.
+Il s'arrêta à trois cents pieds de Wang Lin. Il était alors entièrement enveloppé d'énergie spirituelle démoniaque, mais ce qui était étrange, c'est qu'une part d'énergie spirituelle céleste se mêlait à sa nature démoniaque.
 
 La fusion des énergies céleste et démoniaque créa une aura singulière qui envahit lentement la zone! Il se tenait là tel le maître de cet espace, comme s'il pouvait changer les couleurs du monde d'un simple revers de main.
 
 Wang Lin ne daigna pas le regarder. Le bateau sur la rivière disparut lentement au loin, et les notes de la cithare parvinrent à nouveau à ses oreilles, lui procurant une sensation particulière.
 
-Quant à l'homme situé à une centaine de mètres, Wang Lin agita négligemment la main, et le Doigt de la Mort réapparut!
+Quant à l'homme situé à trois cents pieds, Wang Lin agita négligemment la main, et le Doigt de la Mort réapparut!
 
 Le sort se matérialisa sous la forme d'un rayon de lumière noire devant Wang Lin avant de foncer vers le jeune homme tel un éclair.
 
@@ -120,7 +120,7 @@ Son regard vers Wang Lin devint d'une gravité extrême, une expression qu'il ne
 
 Son expression changea radicalement; renonçant à la téléportation, il se redressa d'un bond. L'énergie spirituelle céleste et démoniaque qu'il libéra provoqua l'effondrement du deuxième étage. Il s'élança hors du restaurant, résolu à fuir coûte que coûte.
 
-Mais il s'immobilisa brusquement dans les airs, une sueur froide trempant tout son corps. Wang Lin se tenait à trois mètres de lui, le regardant calmement.
+Mais il s'immobilisa brusquement dans les airs, une sueur froide trempant tout son corps. Wang Lin se tenait à dix pieds de lui, le regardant calmement.
 
 « Tu as perturbé ma culture et tu prétends encore t'enfuir? »
 
@@ -128,8 +128,8 @@ L'homme plus âgé afficha un sourire amer, ses yeux brillant d'une lueur de fol
 
 Une aura destructrice enveloppa le restaurant en plein effondrement, provoquant une série de grondements assourdissants.
 
-Après la violente explosion, un silence de mort régna dans un rayon de 330 mètres.
+Après la violente explosion, un silence de mort régna dans un rayon de mille pieds.
 
-Wang Lin apparut à 330 mètres de là. Bien que son expression fût normale, une lueur sombre traversa ses yeux. Il tapota doucement la poussière sur ses vêtements, puis s'éloigna vers l'horizon.
+Wang Lin apparut à mille pieds de là. Bien que son expression fût normale, une lueur sombre traversa ses yeux. Il tapota doucement la poussière sur ses vêtements, puis s'éloigna vers l'horizon.
 
 Sur la rivière, le corps du jeune homme chutait lentement tandis que des traînées de gaz gris s'échappaient de lui pour poursuivre Wang Lin...

@@ -48,7 +48,7 @@ Le vieil homme réfléchit un instant, puis se leva. Il jeta une pierre spiritue
 
 Dès leur départ, les cultivateurs de l'auberge furent envahis par la terreur. Un seul mot résonnait dans leurs esprits: « Cultivateur Âme Naissante! »
 
-Sous la conduite de Xu Mu, le vieil homme atteignit la Secte Dou Xie en seulement une heure. Il déploya son puissant Sens Divin et localisa Shang Guanmo.
+Sous la conduite de Xu Mu, le vieil homme atteignit la Secte Dou Xie en seulement une demi-heure. Il déploya son puissant Sens Divin et localisa Shang Guanmo.
 
 À la stupéfaction de Shang Guanmo, le vieil homme parvint à prélever, entre ses sourcils, une autre goutte de son sang d'essence de l'âme pour utiliser le lien entre les deux gouttes afin de traquer Wang Lin. Il relâcha ensuite Xu Mu et repartit à toute allure vers le sud-ouest.
 
@@ -112,6 +112,6 @@ Puis Wang Lin arracha Li Muwan de l'eau, tel une épée transperçant les cieux.
 
 Sous la surface, l'épée de cristal lumineux oscillait au rythme des vagues, guettant le moment opportun pour frapper.
 
-Une heure plus tard, un immense tourbillon apparut en mer. Il mesurait environ mille pieds de large ; il soulevait d'innombrables vagues gigantesques et tournoyait à toute vitesse dans un seul sens.
+Une demi-heure plus tard, un immense tourbillon apparut en mer. Il mesurait environ mille pieds de large ; il soulevait d'innombrables vagues gigantesques et tournoyait à toute vitesse dans un seul sens.
 
 Au centre du tourbillon, un tunnel noir communiquait avec les profondeurs de la Mer Xiu Mo. Une calebasse verte remonta lentement depuis l'intérieur de ce conduit.

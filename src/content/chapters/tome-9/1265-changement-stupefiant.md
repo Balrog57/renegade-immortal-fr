@@ -60,7 +60,7 @@ Car avec l'arrivée de Wang Lin, la compétition n'était plus équilibrée. La 
 
 Cependant, comme Wang Lin et Mu Bingmei l'avaient pressenti, le monde est imprévisible!
 
-Une heure avant le départ de la Secte Éternelle, un rayon de lumière jaillit de la secte. Ce rayon portait une aura capable de faire trembler les cieux et fonça droit sur le Maître de la Secte.
+Une demi-heure avant le départ de la Secte Éternelle, un rayon de lumière jaillit de la secte. Ce rayon portait une aura capable de faire trembler les cieux et fonça droit sur le Maître de la Secte.
 
 Un vieil homme se trouvait à l'intérieur de ce faisceau lumineux. Wang Lin n'avait jamais vu cet homme auparavant, mais d'après l'aura qui émanait de son corps, il était lui aussi au stade du Fléau Céleste!
 

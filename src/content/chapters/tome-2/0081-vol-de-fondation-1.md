@@ -32,7 +32,7 @@ Normalement, à cette heure de la journée, l'auberge était très animée, mais
 
 Wang Lin déploya son sens divin et son visage changea soudainement. Une force mystérieuse entourait l'auberge, empêchant le sens divin de Wang Lin de pénétrer à l'intérieur.
 
-Sans dire un mot, le corps de Wang Lin recula brusquement. Il enveloppa son être de la technique d'attraction et son corps s'élança en arrière sur une centaine de mètres, telle une flèche décochée.
+Sans dire un mot, le corps de Wang Lin recula brusquement. Il enveloppa son être de la technique d'attraction et son corps s'élança en arrière sur plusieurs centaines de pieds, telle une flèche décochée.
 
 « Tiens? Ta réaction a été plutôt rapide. » Une voix légèrement surprise retentit soudainement alors qu'un homme sortait de l'auberge. Ce dernier avait vingt-cinq ou vingt-six ans, des yeux brillants comme des étoiles et des sourcils en forme d'épée, et portait une robe blanche, blanche comme la neige, ornée d'une vigne noire brodée sur les poignets.
 

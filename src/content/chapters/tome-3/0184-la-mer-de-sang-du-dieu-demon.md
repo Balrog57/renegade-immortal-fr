@@ -10,9 +10,9 @@ Dans la troisième épreuve de la Terre Gu Shen, au sein de cet espace fracturé
 
 De cette brèche surgit une main aux ongles longs et couverte d'épines osseuses. Cette main paraissait glaciale, dotée d'ongles extrêmement pointus et peints en noir. Elle était couverte de pustules, dont chacune laissait jaillir une épine osseuse.
 
-Après que ces mains monstrueuses eurent traversé la faille, elles s'en saisirent et la déchirèrent impitoyablement. La petite déchirure n'était plus un simple ovale; elle atteignait désormais au moins 33 mètres de haut. Des vagues de rouge et de noir jaillirent immédiatement de la brèche spatiale, et une silhouette immense en émergea. Cette figure présentait une bosse évidente sur le dos, lui donnant l'apparence d'un bossu.
+Après que ces mains monstrueuses eurent traversé la faille, elles s'en saisirent et la déchirèrent impitoyablement. La petite déchirure n'était plus un simple ovale; elle atteignait désormais plus de cent pieds de haut. Des vagues de rouge et de noir jaillirent immédiatement de la brèche spatiale, et une silhouette immense en émergea. Cette figure présentait une bosse évidente sur le dos, lui donnant l'apparence d'un bossu.
 
-Il mesurait plus de 33 mètres de haut et son corps était semblable à ses mains, couvert de pustules. Certaines étaient même rompues, laissant suinter un liquide noir et fétide. Une épine osseuse émergeait de chaque pustule. Si l'on regardait cet être en dehors de ses articulations, il était entièrement recouvert d'épines osseuses.
+Il mesurait plus de cent pieds de haut et son corps était semblable à ses mains, couvert de pustules. Certaines étaient même rompues, laissant suinter un liquide noir et fétide. Une épine osseuse émergeait de chaque pustule. Si l'on regardait cet être en dehors de ses articulations, il était entièrement recouvert d'épines osseuses.
 
 Des lambeaux de tissu déchiré pendaient sur ces pointes. En observant son visage hideux, on pouvait constater qu'il ressemblait grandement à Meng Tuozi, mais sa stature était bien plus imposante.
 
@@ -22,7 +22,7 @@ Le démon scruta le vide et marmonna pour lui-même: « Le Maître a ordonné qu
 
 À ce moment précis, une âme errante apparut soudainement, mais lorsqu'elle vit ce démon, elle l'ignora simplement et passa son chemin. Le démon ignora également l'âme errante, fixant la direction de cette odeur infecte. Son corps disparut alors qu'il s'élançait vers cette effluve.
 
-La direction vers laquelle le démon se dirigeait était celle où se trouvaient Wang Lin et l'Empereur Antique. Wang Lin regarda calmement l'Empereur Antique, qui était piégé dans la lumière. La lueur provenant de la pagode s'était réduite de 99 mètres à seulement cinquante mètres.
+La direction vers laquelle le démon se dirigeait était celle où se trouvaient Wang Lin et l'Empereur Antique. Wang Lin regarda calmement l'Empereur Antique, qui était piégé dans la lumière. La lueur provenant de la pagode s'était réduite de près de trois cents pieds à seulement cent cinquante pieds.
 
 Depuis que Wang Lin était devenu un dévoreur d'âmes, il avait perdu toutes les émotions propres aux mortels. Il était froid et impitoyable. Alors qu'il s'apprêtait à ordonner aux âmes errantes de lancer une nouvelle attaque, il sentit, via une âme errante sous son contrôle, qu'une violente fluctuation d'âme se dirigeait vers lui depuis le nord-ouest.
 
@@ -82,7 +82,7 @@ Wang Lin réfléchit silencieusement un instant, puis toutes les âmes errantes 
 
 Mais la masse d'âmes errantes attaquant était tout simplement trop grande. Bientôt, la pagode commença à trembler. Puis, dans un fracas, une fissure apparut sur la pagode, la scindant en deux.
 
-À cet instant, le corps de l'Empereur Antique se déplaça soudainement et disparut sans laisser de trace. À une trentaine de mètres de là, l'Empereur Antique poussa un cri de douleur et se dévoila. D'innombrables âmes errantes se précipitèrent sur lui pour le consumer rapidement.
+À cet instant, le corps de l'Empereur Antique se déplaça soudainement et disparut sans laisser de trace. À cent pieds de là, l'Empereur Antique poussa un cri de douleur et se dévoila. D'innombrables âmes errantes se précipitèrent sur lui pour le consumer rapidement.
 
 Au même moment, une âme errante sortit du corps de l'Empereur Antique, portant un sac de rangement. Wang Lin récupéra le sac après que l'âme errante le lui eut remis et s'éclipsa précipitamment.
 

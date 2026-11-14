@@ -46,7 +46,7 @@ Du sang suintait de la bouche de Wang Lin alors qu'il rangeait la hache et la pa
 
 Grâce à cet afflux d'énergie spirituelle céleste, Wang Lin sentit son corps s'alléger. Cette énergie refoula instantanément toutes ses blessures. Peu de temps après, il se leva et, d'un pas assuré, s'enfonça dans les profondeurs du palais.
 
-Au-dessus de la mer, l'énergie d'épée convergeait vers Liu Mei. Juste au moment où elle allait esquiver, la restriction se referma derrière elle. Son beau visage se crispa; elle serra les dents et cracha une brume blanche. Un ruban blanc dansa au sein de cette brume et, d'un mouvement de fouet, il détruisit la restriction. Ce ruban s'enroula rapidement autour d'elle et la projeta à 3,3 kilomètres de l'énergie d'épée. Cette dernière manqua sa cible avant de se dissiper.
+Au-dessus de la mer, l'énergie d'épée convergeait vers Liu Mei. Juste au moment où elle allait esquiver, la restriction se referma derrière elle. Son beau visage se crispa; elle serra les dents et cracha une brume blanche. Un ruban blanc dansa au sein de cette brume et, d'un mouvement de fouet, il détruisit la restriction. Ce ruban s'enroula rapidement autour d'elle et la projeta à dix mille pieds de l'énergie d'épée. Cette dernière manqua sa cible avant de se dissiper.
 
 L'homme en armure dorée n'attaquait plus; sa seule mission consistait à garder les lieux et à ne laisser entrer au palais que ceux qui en étaient dignes.
 
@@ -110,7 +110,7 @@ Les yeux de Wang Lin s'illuminèrent. En projetant son Sens Divin dans la pièce
 
 Wang Lin réfléchit un instant avant d'avancer. Peu après, il atteignit l'extrémité du couloir et pénétra dans la vaste esplanade.
 
-Maintenant qu'il s'y trouvait physiquement, le sentiment de choc était encore plus intense. Face à cette tour de plusieurs centaines de mètres de haut, il se sentit soudainement minuscule.
+Maintenant qu'il s'y trouvait physiquement, le sentiment de choc était encore plus intense. Face à cette tour de plusieurs milliers de pieds de haut, il se sentit soudainement minuscule.
 
 Wang Lin prit une profonde inspiration, puis ses yeux s'éclairèrent en apercevant la silhouette de Yun Quezi dans un coin.
 

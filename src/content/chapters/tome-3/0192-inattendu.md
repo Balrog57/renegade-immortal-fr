@@ -14,7 +14,7 @@ Mais au moment même où ils s'apprêtaient à franchir la fissure, celle-ci com
 
 Alors que la faille se repliait, ce qui apparut devant Wang Lin n'était pas la Mer de Sang qu'il attendait, mais un espace baigné d'une lueur violette sombre.
 
-Cet espace n'était pas vaste, il ne faisait qu'environ 330 mètres de large dans chaque direction. Aux quatre coins flottaient des instruments aux formes étranges, d'où émanaient des ondes de lumière douce.
+Cet espace n'était pas vaste, il ne faisait qu'environ mille pieds de large dans chaque direction. Aux quatre coins flottaient des instruments aux formes étranges, d'où émanaient des ondes de lumière douce.
 
 À côté de chaque instrument siégeait un cultivateur, chacun assis en tailleur auprès de son instrument. Leurs silhouettes ressemblaient à celles de Duo Mu; ils conservaient leur forme humaine sans se transformer en démons. Wang Lin balaya la zone du regard et compta, Duo Mu non compris, un total de neuf personnes.
 

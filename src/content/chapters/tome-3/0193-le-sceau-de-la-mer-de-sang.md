@@ -64,7 +64,7 @@ Le vieillard observa Wang Lin. Après une longue réflexion, il afficha un souri
 
 Sans dire un mot, Wang Lin sortit un autre sac de rangement, y plaça les dix instruments, puis rangea soigneusement le sac.
 
-Privé de la lueur violette des dix instruments, l'espace commença à se dissiper. L'homme âgé jeta un regard à Wang Lin et, d'un geste de la main droite, ouvrit une faille spatiale d'une dizaine de mètres de long. Il recula de quelques pas pour s'effacer du passage.
+Privé de la lueur violette des dix instruments, l'espace commença à se dissiper. L'homme âgé jeta un regard à Wang Lin et, d'un geste de la main droite, ouvrit une faille spatiale de plusieurs dizaines de pieds de long. Il recula de quelques pas pour s'effacer du passage.
 
 Wang Lin entra dans la faille, le visage serein.
 

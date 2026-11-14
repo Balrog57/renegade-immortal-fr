@@ -40,7 +40,7 @@ Teng Li voyait parfaitement ce qui se passait. La lumière verte ne l'effrayait 
 
 Au moment où la sphère de foudre toucha la lumière verte, elle explosa.
 
-Teng Li la regarda avec dédain avant de détourner les yeux. À cet instant précis, un éclair vert jaillit à dix mètres devant lui. La lumière percuta Teng Li de plein fouet. Ses vêtements furent instantanément pulvérisés, révélant une armure étincelante.
+Teng Li la regarda avec dédain avant de détourner les yeux. À cet instant précis, un éclair vert jaillit à trente pieds devant lui. La lumière percuta Teng Li de plein fouet. Ses vêtements furent instantanément pulvérisés, révélant une armure étincelante.
 
 Une fois stoppée par l'armure, la lumière verte fit demi-tour dans un éclair et disparut sans laisser de trace.
 
@@ -64,7 +64,7 @@ Après un court instant de réflexion, sans dire un mot, Wang Lin vola vers l'ou
 
 Wang Lin savait qu'il manquait de liquide spirituel et que Situ Nan ne pouvait plus se téléporter; s'il restait en l'air, il finirait tôt ou tard par être rattrapé.
 
-Il valait mieux renoncer au vol et voyager à pied dans la forêt. Bien qu'il ignorât pourquoi ce bois était enveloppé de brume, il constata que lorsqu'il déployait son Sens Divin, ses perceptions devenaient troubles et ne lui permettaient de ressentir que les environs immédiats, dans un rayon d'une centaine à deux centaines de mètres.
+Il valait mieux renoncer au vol et voyager à pied dans la forêt. Bien qu'il ignorât pourquoi ce bois était enveloppé de brume, il constata que lorsqu'il déployait son Sens Divin, ses perceptions devenaient troubles et ne lui permettaient de ressentir que les environs immédiats, dans un rayon de mille pieds.
 
 Peu après l'entrée de Wang Lin dans la forêt, un éclat arc-en-ciel apparut à la lisière des arbres. Après avoir patrouillé dans les airs au-dessus de la canopée, Teng Li s'arrêta à l'entrée. Il avait épuisé trop d'énergie spirituelle à force de poursuivre Wang Lin ces trois derniers jours. Sans ses pilules de récupération, il aurait déjà renoncé.
 
@@ -100,7 +100,7 @@ Wang Lin observa les alentours avec gravité, son regard se posant sur une vigne
 
 Cette vigne semblait tout à fait ordinaire, si l'on excepte la fine ligne bleue qui la parcourait. Pour le reste, elle ressemblait à n'importe quelle autre plante.
 
-Wang Lin réfléchit un instant. N'écoutant pas l'avertissement de Situ Nan, il s'avança sans émettre la moindre énergie spirituelle. Il saisit délicatement la vigne et la tira lentement. Après l'avoir extraite sur une dizaine de mètres, il lâcha prise et recula d'une centaine de mètres. Il se coupa le doigt et fit jaillir une goutte de sang sur la plante.
+Wang Lin réfléchit un instant. N'écoutant pas l'avertissement de Situ Nan, il s'avança sans émettre la moindre énergie spirituelle. Il saisit délicatement la vigne et la tira lentement. Après l'avoir extraite sur une trentaine de pieds, il lâcha prise et recula de plusieurs centaines de pieds. Il se coupa le doigt et fit jaillir une goutte de sang sur la plante.
 
 Dès que le sang toucha la vigne, celle-ci se mit à s'agiter frénétiquement tandis que plusieurs autres Lianes Bleues surgissaient des racines pour se rassembler. Après un certain tumulte, elles finirent par se calmer.
 

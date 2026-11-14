@@ -72,7 +72,7 @@ L'infinie quantité de gaz blanc pénétra le corps de Wang Lin et s'y accumula.
 
 Pendant l'absorption, la rune sanglante commença à scintiller et flotta à trois pouces de son corps. Cependant, des traces de lumière émanaient toujours d'elle pour envelopper le corps de Wang Lin, lui offrant protection et discrétion.
 
-Une heure plus tard, la dernière trace de gaz blanc pénétra dans le corps de Wang Lin. Le gaz avait totalement disparu. La zone située dans un rayon de 500 kilomètres autour de lui était devenue jaune, le sol était aride et toute vitalité s'était évaporée.
+Une demi-heure plus tard, la dernière trace de gaz blanc pénétra dans le corps de Wang Lin. Le gaz avait totalement disparu. La zone située dans un rayon de 500 kilomètres autour de lui était devenue jaune, le sol était aride et toute vitalité s'était évaporée.
 
 Le plus étrange était qu'au-delà de ces 500 kilomètres, tout semblait normal, créant un contraste saisissant. C'était comme si ces deux zones appartenaient à deux mondes différents.
 

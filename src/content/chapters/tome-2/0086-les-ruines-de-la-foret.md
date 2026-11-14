@@ -90,7 +90,7 @@ Elle secoua joyeusement son corps avant de quitter la zone de lumière et de dis
 
 Le pilier de lumière continuait de briller. Wang Lin l'observait, interdit.
 
-Soudain, le pilier se dissipa en d'innombrables points d'argent. Après un instant de réflexion, Wang Lin resta à côté pour continuer d'observer. Une heure plus tard, le pilier réapparut.
+Soudain, le pilier se dissipa en d'innombrables points d'argent. Après un instant de réflexion, Wang Lin resta à côté pour continuer d'observer. Une demi-heure plus tard, le pilier réapparut.
 
 Ce cycle se répéta plusieurs fois. Après une journée entière d'observation, Wang Lin parvint enfin à comprendre le phénomène.
 

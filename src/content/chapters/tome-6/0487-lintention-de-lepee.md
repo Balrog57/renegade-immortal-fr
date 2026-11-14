@@ -22,7 +22,7 @@ La culture de cet homme était totalement dissimulée. À moins d'être un culti
 
 Sur les genoux de cet homme reposait une épée de sept pieds de long. L'épée était entièrement verte et émanait une lueur fantomatique. Sous la lumière du soleil, la zone environnante se trouvait baignée par cette clarté verdâtre, peignant tout ce qui l'entourait en vert.
 
-Wang Lin se tenait à plus d'une centaine de mètres du pavillon des trésors, fixant l'homme assis devant lui.
+Wang Lin se tenait à plusieurs centaines de pieds du pavillon des trésors, fixant l'homme assis devant lui.
 
 « La culture de cet homme est au sommet du stade avancé de la Formation de l'Âme, mais une intention d'épée très bien dissimulée réside en lui! »
 
@@ -98,7 +98,7 @@ Peu après, le géant reprit la parole.
 
 Wang Lin fut surpris. Même avec sa force mentale, il ne put s'empêcher d'être ébranlé. Il prit une profonde inspiration et déclara: « Je veux tout retirer! »
 
-« Un total de 123 600 pièces! » Tandis que la voix du géant résonnait, d'innombrables jades célestes jaillirent du corps de la figure pour s'accumuler à une trentaine de mètres devant Wang Lin.
+« Un total de 123 600 pièces! » Tandis que la voix du géant résonnait, d'innombrables jades célestes jaillirent du corps de la figure pour s'accumuler à cent pieds devant Wang Lin.
 
 Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'assécher. Il n'aurait jamais imaginé que la Secte Tian Yun compte les jades de cette manière.
 
@@ -112,4 +112,4 @@ Il prit une profonde inspiration et ses yeux retrouvèrent leur clarté. Ce n'es
 
 La figure gigantesque dans le ciel disparut lentement pour redevenir ces nuages aux sept couleurs. Des éclats de lumière dorée dans le ciel se reformèrent lentement en un jeton et volèrent vers Wang Lin comme un éclair.
 
-Wang Lin leva la main droite. Au moment où il toucha le jeton, une force invisible le repoussa de plus d'une centaine de mètres et il disparut de l'endroit.
+Wang Lin leva la main droite. Au moment où il toucha le jeton, une force invisible le repoussa de plusieurs centaines de pieds et il disparut de l'endroit.

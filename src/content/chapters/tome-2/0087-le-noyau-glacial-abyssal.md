@@ -36,11 +36,11 @@ Après l'apparition de la sphère rouge, celle-ci devint de plus en plus éclata
 
 Wang Lin se toucha le menton. Cinq éclats signifiaient que cet endroit possédait un Yin souterrain ordinaire de rang 5.
 
-Après avoir réfléchi un instant, il contrôla la sphère et s'enfonça dans les ruines sans dire un mot. L'énergie Yin environnante devenait de plus en plus dense à mesure qu'il avançait. Cette énergie était si épaisse qu'il avait l'impression de marcher sous l'eau. Après seulement plusieurs centaines de mètres, il sentit déjà qu'il ne pouvait plus respirer.
+Après avoir réfléchi un instant, il contrôla la sphère et s'enfonça dans les ruines sans dire un mot. L'énergie Yin environnante devenait de plus en plus dense à mesure qu'il avançait. Cette énergie était si épaisse qu'il avait l'impression de marcher sous l'eau. Après seulement plusieurs milliers de pieds, il sentit déjà qu'il ne pouvait plus respirer.
 
 La sphère de lumière brillait de plus en plus intensément en suivant Wang Lin. Cette zone était de rang 8 ordinaire.
 
-Wang Lin ne s'arrêta pas et continua sur plusieurs centaines de mètres supplémentaires, jusqu'à ce qu'il atteigne les ruines où se trouvait la gigantesque sphère de pierre. Il ne pouvait plus avancer. Des lambeaux d'énergie Yin s'insinuaient dans son corps. Tous ses vaisseaux sanguins se mirent à le piquer douloureusement et son énergie spirituelle montrait des signes de perte de contrôle.
+Wang Lin ne s'arrêta pas et continua sur plusieurs milliers de pieds supplémentaires, jusqu'à ce qu'il atteigne les ruines où se trouvait la gigantesque sphère de pierre. Il ne pouvait plus avancer. Des lambeaux d'énergie Yin s'insinuaient dans son corps. Tous ses vaisseaux sanguins se mirent à le piquer douloureusement et son énergie spirituelle montrait des signes de perte de contrôle.
 
 À cet instant, la sphère rouge se divisa en deux dans un bruit sec tout en brillant une fois. Les yeux de Wang Lin s'illuminèrent. Il comprit que cela signifiait que cet endroit avait atteint une qualité bonne de rang 1.
 

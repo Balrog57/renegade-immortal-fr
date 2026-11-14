@@ -32,7 +32,7 @@ Xuan Luo ferma les yeux. Lorsqu'il les rouvrit, il se changea en un rayon de lum
 
 À cet instant, à l'extérieur de la tempête marine, seuls Wang Lin et Gu Dao restèrent.
 
-Le temps s'écoulait lentement. Soudainement, le crépuscule tomba. Il ne restait plus qu'une heure avant l'ouverture du Royaume Divin Immémorial, et les grondements de la tempête marine atteignirent leur paroxysme. Le vortex tournait si rapidement qu'au premier regard, il semblait immobile.
+Le temps s'écoulait lentement. Soudainement, le crépuscule tomba. Il ne restait plus qu'une demi-heure avant l'ouverture du Royaume Divin Immémorial, et les grondements de la tempête marine atteignirent leur paroxysme. Le vortex tournait si rapidement qu'au premier regard, il semblait immobile.
 
 Pourtant, cette apparence trompeuse signifiait qu'il avait atteint une vitesse alarmante.
 

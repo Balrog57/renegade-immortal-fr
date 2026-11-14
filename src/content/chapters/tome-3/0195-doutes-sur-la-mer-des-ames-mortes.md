@@ -22,7 +22,7 @@ Le regard de l'homme aux cheveux roux devint glacial. Il ne permettrait pas à c
 
 Au moment où il saisit la lance, un rugissement tonitruant résonna dans les environs. Peu après, le pilier sur lequel il se tenait s'effondra, ne laissant qu'un amas de débris.
 
-L'homme aux cheveux roux flottait toujours dans les airs, le regard empreint d'arrogance. Quant aux fragments d'âme, il semblait s'en moquer éperdument. D'un geste de la lance, il figea tous les fragments en plein vol, les maintenant à 33 mètres de lui.
+L'homme aux cheveux roux flottait toujours dans les airs, le regard empreint d'arrogance. Quant aux fragments d'âme, il semblait s'en moquer éperdument. D'un geste de la lance, il figea tous les fragments en plein vol, les maintenant à cent pieds de lui.
 
 Puis, l'homme chargea vers la faille. Simultanément, au sein du groupe de Duo Mu, et particulièrement chez le vieil homme qui avait conclu le marché avec Wang Lin, l'inquiétude se lut sur les visages. Sans un mot, ils se levèrent brusquement pour suivre Tuo Sen dans la brèche.
 
@@ -50,7 +50,7 @@ Ce fossé était si profond que l'on ne pouvait en voir le fond. Des grondements
 
 « Tu Si, même l'arme vitale de mon clan, la Lance Écraseuse d'Étoiles, s'est soumise à moi! Moi seul suis digne de recevoir ton héritage! » lança Tuo Sen en frappant de nouveau avec sa lance.
 
-Cette fois, il effectua une entaille verticale qui, croisant la précédente, forma une immense croix. Au centre de cette croix se creusa un gouffre d'une centaine de mètres de large. Tuo Sen s'y engouffra.
+Cette fois, il effectua une entaille verticale qui, croisant la précédente, forma une immense croix. Au centre de cette croix se creusa un gouffre de plusieurs centaines de pieds de large. Tuo Sen s'y engouffra.
 
 Une fois l'homme aux cheveux roux passé, la nervosité du groupe de Duo Mu monta d'un cran, mais ils suivirent rapidement ses traces. Wang Lin, les yeux brillants, s'élança à son tour. Parallèlement, les cultivateurs démoniaques survivants poussèrent des cris de joie.
 

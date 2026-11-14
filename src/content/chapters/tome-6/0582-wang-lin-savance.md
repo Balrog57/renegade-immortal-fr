@@ -102,7 +102,7 @@ Wang Lin observa l'homme massif. La Secte Ju Ling était une puissance majeure d
 
 Le géant poussa un rugissement et fit un pas en avant; alors, une énergie spirituelle céleste jaillit de ses pores pour se transformer en brume. Dissimulé dans ce nuage, il fonça sur Shi Xiao!
 
-Le sol tremblait comme si des dizaines de milliers de chevaux de guerre galopaient. La silhouette évoluait rapidement au sein de la brume céleste, accompagnée par des ondes de chants mystiques. Soudain, une force occulte enveloppa les environs sur trois cents mètres pour créer un périmètre d'emprisonnement!
+Le sol tremblait comme si des dizaines de milliers de chevaux de guerre galopaient. La silhouette évoluait rapidement au sein de la brume céleste, accompagnée par des ondes de chants mystiques. Soudain, une force occulte enveloppa les environs sur mille pieds à la ronde pour créer un périmètre d'emprisonnement!
 
 Parmi les généraux démons, un homme corpulent vêtu de vert et portant une épée gigantesque dans le dos observait la scène en murmurant: « L'apparence actuelle de cet homme ressemble étrangement à mon esprit d'épée... »
 
@@ -116,7 +116,7 @@ Shi Xiao était d'une rapidité fulgurante!
 
 L'homme gras poussa un rugissement, mais l'impact dévastateur du cône dissipa sa puissance corporelle. Son expression changea brusquement et il tenta de reculer immédiatement.
 
-Bang! Bang! Bang! Sous ses pas, le sol se brisa. L'homme recula de trois enjambées, parcourant plusieurs mètres, tandis que chair et sang explosaient de son corps à chaque mouvement. Après ce troisième pas de recul, son corps entier vola en éclats, éparpillant des morceaux de viande sur toute la place.
+Bang! Bang! Bang! Sous ses pas, le sol se brisa. L'homme recula de trois enjambées, parcourant plusieurs dizaines de pieds, tandis que chair et sang explosaient de son corps à chaque mouvement. Après ce troisième pas de recul, son corps entier vola en éclats, éparpillant des morceaux de viande sur toute la place.
 
 Cinq fils noirs ténus s'échappèrent des débris de chair pour fusionner avec le corps de Shi Xiao.
 

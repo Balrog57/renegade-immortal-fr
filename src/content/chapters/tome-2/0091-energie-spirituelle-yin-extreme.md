@@ -33,7 +33,7 @@ Un brouillard noir apparut dans les airs. La brume se rétracta lentement jusqu'
 
 Il vola calmement de long en large dans la jungle, comme s'il cherchait quelque chose. Peu après, il s'arrêta au-dessus d'une zone dégagée. Il fixa le sol, dénué de toute émotion. Il agita les deux mains: le sol gronda et se fendit en deux sous ses pieds, comme déchiré de force, révélant une longue crevasse.
 
-À l'instant même où la faille apparut, un cri retentit du sous-sol tandis qu'une silhouette sombre tentait de s'échapper. L'homme desséché laissa échapper un reniflement froid et l'espace alentour, sur 33 mètres, se changea aussitôt en cage. La silhouette sombre percuta la cage et rebondit. Elle cessa toute tentative de fuite, se mit à genoux et commença à se prosterner frénétiquement.
+À l'instant même où la faille apparut, un cri retentit du sous-sol tandis qu'une silhouette sombre tentait de s'échapper. L'homme desséché laissa échapper un reniflement froid et l'espace alentour, sur cent pieds, se changea aussitôt en cage. La silhouette sombre percuta la cage et rebondit. Elle cessa toute tentative de fuite, se mit à genoux et commença à se prosterner frénétiquement.
 
 L'homme desséché dit d'une voix lente: « Après cent ans sans vous voir, je ne m'attendais pas à ce que le corps du Maître se transforme en zombie et développe même une conscience propre. Vous êtes encore considéré comme quelqu'un de ma génération, je peux donc vous laisser vivre; mais vous devrez utiliser votre lien subtil avec le Maître pour m'aider à retrouver son Âme Naissante. »
 
@@ -65,13 +65,13 @@ La lumière rouge émise par la technique était très voyante dans la nuit. Le 
 
 Le soleil se leva et se coucha. Au quatrième jour, Wang Lin avait déjà pénétré dans les profondeurs des ruines. Il pressentait que sa position actuelle n'était peut-être pas le centre de la ville, mais qu'il n'en était pas loin, puisqu'il avançait en ligne droite.
 
-En chemin, on voyait partout sur le sol des fosses profondes d'une dizaine de mètres, remplies d'une eau de pluie trouble. Des créatures étranges semblables à des serpents bondissaient parfois de ces fosses pour lui montrer leurs gueules venimeuses. De plus, la destruction dans les ruines s'intensifiait; sur le chemin menant à sa position actuelle, aucune structure ne dépassait les dix mètres de haut.
+En chemin, on voyait partout sur le sol des fosses profondes de plusieurs dizaines de pieds, remplies d'une eau de pluie trouble. Des créatures étranges semblables à des serpents bondissaient parfois de ces fosses pour lui montrer leurs gueules venimeuses. De plus, la destruction dans les ruines s'intensifiait; sur le chemin menant à sa position actuelle, aucune structure ne dépassait les trente pieds de haut.
 
 Au milieu des herbes folles, le sol se changeait par endroits en marais de vase, où vivaient aussi d'étranges créatures. Une fois, Wang Lin avait été attaqué par surprise par l'une d'elles, ce qui le rendit encore plus vigilant.
 
 Malgré sa progression dans les profondeurs des ruines, la qualité de l'énergie Yin n'avait pas encore atteint la qualité "Dense".
 
-La nuit du cinquième jour, il sortit du marais et se retrouva face à un vaste complexe de bâtiments. Bien que tout fût effondré, on pouvait deviner l'importance passée de cette cité. L'élément le plus frappant était une excavation au sol, large de mille mètres et profonde de cent mètres.
+La nuit du cinquième jour, il sortit du marais et se retrouva face à un vaste complexe de bâtiments. Bien que tout fût effondré, on pouvait deviner l'importance passée de cette cité. L'élément le plus frappant était une excavation au sol, large de plus de trois mille pieds et profonde de plus de trois cents pieds.
 
 Ce gouffre gigantesque était singulier. Normalement, un tel trou aurait dû être rempli d'eau de pluie, mais il était totalement sec. Wang Lin s'approcha pour examiner la scène. Malgré l'obscurité et la densité de l'énergie Yin, il pouvait distinguer clairement des cavités semblables à des ruches au fond du gouffre.
 
@@ -97,9 +97,9 @@ Au fil du temps, la lumière rouge brilla encore plus fort, atteignant le rang 2
 
 Alors que de plus en plus d'énergie Yin s'accumulait dans sa poitrine, il nota une différence fondamentale: la pureté de l'énergie était des dizaines de fois supérieure à celle qu'il avait connue auparavant. Un changement de qualité entraîne un changement de quantité; cela signifiait que ce qui exigeait auparavant des dizaines de fois plus de temps ne demandait désormais que le temps normal.
 
-Bientôt, l'énergie Yin dans sa poitrine commença à tourbillonner. À mesure que le vortex s'accélérait, le phénomène inattendu survenu la dernière fois se répéta. L'énergie Yin dans un rayon de 330 mètres autour de Wang Lin fluctua et se précipita vers lui.
+Bientôt, l'énergie Yin dans sa poitrine commença à tourbillonner. À mesure que le vortex s'accélérait, le phénomène inattendu survenu la dernière fois se répéta. L'énergie Yin dans un rayon de mille pieds autour de Wang Lin fluctua et se précipita vers lui.
 
-Le tourbillon dans sa poitrine, en absorbant davantage d'énergie, grandit, dépassant la limite de la fois précédente, jusqu'à atteindre un rayon de 3 300 mètres. La portée continua de croître: 3 960 mètres, 4 620 mètres, 4 950 mètres... Dans un rayon de cinq kilomètres, l'énergie Yin se déplaçait comme si des esprits ou des créatures la poussaient dans l'ombre, s'engouffrant dans l'immense gouffre pour être dévorée par Wang Lin.
+Le tourbillon dans sa poitrine, en absorbant davantage d'énergie, grandit, dépassant la limite de la fois précédente, jusqu'à atteindre un rayon de dix mille pieds. La portée continua de croître: douze mille pieds, quatorze mille pieds, quinze mille pieds... Dans un rayon de cinq kilomètres, l'énergie Yin se déplaçait comme si des esprits ou des créatures la poussaient dans l'ombre, s'engouffrant dans l'immense gouffre pour être dévorée par Wang Lin.
 
 Alors que le vortex dans sa poitrine devenait colossal, il sentit qu'il perdait le contrôle. Conscient de ses limites, il dirigea cette énergie pour attaquer de toutes ses forces sa Mer de Qi et commencer la percée. Le tourbillon d'énergie Yin agissait comme une pointe rotative, frappant inlassablement la Mer de Qi pour l'ouvrir. Lentement, celle-ci montra des signes de rupture.
 

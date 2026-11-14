@@ -40,7 +40,7 @@ Wang Lin ne se souciait de rien de ce qui se passait à l'extérieur. Sa chambre
 
 Pendant ces trois années, le Prince Ji Du ne quitta pas les lieux et fit ses préparatifs dans ce palais. Parfois, des émissaires venaient de l'extérieur pour s'entretenir secrètement avec lui; ils repartaient alors, transportés par l'excitation et le respect.
 
-Durant cette période, le Prince Ji Du était comme le vent et la pluie. Peu importait l'urgence des événements, il se tenait chaque matin personnellement devant la chambre secrète de Wang Lin, le regard empreint de ferveur, pendant une heure avant de s'éclipser respectueusement.
+Durant cette période, le Prince Ji Du était comme le vent et la pluie. Peu importait l'urgence des événements, il se tenait chaque matin personnellement devant la chambre secrète de Wang Lin, le regard empreint de ferveur, pendant une demi-heure avant de s'éclipser respectueusement.
 
 Ce jour-là, après trois ans, Wang Lin ouvrit les yeux pour la première fois. À l'instant même où ses paupières se levèrent, deux rayons de lumière cristalline jaillirent.
 
