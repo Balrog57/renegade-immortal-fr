@@ -98,7 +98,7 @@ Les deux entrèrent immédiatement en collision, mais l'eau du puits s'évapora 
 
 On pouvait clairement voir une marque en forme de croissant de lune apparaître sur la planète. Cette marque la transperça, provoquant son effondrement et son enfoncement dans le vide!
 
-« À l'époque, lorsque j'ai ouvert mon chemin par le massacre jusqu'au Royaume Extérieur, aucun des cinq maîtres ne faisait le poids face à moi, et j'avais dérobé une immense quantité de Flammes Joss. Aujourd'hui nous nous revoilà, et tu es toujours aussi faible! » La voix était antique mais extrêmement dominante. Dès que la voix eut fini de parler, une silhouette floue apparut là où le croissant de lune devait atterrir. La silhouette agita sa main droite et écrivit le mot: « Bataille! »
+« À l'époque, lorsque j'ai ouvert mon chemin par le massacre jusqu'au Royaume Extérieur, aucun des cinq maîtres ne faisait le poids face à moi, et j'avais dérobé une immense quantité de Flammes d'Encens. Aujourd'hui nous nous revoilà, et tu es toujours aussi faible! » La voix était antique mais extrêmement dominante. Dès que la voix eut fini de parler, une silhouette floue apparut là où le croissant de lune devait atterrir. La silhouette agita sa main droite et écrivit le mot: « Bataille! »
 
 Le mot « Bataille » provoqua l'effondrement du croissant de lune!
 

@@ -58,15 +58,15 @@ Du point de vue de Wang Lin, cette haine ne semblait pas si profonde, mais compt
 
 Le temps s'écoulait lentement. L'Enseignant Impérial attendit amèrement un long moment. Face à l'indifférence de Wang Lin, il ne put s'empêcher de soupirer. Il serra les dents et reprit:
 
-« Si le Daoïste Wang accepte ma proposition, je peux vous offrir toutes les Flammes Joss fournies par tous les mondes caverneux du Continent Xian Gang. Si le Daoïste Wang les absorbe toutes, les bénéfices seront immenses!
+« Si le Daoïste Wang accepte ma proposition, je peux vous offrir toutes les Flammes d'Encens fournies par tous les mondes caverneux du Continent Xian Gang. Si le Daoïste Wang les absorbe toutes, les bénéfices seront immenses!
 
-« Peu importe votre niveau de culture, vos sorts ou votre longévité, vous subirez une métamorphose. Après un certain temps, vous aurez la chance d'atteindre un royaume de vide et de destruction! Un tel niveau suffira à vous placer au sommet! » Après avoir terminé son discours, l'Enseignant Impérial porta sa main droite vers son front. Un cristal noir de la taille d'un poing apparut lentement. Il ne dégageait aucune lumière, mais une puissante aura de Flamme Joss s'en dégageait.
+« Peu importe votre niveau de culture, vos sorts ou votre longévité, vous subirez une métamorphose. Après un certain temps, vous aurez la chance d'atteindre un royaume de vide et de destruction! Un tel niveau suffira à vous placer au sommet! » Après avoir terminé son discours, l'Enseignant Impérial porta sa main droite vers son front. Un cristal noir de la taille d'un poing apparut lentement. Il ne dégageait aucune lumière, mais une puissante aura de Flamme d'Encens s'en dégageait.
 
-« Cet objet est le cœur de toutes les Flammes Joss fournies par les mondes caverneux du Continent Xian Gang. Grâce à lui, l'ensemble du continent vous alimentera sans cesse en Flammes Joss!
+« Cet objet est le cœur de toutes les Flammes d'Encens fournies par les mondes caverneux du Continent Xian Gang. Grâce à lui, l'ensemble du continent vous alimentera sans cesse en Flammes d'Encens!
 
-« L'Ancêtre Céleste est né du vide et, contrairement à ma famille, il ne pouvait pas les absorber lui-même; il était donc nécessaire que mon clan les transforme au préalable. Beaucoup de gens dans ce monde absorbent les Flammes Joss, mais comme elles ne sont pas pures, ils deviennent une source de Flammes Joss pour mon clan une fois l'absorption faite!
+« L'Ancêtre Céleste est né du vide et, contrairement à ma famille, il ne pouvait pas les absorber lui-même; il était donc nécessaire que mon clan les transforme au préalable. Beaucoup de gens dans ce monde absorbent les Flammes d'Encens, mais comme elles ne sont pas pures, ils deviennent une source de Flammes d'Encens pour mon clan une fois l'absorption faite!
 
-« Mais vous êtes différent. Vous êtes né dans un monde caverneux de Flammes Joss. Pour vous, il n'est pas nécessaire que mon clan les transforme. Votre âme et votre corps peuvent les absorber directement! » Le regard de l'Enseignant Impérial devint résolu et il agita la main. Le cristal noir vola vers Wang Lin!
+« Mais vous êtes différent. Vous êtes né dans un monde caverneux de Flammes d'Encens. Pour vous, il n'est pas nécessaire que mon clan les transforme. Votre âme et votre corps peuvent les absorber directement! » Le regard de l'Enseignant Impérial devint résolu et il agita la main. Le cristal noir vola vers Wang Lin!
 
 Le cristal sembla rencontrer une résistance devant Wang Lin avant de flotter devant lui. Après avoir présenté le cristal, l'Enseignant Impérial parut plus vieux, comme s'il était en pleine décomposition.
 
@@ -74,7 +74,7 @@ Le cristal sembla rencontrer une résistance devant Wang Lin avant de flotter de
 
 Wang Lin réfléchit un instant, puis agita la main droite pour ranger immédiatement le cristal, sans l'absorber aussitôt. Il leva les yeux vers l'Enseignant Impérial et hocha la tête.
 
-« Je ne comprends pas le Serment Astral Immortel, je ne connais que le serment de sang! » En parlant, Wang Lin leva la main et se fit une entaille au doigt. Une goutte de sang jaillit, chargée de l'aura de Wang Lin. Cette aura était si puissante que si elle devait exploser en une brume écarlate, il serait difficile pour quiconque de déterminer si cette essence appartenait au véritable Wang Lin ou non!
+« Je ne comprends pas le Serment Xian Gang, je ne connais que le serment de sang! » En parlant, Wang Lin leva la main et se fit une entaille au doigt. Une goutte de sang jaillit, chargée de l'aura de Wang Lin. Cette aura était si puissante que si elle devait exploser en une brume écarlate, il serait difficile pour quiconque de déterminer si cette essence appartenait au véritable Wang Lin ou non!
 
 « Si ce que vous dites est vrai, alors je vous aiderai une fois! » Les paroles de Wang Lin pénétrèrent la goutte de sang qui se mit à briller. Wang Lin fit un geste de la main et elle s'immobilisa devant l'Enseignant Impérial.
 

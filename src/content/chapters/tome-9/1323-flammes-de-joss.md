@@ -1,6 +1,6 @@
 ---
 n: 1323
-title: Flammes Joss
+title: Flammes d'Encens
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1323 - Joss Flame
@@ -24,27 +24,27 @@ Cette aura n'était pas étrangère à Wang Lin. Lorsque la statue du démon anc
 
 Dans la Mer Yun, lors du combat contre le Shui Daozi, le dernier sort utilisé par ce dernier contenait également cette aura...
 
-La conversation avec le Seigneur du Royaume Scellé et Lanmeng Daozun pointait tous vers la clé pour devenir un cultivateur de la troisième étape: les Flammes Joss!
+La conversation avec le Seigneur du Royaume Scellé et Lanmeng Daozun pointait tous vers la clé pour devenir un cultivateur de la troisième étape: les Flammes d'Encens!
 
-Wang Lin ne comprenait pas ce que sont les Flammes Joss ni comment elles étaient créées. Cependant, en fusionnant le Monde Hu Feng Huan Yu avec le Sceau Céleste, cette scène s'était déployée, ce qui ne fit qu'accroître sa confusion.
+Wang Lin ne comprenait pas ce que sont les Flammes d'Encens ni comment elles étaient créées. Cependant, en fusionnant le Monde Hu Feng Huan Yu avec le Sceau Céleste, cette scène s'était déployée, ce qui ne fit qu'accroître sa confusion.
 
-Ces âmes de guerriers étaient toutes des personnes qu'il avait tuées, mais elles étaient devenues des disciples lui fournissant des Flammes Joss. C'était la fortune de Wang Lin, l'héritage du Seigneur du Royaume Scellé et une mutation presque impossible à reproduire. Même Lanmeng Daozun n'aurait jamais imaginé que l'enseignement du sort de fusion à Wang Lin engendrerait un tel changement.
+Ces âmes de guerriers étaient toutes des personnes qu'il avait tuées, mais elles étaient devenues des disciples lui fournissant des Flammes d'Encens. C'était la fortune de Wang Lin, l'héritage du Seigneur du Royaume Scellé et une mutation presque impossible à reproduire. Même Lanmeng Daozun n'aurait jamais imaginé que l'enseignement du sort de fusion à Wang Lin engendrerait un tel changement.
 
-Le Sceau Céleste était formé d'un fragment du Royaume Céleste du Tonnerre. Ce dernier avait été créé il y a des éons par le Seigneur du Royaume Scellé afin d'empêcher la Formation du Royaume Scellé d'absorber les Flammes Joss du Royaume Intérieur, permettant ainsi à ces dernières d'apparaître dans le Royaume Intérieur.
+Le Sceau Céleste était formé d'un fragment du Royaume Céleste du Tonnerre. Ce dernier avait été créé il y a des éons par le Seigneur du Royaume Scellé afin d'empêcher la Formation du Royaume Scellé d'absorber les Flammes d'Encens du Royaume Intérieur, permettant ainsi à ces dernières d'apparaître dans le Royaume Intérieur.
 
-Bien que les quatre Royaumes Célestes fussent détruits, ils constituaient les meilleurs matériaux pour produire des Flammes Joss! Toutefois, cela seul n'aurait pas suffi; mais ce fragment avait également subi la Tribulation Céleste. C'était comme si le Ciel lui-même avait raffiné ce fragment pour en faire un trésor destiné à Wang Lin!
+Bien que les quatre Royaumes Célestes fussent détruits, ils constituaient les meilleurs matériaux pour produire des Flammes d'Encens! Toutefois, cela seul n'aurait pas suffi; mais ce fragment avait également subi la Tribulation Céleste. C'était comme si le Ciel lui-même avait raffiné ce fragment pour en faire un trésor destiné à Wang Lin!
 
-L'élément permettant la naissance des Flammes Joss avait été une fois de plus affiné par la Tribulation Céleste.
+L'élément permettant la naissance des Flammes d'Encens avait été une fois de plus affiné par la Tribulation Céleste.
 
-Wang Lin avait involontairement utilisé cet objet pour son Arsenal Magique. En employant son domaine de vie et de mort, il avait créé dix-huit couches d'enfer qui absorbaient toutes les âmes des personnes qu'il avait tuées afin qu'elles ne puissent entrer dans le cycle de la réincarnation. Au fil du temps, le pouvoir de générer des Flammes Joss à partir des fragments avait comblé ces dix-huit couches d'enfer.
+Wang Lin avait involontairement utilisé cet objet pour son Arsenal Magique. En employant son domaine de vie et de mort, il avait créé dix-huit couches d'enfer qui absorbaient toutes les âmes des personnes qu'il avait tuées afin qu'elles ne puissent entrer dans le cycle de la réincarnation. Au fil du temps, le pouvoir de générer des Flammes d'Encens à partir des fragments avait comblé ces dix-huit couches d'enfer.
 
-Cependant, sans une opportunité de l'activer, ce pouvoir se serait lentement dissipé. Wang Lin n'aurait jamais remarqué d'anomalie, car ces âmes de guerriers étaient simplement entourées du pouvoir créateur des Flammes Joss sans jamais le libérer.
+Cependant, sans une opportunité de l'activer, ce pouvoir se serait lentement dissipé. Wang Lin n'aurait jamais remarqué d'anomalie, car ces âmes de guerriers étaient simplement entourées du pouvoir créateur des Flammes d'Encens sans jamais le libérer.
 
 Cette opportunité survint lorsque Lanmeng Daozun fusionna l'Appel du Vent et l'Invocation de la Pluie en un monde! C'était comme donner des racines à une plante dépourvue de racines!
 
 Puis, Wang Lin tenta de fusionner l'Arsenal Magique et le Monde Hu Feng Huan Yu. Cela permit à ce changement, à cette opportunité, d'éclore!
 
-Bien que les âmes de guerriers fussent peu nombreuses et les Flammes Joss très faibles — bien loin des deux milliards de disciples du Shui Daozi — il s'agissait là de véritables Flammes Joss. La clé pour atteindre la troisième étape, un trésor de Dao pour lequel les cultivateurs de ce niveau se disputeraient avec acharnement!
+Bien que les âmes de guerriers fussent peu nombreuses et les Flammes d'Encens très faibles — bien loin des deux milliards de disciples du Shui Daozi — il s'agissait là de véritables Flammes d'Encens. La clé pour atteindre la troisième étape, un trésor de Dao pour lequel les cultivateurs de ce niveau se disputeraient avec acharnement!
 
 L'expression de Wang Lin était très singulière. Il ouvrit les yeux et médita silencieusement un instant avant de mettre cette pensée de côté. Après tout, le danger représenté par la femme en blanc à l'extérieur du Clan Lan Si persistait. Même s'il avait créé ce trésor par inadvertance, cela ne lui serait d'aucun secours si cela ne l'aidait pas à résoudre la crise posée par cette femme.
 

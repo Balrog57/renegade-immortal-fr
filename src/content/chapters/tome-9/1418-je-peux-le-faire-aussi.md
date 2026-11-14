@@ -24,7 +24,7 @@ Wang Lin fronça les sourcils. Les paroles de Suzaku de la première génératio
 
 Wang Lin réfléchit en silence.
 
-« La troisième étape exige l'achèvement d'une essence. Ensuite, avec l'aide des Flammes Joss et en dévorant un esprit Dao, il existe une chance d'accéder à la troisième étape. Cependant, je ne détecte aucune aura de Flamme Joss en vous. »
+« La troisième étape exige l'achèvement d'une essence. Ensuite, avec l'aide des Flammes d'Encens et en dévorant un esprit Dao, il existe une chance d'accéder à la troisième étape. Cependant, je ne détecte aucune aura de Flamme d'Encens en vous. »
 
 « Vous empruntez un chemin très périlleux, totalement différent de celui des deuxième et quatrième générations; je ne peux donc pas vous aider... Toutefois, vous avez aujourd'hui un choix à faire, et je veux que vous y réfléchissiez mûrement. »
 

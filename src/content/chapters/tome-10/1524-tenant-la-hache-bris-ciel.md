@@ -116,6 +116,6 @@ Wang Lin bondit et saisit la Hache Brise-Ciel devant tout le monde!
 
 C'était un artefact antique, l'arme la plus puissante de la lignée royale. C'était une hache qui fendait les cieux!
 
-Au moment où Wang Lin saisit l'arme, ses étoiles de Dieu Ancien tournèrent rapidement. Une aura similaire à celle qu'il avait ressentie lors de l'obtention de l'héritage de l'Ordre Ancien jaillit de son corps!
+Au moment où Wang Lin saisit l'arme, ses étoiles de Dieu Ancien tournèrent rapidement. Une aura similaire à celle qu'il avait ressentie lors de l'obtention de l'héritage de Dao Gu jaillit de son corps!
 
 D'innombrables années s'étaient écoulées depuis que la hache avait été scellée dans la formation, et Wang Lin était le premier Dieu Ancien à tenir la Hache Brise-Ciel depuis lors!

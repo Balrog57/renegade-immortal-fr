@@ -36,9 +36,9 @@ La douleur était atroce et Shui Daozi laissa échapper des hurlements de souffr
 
 « Maître, vous m'aviez donné un talisman pour m'exempter de trois dangers. Maintenant que ces trois chances sont épuisées, vous venez pour me tuer... Karma, karma, karma!!! » Shui Daozi esquissa un sourire misérable, bien que son visage fût d'une férocité effrayante.
 
-« Je ne vous obéirai pas! Après votre mort, j'ai atteint le troisième niveau et je suis devenu une puissance majeure. Je suis le seigneur de la Secte Divine. Je prendrai votre place! Un milliard et cinq cents millions de disciples du Dao de l'Eau, explosez pour moi!! Donnez-moi vos Flammes Joss pour résister au Clou Divin aux Sept Couleurs!! » Shui Daozi poussa un rugissement lugubre en fuyant comme un possédé. Il brisa le vide et s'enfuit vers la Secte Divine.
+« Je ne vous obéirai pas! Après votre mort, j'ai atteint le troisième niveau et je suis devenu une puissance majeure. Je suis le seigneur de la Secte Divine. Je prendrai votre place! Un milliard et cinq cents millions de disciples du Dao de l'Eau, explosez pour moi!! Donnez-moi vos Flammes d'Encens pour résister au Clou Divin aux Sept Couleurs!! » Shui Daozi poussa un rugissement lugubre en fuyant comme un possédé. Il brisa le vide et s'enfuit vers la Secte Divine.
 
-La planète de culture géante le suivit de près. Les un milliard cinq cents millions de disciples du Dao de l'Eau explosèrent, et les Flammes Joss qui n'appartenaient qu'aux cultivateurs du troisième niveau se précipitèrent dans le cerveau de Shui Daozi pour contrer la lumière aux sept couleurs. Des grondements tonitruants résonnèrent dans le corps de Shui Daozi avant de disparaître avec lui.
+La planète de culture géante le suivit de près. Les un milliard cinq cents millions de disciples du Dao de l'Eau explosèrent, et les Flammes d'Encens qui n'appartenaient qu'aux cultivateurs du troisième niveau se précipitèrent dans le cerveau de Shui Daozi pour contrer la lumière aux sept couleurs. Des grondements tonitruants résonnèrent dans le corps de Shui Daozi avant de disparaître avec lui.
 
 Shui Daozi resta en proie à la démence tout au long de sa fuite. Il ne cessa de réprimer la destruction qui ravageait son corps jusqu'à ce qu'il disparaisse rapidement!
 

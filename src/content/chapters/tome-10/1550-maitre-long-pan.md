@@ -34,13 +34,13 @@ Wang Lin détourna son regard de la planète géante. Tout en réprimant la forc
 
 D'un geste de la main, Wang Lin attira l'un des trois dragons vers lui et le saisit fermement par le cou.
 
-Le dragon noir se tordit comme un serpent, le corps contracté par la peur. Les yeux de Wang Lin brillèrent alors qu'il scrutait la créature. Son regard semblait capable de percer l'obscurité du dragon pour voir le monde des Flammes Joss à l'intérieur. Il y avait là des milliers d'Âmes de Flamme Joss, et toutes étaient clairement des cultivateurs du Royaume Intérieur... Certaines lui semblaient même familières.
+Le dragon noir se tordit comme un serpent, le corps contracté par la peur. Les yeux de Wang Lin brillèrent alors qu'il scrutait la créature. Son regard semblait capable de percer l'obscurité du dragon pour voir le monde des Flammes d'Encens à l'intérieur. Il y avait là des milliers d'Âmes de Flamme d'Encens, et toutes étaient clairement des cultivateurs du Royaume Intérieur... Certaines lui semblaient même familières.
 
 Une lueur glaciale passa dans ses yeux et il serra impitoyablement. Le dragon noir poussa un cri tandis que la main droite de Wang Lin s'enfonçait en lui. Les milliers de cultivateurs du Royaume Intérieur qu'il avait dévorés furent extraits, libérés pour entrer dans le cycle de la réincarnation.
 
-Wang Lin projeta le dragon noir des Flammes Joss vers Maître Yan Leizi.
+Wang Lin projeta le dragon noir des Flammes d'Encens vers Maître Yan Leizi.
 
-« Vous souvenez-vous que lorsque nous nous sommes rencontrés, vous avez dit que j'étais votre destin? Je vous offre ceci. Les Flammes Joss sont toxiques, mais pour vous, les bénéfices surpasseront peut-être les inconvénients. Avec ces Flammes Joss, si l'occasion se présente, vous pourriez devenir un grand expert! »
+« Vous souvenez-vous que lorsque nous nous sommes rencontrés, vous avez dit que j'étais votre destin? Je vous offre ceci. Les Flammes d'Encens sont toxiques, mais pour vous, les bénéfices surpasseront peut-être les inconvénients. Avec ces Flammes d'Encens, si l'occasion se présente, vous pourriez devenir un grand expert! »
 
 Le corps de Maître Yan Leizi trembla sous une émotion monstrueuse. Il saisit le dragon noir scellé par Wang Lin, incapable de trouver ses mots. Bouleversé par cette excitation et un sentiment complexe, il s'inclina profondément devant Wang Lin!
 
@@ -56,7 +56,7 @@ Une pointe de nostalgie traversa le regard de Wang Lin. Le souvenir de Shengong 
 
 « Aidez-moi à lui transmettre ceci. Dites-lui que c'est mon cadeau pour avoir reconnu ma seigneurie! »
 
-Maître Yan Leizi fut stupéfait un instant, envahi par une pointe d'envie. Il hocha rapidement la tête et rangea le second dragon noir des Flammes Joss.
+Maître Yan Leizi fut stupéfait un instant, envahi par une pointe d'envie. Il hocha rapidement la tête et rangea le second dragon noir des Flammes d'Encens.
 
 Le regard doré de Wang Lin se posa sur le troisième dragon noir. Une froideur glaciale émana de ses yeux lorsqu'il déclara lentement:
 
@@ -68,7 +68,7 @@ Observant cette scène avec une certaine satisfaction, il ressentit un respect e
 
 Ces quelque dix mille cultivateurs étaient impuissants. Le dragon noir, consumé par la peur et le désespoir, sembla presque perdre la raison lorsqu'il comprit que Wang Lin lui offrirait la vie. En un demi-bâton d'encens à peine, aucun cultivateur du Royaume Extérieur ne resta en vie!
 
-Tous les cultivateurs furent dévorés, leurs âmes intégrant désormais le royaume des Flammes Joss au sein de l'animal. La chair et le sang de ces êtres fusionnèrent avec son corps, conférant au dragon une lueur pourpre!
+Tous les cultivateurs furent dévorés, leurs âmes intégrant désormais le royaume des Flammes d'Encens au sein de l'animal. La chair et le sang de ces êtres fusionnèrent avec son corps, conférant au dragon une lueur pourpre!
 
 Les épines acérées autour de son corps s'allongèrent, et la corne unique sur sa tête gagna un pouce de hauteur.
 
@@ -112,7 +112,7 @@ Maître Yan Leizi observait la scène, l'esprit vif, et après un instant de ré
 
 Les yeux de Wang Lin s'illuminèrent et il pointa l'avant du doigt. Le dragon noir, après avoir été repoussé, commença à lutter en poussant un rugissement. Il se précipita frénétiquement avec son corps colossal et rugit face à la planète de culture!
 
-Son cri s'intensifia et, alors qu'il se rapprochait, il ouvrit la gueule. Son royaume des Flammes Joss se déploya, libérant une multitude d'Âmes de Flamme Joss vers la planète!
+Son cri s'intensifia et, alors qu'il se rapprochait, il ouvrit la gueule. Son royaume des Flammes d'Encens se déploya, libérant une multitude d'Âmes de Flamme d'Encens vers la planète!
 
 Cependant, à cet instant précis, un changement stupéfiant se produisit! Un rugissement lugubre et déchaîné s'éleva de la planète de culture. Ce cri était empreint de folie et d'une intention meurtrière indescriptible!
 

@@ -78,11 +78,11 @@ L'expression de Wang Lin était calme, mais son sérieux était palpable. Lorsqu
 
 Cependant, avec l'apparition de la Peinture des Montagnes et des Rivières, Maître Long Pan, fusionné avec la planète, dégageait désormais l'aura puissante d'un cultivateur au milieu du stade Vide Spirituel!
 
-Grâce aux Flammes Joss provenant de la peinture, son aura s'était encore plus solidifiée et rendue tangible!
+Grâce aux Flammes d'Encens provenant de la peinture, son aura s'était encore plus solidifiée et rendue tangible!
 
-Wang Lin n'était pas surpris que Maître Long Pan soit un cultivateur de la troisième étape doté des Flammes Joss. Il était le maître de Maître Zhong Xuan et avait vécu avant l'effondrement du Royaume Céleste. Il appartenait à la même génération que l'ancien Seigneur du Royaume Scellé.
+Wang Lin n'était pas surpris que Maître Long Pan soit un cultivateur de la troisième étape doté des Flammes d'Encens. Il était le maître de Maître Zhong Xuan et avait vécu avant l'effondrement du Royaume Céleste. Il appartenait à la même génération que l'ancien Seigneur du Royaume Scellé.
 
-Avant l'effondrement des quatre grands Royaumes Célestes, ces derniers servaient à produire les Flammes Joss. Maître Long Pan avait dû obtenir une immense fortune à cette époque.
+Avant l'effondrement des quatre grands Royaumes Célestes, ces derniers servaient à produire les Flammes d'Encens. Maître Long Pan avait dû obtenir une immense fortune à cette époque.
 
 Bien qu'on ignorât pour quelle raison contraignante il avait choisi de fusionner avec la planète, il devait être extrêmement puissant!
 

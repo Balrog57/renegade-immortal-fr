@@ -54,13 +54,13 @@ Le visage de Maître Lu Fu était pâle et son humeur aussi sombre que l'eau. Un
 
 Ce cri résonna et étouffa la peur des dizaines de milliers de cultivateurs. Désormais, seule sa voix dominait!
 
-« Ce vieil homme vous a sous-estimé. Vous avez bel et bien pris un cultivateur du troisième pas pour esclave. Le niveau de culture de cet individu est égal au mien et il possède bien plus de Flammes Joss que moi. Je ne suis même pas son égal! »
+« Ce vieil homme vous a sous-estimé. Vous avez bel et bien pris un cultivateur du troisième pas pour esclave. Le niveau de culture de cet individu est égal au mien et il possède bien plus de Flammes d'Encens que moi. Je ne suis même pas son égal! »
 
 La voix de Maître Lu Fu pénétra les oreilles de tous les cultivateurs de Luotian présents.
 
-« Cependant, même si ce vieil homme n'est pas votre rival, je suis certain de pouvoir encore livrer bataille! Ce vieil homme est très talentueux; sans ce manque de Flammes Joss, ma culture aurait depuis longtemps atteint le milieu ou la fin du Vide du Nirvana! »
+« Cependant, même si ce vieil homme n'est pas votre rival, je suis certain de pouvoir encore livrer bataille! Ce vieil homme est très talentueux; sans ce manque de Flammes d'Encens, ma culture aurait depuis longtemps atteint le milieu ou la fin du Vide du Nirvana! »
 
-« Bien que ma culture soit limitée par l'absence de Flammes Joss, j'ai raffiné plusieurs trésors au cours des dizaines de milliers d'années passées! Avec la puissance de la formation planétaire, cela suffira encore à vous combattre! » La voix de Maître Lu Fu résonna tandis qu'il agitait sa manche. La formation planétaire libéra une aura des dizaines de fois plus puissante que précédemment, formant un gigantesque tourbillon qui balayait les étoiles.
+« Bien que ma culture soit limitée par l'absence de Flammes d'Encens, j'ai raffiné plusieurs trésors au cours des dizaines de milliers d'années passées! Avec la puissance de la formation planétaire, cela suffira encore à vous combattre! » La voix de Maître Lu Fu résonna tandis qu'il agitait sa manche. La formation planétaire libéra une aura des dizaines de fois plus puissante que précédemment, formant un gigantesque tourbillon qui balayait les étoiles.
 
 Des grondements tonitruants éclatèrent de toutes parts. Les cultivateurs qui avaient été choqués par l'apparition de Ling Dong poussèrent à nouveau des rugissements fervents.
 
@@ -70,7 +70,7 @@ Des grondements tonitruants éclatèrent de toutes parts. Les cultivateurs qui a
 
 Ces voix s'unirent rapidement. C'était le cri de dizaines de milliers de cultivateurs, un rugissement qu'ils lâchaient alors qu'ils étaient sur le point de s'effondrer, afin de se redresser et de porter Luotian vers le haut!
 
-Leurs voix ressemblaient à une inondation dévastatrice! Elles fusionnèrent avec la tempête pour former un élan indescriptible. De faibles Flammes Joss s'élevaient également des têtes des cultivateurs en direction de Maître Lu Fu!
+Leurs voix ressemblaient à une inondation dévastatrice! Elles fusionnèrent avec la tempête pour former un élan indescriptible. De faibles Flammes d'Encens s'élevaient également des têtes des cultivateurs en direction de Maître Lu Fu!
 
 Maître Lu Fu laissa échapper un rire vers le ciel, puis pointa la formation planétaire d'un air grave. Soudain, une lance de dix mille pieds de long surgit du vortex au cœur de la formation!
 
@@ -116,7 +116,7 @@ Elle pouvait percer le corps de Tuo Sen, mais elle n'était pas digne d'affronte
 
 L'épée possédait un esprit, et celui-ci poussa un cri misérable. L'esprit, gravement blessé, retourna vers Maître Lu Fu en tremblant violemment, tel un cultivateur terrifié!
 
-Derrière Maître Lu Fu se trouvait également le Royaume Céleste du Vent. Ces célestes chargeaient Wang Lin lorsque Zhou Jin et Ling Dong apparurent. Les deux hommes firent un pas en avant simultanément, et la puissance des Flammes Joss résonna.
+Derrière Maître Lu Fu se trouvait également le Royaume Céleste du Vent. Ces célestes chargeaient Wang Lin lorsque Zhou Jin et Ling Dong apparurent. Les deux hommes firent un pas en avant simultanément, et la puissance des Flammes d'Encens résonna.
 
 Des millions de collisions invisibles éclatèrent instantanément. Les ombres des célestes furent balayées comme par une bourrasque de vent!
 

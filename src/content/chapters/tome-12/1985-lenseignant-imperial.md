@@ -54,9 +54,9 @@ Cette silhouette bougea avec une rapidité fulgurante, fusionnant presque avec l
 
 « Après que mon clan eut suivi l'Ancêtre Céleste, nous avons répandu ce sortilège pour permettre à toute secte qualifiée de créer son propre monde caverneux!
 
-« Au fil des âges, ces innombrables mondes caverneux ont fourni d'immenses quantités de Flammes Joss à mon clan. Les Flammes Joss étaient utiles aux autres, mais elles l'étaient par-dessus tout pour nous. Tant qu'un être absorbait les Flammes Joss de mon clan, il devenait un membre extérieur de notre lignée. Et si les flammes venaient à manquer, il mourait!
+« Au fil des âges, ces innombrables mondes caverneux ont fourni d'immenses quantités de Flammes d'Encens à mon clan. Les Flammes d'Encens étaient utiles aux autres, mais elles l'étaient par-dessus tout pour nous. Tant qu'un être absorbait les Flammes d'Encens de mon clan, il devenait un membre extérieur de notre lignée. Et si les flammes venaient à manquer, il mourait!
 
-« Les Flammes Joss sont un poison, mais aussi une bénédiction! Ce n'est pas un grand secret, vous le savez peut-être déjà.
+« Les Flammes d'Encens sont un poison, mais aussi une bénédiction! Ce n'est pas un grand secret, vous le savez peut-être déjà.
 
 « Cependant, vous êtes venu à travers le vide, non par la réincarnation, mais en sortant physiquement du monde caverneux...
 
@@ -96,13 +96,13 @@ L'expression de Wang Lin resta de marbre; il n'était nullement ému. Il se cont
 
 « Je peux vous aider à obtenir ce niveau sans que l'Empereur Céleste ne s'en aperçoive! » L'Enseignant Impérial se lécha les lèvres en observant Wang Lin.
 
-« Vous avez les qualifications, vous venez d'un monde caverneux qui fournit des Flammes Joss à mon clan, vous... »
+« Vous avez les qualifications, vous venez d'un monde caverneux qui fournit des Flammes d'Encens à mon clan, vous... »
 
 « Vous ne pouvez pas quitter la cité ancestrale! Plus précisément, vous ne pouvez pas quitter le palais! » Les paroles de Wang Lin coupèrent l'Enseignant Impérial. Suite à cette interruption, l'expression de ce dernier changea brusquement et il se tut. Son regard devint glacial alors qu'il fixait Wang Lin.
 
 Wang Lin ne cilla pas et soutint son regard. Après un long silence, l'Enseignant Impérial éclata de rire.
 
-« C'est exact. L'Ancêtre Céleste est puissant, extrêmement puissant. Mon clan est contraint de le servir, et la grande majorité des Flammes Joss sont raffinées par les corps des membres de mon clan avant d'être offertes à l'Ancêtre Céleste!
+« C'est exact. L'Ancêtre Céleste est puissant, extrêmement puissant. Mon clan est contraint de le servir, et la grande majorité des Flammes d'Encens sont raffinées par les corps des membres de mon clan avant d'être offertes à l'Ancêtre Céleste!
 
 « Il a laissé un sceau qui se transmet de génération en génération au sein de mon clan. Non seulement nous ne pouvons pas quitter la cité ancestrale, mais nous devons même rester silencieux et prudents. Chaque génération d'Empereur Céleste peut contrôler la vie et la mort de mon peuple! Quiconque prend le risque de partir meurt! L'Ancien de la Secte Da Hun était un génie de mon clan, mais même lui n'a pu échapper à la mort après son départ!
 

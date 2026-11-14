@@ -68,7 +68,7 @@ Cependant, Wang Lin s'apprêtait à affiner Maître Simo. Cette perspective fit 
 
 « Bien! Il est véritablement digne d'être un Junior de mon clan. Peu importe son succès ou son échec; avoir le courage d'entreprendre cela fait de lui un individu illustre! » Les yeux du vieux Suzaku se remplirent de soulagement.
 
-Hormis le Royaume des Flammes Joss, scellé par la Feuille Ancienne, seule subsistait le Fourneau de l'Empereur. Wang Lin, assis au sommet, faisait circuler son énergie originelle et continuait d'alimenter le fourneau avec ses essences de feu et de tonnerre pour entamer son affinage!
+Hormis le Royaume des Flammes d'Encens, scellé par la Feuille Ancienne, seule subsistait le Fourneau de l'Empereur. Wang Lin, assis au sommet, faisait circuler son énergie originelle et continuait d'alimenter le fourneau avec ses essences de feu et de tonnerre pour entamer son affinage!
 
 Le Fourneau de l'Empereur étant un trésor de Dieu Ancien Royal, sa puissance était capable de briser les cieux. Désormais contrôlé par Wang Lin, lui-même un Dieu Ancien Royal, sa force décuplait!
 

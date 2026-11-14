@@ -60,9 +60,9 @@ Da Huang plissa les yeux et réfléchit un instant. Il sourit et, sans même acc
 
 Miaoyin Daozun ne répondit rien et se contenta de fixer Da Huang.
 
-« Ce vieil homme Da Huang jure par mes Flammes Joss qu'une fois l'esprit Dao obtenu, je partirai sans jamais revenir! » Da Huang semblait deviner ce que Miaoyin Daozun attendait. Sans hésiter, il forma un sceau de la main droite, et une rune étrange s'en échappa.
+« Ce vieil homme Da Huang jure par mes Flammes d'Encens qu'une fois l'esprit Dao obtenu, je partirai sans jamais revenir! » Da Huang semblait deviner ce que Miaoyin Daozun attendait. Sans hésiter, il forma un sceau de la main droite, et une rune étrange s'en échappa.
 
-Prêter serment sur ses Flammes Joss, sous forme de rune de serment, était une méthode de contrainte à laquelle les cultivateurs du troisième niveau se fiaient plutôt entre eux. D'un geste de la main, il projeta la rune vers Miaoyin Daozun.
+Prêter serment sur ses Flammes d'Encens, sous forme de rune de serment, était une méthode de contrainte à laquelle les cultivateurs du troisième niveau se fiaient plutôt entre eux. D'un geste de la main, il projeta la rune vers Miaoyin Daozun.
 
 Après avoir saisi la rune, Miaoyin Daozun se détendit et lança la pilule qu'il tenait en main.
 
@@ -70,7 +70,7 @@ Da Huang agita sa manche pour récupérer la pilule. Il sourit, jeta un regard �
 
 Dès son envol, le tatouage de tonnerre, rongé de flammes, apparut devant lui et il chargea Miaoyin Daozun. Ce dernier laissa échapper un reniflement froid, le regard empreint de cruauté. Face à ce cultivateur du Feu Éthéré, il verrouilla d'abord toutes ses émotions.
 
-Sa main droite traça un sceau et il agita brusquement le bras. Des Flammes Joss apparurent, accompagnées de l'illusion d'une femme magnifique. Celle-ci, brandissant une épée de jade, frappa Wang Lin.
+Sa main droite traça un sceau et il agita brusquement le bras. Des Flammes d'Encens apparurent, accompagnées de l'illusion d'une femme magnifique. Celle-ci, brandissant une épée de jade, frappa Wang Lin.
 
 L'énergie de l'épée était monstrueuse, comme si elle pouvait trancher cette terre scellée en deux. Elle fonça droit sur le tatouage de tonnerre!
 
@@ -88,7 +88,7 @@ Miaoyin Daozun cracha du sang et recula rapidement.
 
 Cependant, alors qu'il se retirait, l'expression de faiblesse de Wang Lin disparut brusquement. Une intention meurtrière jaillit de son regard tandis qu'il agissait de la main droite, libérant une lumière sanguine monstrueuse. L'épée de sang fonça vers Miaoyin Daozun.
 
-« Je veux toutes ses Flammes Joss! » lança calmement Wang Lin en chargeant.
+« Je veux toutes ses Flammes d'Encens! » lança calmement Wang Lin en chargeant.
 
 « Je veux que son corps abrite mon âme! » Une voix antique résonna à travers le monde.
 

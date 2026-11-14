@@ -8,9 +8,9 @@ slug: quatre-joies
 ---
 L'Estimé Ling Dong reçut le sortilège de la Voie de la Fusion de Wang Lin! Puis son corps trembla et il sombra progressivement au fond de l'océan. Il était extrêmement talentueux; sans cela, il n'aurait pas pu atteindre le demi-pas du troisième stade.
 
-L'Estimé Ling Dong avait parfaitement assimilé le sortilège après plusieurs heures. Bien que sa compréhension ne fût pas aussi profonde que celle de Wang Lin, elle était suffisante pour faire face à ces âmes de Flamme Joss qui étaient privées de maître.
+L'Estimé Ling Dong avait parfaitement assimilé le sortilège après plusieurs heures. Bien que sa compréhension ne fût pas aussi profonde que celle de Wang Lin, elle était suffisante pour faire face à ces âmes de Flamme d'Encens qui étaient privées de maître.
 
-L'océan à l'intérieur du Fourneau Impérial tourbillonnait violemment jusqu'à former un vortex gigantesque. Au centre se trouvait l'Estimé Ling Dong. Ses yeux émettaient une lueur mystérieuse alors qu'il utilisait le sortilège de la Voie que Wang Lin lui avait transmis pour fusionner avec les âmes de Flamme Joss.
+L'océan à l'intérieur du Fourneau Impérial tourbillonnait violemment jusqu'à former un vortex gigantesque. Au centre se trouvait l'Estimé Ling Dong. Ses yeux émettaient une lueur mystérieuse alors qu'il utilisait le sortilège de la Voie que Wang Lin lui avait transmis pour fusionner avec les âmes de Flamme d'Encens.
 
 Wang Lin était toujours assis à l'extérieur du Fourneau Impérial, continuant d'utiliser son pouvoir de Dieu Ancien pour nourrir ces dix-neuf arbres. Désormais, les arbres ne semblaient plus desséchés.
 
@@ -108,11 +108,11 @@ Des Feuilles Anciennes!
 
 La joie n'était pas encore retombée qu'une autre survint. L'océan de poison à l'intérieur du Fourneau Impérial s'était dissipé pour se transformer en neuf gouttes de poison qui choqueraient même Da Huang!
 
-Chaque goutte était saturée d'innombrables âmes de Flamme Joss et du poison suprême du ciel et de la terre!
+Chaque goutte était saturée d'innombrables âmes de Flamme d'Encens et du poison suprême du ciel et de la terre!
 
-La troisième joie survint! Dans l'autre dimension du Fourneau Impérial, l'Estimé Ling Dong avait fusionné quarante pour cent des âmes de Flamme Joss de la mer pourpre et avait enfin franchi le demi-pas crucial! Il était devenu un véritable cultivateur du troisième stade! Le vortex tourna rapidement et l'Estimé Ling Dong en jaillit. Ses yeux brillaient d'excitation et une aura puissante jaillissait de lui!
+La troisième joie survint! Dans l'autre dimension du Fourneau Impérial, l'Estimé Ling Dong avait fusionné quarante pour cent des âmes de Flamme d'Encens de la mer pourpre et avait enfin franchi le demi-pas crucial! Il était devenu un véritable cultivateur du troisième stade! Le vortex tourna rapidement et l'Estimé Ling Dong en jaillit. Ses yeux brillaient d'excitation et une aura puissante jaillissait de lui!
 
-D'innombrables Flammes Joss apparaissaient autour de Ling Dong telles des rubans illusoires. C'était là une caractéristique distinctive des cultivateurs du troisième stade!
+D'innombrables Flammes d'Encens apparaissaient autour de Ling Dong telles des rubans illusoires. C'était là une caractéristique distinctive des cultivateurs du troisième stade!
 
 Après la troisième joie vint la quatrième!
 

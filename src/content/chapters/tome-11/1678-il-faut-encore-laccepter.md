@@ -24,7 +24,7 @@ Quant à l'intégration des huit gouttes de sang pour accroître son pouvoir anc
 
 Trois jours passèrent en un éclair. Wang Lin sembla percevoir quelque chose et ouvrit les yeux. L'espace extérieur à la formation était en lambeaux, criblé de nombreux trous noirs créés par le combat entre Lanmeng et les autres.
 
-D'innombrables âmes de flammes de Joss mortes flottaient parmi les étoiles, telles une fumée invisible dérivant lentement dans l'obscurité.
+D'innombrables âmes de flammes d'encens mortes flottaient parmi les étoiles, telles une fumée invisible dérivant lentement dans l'obscurité.
 
 Après quelques coups d'œil, Wang Lin put ressentir la férocité de la bataille. Il ne vit pas les trois adversaires, mais il vit Lanmeng pénétrer dans le cercle de la formation pour arriver devant lui.
 
@@ -32,7 +32,7 @@ Lanmeng Daozun paraissait épuisé. Il semblait que même pour lui, affronter le
 
 « Miaoyin Daozun est gravement blessé, au point qu'il ne pourra pas retrouver son niveau de culture maximal avant cent ans. Son niveau a chuté au stade Vide Spirituel; la prochaine fois que vous le croiserez, vous pourrez le tuer! »
 
-« Les blessures de Jiutian Mozun sont légèrement moins graves que celles de Miaoyin Daozun, mais son royaume de flammes de Joss a été détruit par moi, ce qui a endommagé son esprit. À l'avenir, il ne sera plus de taille face à vous! »
+« Les blessures de Jiutian Mozun sont légèrement moins graves que celles de Miaoyin Daozun, mais son royaume de flammes d'encens a été détruit par moi, ce qui a endommagé son esprit. À l'avenir, il ne sera plus de taille face à vous! »
 
 « Da Huang a été le plus durement touché et s'est enfui en utilisant un sort secret. Il ne survivra pas plus de dix ans! » Sur ces mots, il s'assit et ferma les yeux pour cultiver.
 

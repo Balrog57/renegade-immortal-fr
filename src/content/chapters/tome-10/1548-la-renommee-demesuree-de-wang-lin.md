@@ -112,12 +112,12 @@ Maître Yan Leizi fut nerveux sous le regard de ces dix mille et quelques indivi
 
 Maître Yan Leizi s'exclama rapidement: « C'est Tianzhao Shangshi! »
 
-Le regard indifférent de Wang Lin se posa sur le vieil homme en noir, puis il fit un pas en avant. À cet instant, le vieil homme sourit. Ses mains formèrent un sceau et une énergie de Flamme Joss infinie apparut.
+Le regard indifférent de Wang Lin se posa sur le vieil homme en noir, puis il fit un pas en avant. À cet instant, le vieil homme sourit. Ses mains formèrent un sceau et une énergie de Flamme d'Encens infinie apparut.
 
-« Et alors s'il est le Seigneur du Royaume Scellé? Regardez tous comment ce vieil homme va l'abattre! Une fois qu'il sera mort, je serai classé premier dans le classement du Système Stellaire Antique! » Le vieil homme en noir ricana et avança à son tour. Il agita ses manches et les Flammes Joss prirent la forme de trois dragons noirs monstrueux de centaines de milliers de pieds de long, couverts d'épines et dotés d'une corne unique, semblables à trois fouets sombres!
+« Et alors s'il est le Seigneur du Royaume Scellé? Regardez tous comment ce vieil homme va l'abattre! Une fois qu'il sera mort, je serai classé premier dans le classement du Système Stellaire Antique! » Le vieil homme en noir ricana et avança à son tour. Il agita ses manches et les Flammes d'Encens prirent la forme de trois dragons noirs monstrueux de centaines de milliers de pieds de long, couverts d'épines et dotés d'une corne unique, semblables à trois fouets sombres!
 
-Le pouvoir spirituel propre aux cultivateurs du Vide Spirituel se propagea, accompagné d'un murmure étrange. Les trois dragons noirs ouvrirent leurs gueules, révélant trois Royaumes de Flamme Joss abritant d'innombrables disciples de la Flamme Joss. Ces flammes s'engouffrèrent dans les dragons noirs, les transformant en trois véritables dragons de Flamme Joss!
+Le pouvoir spirituel propre aux cultivateurs du Vide Spirituel se propagea, accompagné d'un murmure étrange. Les trois dragons noirs ouvrirent leurs gueules, révélant trois Royaumes de Flamme d'Encens abritant d'innombrables disciples de la Flamme d'Encens. Ces flammes s'engouffrèrent dans les dragons noirs, les transformant en trois véritables dragons de Flamme d'Encens!
 
 C'était l'atout maître de Tianzhao Shangshi, une technique célèbre dans tout le Système Stellaire Antique. Ces dragons n'étaient pas des illusions; il avait bravé de multiples dangers pour capturer ces dragons réels dans une terre mystérieuse!
 
-Après les avoir affinés pendant dix mille ans, Tianzhao Shangshi avait réussi à soumettre ces trois dragons noirs pour qu'ils lui vouent un culte et deviennent ses chefs d'âmes de Flamme Joss!
+Après les avoir affinés pendant dix mille ans, Tianzhao Shangshi avait réussi à soumettre ces trois dragons noirs pour qu'ils lui vouent un culte et deviennent ses chefs d'âmes de Flamme d'Encens!

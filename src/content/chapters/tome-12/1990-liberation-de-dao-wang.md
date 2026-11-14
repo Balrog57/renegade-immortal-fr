@@ -66,7 +66,7 @@ Cependant, la conscience de ce Wang Lin n'était plus la sienne, mais celle de l
 
 « Ça a marché! Ce Wang Lin était rusé jusqu'au bout et se méfiait sans cesse de ce vieil homme. Il n'a jamais coopéré, mais voilà qu'en dépit de tout, sous le pouvoir de l'héritage de l'Ancêtre Céleste, il est tombé entre mes mains! »
 
-« Ce corps est prodigieux! Il peut affiner encore davantage la puissance de la Flamme Joss! » L'Enseignant Impérial, ivre de joie après avoir pris possession du corps, serra les poings.
+« Ce corps est prodigieux! Il peut affiner encore davantage la puissance de la Flamme d'Encens! » L'Enseignant Impérial, ivre de joie après avoir pris possession du corps, serra les poings.
 
 « Malheureusement, l'héritage est incomplet, mais ce n'est que la première étape. Place à la seconde. Une fois réussie, mon clan pourra se libérer de l'asservissement de l'Ancêtre Céleste et retrouver sa liberté! »
 

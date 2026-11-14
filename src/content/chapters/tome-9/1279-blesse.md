@@ -100,13 +100,13 @@ Un grondement tonitruant retentit. La main ne disparut pas, mais elle fut gravem
 
 « Vieux fou, tu t'immisces là où tu ne devrais pas. Ton corps originel ne peut pas venir, ceci n'est qu'un simple avatar. Meurs! Meurs! Meurs! » Comme si quelque chose avait touché le point faible du Shui Daozi, il afficha une expression hideuse et tendit la main droite. Il saisit la planète de culture gigantesque et la projeta avec acharnement!
 
-« Ce vieil homme a rassemblé deux milliards de disciples du Dao de l'Eau pour les faire vénérer pendant des dizaines de milliers d'années afin de créer des Flammes Joss en son honneur. Aujourd'hui, je vais sacrifier cinq cents millions de disciples du Dao de l'Eau pour former des Flammes Joss et détruire ton avatar. Ensuite, j'irai dans le Royaume Céleste du Vent pour massacrer ton corps véritable! » rugit le Shui Daozi alors que la planète de culture géante, projetée par lui, percutait la main endommagée.
+« Ce vieil homme a rassemblé deux milliards de disciples du Dao de l'Eau pour les faire vénérer pendant des dizaines de milliers d'années afin de créer des Flammes d'Encens en son honneur. Aujourd'hui, je vais sacrifier cinq cents millions de disciples du Dao de l'Eau pour former des Flammes d'Encens et détruire ton avatar. Ensuite, j'irai dans le Royaume Céleste du Vent pour massacrer ton corps véritable! » rugit le Shui Daozi alors que la planète de culture géante, projetée par lui, percutait la main endommagée.
 
 Un fracas retentit. Au moment où la planète s'écrasa, une force colossale apparut. C'était une énergie propre aux cultivateurs du troisième niveau, générée par l'effondrement de cinq cents millions de disciples du Dao de l'Eau. Le bras endommagé s'effondra instantanément.
 
 Des grondements tonitruants résonnèrent. La voix antique laissa échapper un gémissement étouffé, blessée. La voix et la main de vent disparurent!
 
-« Vieux fou, le fait que tu viennes m'arrêter signifie que cette fourmi est importante, ce qui me donne encore plus envie de la tuer! Maintenant que ton avatar a péri sous les Flammes Joss de mes disciples du Dao de l'Eau, qui pourra m'arrêter? » L'expression du Shui Daozi était d'une horreur absolue. Le clou aux sept couleurs tournait entre ses sourcils mais ne pouvait pénétrer plus de trois pouces. Cependant, la partie enfoncée dans son crâne commençait à fondre, instillant une pointe de folie chez le Shui Daozi!
+« Vieux fou, le fait que tu viennes m'arrêter signifie que cette fourmi est importante, ce qui me donne encore plus envie de la tuer! Maintenant que ton avatar a péri sous les Flammes d'Encens de mes disciples du Dao de l'Eau, qui pourra m'arrêter? » L'expression du Shui Daozi était d'une horreur absolue. Le clou aux sept couleurs tournait entre ses sourcils mais ne pouvait pénétrer plus de trois pouces. Cependant, la partie enfoncée dans son crâne commençait à fondre, instillant une pointe de folie chez le Shui Daozi!
 
 Il se retourna brusquement et chargea Wang Lin. Ses doigts s'ouvrirent avant de se refermer avec une intention meurtrière!
 

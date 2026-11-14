@@ -48,7 +48,7 @@ Ses yeux s'ouvrirent lentement, révélant de la fatigue, mais une lueur étrang
 
 « Tous les membres du Clan Shan Lei cultivent leur marque pendant des éternités, et à mesure que la marque s'éveille, ils obtiennent un pouvoir infini et la maîtrise du tonnerre. Si la marque améliore leur culture, elle fait aussi ceci... ils offrent constamment leur force vitale et leur tonnerre en sacrifice à l'Éclair Éternel... »
 
-« C’est très similaire aux Flammes Joss! » Les yeux de Wang Lin devinrent de plus en plus brillants.
+« C’est très similaire aux Flammes d'Encens! » Les yeux de Wang Lin devinrent de plus en plus brillants.
 
 « Si l'Éclair Éternel est un cultivateur de la troisième étape, alors tout le Clan Shan Lei n'est que ses disciples... Ces disciples portent tous une marque, ils cultivent sans cesse et offrent tout ce qu'ils possèdent... Mais selon l'ampleur de leur offrande, ils reçoivent en retour des niveaux de culture variables... »
 
@@ -64,13 +64,13 @@ Plus il spéculait, plus son cœur se glaçait. Mais son regard ne parvenait pas
 
 « Ce ne sont que des suppositions... Peut-être n'est-ce pas ce que je pense... Cependant, cela signifierait que la Formation du Royaume Scellé n'est pas ce que le Seigneur du Royaume Scellé avait affirmé. Elle n'a pas été placée là simplement pour piéger les habitants du Royaume Intérieur... »
 
-« De plus, la femme en argent a dit que les Flammes Joss étaient toxiques et une escroquerie... Si l'on joint cela aux paroles de Lanmeng Daozun sur le Souverain, gravement blessé par le rugissement de quelqu'un dans le Royaume Intérieur, avant de s'enfuir dans la panique... Tout cela est-il lié? Quel genre de secret enveloppe les Royaumes Intérieur et Extérieur? »
+« De plus, la femme en argent a dit que les Flammes d'Encens étaient toxiques et une escroquerie... Si l'on joint cela aux paroles de Lanmeng Daozun sur le Souverain, gravement blessé par le rugissement de quelqu'un dans le Royaume Intérieur, avant de s'enfuir dans la panique... Tout cela est-il lié? Quel genre de secret enveloppe les Royaumes Intérieur et Extérieur? »
 
 « Et quel rôle l'Ancien Royaume Céleste a-t-il joué dans tout cela... » Plus Wang Lin réfléchissait, plus il ressentait de la terreur. Un frisson rare secoua son esprit.
 
 Il prit une profonde inspiration pour se calmer. Il enfouit ses spéculations au plus profond de son cœur.
 
-« Qu'elles soient vraies ou fausses, je ne cultiverai pas les Flammes Joss à la légère! » Les yeux de Wang Lin s'illuminèrent d'une détermination farouche.
+« Qu'elles soient vraies ou fausses, je ne cultiverai pas les Flammes d'Encens à la légère! » Les yeux de Wang Lin s'illuminèrent d'une détermination farouche.
 
 Quelques jours plus tard, Dahong revint avant Xu Liguo. Dès son retour au sein de la secte, il changea instantanément d'expression pour afficher une joie et un respect feints. Après avoir appris que Wang Lin était en retraite méditative, il se posta devant la salle et ordonna à tout le monde de s'éloigner. Il resta seul en sentinelle, d'une vigilance extrême, tel un serviteur royal protégeant son maître.
 

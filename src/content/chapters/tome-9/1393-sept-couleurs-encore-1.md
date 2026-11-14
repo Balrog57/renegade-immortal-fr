@@ -108,13 +108,13 @@ D'un air sombre, Wang Lin s'approcha de la femme. Sa main gauche traça de nombr
 
 Même après cela, il fronçait toujours les sourcils en observant le gaz vert dans sa main droite!
 
-« C'est une autre force, distincte de l'énergie originelle! Ce n'est pas le pouvoir des Flammes Joss ni de l'essence, pourtant c'est très similaire à l'essence! Qu'est-ce que c'est donc... Est-ce lié à cette statue... Cette femme en argent recèle trop de secrets... Quelle est son identité exacte?! »
+« C'est une autre force, distincte de l'énergie originelle! Ce n'est pas le pouvoir des Flammes d'Encens ni de l'essence, pourtant c'est très similaire à l'essence! Qu'est-ce que c'est donc... Est-ce lié à cette statue... Cette femme en argent recèle trop de secrets... Quelle est son identité exacte?! »
 
 « Serait-elle l'une des huit concubines impériales antiques? » Wang Lin ne parvenait pas à conclure.
 
-« Cette femme a dit que les Flammes Joss étaient toxiques. Au début, j'ai pensé qu'elle avait cultivé les Flammes Joss et que c'était la cause de son état... Cependant, avec le recul, cela semble bien plus complexe! »
+« Cette femme a dit que les Flammes d'Encens étaient toxiques. Au début, j'ai pensé qu'elle avait cultivé les Flammes d'Encens et que c'était la cause de son état... Cependant, avec le recul, cela semble bien plus complexe! »
 
-« Se pourrait-il qu'elle ait su que les Flammes Joss étaient toxiques avant même de les cultiver? »
+« Se pourrait-il qu'elle ait su que les Flammes d'Encens étaient toxiques avant même de les cultiver? »
 
 Un éclat de froideur passa dans les yeux de Wang Lin alors qu'il fixait la femme inconsciente. Après un long moment, il leva la main et l'appuya sur son front pour utiliser le sort de recherche d'âme qu'il n'avait pas encore employé sur elle!
 

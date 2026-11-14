@@ -74,7 +74,7 @@ Même après la formation de son corps véritable d'essence de feu, son niveau d
 
 « À ce moment-là, bien que je ne sois qu'au stade du Vide Arcanique, avec mes neuf essences, je pourrai combattre des cultivateurs du début de la Tribulation du Vide sans même utiliser ces grands sorts. Une fois que j'aurai atteint le stade avancé du Vide Arcanique, je n'aurai pas à affronter les Tribulations Arcaniques une par une, mais toutes les neuf d'un coup! Alors, je deviendrai un cultivateur de la Tribulation du Vide! »
 
-Wang Lin comprit que son chemin de culture était radicalement différent de celui des autres. Il ne possédait aucune Flamme Joss et s'appuyait uniquement sur sa compréhension et le pillage des énergies du ciel et de la terre. Une fois qu'il aurait obtenu ses neuf essences et serait entré dans le Vide Arcanique, il serait incomparablement supérieur aux autres.
+Wang Lin comprit que son chemin de culture était radicalement différent de celui des autres. Il ne possédait aucune Flamme d'Encens et s'appuyait uniquement sur sa compréhension et le pillage des énergies du ciel et de la terre. Une fois qu'il aurait obtenu ses neuf essences et serait entré dans le Vide Arcanique, il serait incomparablement supérieur aux autres.
 
 On pouvait dire que la clé de la culture de Wang Lin résidait dans les essences!
 

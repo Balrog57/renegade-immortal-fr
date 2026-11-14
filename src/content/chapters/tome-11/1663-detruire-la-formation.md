@@ -6,25 +6,25 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1663 - Destroying the Formation!"
 slug: detruire-la-formation
 ---
-Les cultivateurs du Royaume Extérieur concentraient l'essence de la puissance des Flammes Joss pour nourrir leur corps tout entier et atteindre l'éternité. Cependant, dans le Royaume Intérieur, les Flammes Joss étaient rares, ce qui creusait un véritable abîme. Non seulement cela empêchait les gens d'atteindre le troisième stade, mais une fois ce stade atteint, si trop d'essence était consommée, il devenait difficile de récupérer.
+Les cultivateurs du Royaume Extérieur concentraient l'essence de la puissance des Flammes d'Encens pour nourrir leur corps tout entier et atteindre l'éternité. Cependant, dans le Royaume Intérieur, les Flammes d'Encens étaient rares, ce qui creusait un véritable abîme. Non seulement cela empêchait les gens d'atteindre le troisième stade, mais une fois ce stade atteint, si trop d'essence était consommée, il devenait difficile de récupérer.
 
-Wang Lin n'avait pas compté sur les Flammes Joss pour atteindre le troisième stade. Il s'était appuyé sur sa propre compréhension pour compléter ses trois essences éthérées. Il avait dévoré d'autres essences pour parachever ses essences du tonnerre et du feu.
+Wang Lin n'avait pas compté sur les Flammes d'Encens pour atteindre le troisième stade. Il s'était appuyé sur sa propre compréhension pour compléter ses trois essences éthérées. Il avait dévoré d'autres essences pour parachever ses essences du tonnerre et du feu.
 
-Par conséquent, il n'avait nul besoin de Flammes Joss au troisième stade; il lui suffisait d'obtenir les essences que d'autres avaient formées. Dévorer d'innombrables quantités d'essence permettrait de restaurer sa culture et de l'augmenter!
+Par conséquent, il n'avait nul besoin de Flammes d'Encens au troisième stade; il lui suffisait d'obtenir les essences que d'autres avaient formées. Dévorer d'innombrables quantités d'essence permettrait de restaurer sa culture et de l'augmenter!
 
-De même, son corps ne possédait pas de domaine de Flammes Joss comme les cultivateurs Vide Spirituel ordinaires. Son corps étant à lui seul le ciel et la terre, il n'était pas nécessaire de fusionner un tel domaine avec lui pour atteindre la perfection.
+De même, son corps ne possédait pas de domaine de Flammes d'Encens comme les cultivateurs Vide Spirituel ordinaires. Son corps étant à lui seul le ciel et la terre, il n'était pas nécessaire de fusionner un tel domaine avec lui pour atteindre la perfection.
 
 Le corps de Wang Lin était celui d'un Dieu Ancien, ce qui transcendait la perfection elle-même. C'est grâce à la combinaison de sa puissance de Dieu Ancien et de sa culture qu'il pouvait tuer des cultivateurs Vide Arcanique du premier stade alors qu'il n'était qu'au milieu du stade Vide Spirituel!
 
 Wang Lin osait même affronter des cultivateurs Vide Arcanique du stade intermédiaire. Bien qu'il fût difficile de prédire l'issue du combat, il leur serait extrêmement ardu de le tuer!
 
-Le chemin menant au troisième stade emprunté par Wang Lin différait radicalement de celui des autres cultivateurs. Même le Souverain Céleste aux Sept Couleurs suivait une voie distincte. Bien que ce dernier ait eu besoin de Flammes Joss, les flammes qu'il absorbait n'étaient pas toxiques.
+Le chemin menant au troisième stade emprunté par Wang Lin différait radicalement de celui des autres cultivateurs. Même le Souverain Céleste aux Sept Couleurs suivait une voie distincte. Bien que ce dernier ait eu besoin de Flammes d'Encens, les flammes qu'il absorbait n'étaient pas toxiques.
 
 Ce n'était pas que personne n'avait suivi la voie de Wang Lin, c'était simplement qu'elle était extrêmement difficile. Le bout de ce chemin était sans fin et il était d'une rudesse extrême. S'il voulait devenir un cultivateur Vide Arcanique, il lui faudrait obtenir et parachever encore quelques essences!
 
 Lorsque d'autres atteignaient le troisième stade, il était presque impossible de compléter une autre essence. Mais pour Wang Lin, la situation était bien différente. Il pouvait encore obtenir une septième, une huitième, une neuvième et même une dixième essence.
 
-De plus, comme il n'avait pas absorbé de Flammes Joss, ses essences ne possédaient pas le défaut fatal consistant à être incapables d'atteindre la perfection après être devenus des cultivateurs du troisième stade! Ce dont il avait besoin maintenant était de trouver une septième essence. Une fois celle-ci obtenue, il atteindrait le stade avancé de Vide Spirituel!
+De plus, comme il n'avait pas absorbé de Flammes d'Encens, ses essences ne possédaient pas le défaut fatal consistant à être incapables d'atteindre la perfection après être devenus des cultivateurs du troisième stade! Ce dont il avait besoin maintenant était de trouver une septième essence. Une fois celle-ci obtenue, il atteindrait le stade avancé de Vide Spirituel!
 
 Si la huitième essence apparaissait et parvenait à sa complétion, il pourrait atteindre le sommet de Vide Spirituel!
 

@@ -18,7 +18,7 @@ Lorsqu'il se tenait parmi les étoiles, toute la lumière stellaire devait l'év
 
 Wang Lin resta silencieux.
 
-« J'ai les Flammes Joss de plus de 200 milliards de disciples, ainsi que ma compréhension du royaume du vide. Les voulez-vous? »
+« J'ai les Flammes d'Encens de plus de 200 milliards de disciples, ainsi que ma compréhension du royaume du vide. Les voulez-vous? »
 
 La respiration de Wang Lin devint un peu saccadée alors qu'il observait Lanmeng Daozun, mais il ne dit toujours rien.
 
@@ -86,7 +86,7 @@ Savez-vous combien de personnes comme moi existent ici, dans le Royaume Extérie
 
 « Sans compter les anciennes concubines impériales célestes, il y en a au moins sept! »
 
-« Votre Royaume Intérieur ne possède pas de Flammes Joss et il est piégé par la Formation du Royaume Scellé depuis d'innombrables années. Le Souverain est également réputé pour ses machinations, et il a semé de nombreuses graines de notre Royaume Extérieur, laissant votre Royaume Intérieur au bord de l'effondrement! À quoi bon vous accrocher à une cause perdue? » Face aux paroles de Lanmeng Daozun, Wang Lin resta silencieux.
+« Votre Royaume Intérieur ne possède pas de Flammes d'Encens et il est piégé par la Formation du Royaume Scellé depuis d'innombrables années. Le Souverain est également réputé pour ses machinations, et il a semé de nombreuses graines de notre Royaume Extérieur, laissant votre Royaume Intérieur au bord de l'effondrement! À quoi bon vous accrocher à une cause perdue? » Face aux paroles de Lanmeng Daozun, Wang Lin resta silencieux.
 
 Après un long moment, Wang Lin leva la tête vers Lanmeng Daozun et dit calmement: « Si ce que le Senior dit est vrai, alors pourquoi le Royaume Extérieur n'a-t-il pas encore déclenché de guerre contre le Royaume Intérieur? Pourquoi s'appuient-ils sur le pouvoir du temps pour affaiblir lentement les forces du Royaume Intérieur? Je crains qu'il n'y ait quelque chose dans le Royaume Intérieur qui inquiète profondément le Senior et les autres! »
 
@@ -94,7 +94,7 @@ Lanmeng Daozun réfléchit silencieusement un instant avant de répondre calmeme
 
 L'esprit de Wang Lin fut secoué. Ce n'était qu'une conjecture, mais il ne s'attendait pas à entendre un tel secret de la part de Lanmeng Daozun!
 
-« Puisque votre décision est prise, je ne vous forcerai pas. Vous avez amené Yue Er ici, et je laisse le passé de côté ; bien que je ne puisse vous transmettre mon enseignement du Dao et mes Flammes Joss, je peux vous enseigner trois sorts. Votre compréhension dépendra de vous-même! » Lanmeng Daozun laissa échapper un soupir. Il appréciait Wang Lin, et tout ce qu'il avait dit était vrai, mais certaines choses ne pouvaient être imposées.
+« Puisque votre décision est prise, je ne vous forcerai pas. Vous avez amené Yue Er ici, et je laisse le passé de côté ; bien que je ne puisse vous transmettre mon enseignement du Dao et mes Flammes d'Encens, je peux vous enseigner trois sorts. Votre compréhension dépendra de vous-même! » Lanmeng Daozun laissa échapper un soupir. Il appréciait Wang Lin, et tout ce qu'il avait dit était vrai, mais certaines choses ne pouvaient être imposées.
 
 En tant que l'un des cinq maîtres du Système Stellaire Antique et cultivateur de la troisième étape, il possédait sa propre fierté. Il ne voulait pas contraindre autrui!
 

@@ -12,11 +12,11 @@ Il avait utilisé l'essence sonore pour briser la Porte Kong et atteindre la tro
 
 C'était pour lui un moment de vie ou de mort!
 
-« Vieux Poison de Da Huang, ton serment est entre mes mains. Je veux voir comment tu comptes gérer le contrecoup de la Flamme Joss!! » Miaoyin Daozun agita la main et sortit la rune formée par le serment de Da Huang.
+« Vieux Poison de Da Huang, ton serment est entre mes mains. Je veux voir comment tu comptes gérer le contrecoup de la Flamme d'Encens!! » Miaoyin Daozun agita la main et sortit la rune formée par le serment de Da Huang.
 
 Tenant la rune, Miaoyin Daozun l'écrasa, la transformant en une pluie d'étincelles lumineuses.
 
-Le visage de Da Huang pâlit instantanément à l'intérieur de l'empreinte de paume sombre et il cracha une bouchée de sang, sans toutefois paraître affaibli. Il eut un sourire sardonique et dit: « La méthode de culture de ce vieil homme est différente de la vôtre. Je vole ma fortune aux cieux; comment un simple serment de Flamme Joss pourrait-il sérieusement blesser ce vieil homme? Une simple bouchée de sang suffit! »
+Le visage de Da Huang pâlit instantanément à l'intérieur de l'empreinte de paume sombre et il cracha une bouchée de sang, sans toutefois paraître affaibli. Il eut un sourire sardonique et dit: « La méthode de culture de ce vieil homme est différente de la vôtre. Je vole ma fortune aux cieux; comment un simple serment de Flamme d'Encens pourrait-il sérieusement blesser ce vieil homme? Une simple bouchée de sang suffit! »
 
 Au moment où Da Huang cracha son sang, son corps original à l'extérieur fit de même. Bien que la planète désolée sur laquelle il se trouvait fût vivante et que ses montagnes et ses rivières fussent habitées par l'esprit, tout flétrit instantanément au moment même où il cracha son sang. Il ne resta que des ruines de sable jaune. C'était comme si la planète avait épuisé toute sa vie pour devenir un monde de mort.
 
@@ -54,11 +54,11 @@ Wang Lin réagit très vite. Dès que Miaoyin Daozun utilisa son sort, il rassem
 
 « Monde des Gens de la Mer! Ouvre-toi! » rugit Miaoyin Daozun, tandis qu'une gigantesque faille de plusieurs centaines de milliers de pieds apparaissait derrière lui!
 
-À l'intérieur de la faille s'étendait un ciel étoilé, mais sans aucune étoile de cultivation. À la place, un océan violet grouillait d'innombrables formes de vie: toutes étaient les Gens de la Mer de Flamme Joss de Miaoyin Daozun!
+À l'intérieur de la faille s'étendait un ciel étoilé, mais sans aucune étoile de cultivation. À la place, un océan violet grouillait d'innombrables formes de vie: toutes étaient les Gens de la Mer de Flamme d'Encens de Miaoyin Daozun!
 
 Alors qu'il utilisait son sort, Miaoyin Daozun déchira violemment la faille de ses deux mains derrière lui, multipliant par dix sa taille. Celle-ci devint sans limites et s'étendit rapidement à partir de cette terre scellée en ruines!
 
-Le fracas des vagues était apocalyptique. À l'intérieur de la faille, l'océan créa une lame de fond haute de 100 000 pieds. Des centaines de millions d'âmes de Flamme Joss jaillirent de la faille vers Da Huang qui approchait.
+Le fracas des vagues était apocalyptique. À l'intérieur de la faille, l'océan créa une lame de fond haute de 100 000 pieds. Des centaines de millions d'âmes de Flamme d'Encens jaillirent de la faille vers Da Huang qui approchait.
 
 Tout cela se produisit en un éclair. L'océan violet entra en collision avec les cinq poisons de Da Huang sous le rugissement assourdissant des mers.
 
@@ -72,7 +72,7 @@ Une langue qui ne semblait pas appartenir à un être humain. Elle était violet
 
 Une âme apparut et se retira aussitôt.
 
-Simultanément, l'océan violet changea de couleur. Après avoir été touché par la langue, l'océan devint noir comme de l'encre, dégageant une odeur pestilentielle. L'océan de Flamme Joss s'était transformé en un océan de poison!
+Simultanément, l'océan violet changea de couleur. Après avoir été touché par la langue, l'océan devint noir comme de l'encre, dégageant une odeur pestilentielle. L'océan de Flamme d'Encens s'était transformé en un océan de poison!
 
 Au sein de cet océan, les cinq poisons s'étaient presque tous effondrés. Ils se changèrent en cinq filaments de gaz noir qui traversèrent l'océan vers Miaoyin Daozun.
 
@@ -80,7 +80,7 @@ En un instant, Miaoyin Daozun cracha du sang et recula précipitamment. Trois ai
 
 Ces trois aiguilles s'enfoncèrent à moitié dans son front, provoquant des ondulations noires. Cinq filaments de gaz noir entourèrent également sa poitrine ensanglantée, se transformant en les cinq poisons pour pénétrer son corps.
 
-L'océan de Flamme Joss avait été pollué et lui-même était empoisonné. Cependant, il avait détruit le corps physique de son ennemi, ne laissant que son âme. C'était une victoire pyrrhique!
+L'océan de Flamme d'Encens avait été pollué et lui-même était empoisonné. Cependant, il avait détruit le corps physique de son ennemi, ne laissant que son âme. C'était une victoire pyrrhique!
 
 Pourtant, en raison de la présence de Wang Lin, un changement soudain survint!
 
@@ -124,7 +124,7 @@ Le sang jaillit de la bouche de Wang Lin et un rugissement résonna à ses oreil
 
 Cependant, juste après avoir reculé de quelques pas, Wang Lin se força à s'arrêter. Une lueur glaciale traversa ses yeux et il s'élança en avant. Ignorant Miaoyin Daozun qui était projeté en arrière, il agita sa main droite. Le Fourneau Impérial s'agrandit soudain jusqu'à plusieurs centaines de milliers de pieds et engloutit l'océan noir.
 
-Cet océan avait été empoisonné, dégageant une odeur nauséabonde. Les innombrables âmes des Flammes Joss avaient déjà été imprégnées de poison, devenant des âmes empoisonnées incapables d'offrir leurs flammes.
+Cet océan avait été empoisonné, dégageant une odeur nauséabonde. Les innombrables âmes des Flammes d'Encens avaient déjà été imprégnées de poison, devenant des âmes empoisonnées incapables d'offrir leurs flammes.
 
 Toutefois, cet océan de poison était un trésor extrêmement rare pour Wang Lin. Il devait le dérober avant que Da Huang ne s'en empare. Après l'avoir raffiné en une seule goutte grâce au Fourneau Impérial, il contiendrait un poison capable de menacer les cultivateurs du troisième niveau.
 
@@ -142,13 +142,13 @@ Grâce à ce délai, Wang Lin put s'emparer de l'océan empoisonné. Sans hésit
 
 Le Fourneau Impérial abritait d'innombrables royaumes, mais avec le niveau de culture de Wang Lin, il ne pouvait en ouvrir que deux. D'un geste, il assigna un royaume à l'océan empoisonné et l'autre à l'esclave ancien.
 
-À cet instant, alors que Miaoyin Daozun et Da Huang se disputaient le contrôle du corps, la faille menant au Royaume des Flammes Joss commença à se refermer rapidement. Elle était sur le point de disparaître totalement.
+À cet instant, alors que Miaoyin Daozun et Da Huang se disputaient le contrôle du corps, la faille menant au Royaume des Flammes d'Encens commença à se refermer rapidement. Elle était sur le point de disparaître totalement.
 
-Comment Wang Lin pouvait-il laisser ce royaume s'évanouir? Il s'était allié à Da Huang précisément pour obtenir les Flammes Joss de Miaoyin Daozun.
+Comment Wang Lin pouvait-il laisser ce royaume s'évanouir? Il s'était allié à Da Huang précisément pour obtenir les Flammes d'Encens de Miaoyin Daozun.
 
-Il ne pourrait pas utiliser ces flammes lui-même, mais l’esclave ancien Ling Dong était à un demi-pas du troisième niveau. Tant qu'il obtiendrait assez de Flammes Joss, il pourrait devenir un véritable cultivateur du troisième niveau.
+Il ne pourrait pas utiliser ces flammes lui-même, mais l’esclave ancien Ling Dong était à un demi-pas du troisième niveau. Tant qu'il obtiendrait assez de Flammes d'Encens, il pourrait devenir un véritable cultivateur du troisième niveau.
 
-Une lueur de folie brilla dans les yeux de Wang Lin alors qu'il se précipitait vers le Royaume des Flammes Joss. À l'intérieur, un vaste océan violet, encore pur, abritait d'innombrables âmes de flammes.
+Une lueur de folie brilla dans les yeux de Wang Lin alors qu'il se précipitait vers le Royaume des Flammes d'Encens. À l'intérieur, un vaste océan violet, encore pur, abritait d'innombrables âmes de flammes.
 
 C'était le trésor que Miaoyin Daozun avait collecté et volé au fil des ans; c'était le fondement même de son statut de l'un des cinq grands maîtres!
 
@@ -168,7 +168,7 @@ Le bras fut si rapide qu'il percuta instantanément Miaoyin Daozun, le faisant c
 
 En un éclair, la paume géante fondit sur Wang Lin. Ses cinq doigts ressemblaient à cinq piliers soutenant le monde, retombant brutalement vers lui.
 
-L'impact fut si violent qu'il fit cracher du sang à Wang Lin, mais il refusait de céder. Ce qui le tourmentait n'était pas seulement la paume qui l'écrasait, mais le fait que la faille vers le Royaume des Flammes Joss se trouvait à moins de 1 000 pieds.
+L'impact fut si violent qu'il fit cracher du sang à Wang Lin, mais il refusait de céder. Ce qui le tourmentait n'était pas seulement la paume qui l'écrasait, mais le fait que la faille vers le Royaume des Flammes d'Encens se trouvait à moins de 1 000 pieds.
 
 La faille ne mesurait plus que 10 000 pieds de long et allait bientôt disparaître. Si elle venait à s'évanouir, sa récompense pour avoir blessé Miaoyin Daozun avec Da Huang serait réduite à néant.
 
@@ -176,19 +176,19 @@ Wang Lin venait d'utiliser le sort salvateur contenu dans son gantelet de Dieu A
 
 Voyant la paume approcher, Wang Lin n'eut pas le temps de réfléchir. Il serra les dents et poussa un rugissement vers les cieux. Ses yeux brûlaient de détermination tandis que son corps grandissait. En un instant, il atteignit des milliers de pieds de haut: son corps de Dieu Ancien apparut!
 
-Cette croissance soudaine le fit dépasser de plus de 2 000 pieds au sein de la paume géante qui se refermait, effaçant ainsi les 1 000 pieds qui le séparaient du Royaume des Flammes Joss.
+Cette croissance soudaine le fit dépasser de plus de 2 000 pieds au sein de la paume géante qui se refermait, effaçant ainsi les 1 000 pieds qui le séparaient du Royaume des Flammes d'Encens.
 
 « Scelle! »
 
 Wang Lin rugit et, d'un geste de la main, projeta les deux Feuilles Anciennes pour sceller les bords de la faille. Cela força l'ouverture rétrécissante à se figer un instant.
 
-Profitant de cette pause, la main droite de Wang Lin jaillit comme une étoile filante dans le royaume pour y saisir impitoyablement d'innombrables âmes de Flammes Joss.
+Profitant de cette pause, la main droite de Wang Lin jaillit comme une étoile filante dans le royaume pour y saisir impitoyablement d'innombrables âmes de Flammes d'Encens.
 
 Simultanément, la main surgie du brouillard agrippa Wang Lin sous la poitrine. La douleur envahit son corps; la puissance de cette main semblait vouloir l'écraser totalement.
 
 Au moment où le bras saisit Wang Lin, il s'enfonça brusquement, tentant d'entraîner Wang Lin et Da Huang — qui venait de réussir sa possession — vers les profondeurs de la mer de brouillard.
 
-Le bras était trop puissant. Wang Lin n'avait aucune prise et son bras allait être arraché du Royaume des Flammes Joss. Alors qu'il allait être englouti, sa main droite s'agrippa soudainement au bord droit de la faille scellée par les Feuilles Anciennes. Sa main gauche s'étendit pour saisir le bord gauche. Sa puissance de Dieu Ancien jaillit avec une intensité folle alors qu'il se cramponnait aux parois de la faille.
+Le bras était trop puissant. Wang Lin n'avait aucune prise et son bras allait être arraché du Royaume des Flammes d'Encens. Alors qu'il allait être englouti, sa main droite s'agrippa soudainement au bord droit de la faille scellée par les Feuilles Anciennes. Sa main gauche s'étendit pour saisir le bord gauche. Sa puissance de Dieu Ancien jaillit avec une intensité folle alors qu'il se cramponnait aux parois de la faille.
 
 La scène était proprement hallucinante. De loin, elle aurait terrifié n'importe quel témoin: un Dieu Ancien de plusieurs milliers de pieds de haut s'agrippant à une faille spatiale comme s'il s'agissait d'un simple fragment.
 
@@ -196,9 +196,9 @@ Sous sa poitrine, une paume géante maintenait son corps et le tirait violemment
 
 Tandis qu'il était halé, une douleur atroce le traversa, comme s'il allait être déchiré en deux. Un bruit de déchirement retentit alors que la faille s'élargissait sous la force de traction exercée sur Wang Lin.
 
-L'océan violet infini et les innombrables âmes des Flammes Joss furent révélés lorsque la faille s'ouvrit davantage. Une lueur de folie dans les yeux de Wang Lin, il ouvrit la bouche et inspira de toutes ses forces.
+L'océan violet infini et les innombrables âmes des Flammes d'Encens furent révélés lorsque la faille s'ouvrit davantage. Une lueur de folie dans les yeux de Wang Lin, il ouvrit la bouche et inspira de toutes ses forces.
 
-Il n'avait plus le choix: il devait emporter autant de Flammes Joss que possible. À chaque inspiration, des milliers d'âmes volaient vers lui.
+Il n'avait plus le choix: il devait emporter autant de Flammes d'Encens que possible. À chaque inspiration, des milliers d'âmes volaient vers lui.
 
 Le corps de Wang Lin était tel un gouffre sans fond aspirant ces âmes.
 
@@ -208,7 +208,7 @@ Cependant, ses mains agrippées au bord de la faille empêchaient celle-ci de se
 
 « Fourneau Impérial! »
 
-Au moment où la faille s'élargit, Wang Lin poussa un rugissement et la majeure partie du Fourneau Impérial pénétra dans le Royaume des Flammes Joss. Un royaume à l'intérieur du fourneau s'ouvrit et commença une absorption frénétique.
+Au moment où la faille s'élargit, Wang Lin poussa un rugissement et la majeure partie du Fourneau Impérial pénétra dans le Royaume des Flammes d'Encens. Un royaume à l'intérieur du fourneau s'ouvrit et commença une absorption frénétique.
 
 D'immenses quantités d'océan violet se précipitèrent dans le Fourneau, accompagnées d'innombrables âmes de flammes. Le Fourneau absorba ainsi 20 % supplémentaires du royaume de Miaoyin Daozun.
 

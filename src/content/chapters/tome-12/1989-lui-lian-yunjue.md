@@ -100,7 +100,7 @@ Au moment où il fut aspiré, l'Enseignant Impérial, entouré de neuf cercles d
 
 « Tu n'as pas écouté les conseils de ce vieil homme et tu as interféré avec mon plan. Désormais, le plan qui avait 90 % de chances de réussir est réduit à seulement 30 %! »
 
-« Tu mérites la mort!! Ce vieil homme avait réellement l'intention de te laisser obtenir l'héritage de l'Ancêtre Céleste. J'aurais utilisé son pouvoir pour supprimer ton esprit afin de pouvoir posséder ton corps une fois que tu l'aurais obtenu. Cependant, après avoir accompli mon plan, j'aurais envisagé de t'accorder une chance de survie. Une fois que tu aurais juré fidélité par ton âme, je t'aurais laissé devenir le gardien de la Flamme Joss de mon clan! »
+« Tu mérites la mort!! Ce vieil homme avait réellement l'intention de te laisser obtenir l'héritage de l'Ancêtre Céleste. J'aurais utilisé son pouvoir pour supprimer ton esprit afin de pouvoir posséder ton corps une fois que tu l'aurais obtenu. Cependant, après avoir accompli mon plan, j'aurais envisagé de t'accorder une chance de survie. Une fois que tu aurais juré fidélité par ton âme, je t'aurais laissé devenir le gardien de la Flamme d'Encens de mon clan! »
 
 « Mais maintenant, ce vieil homme a changé d'avis!! Tout cela est de ta faute!! Ne blâme pas ce vieil homme de ne pas avoir tenu sa promesse! »
 

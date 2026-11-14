@@ -122,7 +122,7 @@ Wang Lin médita en silence alors que Suzaku qu'il avait formé se dissipait len
 
 « C'est exact. Je n'ai trouvé aucune faille après avoir sondé son âme. Peu importe mon observation, aucun indice ne m'est apparu. Ce n'est qu'à la fin que j'ai découvert qu'il avait été créé par quelqu'un d'autre... » La haine imprégnait les paroles du premier Suzaku.
 
-« En l'absence de Flammes Joss, tu possèdes déjà cinq essences. Bien qu'elles viennent de se former, ce phénomène est rare. Cependant, ton chemin est erroné! » déclara lentement le premier Suzaku.
+« En l'absence de Flammes d'Encens, tu possèdes déjà cinq essences. Bien qu'elles viennent de se former, ce phénomène est rare. Cependant, ton chemin est erroné! » déclara lentement le premier Suzaku.
 
 « Ton essence de tonnerre a formé la Porte Kong, mais tu n'as pu l'ouvrir... Tu penses ne pas être assez fort, et c'est à la fois vrai et faux. Tu crois devoir attendre que ton essence de feu soit complète avant de tenter de nouveau d'ouvrir la Porte Kong. Au fond de ton cœur, tu ne valorises même pas les cinq Fléaux Célestes. Tu ne veux pas les traverser; tu veux briser directement la Porte Kong au sommet du stade Briseur du Nirvana! Si tu penses pouvoir y parvenir, tu te trompes! »
 

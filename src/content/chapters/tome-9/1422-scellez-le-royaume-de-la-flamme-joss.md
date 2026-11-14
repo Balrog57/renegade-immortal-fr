@@ -1,6 +1,6 @@
 ---
 n: 1422
-title: "Scellez le Royaume des Flammes Joss!"
+title: "Scellez le Royaume des Flammes d'Encens!"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1422 - Seal the Joss Flame Realm!"
@@ -8,13 +8,13 @@ slug: scellez-le-royaume-de-la-flamme-joss
 ---
 L'expression du Maître Simo était sombre. Bien que ses paroles soient empreintes d'une intention meurtrière, il n'oserait pas réellement tuer Wang Lin devant le vieux Suzaku. S'il commettait un tel acte, il ferait face à la mort.
 
-S'il ne tuait pas Wang Lin, l'ancien Suzaku ne pourrait pas non plus être trop sévère envers lui. Après tout, il avait le Conseil Souverain et le Souverain derrière lui! Il avait utilisé le Culte de la Flamme Joss dans l'intention de blesser gravement Wang Lin pour le forcer à battre en retraite.
+S'il ne tuait pas Wang Lin, l'ancien Suzaku ne pourrait pas non plus être trop sévère envers lui. Après tout, il avait le Conseil Souverain et le Souverain derrière lui! Il avait utilisé le Culte de la Flamme d'Encens dans l'intention de blesser gravement Wang Lin pour le forcer à battre en retraite.
 
 Par conséquent, personne ne pourrait rien dire et il pourrait repartir en toute sécurité.
 
 La puissance de l'adoration des innombrables âmes se transforma en un vent violet qui chargea Wang Lin de toutes les directions. À première vue, on aurait dit que le monde entier avait été teinté de pourpre!
 
-Ce sort de la Flamme Joss faisait trembler les cieux et était suffisamment puissant pour détruire un cultivateur du cinquième Fléau Céleste. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Shui Daozi; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
+Ce sort de la Flamme d'Encens faisait trembler les cieux et était suffisamment puissant pour détruire un cultivateur du cinquième Fléau Céleste. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Shui Daozi; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
 
 Pour être plus précis, c'était la première fois que Wang Lin affrontait un cultivateur de la troisième étape. Lorsqu'il avait combattu Shui Daozi, il ne pouvait que se défendre sans pouvoir attaquer. Cependant, son niveau de culture avait augmenté rapidement durant son séjour dans le Système Stellaire Antique.
 
@@ -50,7 +50,7 @@ De loin, on pouvait voir que la faille de 10 000 pieds avait la forme d'un écla
 
 Les neuf éclairs accompagnateurs formèrent une tempête de tonnerre capable de secouer les cieux!
 
-Le vent violet se mua en une tempête pourpre qui balaya le monde. Tandis que les innombrables disciples de la Flamme Joss s'inclinaient, elle se rapprocha!
+Le vent violet se mua en une tempête pourpre qui balaya le monde. Tandis que les innombrables disciples de la Flamme d'Encens s'inclinaient, elle se rapprocha!
 
 La tempête de tonnerre de Wang Lin contenait neuf anciens dragons de tonnerre en rotation, créant une force colossale. Elle avait également puisé une puissance foudroyante dans le Royaume Tai Gu Lei, qui se répandit à travers les âges immémoriaux!
 
@@ -62,13 +62,13 @@ L'effondrement de la tortue provoqua la désintégration de l'arène, projetant 
 
 La tempête de tonnerre explosa soudainement en d'innombrables éclairs. Les neuf éclairs accompagnateurs furent repoussés et même la faille menant au Royaume Tai Gu Lei commença à se distordre, comme sur le point de se dissiper.
 
-La tempête pourpre trembla également. La majeure partie de celle-ci s'effondra face à l'essence de tonnerre de Wang Lin. Les âmes de la Flamme Joss environnantes furent affectées et commencèrent à se désagréger à grande échelle.
+La tempête pourpre trembla également. La majeure partie de celle-ci s'effondra face à l'essence de tonnerre de Wang Lin. Les âmes de la Flamme d'Encens environnantes furent affectées et commencèrent à se désagréger à grande échelle.
 
-C'était comme une main invisible balayant le ciel, annihilant toutes les âmes de la Flamme Joss.
+C'était comme une main invisible balayant le ciel, annihilant toutes les âmes de la Flamme d'Encens.
 
-Les vêtements du Maître Simo flottaient tandis que ses yeux s'illuminaient. Sous l'impact de l'onde de choc, il recula d'un pas, agita les mains et rugit: « Les âmes de la Flamme Joss de ce vieil homme sont infinies! Même si vous détruisez celles-ci, j'en ai d'autres. Disciples du Royaume des Flammes Joss, apparaissez à nouveau! »
+Les vêtements du Maître Simo flottaient tandis que ses yeux s'illuminaient. Sous l'impact de l'onde de choc, il recula d'un pas, agita les mains et rugit: « Les âmes de la Flamme d'Encens de ce vieil homme sont infinies! Même si vous détruisez celles-ci, j'en ai d'autres. Disciples du Royaume des Flammes d'Encens, apparaissez à nouveau! »
 
-Après son rugissement, une multitude d'âmes s'apprêtaient à jaillir de la gigantesque faille menant au Royaume des Flammes Joss du Maître Simo.
+Après son rugissement, une multitude d'âmes s'apprêtaient à jaillir de la gigantesque faille menant au Royaume des Flammes d'Encens du Maître Simo.
 
 Du coin de la bouche de Wang Lin coula un filet de sang. Son visage était pâle et il recula de plusieurs pas. Cependant, tout en reculant, il leva la tête et révéla une intention de combat monstrueuse!
 
@@ -88,13 +88,13 @@ Mais en ce moment, Wang Lin l'utilisait en tant qu'Ancien Dieu après l'avoir no
 
 Une seule feuille pour couvrir le ciel!
 
-La Feuille Ancienne dépassa en un éclair Maître Simo et se matérialisa au-delà de son Royaume de Flamme Joss. Elle recouvrit la faille!
+La Feuille Ancienne dépassa en un éclair Maître Simo et se matérialisa au-delà de son Royaume de Flamme d'Encens. Elle recouvrit la faille!
 
-« Scellez! Scellez! Scellez! » Le rugissement de Wang Lin résonna et la feuille ancienne brilla comme une rune de scellement. Dès qu'elle se fixa sur le Royaume des Flammes Joss du Maître Simo, elle libéra une force de scellement colossale!
+« Scellez! Scellez! Scellez! » Le rugissement de Wang Lin résonna et la feuille ancienne brilla comme une rune de scellement. Dès qu'elle se fixa sur le Royaume des Flammes d'Encens du Maître Simo, elle libéra une force de scellement colossale!
 
-Sous la puissance de la Feuille Ancienne, le Royaume des Flammes Joss trembla, et pas une seule âme ne put s'en échapper!
+Sous la puissance de la Feuille Ancienne, le Royaume des Flammes d'Encens trembla, et pas une seule âme ne put s'en échapper!
 
-Ce changement soudain choqua le Maître Simo, et la peur apparut dans ses yeux. Il n'avait jamais entendu parler d'un trésor capable de sceller le Royaume des Flammes Joss d'un cultivateur du troisième pas!
+Ce changement soudain choqua le Maître Simo, et la peur apparut dans ses yeux. Il n'avait jamais entendu parler d'un trésor capable de sceller le Royaume des Flammes d'Encens d'un cultivateur du troisième pas!
 
 « Ceci... Quel genre de trésor est-ce là?! »
 
@@ -104,7 +104,7 @@ Non seulement le Maître Simo était stupéfait, mais les pupilles du vieux Suza
 
 Le visage de la Grande Maîtresse Yun Luo devint encore plus pâle et la peur dans ses yeux ne pouvait plus être dissimulée. Son esprit vacilla et elle recula de quelques pas. Elle se souvenait clairement d'une image où une silhouette, d'un geste de la main, avait fait apparaître 99 de ces feuilles identiques qui scellaient le ciel et la terre. Elles avaient totalement scellé un sortilège du Dao Céleste extrêmement puissant lancé par de nombreux cultivateurs du système!
 
-Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé la Feuille Ancienne pour sceller le Royaume des Flammes Joss du Maître Simo, il ne recula pas, mais chargea au contraire vers lui!
+Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé la Feuille Ancienne pour sceller le Royaume des Flammes d'Encens du Maître Simo, il ne recula pas, mais chargea au contraire vers lui!
 
 Wang Lin arriva à moins de 1 000 pieds du Maître Simo et rugit: « Âme du démon ancien, sors! » Un brouillard noir commença à apparaître et se répandit immédiatement.
 

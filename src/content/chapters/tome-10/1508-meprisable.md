@@ -100,7 +100,7 @@ Des grondements de tonnerre résonnèrent dans son esprit lorsqu'il établit la 
 
 La teinte sanglante du ciel se dissipa peu à peu, retrouvant son aspect normal. Il esquissa un sourire sinistre, se redressa et murmura: « L'objet que cette vieille chose a laissé est décidément utile... Avec un trésor du Royaume Céleste Antique, je veux voir comment ce Wang Lin espère me tuer! »
 
-« Une fois Wang Lin éliminé, je pourrai échanger cette cloche contre de grands mérites. Le Souverain me comblera de Flammes Joss infinies! » Quant à fusionner la cloche avec la Formation de Scellement du Royaume pour gagner cent ans, le Shui Daozi n'en avait jamais eu l'intention!!
+« Une fois Wang Lin éliminé, je pourrai échanger cette cloche contre de grands mérites. Le Souverain me comblera de Flammes d'Encens infinies! » Quant à fusionner la cloche avec la Formation de Scellement du Royaume pour gagner cent ans, le Shui Daozi n'en avait jamais eu l'intention!!
 
 Dans le Système Stellaire de Zhao He, sous le Royaume Céleste du Tonnerre, se trouvait un immense vortex. Ce vortex existait depuis des éons et constituait une terre interdite au sein de Zhao He. Tout cultivateur s'en approchant voyait toute sa force primordiale aspirée et mourait piégé en son sein.
 

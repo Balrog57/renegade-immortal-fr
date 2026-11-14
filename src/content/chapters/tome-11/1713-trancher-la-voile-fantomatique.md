@@ -96,7 +96,7 @@ Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement 
 
 « Tian Yunzi a dévoré une multitude de disciples, et j'ai vu trois mille avatars dans son esprit... J'ignorais pourquoi il agissait ainsi, pensant qu'il cherchait simplement à atteindre la troisième étape...
 
-« Cependant, avec le recul, peut-être essayait-il de former des Flammes Joss avec ces trois mille avatars. C'est possible... Ou avait-il un autre dessein? » Wang Lin songea à bien des choses, mais plus il réfléchissait, moins il comprenait les intentions de Tian Yunzi.
+« Cependant, avec le recul, peut-être essayait-il de former des Flammes d'Encens avec ces trois mille avatars. C'est possible... Ou avait-il un autre dessein? » Wang Lin songea à bien des choses, mais plus il réfléchissait, moins il comprenait les intentions de Tian Yunzi.
 
 « L'âme du destin de Tian Yunzi n'était pas non plus présente dans la Tribulation Céleste du Royaume Céleste Antique... » Wang Lin médita longuement avant de réprimer lentement cette pensée. Il était inutile d'y songer maintenant. Avec le temps, il obtiendrait naturellement ses réponses.
 

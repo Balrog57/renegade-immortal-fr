@@ -16,7 +16,7 @@ Cependant, la vitalité contenue dans ces herbes était trop peu abondante. Pour
 
 La raison pour laquelle cette faible vitalité était si pure résidait dans l'énergie céleste émanant de la plante. La vitalité provenait de cette infime quantité d'énergie céleste. Bien que ténue, elle fit plisser les yeux de Wang Lin.
 
-Il n'avait jamais vu ce type d'herbe auparavant, alors que son séjour sur le Continent Astral Immortel lui avait fait vivre bien des choses. Il avait beaucoup vu et avait même étudié de nombreux jades consacrés aux matériaux médicinaux, mais malgré ses réflexions, il ne parvenait pas à identifier cette plante.
+Il n'avait jamais vu ce type d'herbe auparavant, alors que son séjour sur le Continent Xian Gang lui avait fait vivre bien des choses. Il avait beaucoup vu et avait même étudié de nombreux jades consacrés aux matériaux médicinaux, mais malgré ses réflexions, il ne parvenait pas à identifier cette plante.
 
 Il sentait toutefois que ces deux herbes ne causeraient aucun mal aux enfants et pourrait considérablement renforcer leurs corps. Après avoir observé un peu plus longtemps, Wang Lin vit qu'en fusionnant avec les herbes, le talent des deux enfants avait en fait changé!
 
@@ -28,7 +28,7 @@ Cela surprit grandement Wang Lin. Il regarda la fille, et il en fut de même pou
 
 « Les objets de fortune sont extrêmement imprévisibles... » songea Wang Lin. Cette herbe violette était extraordinaire!
 
-« Mais si Liu Jinbiao continue ainsi, il sera traqué dès qu'il sera découvert... » Wang Lin secoua secrètement la tête. Il existait de nombreuses sectes sur le Continent Astral Immortel, et les cultivateurs de troisième étape n'y manquaient pas. Quant à savoir si Liu Jinbiao serait démasqué avant de pouvoir quitter le Continent Da Sheng, cela dépendrait de sa chance.
+« Mais si Liu Jinbiao continue ainsi, il sera traqué dès qu'il sera découvert... » Wang Lin secoua secrètement la tête. Il existait de nombreuses sectes sur le Continent Xian Gang, et les cultivateurs de troisième étape n'y manquaient pas. Quant à savoir si Liu Jinbiao serait démasqué avant de pouvoir quitter le Continent Da Sheng, cela dépendrait de sa chance.
 
 « Il est très prudent et n'a pas cherché à exploiter tous les enfants par avidité. S'il l'avait fait, le risque d'être exposé aurait augmenté avec le nombre d'enfants. » Wang Lin observa Liu Jinbiao, qui affichait un air fier, et esquissa un sourire amer.
 

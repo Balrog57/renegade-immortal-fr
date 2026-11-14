@@ -90,7 +90,7 @@ Le Souverain cracha du sang et sa robe noire vola en éclats, dévoilant son cor
 
 Des grondements sourds résonnèrent tandis que des fissures apparaissaient sur l'édifice. Simultanément, la flèche se rapprochait; juste avant qu'elle ne frappe le palais, le Souverain traça un sceau. Un puits gigantesque apparut soudainement devant lui. Ce puits contenait le ciel et la terre, le soleil et la lune, ainsi qu'un firmament d'étoiles sans fin!
 
-Ce puits était le second domaine de Flamme Joss du Souverain! C'était un trésor que le fou lui avait remis sur le Continent Xian Gang! Au moment où il le déploia, la flèche frappa!
+Ce puits était le second domaine de Flamme d'Encens du Souverain! C'était un trésor que le fou lui avait remis sur le Continent Xian Gang! Au moment où il le déploia, la flèche frappa!
 
 Ce puits n'était pas posé à plat mais disposé verticalement. À la surface de l'eau, des ondulations se formèrent et, à cet instant précis, une copie exacte de la flèche apparut!
 

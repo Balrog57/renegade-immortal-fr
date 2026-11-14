@@ -31,19 +31,19 @@ Il y avait aussi Maître Nan Yunzi. Cet homme était très mystérieux, et Wang 
 
 Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer Yun, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan Huo Que, mais de Nanzhao Shangren, qui se trouvait au stade du Vide Spirituel!
 
-Les écarts entre les quatre Royaumes du Vide sont immenses. Non seulement un cultivateur du Vide Spirituel peut utiliser davantage de Flammes Joss, mais il peut également utiliser ces flammes pour former sa propre âme!
+Les écarts entre les quatre Royaumes du Vide sont immenses. Non seulement un cultivateur du Vide Spirituel peut utiliser davantage de Flammes d'Encens, mais il peut également utiliser ces flammes pour former sa propre âme!
 
-En vérité, le pouvoir des Flammes Joss est également appelé Pouvoir Nirvana dans le premier Royaume du Vide!
+En vérité, le pouvoir des Flammes d'Encens est également appelé Pouvoir Nirvana dans le premier Royaume du Vide!
 
-Le Pouvoir Nirvana, la puissance du nirvana, est infini et engendre ainsi d'innombrables Flammes Joss! Un cultivateur du Nirvana contrôle le Pouvoir Nirvana à l'intérieur de ces flammes pour exécuter divers sorts capables de faire trembler les cieux!
+Le Pouvoir Nirvana, la puissance du nirvana, est infini et engendre ainsi d'innombrables Flammes d'Encens! Un cultivateur du Nirvana contrôle le Pouvoir Nirvana à l'intérieur de ces flammes pour exécuter divers sorts capables de faire trembler les cieux!
 
 Le Vide Spirituel. Ce stade est une évolution de l'âme. Tout cultivateur atteignant ce niveau subit une mutation où son âme fusionne avec son âme originelle. Cette dernière ne peut plus être appelée âme originelle; elle devient une Âme Spirituelle!
 
-De même, le royaume des Flammes Joss fusionne avec leur âme pour ne faire qu'un avec elle! Bien sûr, certains cultivateurs, comme Miaoyin Daozun, ne procèdent pas ainsi pour des raisons particulières. C'est grâce à cela que Wang Lin et Grande Désolation avaient eu la grande chance de dérober une partie de ses Flammes Joss!
+De même, le royaume des Flammes d'Encens fusionne avec leur âme pour ne faire qu'un avec elle! Bien sûr, certains cultivateurs, comme Miaoyin Daozun, ne procèdent pas ainsi pour des raisons particulières. C'est grâce à cela que Wang Lin et Grande Désolation avaient eu la grande chance de dérober une partie de ses Flammes d'Encens!
 
 Par conséquent, dans le corps des cultivateurs du Vide Spirituel, le Pouvoir Nirvana se transforme en une force spirituelle!
 
-Cette force est très différente de l'énergie spirituelle des cultivateurs du premier pas. Elle implique la conversion des Flammes Joss en Pouvoir Nirvana, puis leur fusion avec la volonté, pour enfin transformer l'âme originelle en un monde propre à soi. Les âmes des Flammes Joss deviennent alors les résidents de ce monde, et c'est elles qui donnent naissance à cette force spirituelle!
+Cette force est très différente de l'énergie spirituelle des cultivateurs du premier pas. Elle implique la conversion des Flammes d'Encens en Pouvoir Nirvana, puis leur fusion avec la volonté, pour enfin transformer l'âme originelle en un monde propre à soi. Les âmes des Flammes d'Encens deviennent alors les résidents de ce monde, et c'est elles qui donnent naissance à cette force spirituelle!
 
 En d'autres termes, chaque cultivateur du Vide Spirituel est comme un monde! Ils sont chacun leur propre univers distinct!
 
@@ -59,9 +59,9 @@ Cent mille, un million, dix millions, cent millions, un milliard, dix milliards!
 
 Ce monde était sans limites, et la multitude de ces êtres en noir était terrifiante!
 
-C'étaient les âmes des Flammes Joss de Nanzhao Shangren, et cet endroit était son Royaume des Flammes Joss!
+C'étaient les âmes des Flammes d'Encens de Nanzhao Shangren, et cet endroit était son Royaume des Flammes d'Encens!
 
-L'attaque d'un cultivateur du Vide Spirituel peut entraîner sa cible dans son propre Royaume des Flammes Joss. Ce royaume est fusionné avec l'âme du cultivateur, et c'est là que naît la force spirituelle!
+L'attaque d'un cultivateur du Vide Spirituel peut entraîner sa cible dans son propre Royaume des Flammes d'Encens. Ce royaume est fusionné avec l'âme du cultivateur, et c'est là que naît la force spirituelle!
 
 Wang Lin était sous le choc. Après tout, il ne connaissait pas grand-chose aux cultivateurs du troisième pas, et encore moins au stade du Vide Spirituel. Même Ling Dong ou Zhou Jin n'en savaient pas beaucoup à ce sujet. À moins de le vivre personnellement, personne ne pouvait l'expliquer!
 
@@ -69,7 +69,7 @@ Wang Lin ressentit même une pointe de mépris envers les cultivateurs du Vide S
 
 Cependant, en cet instant, ce mépris disparut sans laisser de trace. Wang Lin comprit!
 
-Il se trouvait désormais à l'intérieur du Royaume des Flammes Joss de Nanzhao Shangren. Le monde gronda et une paume gigantesque apparut dans le ciel!
+Il se trouvait désormais à l'intérieur du Royaume des Flammes d'Encens de Nanzhao Shangren. Le monde gronda et une paume gigantesque apparut dans le ciel!
 
 Cette paume était elle aussi noire et dégageait une puanteur insupportable. Tandis que le ciel grondait, la voûte céleste entière se mua en cette paume qui s'abattit sur Wang Lin!
 
@@ -83,7 +83,7 @@ Le corps de Wang Lin ne disparut pas; il flottait toujours là. Cependant, l'éc
 
 La paume grandissait sans cesse dans les pupilles vitrées de Wang Lin, jusqu'à ce qu'elle soit sur le point d'occulter sa vue et de frapper entre ses sourcils!
 
-Et c'était faux car tout cela semblait bien trop réel pour lui. Dans le Royaume des Flammes Joss de Nanzhao Shangren, il voyait la paume qui remplissait tout le ciel descendre sur lui!
+Et c'était faux car tout cela semblait bien trop réel pour lui. Dans le Royaume des Flammes d'Encens de Nanzhao Shangren, il voyait la paume qui remplissait tout le ciel descendre sur lui!
 
 Tout cela se produisit en un instant!
 

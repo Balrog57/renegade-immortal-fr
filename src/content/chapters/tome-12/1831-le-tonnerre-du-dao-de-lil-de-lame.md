@@ -20,7 +20,7 @@ Wang Lin cultiva un instant avant d'ouvrir les yeux, dont le regard brillait d'u
 
 « Le Dao de la Déduction de l'Âme... La personne que je connaissais et qui excellait dans la divination était Tian Yunzi! Qing Lin possédait également un sort de Dao similaire... Ce sort était extrêmement efficace pour la divination. À l'époque, j'avais emprunté l'avatar de Tian Yunzi pour diviner, ce qui m'avait sauvé de nombreuses crises de vie ou de mort... »
 
-« Désormais, avec le Dao de la Déduction de l'Âme, je dois l'apprendre; sinon, il me sera difficile d'évoluer sur le continent Astral Immortel... Plus important encore, cela m'aidera à me dissimuler et rendra mon destin bien plus difficile à calculer pour autrui... » Songea Wang Lin tandis que son sens divin pénétrait dans le jade qu'il tenait.
+« Désormais, avec le Dao de la Déduction de l'Âme, je dois l'apprendre; sinon, il me sera difficile d'évoluer sur le Continent Xian Gang... Plus important encore, cela m'aidera à me dissimuler et rendra mon destin bien plus difficile à calculer pour autrui... » Songea Wang Lin tandis que son sens divin pénétrait dans le jade qu'il tenait.
 
 Cependant, à cet instant précis, Wang Lin leva soudainement les yeux. La Montagne Yan Mai avait fusionné avec son corps véritable; on pouvait dire que la montagne était devenue son propre corps. Il sentit clairement une femme s'avancer vers elle.
 

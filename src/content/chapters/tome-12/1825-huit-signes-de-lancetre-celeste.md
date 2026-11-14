@@ -76,7 +76,7 @@ Le premier anneau heurta l'aura glaciale du taureau, la dissipant instantanémen
 
 Le Tian Niu se débattit et rugit, mais fut incapable de se libérer des cercles de fumée. Lorsque le neuvième anneau toucha sa cible, toute l'aura glaciale du taureau disparut sans laisser de trace. À la place, un feu monstrueux jaillit, transformant le Tian Niu en une créature de flammes!
 
-« Pour avoir osé envahir mon clan céleste, voici ton châtiment: que ton corps devienne la terre, que ton esprit nourrisse tous les êtres, que tes os deviennent des veines, et que ton âme soit réprimée à travers d'innombrables années, jusqu'à l'Astral Immortel! »
+« Pour avoir osé envahir mon clan céleste, voici ton châtiment: que ton corps devienne la terre, que ton esprit nourrisse tous les êtres, que tes os deviennent des veines, et que ton âme soit réprimée à travers d'innombrables années, jusqu'à Xian Gang! »
 
 Le Tian Niu poussa un rugissement déchirant et son corps descendit pour former un continent infini. D'innombrables montagnes surgirent soudainement du sol, les os de la bête se transformèrent en veines, et un feu sans fin apparut tandis que ces veines devenaient des veines de feu terrestre!
 

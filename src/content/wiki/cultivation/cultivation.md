@@ -59,7 +59,7 @@ Le but est le **Nirvana**, et à chaque niveau la loi naturelle est vue plus cla
 ### Troisième Étape 
 
 | 14 | **Vide du Nirvana** (Kong Nie) | L'Essence subit un changement qualitatif en absorbant l'énergie de la Porte du Grand Vide. |
-| 15 | **Vide Spirituel** (Kong Ling) | Fusion avec le royaume des Flammes de Joie. Peut être atteint en complétant 5 Essences pour les non-Flamme Joss. |
+| 15 | **Vide Spirituel** (Kong Ling) | Fusion avec le royaume des Flammes de Joie. Peut être atteint en complétant 5 Essences pour les non-Flammes d'Encens. |
 | 16 | **Vide Arcanique** (Kong Xuan) | Divisé en début, milieu, fin, grand cycle, Arcane Tribulant. Nécessite au moins une Essence Éthérée. |
 | 17 | **Tribulant du Vide** (Kong Jie) | Début, milieu, fin (Grand Exalt), culmination (Golden Exalt), pic (Empyrean Exalt, Ascendant Empyrean, Grand Empyrean). |
 

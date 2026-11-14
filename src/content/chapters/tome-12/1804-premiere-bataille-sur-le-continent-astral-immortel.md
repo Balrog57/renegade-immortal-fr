@@ -1,6 +1,6 @@
 ---
 n: 1804
-title: "Première bataille sur le continent Astral Immortel!"
+title: "Première bataille sur le Continent Xian Gang!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1804 - First Battle On the Immortal Astral Continent !"
@@ -54,9 +54,9 @@ Voyant la pluie ainsi figée, le visage du vieil homme aux cheveux blancs fut en
 
 Dans le feu, Wang Lin referma les yeux. Lors de l'explosion des flammes, son Sens Divin avait déjà balayé la zone. Il n'y avait personne ici qui mérite son attention.
 
-Cependant, il comprit qu'il se trouvait sur le continent Astral Immortel et que de nombreux êtres puissants y résidaient. Il avait également entendu les voix à l'extérieur. Le Maître de Secte et l'Ancêtre de la secte étaient absents mais étaient en route pour revenir.
+Cependant, il comprit qu'il se trouvait sur le Continent Xian Gang et que de nombreux êtres puissants y résidaient. Il avait également entendu les voix à l'extérieur. Le Maître de Secte et l'Ancêtre de la secte étaient absents mais étaient en route pour revenir.
 
-La région était si vaste que même des cultivateurs du troisième pas ne pourraient arriver en peu de temps, même s'ils pouvaient fusionner avec le monde. Cependant, le continent Astral Immortel différait du Monde des Grottes. Wang Lin s'en était rendu compte dès son réveil.
+La région était si vaste que même des cultivateurs du troisième pas ne pourraient arriver en peu de temps, même s'ils pouvaient fusionner avec le monde. Cependant, le Continent Xian Gang différait du Monde des Grottes. Wang Lin s'en était rendu compte dès son réveil.
 
 À cet instant, le feu entourait son corps et était constamment absorbé et raffiné par lui pour nourrir son essence de feu. Après une courte réflexion, Wang Lin tendit la main droite. Kang Ren, piégé par Wang Lin, fut immédiatement aspiré dans les flammes, et Wang Lin lui saisit la gorge.
 
@@ -74,7 +74,7 @@ Wang Lin ignora Kang Ren. Son Sens Divin jaillit de sa main droite pour pénétr
 
 Tout en réfléchissant, Wang Lin absorba une grande quantité de feu terrestre pour nourrir son essence de feu, la rendant encore plus puissante.
 
-« Peu importe, je dois quitter cet endroit pour étudier le problème de mon espace de stockage. De plus, mes autres essences semblent avoir changé ici également. Je dois d'abord me familiariser avec ce monde. » Les yeux de Wang Lin s'illuminèrent et il prit une décision. Il venait d'arriver sur le continent Astral Immortel et ne connaissait pas encore bien les lieux. Avec son tempérament, il ne voulait pas faire preuve d'une arrogance excessive.
+« Peu importe, je dois quitter cet endroit pour étudier le problème de mon espace de stockage. De plus, mes autres essences semblent avoir changé ici également. Je dois d'abord me familiariser avec ce monde. » Les yeux de Wang Lin s'illuminèrent et il prit une décision. Il venait d'arriver sur le Continent Xian Gang et ne connaissait pas encore bien les lieux. Avec son tempérament, il ne voulait pas faire preuve d'une arrogance excessive.
 
 Il prit alors sa résolution. Sa main traça un sceau qu'il agita brusquement. La terre trembla et davantage de feu terrestre jaillit. Les flammes remplirent la grotte et certaines commencèrent même à s'en échapper.
 

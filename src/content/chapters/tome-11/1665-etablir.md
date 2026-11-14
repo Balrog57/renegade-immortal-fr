@@ -10,7 +10,7 @@ La destruction de la formation ne signifiait pas que tout était terminé. Crée
 
 La Formation de Scellement du Royaume s'effondra, et l'aura du Système Stellaire Antique s'engouffra, enveloppant le Royaume Intérieur. Cette aura était inconnue, mais en même temps familière.
 
-À une époque reculée, avant que la Formation de Scellement du Royaume n'apparaisse, le Royaume Intérieur et le Royaume Extérieur ne faisaient qu'un. D'innombrables mortels avaient respiré cette aura et d'innombrables cultivateurs s'en étaient nourris. Quelques grands puissants avaient emprunté cette aura pour créer leurs propres royaumes de Flammes Joss, ouvrant un monde pour accueillir le peuple des Flammes Joss, afin de rassembler ces flammes et de s'en servir pour leur culture!
+À une époque reculée, avant que la Formation de Scellement du Royaume n'apparaisse, le Royaume Intérieur et le Royaume Extérieur ne faisaient qu'un. D'innombrables mortels avaient respiré cette aura et d'innombrables cultivateurs s'en étaient nourris. Quelques grands puissants avaient emprunté cette aura pour créer leurs propres royaumes de Flammes d'Encens, ouvrant un monde pour accueillir le peuple des Flammes d'Encens, afin de rassembler ces flammes et de s'en servir pour leur culture!
 
 Cependant, après la mise en place de la Formation de Scellement du Royaume, toute cette aura fut extraite du Royaume Intérieur jusqu'à ce qu'il n'en reste plus la moindre parcelle. Cela créa un cycle vicieux pendant cent millions d'années, au point que le Royaume Intérieur ne put plus jamais rivaliser avec le Royaume Extérieur.
 

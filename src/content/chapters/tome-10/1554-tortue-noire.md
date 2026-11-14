@@ -32,7 +32,7 @@ Pourtant, tout cela avait basculé à cause d'un événement. Maître Yan Leizi 
 
 Il ne voulait pas s'en remémorer le détail, mais ce souvenir était si profondément ancré qu'il était devenu une épine dans son cœur. Cette épine, enfouie au plus profond de lui, avait commencé à pourrir. Elle avait corrodé sa chair et son sang, devenant une douleur éternelle!
 
-Wang Lin soupira et secoua la tête. « Si vous parvenez à absorber le pouvoir du Dragon Noir de la Flamme Joss, ce sera pour vous une immense fortune. À présent, je vais pénétrer dans ce Royaume aux Sept Couleurs. Il est semé d'embûches, ne me suivez pas... »
+Wang Lin soupira et secoua la tête. « Si vous parvenez à absorber le pouvoir du Dragon Noir de la Flamme d'Encens, ce sera pour vous une immense fortune. À présent, je vais pénétrer dans ce Royaume aux Sept Couleurs. Il est semé d'embûches, ne me suivez pas... »
 
 Maître Yan Leizi hocha la tête et fit ses adieux à Wang Lin avant de partir. Il paraissait quelque peu abattu, vieux et impuissant; une trace de solitude émanait de sa personne.
 

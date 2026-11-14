@@ -34,13 +34,13 @@ Cependant, alors qu'il tournait le dos, il fut soudainement saisi d'un trembleme
 
 « Quelque chose ne va pas... » Pour la première fois, l'horreur et l'incrédulité marquèrent son visage, mêlées au doute et au choc!
 
-« Il n'y a rien... Il n'y a aucune aura de Flammes Joss? » Maître Simo marqua une pause, puis agita sa main droite. Le vent hurla et envahit le monde, formant une image gigantesque. Cette vision montrait clairement Wang Lin chargeant contre la Porte Kong à trois reprises, et la manière dont il avait scellé les dizaines de milliers de cultivateurs sous les cent mille montagnes!
+« Il n'y a rien... Il n'y a aucune aura de Flammes d'Encens? » Maître Simo marqua une pause, puis agita sa main droite. Le vent hurla et envahit le monde, formant une image gigantesque. Cette vision montrait clairement Wang Lin chargeant contre la Porte Kong à trois reprises, et la manière dont il avait scellé les dizaines de milliers de cultivateurs sous les cent mille montagnes!
 
 Fixant cette scène avec stupéfaction, le visage de Maître Simo pâlit instantanément.
 
-« Il... Il n'a utilisé aucune Flamme Joss. Il n'y a pas la moindre trace de Flammes Joss sur lui... En réalité, il ne s'est pas appuyé sur les Flammes Joss, mais a provoqué l'apparition de la Porte Kong uniquement par l'accomplissement de son essence! Ceci... c'est du jamais vu... Et il a réussi à entrouvrir la Porte Kong! »
+« Il... Il n'a utilisé aucune Flamme d'Encens. Il n'y a pas la moindre trace de Flammes d'Encens sur lui... En réalité, il ne s'est pas appuyé sur les Flammes d'Encens, mais a provoqué l'apparition de la Porte Kong uniquement par l'accomplissement de son essence! Ceci... c'est du jamais vu... Et il a réussi à entrouvrir la Porte Kong! »
 
-« Comment est-ce possible?! Personne ne peut achever son essence sans utiliser de Flammes Joss. Personne ne peut déclencher la Porte Kong sans utiliser de Flammes Joss! » Maître Simo dissimula progressivement la terreur dans ses yeux pour la remplacer par une obscurité insondable. Il fit ensuite un pas en avant et se déplaça à une vitesse plusieurs fois supérieure à celle de son arrivée, poursuivant Wang Lin en hâte sur sa trace.
+« Comment est-ce possible?! Personne ne peut achever son essence sans utiliser de Flammes d'Encens. Personne ne peut déclencher la Porte Kong sans utiliser de Flammes d'Encens! » Maître Simo dissimula progressivement la terreur dans ses yeux pour la remplacer par une obscurité insondable. Il fit ensuite un pas en avant et se déplaça à une vitesse plusieurs fois supérieure à celle de son arrivée, poursuivant Wang Lin en hâte sur sa trace.
 
 Au moment où l'essence du tonnerre de Wang Lin atteignit son apogée et invoqua la Porte Kong, au sein du Clan Lan Si, les mains de Lanmeng Daozun tremblèrent soudainement sur la cithare. Il leva la tête, agita ses manches et sortit précipitamment de la pièce.
 

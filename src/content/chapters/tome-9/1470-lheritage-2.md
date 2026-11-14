@@ -98,11 +98,11 @@ Zhou Jin cracha du sang et fut projeté en arrière. Une rune apparut alors entr
 
 La rune d'un ancien esclave!
 
-« Vous deux, utilisez toutes vos Flammes Joss pour sceller ce trône et m'aider à achever l'héritage! Vite! » ordonna rapidement Wang Lin, avant de sceller son propre corps pour empêcher l'aura de s'échapper. Il se fixa également au siège.
+« Vous deux, utilisez toutes vos Flammes d'Encens pour sceller ce trône et m'aider à achever l'héritage! Vite! » ordonna rapidement Wang Lin, avant de sceller son propre corps pour empêcher l'aura de s'échapper. Il se fixa également au siège.
 
 Sixième respiration!
 
-Ling Dong n'hésita pas et se positionna du côté gauche de Wang Lin. Ses mains formèrent un sceau et sa main droite pressa le trône. Il commença à invoquer les Flammes Joss de son corps, tandis que sa main gauche appuyait sur Wang Lin pour l'aider à compenser la force de rejet.
+Ling Dong n'hésita pas et se positionna du côté gauche de Wang Lin. Ses mains formèrent un sceau et sa main droite pressa le trône. Il commença à invoquer les Flammes d'Encens de son corps, tandis que sa main gauche appuyait sur Wang Lin pour l'aider à compenser la force de rejet.
 
 Les cheveux et les vêtements de l'estimé Ling Dong s'agitèrent sans qu'aucun vent ne soufflât, alors qu'une puissance colossale émanait du corps de Wang Lin. Son expression changea immédiatement et il serra les dents pour endurer le choc.
 
@@ -110,7 +110,7 @@ Zhou Jin, du Clan Feng Tian Lang, avait été frappé par le doigt de Wang Lin. 
 
 Septième respiration!
 
-Le visage de Zhou Jin était livide lorsqu'il rejoignit silencieusement le côté droit de Wang Lin. Suivant les ordres, il invoqua toutes les Flammes Joss dont il disposait dans le siège. Comme Ling Dong, sa main droite pressa Wang Lin pour l'aider à partager le fardeau de cette puissante force de rejet!
+Le visage de Zhou Jin était livide lorsqu'il rejoignit silencieusement le côté droit de Wang Lin. Suivant les ordres, il invoqua toutes les Flammes d'Encens dont il disposait dans le siège. Comme Ling Dong, sa main droite pressa Wang Lin pour l'aider à partager le fardeau de cette puissante force de rejet!
 
 Son esprit et son corps tremblaient. Sentant une force titanesque l'impacter, il poussa un rugissement et ancra son pied droit en arrière. Il semblait avoir pris racine pour persister contre cette poussée.
 

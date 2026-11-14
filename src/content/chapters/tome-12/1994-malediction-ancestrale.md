@@ -20,7 +20,7 @@ Jiu Di regarda l'Empereur Céleste et expliqua l'origine de tout cela: « Ce pla
 
 « Tout le Clan Dao Wang a passé d'innombrables années à accomplir ce plan sur le corps de Hai Zi, et elle est la seule capable de le mener à bien. » Jiu Di regarda calmement l'Empereur Céleste en révélant ainsi la vérité.
 
-« Parce qu'elle est votre fille, vous pouvez l'aider sans réserve! Vous pourriez même devenir le parrain du Clan Dao Wang et obtenir les Flammes Joss que seul l'Ancêtre Céleste était éligible pour posséder... Le Clan Dao Wang a réellement payé un tel prix pour lever le sceau... » L'Empereur Céleste laissa échapper un soupir, affichant une expression complexe.
+« Parce qu'elle est votre fille, vous pouvez l'aider sans réserve! Vous pourriez même devenir le parrain du Clan Dao Wang et obtenir les Flammes d'Encens que seul l'Ancêtre Céleste était éligible pour posséder... Le Clan Dao Wang a réellement payé un tel prix pour lever le sceau... » L'Empereur Céleste laissa échapper un soupir, affichant une expression complexe.
 
 « Outre Hai Zi, le dernier membre du Clan Dao Wang était le Maître Impérial qui vient de mourir... En réalité, vous n'auriez pas été obligé de lever le sceau sur le Clan Dao Wang, mais l'ancêtre du clan avait déjà diviné vos actions. Il savait votre désir d'hériter de la puissance de l'Ancêtre Céleste et qu'en faisant face à la pression des quatre Grands Empyréens, vous n'abandonneriez pas, mais choisiriez de combattre!
 

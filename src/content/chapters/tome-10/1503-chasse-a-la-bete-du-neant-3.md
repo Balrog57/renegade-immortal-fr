@@ -34,7 +34,7 @@ Même son corps était repoussé par le rugissement de la créature, et des brui
 
 Tout en reculant, il agita la main et plus de dix Feuilles Anciennes apparurent. Elles ne scellèrent pas la gueule de la Bête des Limbes, mais entourèrent Wang Lin pour le protéger.
 
-Simultanément, la main droite de Wang Lin pointa vers l'espace entre ses sourcils, et l'Estimé Ling Dong ainsi que Zhou Jin apparurent instantanément. Ils n'attaquèrent pas la Bête des Limbes, mais se postèrent aux côtés de Wang Lin. Tandis que leurs mains formaient rapidement des sceaux, les Flammes Joss entourèrent Wang Lin.
+Simultanément, la main droite de Wang Lin pointa vers l'espace entre ses sourcils, et l'Estimé Ling Dong ainsi que Zhou Jin apparurent instantanément. Ils n'attaquèrent pas la Bête des Limbes, mais se postèrent aux côtés de Wang Lin. Tandis que leurs mains formaient rapidement des sceaux, les Flammes d'Encens entourèrent Wang Lin.
 
 Tout cela se produisit en un éclair. Dès l'apparition de Ling Dong et Zhou Jin, les étoiles divines anciennes de Wang Lin commencèrent à tourner rapidement. Le fantôme de la tête de Dao Gu apparut et enveloppa les trois hommes.
 
@@ -58,7 +58,7 @@ Bien que la Bête des Limbes fût immense, elle ne pouvait rivaliser avec la tai
 
 Ce spectacle fit contracter les pupilles de Wang Lin!
 
-Alors que l'aspiration s'intensifiait, les plus de dix Feuilles Anciennes tournèrent rapidement autour de lui, formant un rempart. La tête de Dao Gu et les Flammes Joss de Ling Dong et Zhou Jin continuaient de l'aider à résister.
+Alors que l'aspiration s'intensifiait, les plus de dix Feuilles Anciennes tournèrent rapidement autour de lui, formant un rempart. La tête de Dao Gu et les Flammes d'Encens de Ling Dong et Zhou Jin continuaient de l'aider à résister.
 
 « Ce n'est pas encore le moment... La gueule de la Bête des Limbes ne peut pas être aussi faible... » Tandis que Wang Lin fixait la créature, la froideur dans son regard s'accentua progressivement.
 
@@ -120,7 +120,7 @@ L'Estimé Ling Dong disparut le premier, englouti dans le royaume mystérieux à
 
 Peu après, ce fut au tour de Zhou Jin. Il disparut sous la puissance de l'aspiration!
 
-Leur disparition offrit un temps précieux à Wang Lin, car leurs Flammes Joss avaient bloqué pendant quelques respirations le royaume du trou noir à l'intérieur de la bête! Cela permit à Wang Lin de s'immobiliser à l'intérieur de la bouche de l'âme de la Bête des Limbes!
+Leur disparition offrit un temps précieux à Wang Lin, car leurs Flammes d'Encens avaient bloqué pendant quelques respirations le royaume du trou noir à l'intérieur de la bête! Cela permit à Wang Lin de s'immobiliser à l'intérieur de la bouche de l'âme de la Bête des Limbes!
 
 Cette gueule fantôme était son âme et le point focal du sceau!
 

@@ -40,7 +40,7 @@ Le rugissement provenant de la planète de culture fit trembler Wang Lin. Le cal
 
 Bien que ce cri fût empreint de folie et de massacre, Wang Lin se mit à rire. Son rire était débordant de joie car il savait que Qing Shui vivait encore! Tant que Qing Shui n'était pas mort, Wang Lin avait la certitude qu'il pourrait l'aider à recouvrer la raison!
 
-Le dragon noir des Flammes Joss fut percuté par le rugissement de Qing Shui alors qu'il chargeait la planète, son corps entier en tremblant. Il ressentit l'intention meurtrière du cri et l'essence dense du massacre.
+Le dragon noir des Flammes d'Encens fut percuté par le rugissement de Qing Shui alors qu'il chargeait la planète, son corps entier en tremblant. Il ressentit l'intention meurtrière du cri et l'essence dense du massacre.
 
 Wang Lin fit un pas en avant en riant. Il saisit le dragon noir et le projeta derrière lui.
 
@@ -80,7 +80,7 @@ Wang Lin avait déjà vu la Peinture de Montagnes et de Rivières. Tan Lang poss
 
 « À l'époque, l'Alliance Xiu Zhen fut la première à pénétrer dans le Royaume Céleste de la Pluie lors de son effondrement, récoltant ainsi de nombreux trésors. Il semble que ce soit vrai! » Wang Lin ressentit une pression écrasante en observant la peinture!
 
-Il percevait même des Flammes Joss à l'intérieur. Il semblait que des disciples des Flammes Joss y résidaient! La Peinture de Montagnes et de Rivières constituait son propre royaume, dont l'origine demeurait inconnue pour beaucoup.
+Il percevait même des Flammes d'Encens à l'intérieur. Il semblait que des disciples des Flammes d'Encens y résidaient! La Peinture de Montagnes et de Rivières constituait son propre royaume, dont l'origine demeurait inconnue pour beaucoup.
 
 Soudain, la peinture s'ouvrit et se propagea rapidement. Une force d'aspiration surgit, tentant d'aspirer Wang Lin. Il eut l'impression d'être dévoré par une Bête des Limbes; l'espace lui-même semblait être absorbé par le tableau!
 

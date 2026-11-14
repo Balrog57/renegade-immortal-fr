@@ -72,31 +72,31 @@ Les yeux de Wang Lin s'illuminèrent. La silhouette lumineuse qui le protégeait
 
 S'ils avaient été en dehors des 7 Millions de Mondes et que le Grand Ancien avait été prêt à sacrifier mille ans de vie, Wang Lin n'aurait certainement pas été son égal.
 
-« Pour le blesser maintenant, je dois utiliser les Flammes Joss! Les Flammes Joss sont toxiques et inutiles pour moi, mais elles peuvent servir à tuer! » Songea Wang Lin rapidement avant d'activer le Monde Hu Feng Huan Yu. Son sens divin se propagea et une voix puissante résonna dans ce monde:
+« Pour le blesser maintenant, je dois utiliser les Flammes d'Encens! Les Flammes d'Encens sont toxiques et inutiles pour moi, mais elles peuvent servir à tuer! » Songea Wang Lin rapidement avant d'activer le Monde Hu Feng Huan Yu. Son sens divin se propagea et une voix puissante résonna dans ce monde:
 
-« Vous tous qui avez été tués par moi, adorez-moi et devenez mes disciples. Au prix de vos âmes, consacrez-vous aux Flammes Joss. Rassemblez-les pour moi! »
+« Vous tous qui avez été tués par moi, adorez-moi et devenez mes disciples. Au prix de vos âmes, consacrez-vous aux Flammes d'Encens. Rassemblez-les pour moi! »
 
-Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes Joss jaillirent des têtes des innombrables âmes, qui n'étaient pas entrées dans le cycle de la réincarnation, au sein du Monde Hu Feng Huan Yu! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
+Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes d'Encens jaillirent des têtes des innombrables âmes, qui n'étaient pas entrées dans le cycle de la réincarnation, au sein du Monde Hu Feng Huan Yu! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
 
-Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient une bonne part du total!
+Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes d'Encens, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient une bonne part du total!
 
-Wang Lin rassembla ces Flammes Joss à travers le Monde Hu Feng Huan Yu et les condensa en une sphère!
+Wang Lin rassembla ces Flammes d'Encens à travers le Monde Hu Feng Huan Yu et les condensa en une sphère!
 
 Les flammes tourbillonnaient frénétiquement à l'intérieur, dégageant une pression infinie.
 
 En voyant cette pression se propager, les pupilles du Grand Ancien se rétractèrent, remplies d'incrédulité. Au cours de ce combat, Wang Lin l'avait surpris maintes fois, mais devant cette petite sphère, il fut ébranlé!
 
-« Des Flammes Joss!!! Tu... tu possèdes réellement des Flammes Joss!! »
+« Des Flammes d'Encens!!! Tu... tu possèdes réellement des Flammes d'Encens!! »
 
 Wang Lin savait que le temps pressait. Tandis que les flammes s'accumulaient, une intention meurtrière brilla dans ses yeux et il projeta la sphère en avant. La boule de flammes chargea et, lorsqu'elle toucha le vortex des six tonnerres divins, elle explosa soudainement!
 
-La puissance des Flammes Joss était celle que maîtrisaient les cultivateurs de la troisième étape. Au moment de l'explosion, le monde trembla, les couches de l'espace se désintégrèrent et les six tonnerres divins vibrèrent violemment.
+La puissance des Flammes d'Encens était celle que maîtrisaient les cultivateurs de la troisième étape. Au moment de l'explosion, le monde trembla, les couches de l'espace se désintégrèrent et les six tonnerres divins vibrèrent violemment.
 
 La majeure partie de la sphère se dissipa, mais au moment même de sa disparition, Wang Lin lança une volonté démente dans le Monde Hu Feng Huan Yu:
 
-« Détruisez les âmes, offrez les Flammes Joss!! »
+« Détruisez les âmes, offrez les Flammes d'Encens!! »
 
-Alors que sa voix résonnait, une multitude d'âmes dans le Monde Hu Feng Huan Yu explosèrent. Elles se transformèrent en une masse colossale de Flammes Joss qui bombardèrent le Grand Ancien.
+Alors que sa voix résonnait, une multitude d'âmes dans le Monde Hu Feng Huan Yu explosèrent. Elles se transformèrent en une masse colossale de Flammes d'Encens qui bombardèrent le Grand Ancien.
 
 Le vortex des six tonnerres s'effondra et les flammes restantes chargèrent l'ennemi. Simultanément, l'attaque du Daoïste Esprit Dispersé devint plus intense encore.
 

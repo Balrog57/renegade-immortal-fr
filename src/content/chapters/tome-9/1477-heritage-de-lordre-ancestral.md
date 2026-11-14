@@ -1,6 +1,6 @@
 ---
 n: 1477
-title: "Héritage de l'Ordre Ancestral!"
+title: "Héritage de Dao Gu!"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1477 - Ancient Order Inheritance!"

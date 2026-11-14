@@ -104,7 +104,7 @@ D'innombrables âmes, serrées en un faisceau semblable à des âmes, étaient n
 
 L'esprit du Grand Ancien trembla violemment et il battit en retraite précipitamment. L'armure de tonnerre autour de lui s'étendit pour former un bouclier. Le premier coup d'épée percuta l'armure de tonnerre.
 
-Un fracas assourdissant secoua les cieux et un cri plaintif s'éleva de la lumière. Les yeux du Grand Ancien étaient remplis d'incrédulité et une terreur profonde s'y installa. Cette armure de tonnerre avait été raffinée par l'ancêtre de la troisième étape du Clan Shan Lei et pouvait résister aux Flammes Joss de Wang Lin. Pourtant, sous le choc de l'épée, il cracha un flot de sang et fut projeté en arrière de dix mille pieds.
+Un fracas assourdissant secoua les cieux et un cri plaintif s'éleva de la lumière. Les yeux du Grand Ancien étaient remplis d'incrédulité et une terreur profonde s'y installa. Cette armure de tonnerre avait été raffinée par l'ancêtre de la troisième étape du Clan Shan Lei et pouvait résister aux Flammes d'Encens de Wang Lin. Pourtant, sous le choc de l'épée, il cracha un flot de sang et fut projeté en arrière de dix mille pieds.
 
 La lumière de l'épée disparut: le premier coup était porté!
 

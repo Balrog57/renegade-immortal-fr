@@ -110,7 +110,7 @@ Wang Lin ouvrit les yeux et regarda avec un sourire le nuage blanc qui s'éloign
 
 « Ce sort peut fusionner d'autres sorts. Le premier que je dois fusionner est la Déformation Spatiale! Bien que ce sort soit puissant et me permette de me déplacer instantanément à travers l'espace infini, il possède un défaut fatal. Une fois que l'énergie d'origine du monde est perturbée, il devient inutilisable... La femme en blanc attend aux abords du Clan Lan Si. Ce n'est qu'en me défaisant totalement de son suivi que je pourrai agir à ma guise dans le Système Stellaire Antique! »
 
-« Ensuite, j'absorberai suffisamment de Flammes Joss pour compléter mes cinq essences! Le feu du Clan Huo Que et le tonnerre du Clan Shan Lei seront d'excellentes sources de nutriments pour moi! »
+« Ensuite, j'absorberai suffisamment de Flammes d'Encens pour compléter mes cinq essences! Le feu du Clan Huo Que et le tonnerre du Clan Shan Lei seront d'excellentes sources de nutriments pour moi! »
 
 « Les marques entre les sourcils des habitants du Système Stellaire Antique sont étranges. Elles semblent capables de se dévorer mutuellement et d'évoluer constamment vers une forme de perfection... »
 

@@ -88,7 +88,7 @@ Wang Lin se souvint que lorsqu'il avait sauvé Qing Shui dans le Royaume aux Sep
 
 Bien qu'ils partagassent de nombreuses similitudes, si quelqu'un voyait les deux, il ne penserait jamais qu'ils étaient la même personne.
 
-« Ma grotte forme déjà son propre monde et contient la création du ciel et de la terre. Tout dans ce monde pourra être changé par ma seule pensée... Bien qu'elle ne soit pas à la hauteur du Monde Sen Luo du Grand Souverain Sen Dao, elle s'en rapproche... Malheureusement, elle ne possède pas de Dao Céleste, le temps ne peut donc s'écouler. Cela signifie qu'elle ne peut donner naissance à aucun être vivant ni en tirer des Flammes Joss... Cependant, tout cela va changer aujourd'hui, car j'ai réussi à voler un Dao Céleste! »
+« Ma grotte forme déjà son propre monde et contient la création du ciel et de la terre. Tout dans ce monde pourra être changé par ma seule pensée... Bien qu'elle ne soit pas à la hauteur du Monde Sen Luo du Grand Souverain Sen Dao, elle s'en rapproche... Malheureusement, elle ne possède pas de Dao Céleste, le temps ne peut donc s'écouler. Cela signifie qu'elle ne peut donner naissance à aucun être vivant ni en tirer des Flammes d'Encens... Cependant, tout cela va changer aujourd'hui, car j'ai réussi à voler un Dao Céleste! »
 
 « Avec un Dao Céleste, désormais, ma grotte pourra engendrer des êtres sensibles et le temps commencera à couler. Des cultivateurs commenceront à apparaître... Et s'il y a des cultivateurs, il doit y avoir une Tribulation Céleste... La première Tribulation sera le tonnerre... » L'homme aux sept couleurs murmura pour lui-même avant d'agiter la main vers le ciel. Le firmament gronda et le tonnerre surgit du vide pour se rassembler dans sa paume.
 

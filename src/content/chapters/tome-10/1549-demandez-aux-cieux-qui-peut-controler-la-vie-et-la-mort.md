@@ -18,7 +18,7 @@ Cela lui donnait la chair de poule.
 
 Toutefois, il devait maintenir cette contenance; sinon, s'il révélait la moindre intention de battre en retraite, l'esprit de ces dix mille et quelques cultivateurs pourrait s'effondrer instantanément.
 
-« Cette personne a emprunté l'esprit de formation autrefois; il est impossible que quelqu'un à son niveau de culture puisse tuer Nanzhao Shangren! Aujourd'hui, s'il a pu stopper le vortex, c'est grâce à sa compréhension des restrictions. Ce vieil homme ne croit pas qu'il puisse faire quoi que ce soit sans la Hache Brise-Ciel! » Tianzhao Shangshi retrouva son calme après avoir songé à ce qui se trouvait dans le Royaume aux Sept Couleurs. À cet instant, il agita sa large manche et les trois dragons noirs de Flammes Joss jaillirent vers Wang Lin.
+« Cette personne a emprunté l'esprit de formation autrefois; il est impossible que quelqu'un à son niveau de culture puisse tuer Nanzhao Shangren! Aujourd'hui, s'il a pu stopper le vortex, c'est grâce à sa compréhension des restrictions. Ce vieil homme ne croit pas qu'il puisse faire quoi que ce soit sans la Hache Brise-Ciel! » Tianzhao Shangshi retrouva son calme après avoir songé à ce qui se trouvait dans le Royaume aux Sept Couleurs. À cet instant, il agita sa large manche et les trois dragons noirs de Flammes d'Encens jaillirent vers Wang Lin.
 
 Les dix mille et quelques cultivateurs du Royaume Extérieur étaient tous nerveux. L'apparition soudaine de Wang Lin les avait plongés dans une terreur indescriptible avant même qu'ils ne puissent reprendre leurs esprits. Ils n'osaient même pas opposer la moindre résistance.
 
@@ -28,7 +28,7 @@ Avant la première bataille, le Système Stellaire Antique avait désigné Wang 
 
 Wang Lin était un être que les cultivateurs du Royaume Extérieur craignaient profondément. C'était une blessure ouverte, une douleur atroce!
 
-Les trois dragons noirs de Flammes Joss poussèrent des rugissements qui ébranlèrent le ciel et chargèrent Wang Lin. Avant même qu'ils ne soient à portée, une bourrasque fit flotter les longs cheveux de Wang Lin et faire onduler ses vêtements blancs.
+Les trois dragons noirs de Flammes d'Encens poussèrent des rugissements qui ébranlèrent le ciel et chargèrent Wang Lin. Avant même qu'ils ne soient à portée, une bourrasque fit flotter les longs cheveux de Wang Lin et faire onduler ses vêtements blancs.
 
 L'espace environnant semblait sur le point de s'effondrer sous la force du vent. Des craquements résonnèrent et de multiples failles spatiales apparurent.
 
@@ -40,7 +40,7 @@ Pourtant, ce n'était pas cette bourrasque qui terrifiait le Maître Yan Leizi, 
 
 Il semblait que ce vent destructeur n'était pour lui qu'une légère brise.
 
-« Trois dragons noirs de Flammes Joss... » En observant les trois féroces dragons, une lueur de froideur passa dans les yeux de Wang Lin. Il ne pouvait utiliser que 20 % de sa puissance s'il ne voulait pas déclencher la force de rejet. Face à un grand expert du Vide du Nirvana, Wang Lin pouvait l'emporter. Cependant, 20 % ne suffiraient pas pour tuer un cultivateur du Vide Spirituel, même au stade initial.
+« Trois dragons noirs de Flammes d'Encens... » En observant les trois féroces dragons, une lueur de froideur passa dans les yeux de Wang Lin. Il ne pouvait utiliser que 20 % de sa puissance s'il ne voulait pas déclencher la force de rejet. Face à un grand expert du Vide du Nirvana, Wang Lin pouvait l'emporter. Cependant, 20 % ne suffiraient pas pour tuer un cultivateur du Vide Spirituel, même au stade initial.
 
 Néanmoins, il avait des impératifs aujourd'hui. Sauver Qing Shui et obtenir le fruit du Dao étaient des objectifs absolus. Wang Lin prit une décision.
 
@@ -50,7 +50,7 @@ En un éclair, la lumière dorée envahit la zone. La silhouette de Wang Lin dev
 
 Cette aura secoua le monde tandis que la lumière dorée enveloppait les environs!
 
-Trois rugissements misérables s'élevèrent des trois dragons noirs de Flammes Joss qui chargeaient Wang Lin. Balayés par cette lumière, leurs corps tremblèrent et ils n'osèrent plus approcher. Ils cherchèrent plutôt à fuir.
+Trois rugissements misérables s'élevèrent des trois dragons noirs de Flammes d'Encens qui chargeaient Wang Lin. Balayés par cette lumière, leurs corps tremblèrent et ils n'osèrent plus approcher. Ils cherchèrent plutôt à fuir.
 
 Cependant, alors que la lueur dorée se propageait, les trois dragons ne reculèrent que de quelques dizaines de pieds avant d'être stoppés net! Ils regardaient Wang Lin avec effroi, leurs corps gigantesques paraissant soudainement minuscules. La peur dans leurs yeux semblait les noyer!
 
@@ -58,7 +58,7 @@ Ils reconnurent cette lumière dorée!
 
 Au plus profond de leur mémoire, cette lueur était une chose que rien ne pouvait effacer!
 
-Bien qu'ils aient été capturés par Tianzhao Shangshi lorsqu'ils étaient jeunes et affinés lentement pour devenir ses chefs d'âmes de Flammes Joss, le souvenir de cette lumière dorée, ancré dans leur héritage, demeurait intact.
+Bien qu'ils aient été capturés par Tianzhao Shangshi lorsqu'ils étaient jeunes et affinés lentement pour devenir ses chefs d'âmes de Flammes d'Encens, le souvenir de cette lumière dorée, ancré dans leur héritage, demeurait intact.
 
 Ils se souvenaient clairement que, depuis des temps immémoriaux, quiconque possédait cette lumière dorée se dressait au sommet du monde. Même leurs parents devaient trembler devant elle.
 
@@ -98,11 +98,11 @@ La silhouette de Wang Lin restait calme, dégageant l'aura d'un grand maître de
 
 Des grondements tonitruants résonnèrent, et une tempête dorée sembla se condenser pour former un poing géant de lumière. Celui-ci perça le vide avec rapidité pour frapper le corps de Tianzhao Shangshi.
 
-Un fracas assourdissant retentit et Tianzhao Shangshi cracha du sang avant que son corps ne soit déchiré. Des masses de Flammes Joss apparurent dans une tentative désespérée de reconstituer un corps.
+Un fracas assourdissant retentit et Tianzhao Shangshi cracha du sang avant que son corps ne soit déchiré. Des masses de Flammes d'Encens apparurent dans une tentative désespérée de reconstituer un corps.
 
 Après le coup de poing, Wang Lin agita sa manche et un tonnerre doré jaillit de son œil droit. Le Quartier Général de l'Alliance fut inondé d'éclairs dorés. Un éclair de tonnerre céleste descendit sur l'âme originelle de Tianzhao Shangshi.
 
-Des grondements sourds résonnèrent et les innombrables âmes de Flammes Joss entourant Tianzhao Shangshi poussèrent des cris déchirants. Elles s'effondrèrent toutes dans la mort.
+Des grondements sourds résonnèrent et les innombrables âmes de Flammes d'Encens entourant Tianzhao Shangshi poussèrent des cris déchirants. Elles s'effondrèrent toutes dans la mort.
 
 « Tonnerre Céleste! C'est le Tonnerre Céleste! » Tianzhao Shangshi cracha une gorgée d'énergie originelle essentielle. Ses yeux étaient emplis d'une peur indicible tandis qu'il reculait désespérément.
 

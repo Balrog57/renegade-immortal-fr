@@ -78,7 +78,7 @@ Wang Lin regarda le premier nom et fronça les sourcils. « 1 970 000 000... » 
 
 Après un examen rapide, il nota que même le 800e nom possédait plus de 400 000 cristaux de tonnerre. Quant au vieil homme de la grotte, il n'en avait que 70 000, ce qui était insignifiant.
 
-Les cristaux de tonnerre n'étaient pas des objets réels, mais une simple dénomination; il existait de nombreuses façons de les obtenir. Le moyen le plus rapide consistait à faire un tribut au Clan Shan Lei. Qu'il s'agisse de sorts, de trésors magiques, de pilules, de matériaux d'alchimie et de forge ou même de Flammes Joss, tout pouvait être échangé contre des cristaux. Les Flammes Joss rapportaient le plus, le reste dépendant du rang.
+Les cristaux de tonnerre n'étaient pas des objets réels, mais une simple dénomination; il existait de nombreuses façons de les obtenir. Le moyen le plus rapide consistait à faire un tribut au Clan Shan Lei. Qu'il s'agisse de sorts, de trésors magiques, de pilules, de matériaux d'alchimie et de forge ou même de Flammes d'Encens, tout pouvait être échangé contre des cristaux. Les Flammes d'Encens rapportaient le plus, le reste dépendant du rang.
 
 Ce n'était pas la première fois qu'il rencontrait un tel système. La Terre Yao Ling fonctionnait de manière similaire, mais avec des mérites de guerre au lieu des cristaux de tonnerre. De cette façon, le Clan Shan Lei mobilisait l'ensemble de ses membres pour accumuler des ressources, ce qui, en plus d'améliorer la culture de chacun, permettait de constituer un trésor collectif.
 

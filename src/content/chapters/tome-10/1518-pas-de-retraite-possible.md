@@ -14,7 +14,7 @@ En voyant cela, l'expression de Wang Lin changea radicalement!
 
 À cet instant, le Royaume Intérieur n'était pas prêt pour la bataille, et les Royaumes aux Sept Couleurs n'avaient pas encore été trouvés. Mais la guerre était là. Wang Lin comprit immédiatement que les changements étranges de la formation étaient dus au Royaume Extérieur utilisant diverses méthodes pour déchirer le sceau!
 
-La Formation de Scellement du Royaume était une arme à double tranchant! Elle isolait les Flammes Joss du Royaume Intérieur afin que ses cultivateurs ne puissent pas rivaliser avec ceux du Royaume Extérieur. C'était comme sectionner leurs racines!
+La Formation de Scellement du Royaume était une arme à double tranchant! Elle isolait les Flammes d'Encens du Royaume Intérieur afin que ses cultivateurs ne puissent pas rivaliser avec ceux du Royaume Extérieur. C'était comme sectionner leurs racines!
 
 Cependant, elle jouait un rôle protecteur indirect; il était extrêmement difficile d'y entrer ou d'en sortir!
 
@@ -88,7 +88,7 @@ Au moment où l'âme de la formation allait être extraite par le Souverain et q
 
 Des éclairs argentés jaillirent partout, transformant l'ensemble en une formation de foudre. D'innombrables serpents d'argent se rassemblèrent pour former une lance chargée d'une puissance électrique infinie qui fonça vers l'épée de cristal!
 
-Les grondements qui en résultèrent firent trembler les cieux. Lorsque l'épée de cristal percuta la lance, une puissance de Flamme Joss infinie jaillit pour contrer l'assaut!
+Les grondements qui en résultèrent firent trembler les cieux. Lorsque l'épée de cristal percuta la lance, une puissance de Flamme d'Encens infinie jaillit pour contrer l'assaut!
 
 Alors que l'épée et la lance s'affrontaient, un éclat violet surgit. Une lumière pourpre monstrueuse emplit les étoiles; les deux royaumes, intérieur et extérieur, purent la voir distinctement!
 

@@ -38,7 +38,7 @@ Cependant, la terreur dans ses yeux l'engloutissait comme une marée montante.
 
 Le sourire étrange était toujours là alors qu'il fixait le ciel... Son âme originelle arborait ce même sourire, puis il mourut... La Restriction de la Vie et de la Mort! Une lueur jaillit du sol et Wang Lin en sortit. Les autres ne pouvaient comprendre les restrictions que l'érudit avait déployées en manœuvrant dans la brume rouge; même des grands maîtres des restrictions auraient eu du mal à trouver la moindre piste. Si Wang Lin n'avait pas été un grand maître connaissant trois des quatre grandes restrictions, il n'aurait rien remarqué.
 
-Les restrictions lancées par l'homme au début auraient effectivement pu briser le mécanisme, mais lorsque ces innombrables flux se combinèrent, l'effet fut inverse. Loin de dissiper la brume rouge, elles l'avaient stimulée pour l'activer. Il avait ensuite emprunté la Flamme Joss de l'Estimé Ling Dong pour déclencher la brume, provoquant une explosion de puissance bien supérieure à la précédente afin de tuer ou de chasser tous les témoins.
+Les restrictions lancées par l'homme au début auraient effectivement pu briser le mécanisme, mais lorsque ces innombrables flux se combinèrent, l'effet fut inverse. Loin de dissiper la brume rouge, elles l'avaient stimulée pour l'activer. Il avait ensuite emprunté la Flamme d'Encens de l'Estimé Ling Dong pour déclencher la brume, provoquant une explosion de puissance bien supérieure à la précédente afin de tuer ou de chasser tous les témoins.
 
 Pour éviter les soupçons, il avait pris le risque, par on ne sait quelle méthode, de se cacher dans la brume. Il avait poussé des cris déchirants pour que tous le croient mort.
 

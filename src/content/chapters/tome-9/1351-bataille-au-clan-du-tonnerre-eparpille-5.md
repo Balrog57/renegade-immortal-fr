@@ -36,7 +36,7 @@ Un grondement tonitruant résonna. C'était un fracas qui faisait trembler les c
 
 Le centre du vortex était d'un noir absolu, et un tonnerre infini y bouillonnait. En tournant, il semblait ouvrir un trou noir vers un autre monde!
 
-Ce sort était infiniment proche de la capacité des cultivateurs de la troisième étape à extraire le pouvoir des Flammes Joss!
+Ce sort était infiniment proche de la capacité des cultivateurs de la troisième étape à extraire le pouvoir des Flammes d'Encens!
 
 Wang Lin, au loin, avait le visage légèrement pâle. Il avait été frappé par l'impact et avait subi des blessures. S'il n'avait pas immédiatement utilisé le Monde Hu Feng Huan Yu pour y résister, il aurait été gravement atteint!
 

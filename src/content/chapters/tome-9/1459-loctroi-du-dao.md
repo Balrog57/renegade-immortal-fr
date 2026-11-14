@@ -60,15 +60,15 @@ Ce processus était extrêmement fastidieux. Tout en maintenant l'injection de p
 
 Le Fourneau Impérial pouvait changer de taille. À présent, il ne mesurait que cent pieds de large. L'intérieur était un chaos où l'on entendait de faibles hurlements. Wang Lin divisa son esprit en deux, forma un sceau et pointa le fourneau.
 
-Le chaos à l'intérieur du fourneau se dissipa et une mer noire apparut devant lui. Cette mer était morte, sans la moindre vague. Une immense quantité d'âmes de Flamme Joss empoisonnées s'y trouvait.
+Le chaos à l'intérieur du fourneau se dissipa et une mer noire apparut devant lui. Cette mer était morte, sans la moindre vague. Une immense quantité d'âmes de Flamme d'Encens empoisonnées s'y trouvait.
 
 « Affine! » Wang Lin pointa l'océan du doigt et la mer de poison sembla s'enflammer. Des rugissements étouffés retentirent et de grandes vagues formèrent des tourbillons qui rageaient violemment.
 
-« Cette mer est composée du poison issu de l'étrange langue de Da Huang ainsi que des âmes de Flamme Joss de Miaoyin Daozun. Une fois raffinée, elle deviendra un puissant trésor empoisonné! »
+« Cette mer est composée du poison issu de l'étrange langue de Da Huang ainsi que des âmes de Flamme d'Encens de Miaoyin Daozun. Une fois raffinée, elle deviendra un puissant trésor empoisonné! »
 
 L'expression de Wang Lin était calme tandis qu'il commençait le raffinage.
 
-L'océan à l'intérieur du Fourneau Impérial rugissait avec encore plus de violence. Les innombrables âmes de Flamme Joss poussaient des cris stridents, extrêmement perçants. Heureusement, elles étaient contenues par le Fourneau Impérial; ainsi, lorsqu'elles atteignaient l'extérieur, leur intensité était bien amoindrie.
+L'océan à l'intérieur du Fourneau Impérial rugissait avec encore plus de violence. Les innombrables âmes de Flamme d'Encens poussaient des cris stridents, extrêmement perçants. Heureusement, elles étaient contenues par le Fourneau Impérial; ainsi, lorsqu'elles atteignaient l'extérieur, leur intensité était bien amoindrie.
 
 Des grondements tonitruants se succédèrent sans relâche et une épaisse brume noire flotta au-dessus de l'océan. Cette brume était l'océan qui, raffiné en gaz, commençait bientôt à remplir tout le Fourneau Impérial.
 
@@ -82,11 +82,11 @@ La couleur de l'océan était désormais d'un noir profond, si dense que même l
 
 Voyant qu'aucune anomalie ne survenait et que le raffinage progressait, Wang Lin se détendit. D'un geste de la main, il fit disparaître l'océan de poison pour laisser place à un autre royaume.
 
-Ce royaume contenait également un océan infini, mais celui-ci était violet et rempli d'âmes de Flamme Joss rares.
+Ce royaume contenait également un océan infini, mais celui-ci était violet et rempli d'âmes de Flamme d'Encens rares.
 
-L'Estimé Ling Dong était assis au fond de cet océan. Ses mains formaient des sceaux tandis qu'il raffinait ces âmes de Flamme Joss avec fureur, tentant de les contraindre à lui consacrer leurs flammes.
+L'Estimé Ling Dong était assis au fond de cet océan. Ses mains formaient des sceaux tandis qu'il raffinait ces âmes de Flamme d'Encens avec fureur, tentant de les contraindre à lui consacrer leurs flammes.
 
-Derrière l'Estimé Ling Dong se dressait une statue gigantesque: celle du dieu démon du clan de Ling Dong. La statue émettait une lumière qui enveloppait toutes les âmes de Flamme Joss, lesquelles manifestaient confusion et lutte.
+Derrière l'Estimé Ling Dong se dressait une statue gigantesque: celle du dieu démon du clan de Ling Dong. La statue émettait une lumière qui enveloppait toutes les âmes de Flamme d'Encens, lesquelles manifestaient confusion et lutte.
 
 Certaines âmes avaient déjà été converties, offrant leurs flammes à Ling Dong pour qu'il les absorbe. Le visage de l'Estimé Ling Dong était radieux, empreint d'excitation.
 
@@ -100,9 +100,9 @@ Une voix majestueuse résonna à l'intérieur du Fourneau Impérial. L'Estimé L
 
 Il s'arrêta à plusieurs centaines de pieds de Wang Lin et s'agenouilla dans les airs. « L'esclave ancien Ling Dong salue le Maître. Je me demande si le Maître a une tâche à confier à cet esclave! »
 
-Le fantôme de Wang Lin fixa froidement l'Estimé Ling Dong. Après un long silence, il dit lentement: « Je vais te transmettre un sortilège. Je pense qu'avec ton niveau de culture, tu devrais être capable de l'apprendre rapidement. Grâce à lui, tu pourras absorber les Flammes Joss ici et atteindre la véritable troisième étape! »
+Le fantôme de Wang Lin fixa froidement l'Estimé Ling Dong. Après un long silence, il dit lentement: « Je vais te transmettre un sortilège. Je pense qu'avec ton niveau de culture, tu devrais être capable de l'apprendre rapidement. Grâce à lui, tu pourras absorber les Flammes d'Encens ici et atteindre la véritable troisième étape! »
 
-L'Estimé Ling Dong leva brusquement la tête, les yeux brillants d'ardeur. Il avait cultivé toute sa vie pour devenir un cultivateur de la troisième étape, mais le manque de Flammes Joss l'en avait empêché. Sans compter qu'il était sous l'influence du Dao des Rêves de Wang Lin et du Fourneau Impérial, si Wang Lin lui offrait une telle fortune, il serait prêt à le suivre même sans aucune influence!
+L'Estimé Ling Dong leva brusquement la tête, les yeux brillants d'ardeur. Il avait cultivé toute sa vie pour devenir un cultivateur de la troisième étape, mais le manque de Flammes d'Encens l'en avait empêché. Sans compter qu'il était sous l'influence du Dao des Rêves de Wang Lin et du Fourneau Impérial, si Wang Lin lui offrait une telle fortune, il serait prêt à le suivre même sans aucune influence!
 
 Tant qu'il pouvait accomplir son Dao, il était prêt à tout!
 

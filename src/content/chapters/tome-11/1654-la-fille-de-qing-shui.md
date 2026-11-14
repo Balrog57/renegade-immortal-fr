@@ -88,7 +88,7 @@ Soudain, un cri strident jaillit de la formation planétaire et un rayon de lumi
 
 Dans un fracas de tonnerre, la lumière verte fut légèrement dispersée et recula de quelques pas. De l'autre côté, le vieil homme fut repoussé de mille pieds; ses yeux brillèrent d'un éclat sinistre. Dans un sourire narquois, il traça un sceau et une brume noire envahit la zone.
 
-« Tu es puissant, Empereur Qing Lin du Royaume Céleste de la Pluie! Tu es digne d'être le disciple du précédent Seigneur du Royaume Scellé! Ta culture n'est manifestement pas aussi élevée que la mienne, mais tu parviens à emprunter le pouvoir des Flammes Joss! »
+« Tu es puissant, Empereur Qing Lin du Royaume Céleste de la Pluie! Tu es digne d'être le disciple du précédent Seigneur du Royaume Scellé! Ta culture n'est manifestement pas aussi élevée que la mienne, mais tu parviens à emprunter le pouvoir des Flammes d'Encens! »
 
 La lumière verte se dissipa, révélant le corps de Qing Lin. Son visage était pâle et il était gravement blessé. Il n'avait eu qu'un bref instant de repos avant de repartir au combat contre les cultivateurs de la troisième étape du Royaume Extérieur!
 

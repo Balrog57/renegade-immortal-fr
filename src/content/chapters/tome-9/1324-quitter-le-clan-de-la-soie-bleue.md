@@ -96,7 +96,7 @@ Alors qu'elle inspirait, les étoiles du dieu ancien apparurent entre les sourci
 
 Cependant, à cet instant précis, l'hébétude dans les yeux de Wang Lin disparut, remplacée par une clarté limpide!
 
-« Monde! » Un monde surgit tel un vent glacial, et une onde jaillit du corps de Wang Lin. Une lumière noire se propagea depuis lui! Le Monde Hu Feng Huan Yu, contenant les Flammes Joss de Wang Lin, explosa!
+« Monde! » Un monde surgit tel un vent glacial, et une onde jaillit du corps de Wang Lin. Une lumière noire se propagea depuis lui! Le Monde Hu Feng Huan Yu, contenant les Flammes d'Encens de Wang Lin, explosa!
 
 La femme en blanc était trop proche. Tandis que la lueur fantomatique scintillait, le Monde Hu Feng Huan Yu s'étendit soudainement sur 10 000 pieds. La femme ne put que reculer sous la force de cette expansion! Son expression changea brusquement!
 

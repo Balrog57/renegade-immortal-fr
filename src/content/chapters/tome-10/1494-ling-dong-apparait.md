@@ -40,13 +40,13 @@ Des vagues d'énergie spirituelle céleste se propagèrent et enveloppèrent bie
 
 Une mélodie céleste retentit également, procurant une sensation immédiate de rafraîchissement à quiconque l'entendait. De nombreuses bêtes célestes y évoluaient!
 
-On percevait même des traces de Flammes Joss au sein du Royaume Céleste, lesquelles furent absorbées par le Maître Lu Fu! Ce Royaume Céleste du Vent était la clé permettant au Maître Lu Fu de devenir un cultivateur de la troisième étape!
+On percevait même des traces de Flammes d'Encens au sein du Royaume Céleste, lesquelles furent absorbées par le Maître Lu Fu! Ce Royaume Céleste du Vent était la clé permettant au Maître Lu Fu de devenir un cultivateur de la troisième étape!
 
-Les Flammes Joss dont il avait besoin pour atteindre ce stade provenaient de ce royaume fantôme!
+Les Flammes d'Encens dont il avait besoin pour atteindre ce stade provenaient de ce royaume fantôme!
 
-« Le Royaume Céleste du Vent est la racine de ma culture et la source de mes Flammes Joss. Bien que ton corps soit puissant, tu n'as pas encore atteint la troisième étape. Sans les Flammes Joss, je veux voir comment tu comptes me combattre! »
+« Le Royaume Céleste du Vent est la racine de ma culture et la source de mes Flammes d'Encens. Bien que ton corps soit puissant, tu n'as pas encore atteint la troisième étape. Sans les Flammes d'Encens, je veux voir comment tu comptes me combattre! »
 
-« Laisse-moi maintenant te dire pourquoi les cultivateurs de la troisième étape sont les plus puissants de ce monde. C'est grâce aux Flammes Joss, et seuls les cultivateurs de la troisième étape peuvent les utiliser! » Le Maître Lu Fu était résolu à combattre. À cet instant, le royaume fantôme lui insufflait une confiance infinie. Il dégageait cette pression écrasante que seul un cultivateur de la troisième étape pouvait posséder!
+« Laisse-moi maintenant te dire pourquoi les cultivateurs de la troisième étape sont les plus puissants de ce monde. C'est grâce aux Flammes d'Encens, et seuls les cultivateurs de la troisième étape peuvent les utiliser! » Le Maître Lu Fu était résolu à combattre. À cet instant, le royaume fantôme lui insufflait une confiance infinie. Il dégageait cette pression écrasante que seul un cultivateur de la troisième étape pouvait posséder!
 
 Les yeux de Wang Lin restaient aussi calmes qu'une eau dormante alors qu'il observait le Maître Lu Fu déployer divers sorts. L'aura du Maître Lu Fu atteignit immédiatement son apogée, mais Wang Lin demeura impassible.
 
@@ -56,7 +56,7 @@ Ce calme insuffla au Maître Lu Fu un sentiment de mystère. Son regard eut un �
 
 « Peu importe sa force, il est impossible qu'il ait supprimé sa culture pour que je ne puisse pas le percer à jour. Ce calme est étrange!! Je veux voir ce qui lui permet de rester si calme! »
 
-Tout cela se produisit en un instant. L'épée brisée chargea tandis que le royaume fantôme libérait une énergie spirituelle céleste monstrueuse. Des volutes de Flammes Joss enveloppèrent son corps.
+Tout cela se produisit en un instant. L'épée brisée chargea tandis que le royaume fantôme libérait une énergie spirituelle céleste monstrueuse. Des volutes de Flammes d'Encens enveloppèrent son corps.
 
 À ce moment, le Maître Lu Fu ressemblait à un véritable être céleste, et son élan était colossal.
 
@@ -90,7 +90,7 @@ Juste au moment où le Maître Lu Fu allait percuter et que ses pensées fusaien
 
 Dès l'apparition de l'Estimé Ling Dong, l'aura d'un véritable cultivateur de la troisième étape éclata de son corps!
 
-Une immense faille spatiale apparut au-dessus de lui. À l'intérieur se trouvait un océan pourpre monstrueux, et d'infinies Flammes Joss remplissaient cet océan pourpre!
+Une immense faille spatiale apparut au-dessus de lui. À l'intérieur se trouvait un océan pourpre monstrueux, et d'infinies Flammes d'Encens remplissaient cet océan pourpre!
 
 « Un cultivateur de la troisième étape!! » Le Maître Lu Fu changea de visage comme jamais auparavant. Il s'arrêta net, les yeux écarquillés par l'incrédulité!
 
@@ -100,9 +100,9 @@ Bien que le Maître Lu Fu ait vécu des dizaines de milliers d'années, il fut p
 
 Il comprit enfin pourquoi Wang Lin était si calme face à ses sorts, pourquoi il se moquait de sa faveur, et pourquoi il avait été si arrogant en déclarant être lassé de la Bataille Littéraire... Tout s'éclairait avec l'arrivée de l'Estimé Ling Dong!
 
-Ce qui le terrifiait par-dessus tout, c'étaient les Flammes Joss infinies qui émanaient de la faille spatiale au-dessus de l'Estimé Ling Dong. Une telle quantité de Flammes Joss dépassait tout ce qu'il pouvait imaginer!
+Ce qui le terrifiait par-dessus tout, c'étaient les Flammes d'Encens infinies qui émanaient de la faille spatiale au-dessus de l'Estimé Ling Dong. Une telle quantité de Flammes d'Encens dépassait tout ce qu'il pouvait imaginer!
 
-« Ceci... autant de Flammes Joss... Qui est ce cultivateur de la troisième étape?! Je connais presque tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Lui-même était dans cet état, alors que dire des autres.
+« Ceci... autant de Flammes d'Encens... Qui est ce cultivateur de la troisième étape?! Je connais presque tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Lui-même était dans cet état, alors que dire des autres.
 
 Le Maître Yan Leizi fut stupéfait au sein du vortex. Tout le choc qu'il avait ressenti durant ses dizaines de milliers d'années de culture ne valait pas celui que Wang Lin venait de lui infliger. La force de Wang Lin le terrifiait déjà, mais il n'avait jamais imaginé qu'il possédât un esclave!
 

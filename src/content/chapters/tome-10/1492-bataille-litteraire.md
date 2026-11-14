@@ -26,7 +26,7 @@ Le regard de Maître Lu Fu eut un éclair, et il fixa le point entre les sourcil
 
 « Osez-vous affronter ce vieil homme dans une Bataille Littéraire? » Maître Lu Fu sentait que même s'il combattait Wang Lin, cela se solderait par un match nul, les menant à une impasse.
 
-S'il devenait négligent un seul instant, il serait blessé. Et s'il était blessé maintenant, cela compromettrait ses plans pour dérober les Flammes Joss du Royaume Extérieur. Cette préoccupation pesait sur lui.
+S'il devenait négligent un seul instant, il serait blessé. Et s'il était blessé maintenant, cela compromettrait ses plans pour dérober les Flammes d'Encens du Royaume Extérieur. Cette préoccupation pesait sur lui.
 
 « Une Bataille Littéraire? » Wang Lin n'avait jamais eu de Bataille Littéraire avec quiconque auparavant. En entendant les paroles de Maître Lu Fu, une lueur étrange traversa son regard.
 
@@ -48,7 +48,7 @@ En entendant cela, Maître Lu Fu se détendit légèrement. Pourtant, en voyant 
 
 C'est pour cela qu'il avait proposé le Pacte de la Bataille Littéraire. Voyant Wang Lin accepter, il ne put s'empêcher de ricaner intérieurement.
 
-« Cet homme est jeune et n'a pas cultivé très longtemps. Bien que son niveau soit tel, il doit manquer de maîtrise dans d'autres domaines! » Maître Lu Fu avait atteint le troisième niveau il y a des dizaines de milliers d'années. Étant resté bloqué au stade initial du Vide du Nirvana par manque de Flammes Joss, il s'était lancé dans l'exploration du raffinage, de l'alchimie et des restrictions. Il était extrêmement confiant.
+« Cet homme est jeune et n'a pas cultivé très longtemps. Bien que son niveau soit tel, il doit manquer de maîtrise dans d'autres domaines! » Maître Lu Fu avait atteint le troisième niveau il y a des dizaines de milliers d'années. Étant resté bloqué au stade initial du Vide du Nirvana par manque de Flammes d'Encens, il s'était lancé dans l'exploration du raffinage, de l'alchimie et des restrictions. Il était extrêmement confiant.
 
 Maître Lu Fu dit lentement: « Daoïste, veuillez choisir ce que vous souhaitez raffiner pour la première bataille! »
 

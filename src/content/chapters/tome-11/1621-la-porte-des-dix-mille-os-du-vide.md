@@ -66,9 +66,9 @@ La quatrième Porte Kong s'effondra!
 
 Une fissure était sur le point d'apparaître entre ses sourcils. L'intérieur de la faille était noir, comme s'il contenait un autre monde!
 
-C'était une caractéristique unique aux cultivateurs du Vide Spirituel: leur propre Domaine de la Flamme Joss pour nourrir leurs âmes de flammes. Ils pouvaient même forcer autrui à les vénérer et à devenir leurs esclaves de la Flamme Joss!
+C'était une caractéristique unique aux cultivateurs du Vide Spirituel: leur propre Domaine de la Flamme d'Encens pour nourrir leurs âmes de flammes. Ils pouvaient même forcer autrui à les vénérer et à devenir leurs esclaves de la Flamme d'Encens!
 
-Wang Lin avait ouvert la Porte Kong par lui-même, sans l'aide des Flammes Joss. En conséquence, la fissure entre ses sourcils n'était pas un monde de flammes, mais son propre monde. Même sans Flammes Joss, il pourrait toujours contraindre quelqu'un à l'adorer. Pour l'heure, la fissure ne s'était pas encore totalement ouverte car son niveau de culture n'était pas encore assez élevé.
+Wang Lin avait ouvert la Porte Kong par lui-même, sans l'aide des Flammes d'Encens. En conséquence, la fissure entre ses sourcils n'était pas un monde de flammes, mais son propre monde. Même sans Flammes d'Encens, il pourrait toujours contraindre quelqu'un à l'adorer. Pour l'heure, la fissure ne s'était pas encore totalement ouverte car son niveau de culture n'était pas encore assez élevé.
 
 Dans un rire, il agita sa manche et repoussa les fragments de la Porte Kong. Ce qui apparut devant lui était la cinquième Porte Kong!
 

@@ -56,17 +56,17 @@ L'énergie originelle dans le Royaume Intérieur semblait infinie, mais elle ét
 
 Ce qui choqua le plus Wang Lin fut de découvrir que non seulement la formation retenait l'énergie originelle, mais qu'elle était aussi la raison pour laquelle il y avait si peu de cultivateurs du troisième pas dans le Royaume Intérieur. Au fil des éons, certains génies avaient formé leurs propres essences et n'avaient besoin que de les parfaire pour atteindre le troisième pas. Cependant, à cause de la formation, leurs essences ne pouvaient jamais être achevées, et ils n'avaient d'autre choix que de mourir avec le temps.
 
-Tout cela était dû au manque de Flammes Joss, l'élément le plus crucial pour devenir un cultivateur du troisième pas! Même ceux qui avaient atteint ce stade devaient entrer en hibernation à cause de la Formation du Royaume Scellé, afin d'empêcher leurs essences de se dissiper!
+Tout cela était dû au manque de Flammes d'Encens, l'élément le plus crucial pour devenir un cultivateur du troisième pas! Même ceux qui avaient atteint ce stade devaient entrer en hibernation à cause de la Formation du Royaume Scellé, afin d'empêcher leurs essences de se dissiper!
 
-À cause de la Formation du Royaume Scellé, il n'y avait pas la moindre trace de Flammes Joss dans le Royaume Intérieur. Même si certaines étaient créées artificiellement, elles étaient aussitôt drainées par la formation!
+À cause de la Formation du Royaume Scellé, il n'y avait pas la moindre trace de Flammes d'Encens dans le Royaume Intérieur. Même si certaines étaient créées artificiellement, elles étaient aussitôt drainées par la formation!
 
-La seule façon d'obtenir des Flammes Joss pour permettre à son essence de croître était de se rendre dans le Royaume Extérieur ou de devenir un espion du Royaume Extérieur, tel que... le Shui Daozi!
+La seule façon d'obtenir des Flammes d'Encens pour permettre à son essence de croître était de se rendre dans le Royaume Extérieur ou de devenir un espion du Royaume Extérieur, tel que... le Shui Daozi!
 
 Vide du Nirvana, Vide Spirituel, Tribulation du Vide et Vide Arcanique constituaient les quatre grandes étapes du troisième pas. Le Vide du Nirvana n'était pas si terrible, mais atteindre le Vide Spirituel était pratiquement impossible.
 
-Lorsque le Seigneur du Royaume Scellé descendit, le premier problème qu'il dut résoudre fut celui des Flammes Joss. Il organisa les quatre Royaumes Célestes en un pacte, afin de contrer l'absorption de la Formation du Royaume Scellé.
+Lorsque le Seigneur du Royaume Scellé descendit, le premier problème qu'il dut résoudre fut celui des Flammes d'Encens. Il organisa les quatre Royaumes Célestes en un pacte, afin de contrer l'absorption de la Formation du Royaume Scellé.
 
-Le Seigneur du Royaume Scellé possédait des sorts et une sagesse immenses. Grâce à son aide, tout progressait dans la bonne direction. En utilisant les quatre Royaumes Célestes, il empêcha la Formation du Royaume Scellé d'absorber les Flammes Joss.
+Le Seigneur du Royaume Scellé possédait des sorts et une sagesse immenses. Grâce à son aide, tout progressait dans la bonne direction. En utilisant les quatre Royaumes Célestes, il empêcha la Formation du Royaume Scellé d'absorber les Flammes d'Encens.
 
 Cependant, tout cela fut anéanti. Le Royaume Extérieur ne permettrait pas une telle chose au sein du Royaume Intérieur. Avant la calamité, le Seigneur du Royaume Scellé fut attaqué par surprise par le Shui Daozi. Puis il fut gravement blessé par le Souverain, les autres maîtres du Royaume Extérieur et certains traîtres de l'Ancien Royaume Céleste. Il avait failli mourir! Bai Fan était devenu fou en pointant le ciel du doigt. L'esprit de Qing Lin fut déchiré par la fille du Souverain, la concubine Fu, avant qu'il ne soit traqué par l'ancien démon et l'ancien diable.
 
@@ -84,7 +84,7 @@ Ce jour n'était pas loin; il était très, très proche!
 
 Le Royaume Intérieur avait atteint son état de faiblesse le plus extrême après d'innombrables années. Le jour que le Royaume Extérieur attendait approchait!
 
-C'est pour cette raison que le Seigneur du Royaume Scellé avait dû envoyer Wang Lin dans le domaine du Dao et l'aider à pénétrer dans le Royaume Extérieur. Ainsi, Wang Lin pourrait obtenir suffisamment de Flammes Joss pour atteindre le troisième pas!
+C'est pour cette raison que le Seigneur du Royaume Scellé avait dû envoyer Wang Lin dans le domaine du Dao et l'aider à pénétrer dans le Royaume Extérieur. Ainsi, Wang Lin pourrait obtenir suffisamment de Flammes d'Encens pour atteindre le troisième pas!
 
 Le Seigneur du Royaume Scellé avait naturellement perçu les cinq essences dans le corps de Wang Lin. Bien qu'il parût imperturbable, il était profondément choqué, mais il ne le montra pas. C'est à cause de ces cinq essences qu'il décida de faire de Wang Lin son héritier! Pour mener le Royaume Intérieur contre le Royaume Extérieur et même... pour se frayer un chemin vers le Royaume Extérieur par le massacre!
 

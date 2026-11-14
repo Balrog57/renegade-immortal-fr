@@ -18,7 +18,7 @@ Tandis que ces esclaves du Royaume Extérieur poussaient, de nombreuses âmes de
 
 Simultanément, l'apparition de cette formation ne bloqua pas l'aura provenant du Système Stellaire Antique. Elle n'arrêta que les cultivateurs qui n'appartenaient pas au Royaume Intérieur: tous les clans portant un marquage entre leurs sourcils.
 
-Grâce à l'aura du Système Stellaire Antique, le Royaume Intérieur pouvait désormais rassembler des Flammes Joss pour sa culture. Les chaînes qui entravaient les cultivateurs du Royaume Intérieur disparurent.
+Grâce à l'aura du Système Stellaire Antique, le Royaume Intérieur pouvait désormais rassembler des Flammes d'Encens pour sa culture. Les chaînes qui entravaient les cultivateurs du Royaume Intérieur disparurent.
 
 Alors que toutes les âmes du Royaume Intérieur entraient dans la formation circulaire, Wang Lin agita la main. Sa robe blanche flottait, ses cheveux blancs ondulaient sans qu'aucun vent ne souffle, ses yeux brillaient d'une lueur étrange, et il poussa un rugissement.
 

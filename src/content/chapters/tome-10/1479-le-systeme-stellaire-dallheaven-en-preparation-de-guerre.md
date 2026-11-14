@@ -22,7 +22,7 @@ On pouvait dire que Maître Lu Fu était le gardien de l'ensemble du système st
 
 Lorsque Tuo Sen était réapparu à Luotian, Maître Lu Fu avait été terrifié et s'était caché grâce à un sort spécial. Il n'était revenu à la lumière qu'une fois Tuo Sen parti.
 
-Il s'était soigné durant toutes ces années. Bien qu'il n'ait pas disposé de suffisamment de Flammes Joss, il avait utilisé ses propres méthodes pour se remettre lentement de son combat contre Tuo Sen.
+Il s'était soigné durant toutes ces années. Bien qu'il n'ait pas disposé de suffisamment de Flammes d'Encens, il avait utilisé ses propres méthodes pour se remettre lentement de son combat contre Tuo Sen.
 
 Tout était paisible, mais en ce jour, alors que Wang Lin quittait la tombe antique pour arriver à Luotian, Maître Lu Fu ouvrit les yeux et ceux-ci s'illuminèrent!
 

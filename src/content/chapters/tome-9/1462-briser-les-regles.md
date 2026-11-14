@@ -10,7 +10,7 @@ Les paroles de Wang Lin étaient aussi froides que la gelée et figèrent l'homm
 
 Il sentait distinctement que ces gouttes contenaient une toxine inimaginable. Une seule goutte suffirait à faire pourrir sa chair et son âme originelle jusqu'à ce qu'il ne reste plus rien.
 
-Ce qui lui glaçait le sang, c'était la présence de trop nombreuses âmes de Flammes Joss en leur sein. Ces âmes avaient été transformées en âmes empoisonnées, puis raffinées; elles dégageaient une rancœur et une force destructrice infinies.
+Ce qui lui glaçait le sang, c'était la présence de trop nombreuses âmes de Flammes d'Encens en leur sein. Ces âmes avaient été transformées en âmes empoisonnées, puis raffinées; elles dégageaient une rancœur et une force destructrice infinies.
 
 Il n'osait pas bouger, il n'osait absolument pas faire un geste. La bataille d'aujourd'hui avait été trop rapide, parsemée de rebondissements imprévus. Il ne s'attendait pas à l'apparition de Ling Dong, et encore moins à ce que celui-ci ait franchi ce demi-pas!
 
@@ -26,7 +26,7 @@ L'Estimé Ling Dong s'avança et s'arrêta à cent pieds de Wang Lin. Il s'ageno
 
 « Raffine-le! » Wang Lin fit un geste de la main et le Fourneau Impérial changea brusquement de forme. Dix-huit Feuilles Anciennes se posèrent sur le Fourneau Impérial pour le sceller. Puis, les âmes apparurent et entamèrent le processus de raffinage.
 
-L'Estimé Ling Dong quitta son royaume de Flammes Joss pour pénétrer dans le royaume de l'océan empoisonné, avec l'aide de Wang Lin. Il flotta dans les airs et commença le processus de raffinage d'esclave! Zhou Jin différait de Ling Dong; il était un véritable cultivateur du troisième niveau, il ne serait donc pas aisé de le transformer en esclave. Même le Dao du Rêve ne ferait qu'augmenter les chances de succès après que Wang Lin eut brisé l'état mental de Zhou Jin.
+L'Estimé Ling Dong quitta son royaume de Flammes d'Encens pour pénétrer dans le royaume de l'océan empoisonné, avec l'aide de Wang Lin. Il flotta dans les airs et commença le processus de raffinage d'esclave! Zhou Jin différait de Ling Dong; il était un véritable cultivateur du troisième niveau, il ne serait donc pas aisé de le transformer en esclave. Même le Dao du Rêve ne ferait qu'augmenter les chances de succès après que Wang Lin eut brisé l'état mental de Zhou Jin.
 
 À présent, Zhou Jin était oppressé dans le Fourneau Impérial, sous la garde de Ling Dong et sous le sceau des dix-huit Feuilles Anciennes. Plus important encore, les neuf gouttes de poison l'entouraient, ce qui permettait à Wang Lin d'être certain que Zhou Jin ne pourrait pas s'échapper.
 
@@ -66,7 +66,7 @@ Selon les calculs de Wang Lin, celle qui était en tête avait déjà atteint la
 
 « À ma vitesse actuelle, je ne pourrai pas dépasser ceux qui sont devant moi... » Wang Lin s'assit sur la plateforme et se mit à méditer. Après un long moment, il toucha l'espace entre ses sourcils et ses yeux brillèrent.
 
-« Tout le monde dans la Tombe de l'Ordre Ancien possède un numéro, mais pas moi... Si Tuo Sen venait ici, il n'aurait pas non plus de marque numérique... »
+« Tout le monde dans la Tombe de Dao Gu possède un numéro, mais pas moi... Si Tuo Sen venait ici, il n'aurait pas non plus de marque numérique... »
 
 « Je suis un Dieu Ancien, je n'ai donc pas besoin d'être marqué par un chiffre... Alors, que sont exactement ces marques numériques? » Les yeux de Wang Lin s'illuminèrent tandis qu'il remarquait vaguement quelque chose. Sa main frappa la plateforme sous lui, une rune s'en détacha et il la saisit.
 
@@ -94,7 +94,7 @@ Le temps s'écoulait lentement. La fusion ne parvenait pas à s'achever, comme s
 
 Après l'avoir sortie, il la frappa et une énergie de démon ancien en jaillit. Sa main gauche saisit une partie de cette énergie pour la fusionner avec le pouvoir du diable ancien et celui du Dieu Ancien contenus dans sa main droite.
 
-Les trois auras des trois clans de l'Ordre Ancien se rassemblèrent instantanément et fusionnèrent dans la paume de Wang Lin, formant une force unique. Elle était bien plus puissante que les pouvoirs de Dieu Ancien, de diable ancien ou de démon ancien pris séparément. En tenant cette force, Wang Lin avait l'impression de tenir le monde entier.
+Les trois auras des trois clans de Dao Gu se rassemblèrent instantanément et fusionnèrent dans la paume de Wang Lin, formant une force unique. Elle était bien plus puissante que les pouvoirs de Dieu Ancien, de diable ancien ou de démon ancien pris séparément. En tenant cette force, Wang Lin avait l'impression de tenir le monde entier.
 
 Sans hésiter, il passa sa main sur le front de la jeune fille. Celle-ci ouvrit les yeux et poussa un cri déchirant. La marque numérique entre ses sourcils venait d'être effacée par Wang Lin!
 

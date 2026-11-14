@@ -112,7 +112,7 @@ Dès l'apparition de la lance, une énergie démoniaque envahit la grotte, accom
 
 « Un avatar d'ancien diable... Je pense que si je parviens à intégrer les trois clans, je pourrai retrouver la puissance de l'Ordre Antique!! » Wang Lin fixa la lance démoniaque, pensif.
 
-« J'ai cultivé moi-même le corps d'ancien dieu. L'avatar d'ancien démon a été formé à partir d'un fragment d'âme et de l'adoration du clan de Treize, créant une puissance similaire aux Flammes Joss. Cela a persuadé l'ancien démon qu'il était moi, m'évitant ainsi un effort considérable pour l'intégrer à mon être... Quant à l'ancien diable, je pourrais peut-être en créer un! Et si je parviens à en capturer un, ce sera encore mieux! » Wang Lin médita tandis que sa main droite plongeait dans le vide, faisant apparaître la Bouteille d'Âme Démoniaque de Tan Lang!
+« J'ai cultivé moi-même le corps d'ancien dieu. L'avatar d'ancien démon a été formé à partir d'un fragment d'âme et de l'adoration du clan de Treize, créant une puissance similaire aux Flammes d'Encens. Cela a persuadé l'ancien démon qu'il était moi, m'évitant ainsi un effort considérable pour l'intégrer à mon être... Quant à l'ancien diable, je pourrais peut-être en créer un! Et si je parviens à en capturer un, ce sera encore mieux! » Wang Lin médita tandis que sa main droite plongeait dans le vide, faisant apparaître la Bouteille d'Âme Démoniaque de Tan Lang!
 
 Dès que la bouteille apparut, l'énergie démoniaque dans la grotte décupla et d'innombrables ombres démoniaques surgirent. Cette énergie enveloppa la planète entière.
 

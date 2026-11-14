@@ -48,17 +48,17 @@ L'avatar de Miaoyin Daozun, ce magnifique jeune homme, battait en retraite rapid
 
 « Qu'il s'agisse de trésors, de sorts, de pilules ou même de méthodes permettant aux cultivateurs de la troisième étape d'atteindre le royaume de la Tribulation du Vide! »
 
-L'expression de Miaoyin Daozun était incertaine. Il serra les dents et agita la main. Personne ne vit son Royaume des Flammes Joss s'ouvrir, mais des âmes de Flamme Joss entourèrent son corps!
+L'expression de Miaoyin Daozun était incertaine. Il serra les dents et agita la main. Personne ne vit son Royaume des Flammes d'Encens s'ouvrir, mais des âmes de Flamme d'Encens entourèrent son corps!
 
 Il était encerclé par ces âmes; de prime abord, on voyait qu'il s'agissait de magnifiques hommes et femmes. Ils étaient plus de 10 milliards!
 
-« Chargez! » Le visage de Miaoyin Daozun se crispa. Il cessa sa retraite et chargea dans la brume. Dès qu'il la toucha, les 10 milliards d'âmes de Flamme Joss poussèrent des cris de détresse.
+« Chargez! » Le visage de Miaoyin Daozun se crispa. Il cessa sa retraite et chargea dans la brume. Dès qu'il la toucha, les 10 milliards d'âmes de Flamme d'Encens poussèrent des cris de détresse.
 
-Une puissance inimaginable émanait de l'intérieur du brouillard; une force à laquelle nul ne pouvait résister. Alors que cette puissance s'abattait sur Miaoyin Daozun, 40 % des âmes de Flamme Joss furent anéanties!
+Une puissance inimaginable émanait de l'intérieur du brouillard; une force à laquelle nul ne pouvait résister. Alors que cette puissance s'abattait sur Miaoyin Daozun, 40 % des âmes de Flamme d'Encens furent anéanties!
 
 Le visage de Miaoyin Daozun devint livide. À cet instant, il n'avait fait que trois pas en avant!
 
-Il serra les dents, poussa un rugissement et fit un autre pas. Sa main traça un sceau et un sort de Dao enveloppa son corps! Cependant, au moment où il fit son quatrième pas, le brouillard s'engouffra directement en lui. Les 60 % d'âmes de Flamme Joss restants furent... détruits en un instant!
+Il serra les dents, poussa un rugissement et fit un autre pas. Sa main traça un sceau et un sort de Dao enveloppa son corps! Cependant, au moment où il fit son quatrième pas, le brouillard s'engouffra directement en lui. Les 60 % d'âmes de Flamme d'Encens restants furent... détruits en un instant!
 
 Miaoyin Daozun cracha un flot de sang et battit en retraite précipitamment.
 

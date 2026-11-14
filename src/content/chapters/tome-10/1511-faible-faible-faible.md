@@ -88,13 +88,13 @@ Trente-deux perles d'abaque apparurent soudainement au sein de ces ondulations. 
 
 L'expression de Wang Lin resta sereine. Il ne jeta même pas un regard au vieil homme en noir ni aux perles d'abaque alors qu'il avançait vers le Shui Daozi!
 
-Dès qu'il bougea, les étoiles du Dieu Antique de Wang Lin brillèrent et l'Estimé Ling Dong apparut dans un éclair violet. Sans hésiter, il chargea le vieil homme avec un sourire narquois. Il agita la main droite et le monde gronda, faisant apparaître une mer pourpre monstrueuse. D'innombrables âmes de flammes Joss hurlèrent tandis que la statue d'un dieu démon se manifestait, ses bras s'ouvrant largement!
+Dès qu'il bougea, les étoiles du Dieu Antique de Wang Lin brillèrent et l'Estimé Ling Dong apparut dans un éclair violet. Sans hésiter, il chargea le vieil homme avec un sourire narquois. Il agita la main droite et le monde gronda, faisant apparaître une mer pourpre monstrueuse. D'innombrables âmes de flammes d'encens hurlèrent tandis que la statue d'un dieu démon se manifestait, ses bras s'ouvrant largement!
 
 Un hurlement de loup à ébranler les cieux retentit presque en même temps que l'apparition de Ling Dong. Le corps de Zhou Jin se fondit dans un loup de sang long de plusieurs centaines de milliers de pieds, qui chargea vers les perles d'abaque derrière Wang Lin!
 
 « Meute de loups, saluez la lune! » Un rugissement glacial résonna, et le ciel sombre sembla être déchiré par la lune de sang qui enveloppait la terre!
 
-Des grondements tonnerreux éclatèrent. Les sorts de l'homme en noir et de l'Estimé Ling Dong entrèrent en collision. Le vieil homme n'étant qu'un avatar, il ne pouvait absolument pas rivaliser avec l'Estimé Ling Dong en termes de flammes Joss. Le marais du vieil homme s'effondra et il cracha une bouchée d'énergie de l'âme originelle. Il se retira alors rapidement, les yeux écarquillés par le choc.
+Des grondements tonnerreux éclatèrent. Les sorts de l'homme en noir et de l'Estimé Ling Dong entrèrent en collision. Le vieil homme n'étant qu'un avatar, il ne pouvait absolument pas rivaliser avec l'Estimé Ling Dong en termes de flammes d'encens. Le marais du vieil homme s'effondra et il cracha une bouchée d'énergie de l'âme originelle. Il se retira alors rapidement, les yeux écarquillés par le choc.
 
 « Qui es-tu?! »
 
@@ -114,4 +114,4 @@ Tandis que tout cela se déroulait, Wang Lin approchait rapidement du Shui Daozi
 
 « Disciples du Yin et du Yang! » Derrière lui, d'innombrables disciples du Yin et du Yang surgirent. Ils se condensèrent pour former une lance et frappèrent vers Wang Lin!
 
-Cette lance contenait toute la culture du Shui Daozi ainsi que toutes ses flammes Joss. À son apparition, le monde trembla. De vastes fissures lacérèrent la planète, comme si celle-ci était sur le point de se briser!
+Cette lance contenait toute la culture du Shui Daozi ainsi que toutes ses flammes d'encens. À son apparition, le monde trembla. De vastes fissures lacérèrent la planète, comme si celle-ci était sur le point de se briser!

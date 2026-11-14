@@ -108,4 +108,4 @@ Wang Lin saisissait vaguement quelques indices, mais tout était trop confus pou
 
 Tout en réfléchissant, Maître Simo s'élança vers les Terres Déchues.
 
-« Je dois le trouver au plus vite, mort ou vif, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte Kong sans les Flammes Joss! »
+« Je dois le trouver au plus vite, mort ou vif, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte Kong sans les Flammes d'Encens! »

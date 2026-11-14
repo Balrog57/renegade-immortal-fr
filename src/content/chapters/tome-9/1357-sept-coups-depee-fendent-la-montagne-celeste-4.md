@@ -78,7 +78,7 @@ Cependant, au moment où il s'élançait, le quatrième coup de Wang Lin s'abatt
 
 Les deux rayons d'énergie d'épée volèrent l'un après l'autre, formant presque une vague, portée par les hurlements des âmes. L'Ancien, déjà rendu fou par la douleur, ne se souciait plus de sa longévité et agita la main:
 
-« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan Shan Lei comme Flammes Joss afin d'activer le Sort du Boisseau du Sud! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
+« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan Shan Lei comme Flammes d'Encens afin d'activer le Sort du Boisseau du Sud! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
 
 Le Sort du Boisseau du Sud était l'art le plus puissant du Clan Shan Lei. Empruntant le pouvoir des astres, il se manifestait sous la forme de neuf étoiles meurtrières. L'espace devant l'Ancien se déforma et brilla intensément alors que neuf étoiles apparurent en formation. Un seul regard suffisait à donner l'impression que l'esprit était aspiré.
 

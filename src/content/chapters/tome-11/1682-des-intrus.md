@@ -98,9 +98,9 @@ Après avoir reconstitué le Royaume Céleste du Vent, Wang Lin atterrit sur le 
 
 Des grondements tonitruants retentirent. Sous le contrôle de Wang Lin, il extirpa de force le Royaume Céleste du Vent de l'univers où il se trouvait pour le transporter dans la Mer Yun!
 
-Le continent flottait là, émettant d'immenses quantités d'énergie céleste. Cette énergie était différente de celle du Continent Xian Gang; elle avait été altérée par les Flammes Joss et constituait une énergie céleste propre au monde des grottes!
+Le continent flottait là, émettant d'immenses quantités d'énergie céleste. Cette énergie était différente de celle du Continent Xian Gang; elle avait été altérée par les Flammes d'Encens et constituait une énergie céleste propre au monde des grottes!
 
-Il y a fort longtemps, le Seigneur du Royaume Scellé avait créé ces quatre continents pour recueillir les Flammes Joss. En conséquence, les continents des quatre Royaumes Célestes étaient distincts des autres.
+Il y a fort longtemps, le Seigneur du Royaume Scellé avait créé ces quatre continents pour recueillir les Flammes d'Encens. En conséquence, les continents des quatre Royaumes Célestes étaient distincts des autres.
 
 Les bêtes moustiques présentes sur le continent étaient écrasées par la pression de Wang Lin; elles ne pouvaient s'envoler, mais seulement trembler, tapies au sol, en suivant le mouvement du continent.
 

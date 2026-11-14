@@ -102,7 +102,7 @@ Simultanément, Xuan Luo, qui était en retraite, et les Grands Empyréens des d
 
 Il n'y avait pas d'ombre comme celle de l'Ancêtre Céleste, mais une paire d'yeux. Des yeux argentés qui fixaient le territoire des Célestes, libérant une lumière argentée monstrueuse!
 
-Le continent Astral Immortel tout entier semblait atteindre son point d'ébullition. Les neuf soleils étaient apparus ensemble, et la pression qu'ils exerçaient faisait trembler chaque être vivant.
+Le Continent Xian Gang tout entier semblait atteindre son point d'ébullition. Les neuf soleils étaient apparus ensemble, et la pression qu'ils exerçaient faisait trembler chaque être vivant.
 
 Si cela s'était arrêté là, le choc aurait été immense mais n'aurait pas suscité autant de spéculations. Cependant, après l'apparition de l'ombre et de la paire d'yeux dans le ciel... un troisième vortex géant surgit entre les terres célestes et les terres antiques!
 

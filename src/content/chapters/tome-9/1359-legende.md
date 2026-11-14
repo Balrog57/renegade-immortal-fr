@@ -94,9 +94,9 @@ Un instant plus tard, la foudre entourant Wang Lin ressemblait à un lac de tonn
 
 Il existait une légende antique enfouie par le temps, et cette rumeur contenait le plus grand secret pour atteindre le troisième stade!
 
-On racontait qu'il fallait s'appuyer sur les Flammes Joss des disciples pour nourrir son essence et lui permettre de croître afin d'espérer ouvrir la porte du ciel. Cela permettait à l'essence de devenir complète et au corps de subir une mutation totale. À partir de ce moment, on ne serait plus un simple cultivateur ordinaire.
+On racontait qu'il fallait s'appuyer sur les Flammes d'Encens des disciples pour nourrir son essence et lui permettre de croître afin d'espérer ouvrir la porte du ciel. Cela permettait à l'essence de devenir complète et au corps de subir une mutation totale. À partir de ce moment, on ne serait plus un simple cultivateur ordinaire.
 
-Cependant, il existait une rumeur encore plus rare, bien plus ancienne que les Flammes Joss. Dans cette légende, on ne s'appuyait pas sur les flammes, mais sur sa propre compréhension. On utilisait une méthode inconnue pour parfaire son essence, franchir la porte du ciel et devenir un cultivateur du troisième stade capable de faire trembler l'univers!
+Cependant, il existait une rumeur encore plus rare, bien plus ancienne que les Flammes d'Encens. Dans cette légende, on ne s'appuyait pas sur les flammes, mais sur sa propre compréhension. On utilisait une méthode inconnue pour parfaire son essence, franchir la porte du ciel et devenir un cultivateur du troisième stade capable de faire trembler l'univers!
 
 Atteindre le troisième stade de cette manière ferait de quiconque une véritable légende!
 

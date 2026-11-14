@@ -88,9 +88,9 @@ Un fracas assourdissant retentit et de nouvelles fissures lacérèrent le boucli
 
 Cependant, puisqu'il avait été attiré ici, Wang Lin ne lui accorderait aucune chance. Wang Lin laissa échapper un reniflement froid et leva la main. Son coup retomba une fois de plus, chargé de karma. Il frappa le bouclier qui s'effondra instantanément. Une aura fut alors extraite du bouclier et de l'homme d'âge moyen.
 
-L'homme était livide. Après l'effondrement de son bouclier, il recula une fois encore, le regard sombre. C'était pour lui une calamité de vie ou de mort, et il craignait de ne pouvoir s'en sortir. À cet instant, il serra les dents et renonça à la fuite. Ses mains formèrent un sceau qu'il porta entre ses sourcils, provoquant l'apparition d'une faille. C'était le monde de la Flamme Joss fusionné avec son propre corps!
+L'homme était livide. Après l'effondrement de son bouclier, il recula une fois encore, le regard sombre. C'était pour lui une calamité de vie ou de mort, et il craignait de ne pouvoir s'en sortir. À cet instant, il serra les dents et renonça à la fuite. Ses mains formèrent un sceau qu'il porta entre ses sourcils, provoquant l'apparition d'une faille. C'était le monde de la Flamme d'Encens fusionné avec son propre corps!
 
-Au moment où il ouvrait son monde de la Flamme Joss, Wang Lin pointa la main droite vers l'avant.
+Au moment où il ouvrait son monde de la Flamme d'Encens, Wang Lin pointa la main droite vers l'avant.
 
 « Immobile! »
 

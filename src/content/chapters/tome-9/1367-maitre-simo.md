@@ -98,9 +98,9 @@ Sa culture du tonnerre progressait vers le sommet du stade Briseur du Nirvana! L
 
 Toutefois, malgré cela, son niveau de culture ne pouvait progresser que très peu... à moins de compléter les neuf types de tonnerre!
 
-Cependant, Wang Lin ignorait s'il pourrait accéder au troisième stade une fois les neuf types complétés. Il pressentait que ce ne serait pas aussi simple. Après tout, il avait choisi de ne pas cultiver les Flammes Joss...
+Cependant, Wang Lin ignorait s'il pourrait accéder au troisième stade une fois les neuf types complétés. Il pressentait que ce ne serait pas aussi simple. Après tout, il avait choisi de ne pas cultiver les Flammes d'Encens...
 
-« Quoi qu'il arrive, je ne peux pas cultiver les Flammes Joss! » La décision de Wang Lin était irrévocable. Après avoir absorbé le Tonnerre Spirituel, son âme originelle s'ouvrit pour dévorer les cinq autres types de tonnerre.
+« Quoi qu'il arrive, je ne peux pas cultiver les Flammes d'Encens! » La décision de Wang Lin était irrévocable. Après avoir absorbé le Tonnerre Spirituel, son âme originelle s'ouvrit pour dévorer les cinq autres types de tonnerre.
 
 Le temps s'écoulait lentement. En un clin d'œil, une journée entière passa!
 

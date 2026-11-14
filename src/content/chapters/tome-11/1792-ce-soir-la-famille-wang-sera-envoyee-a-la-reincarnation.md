@@ -62,7 +62,7 @@ Tandis qu'il guérissait, des auras semblables à de la fumée émanaient de la 
 
 Ce vieil homme n'était autre que Jiutian Mozun, gravement blessé par Lanmeng Daozun!
 
-À l'époque, son Royaume des Flammes Joss avait été détruit et son âme endommagée. Il avait survécu de justesse, parvenant à préserver le peu de force vitale qui lui restait. Il utilisait l'aura de mort de la planète pour restaurer son Royaume des Flammes Joss. Le silence régnait et le ciel était obscur, mais soudain, le vieil homme leva la tête. Ses yeux s'ouvrirent brusquement et ses pupilles se rétractèrent.
+À l'époque, son Royaume des Flammes d'Encens avait été détruit et son âme endommagée. Il avait survécu de justesse, parvenant à préserver le peu de force vitale qui lui restait. Il utilisait l'aura de mort de la planète pour restaurer son Royaume des Flammes d'Encens. Le silence régnait et le ciel était obscur, mais soudain, le vieil homme leva la tête. Ses yeux s'ouvrirent brusquement et ses pupilles se rétractèrent.
 
 Simultanément, une lumière éclatante jaillit dans l'obscurité céleste. Tandis que cette clarté inondait la planète, un jeune homme vêtu de blanc en sortit.
 

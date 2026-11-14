@@ -64,7 +64,7 @@ L'ancêtre du Clan Huo Que fut le premier à s'extraire du combat contre Maître
 
 En s'élançant, sa marque de moineau de feu vacilla et jaillit, formant un gigantesque oiseau de feu noir. L'oiseau était immense et enveloppait le corps de l'ancêtre du Clan Huo Que.
 
-Une masse de Flammes Joss apparut au-dessus de l'oiseau, lui conférant une puissance redoutable. Il fendit les rangs des cultivateurs pour foncer vers Wang Lin!
+Une masse de Flammes d'Encens apparut au-dessus de l'oiseau, lui conférant une puissance redoutable. Il fendit les rangs des cultivateurs pour foncer vers Wang Lin!
 
 « Petit bâtard, et alors si tu as la Hache Brise-Ciel? Laisse ce vieil homme te montrer comment je vais t'exterminer! »
 

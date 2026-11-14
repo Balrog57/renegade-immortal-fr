@@ -38,7 +38,7 @@ Toutefois, la puissance de Tuo Sen était telle que même la Formation de Scelle
 
 Des grondements de tonnerre résonnèrent et trois des 20 feuilles s'effondrèrent instantanément! La main droite de Tuo Sen passa à travers l'ouverture créée par ces trois feuilles brisées et s'apprêtait à tout déchirer!
 
-Ling Dong serra les dents et chargea, faisant fi de ses blessures. Ses mains formèrent des sceaux et une mer pourpre monstrueuse jaillit, contenant d'innombrables âmes de Flammes Joss. Cette vague impétueuse se précipita vers l'avant!
+Ling Dong serra les dents et chargea, faisant fi de ses blessures. Ses mains formèrent des sceaux et une mer pourpre monstrueuse jaillit, contenant d'innombrables âmes de Flammes d'Encens. Cette vague impétueuse se précipita vers l'avant!
 
 Zhou Jin, du clan Feng Tian Lang, bondit également dans les airs et rugit en agitant la main: « Meute de loups, adorez la lune! »
 

@@ -22,7 +22,7 @@ Il avait déclenché de multiples guerres entre les Royaumes Intérieur et Exté
 
 Avant de rencontrer Wang Lin, il n'avait connu la détresse que trois fois dans sa vie. La première fut lorsque le Daoïste aux Sept Couleurs avait tenté de le contraindre à devenir son disciple. Toutefois, être forcé par le Daoïste aux Sept Couleurs prouvait qu'il possédait un immense talent.
 
-La deuxième fois fut lorsque le Vieux Fantôme Zhan s'était introduit dans le Royaume Extérieur pour dérober les Flammes Joss. Les deux combattirent et le Souverain perdit. Cette bataille lui avait gravé profondément le nom de « Vieux Fantôme Zhan » dans la mémoire!
+La deuxième fois fut lorsque le Vieux Fantôme Zhan s'était introduit dans le Royaume Extérieur pour dérober les Flammes d'Encens. Les deux combattirent et le Souverain perdit. Cette bataille lui avait gravé profondément le nom de « Vieux Fantôme Zhan » dans la mémoire!
 
 Quant à la troisième fois, c'était lorsque le Souverain s'était rendu dans le Royaume Intérieur pour chercher la Flèche Li Guang. Il avait été gravement blessé par un rugissement et fut contraint de battre en retraite.
 

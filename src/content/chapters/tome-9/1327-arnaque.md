@@ -16,7 +16,7 @@ Cette marque était composée de trois lignes émettant des lueurs rouge, jaune 
 
 Dans sa mémoire, elle était agenouillée au sol, choisie comme sainte du Clan He. Le jour de son intronisation, une main semblable à du jade apparut devant elle. La main était chaude et, lorsqu'elle toucha son front, elle effaça sa marque tribale.
 
-« À partir d'aujourd'hui, vous deviendrez l'un de mes avatars. Vous utiliserez votre corps pour nourrir ma projection afin de m'aider à guérir… Vous deviendrez également mon Disciple de la Flamme Joss… »
+« À partir d'aujourd'hui, vous deviendrez l'un de mes avatars. Vous utiliserez votre corps pour nourrir ma projection afin de m'aider à guérir… Vous deviendrez également mon Disciple de la Flamme d'Encens… »
 
 Ce souvenir traversa son esprit, mais le temps ne lui permit pas de trop réfléchir. À l'instant même où la marque apparut, l'aura blanche laiteuse forma un vortex. Ce vortex affronta le coup de poing de Wang Lin!
 
@@ -52,9 +52,9 @@ Wang Lin était revenu à son état normal, sa main droite serrant fermement la 
 
 N'ayant pas le temps de fouiller son âme, Wang Lin était réticent à l'abandonner. Alors que l'aura blanche laiteuse s'apprêtait à la réduire à néant, un éclair de lumière sanglante jaillit et l'épée de sang transperça la femme. Il détruisit son âme originelle avant que l'aura ne puisse le faire!
 
-C'était ainsi qu'il dérobait l'âme du cycle des réincarnations et volait les Flammes Joss de la Concubine Lan!
+C'était ainsi qu'il dérobait l'âme du cycle des réincarnations et volait les Flammes d'Encens de la Concubine Lan!
 
-Au moment où la femme en blanc trembla une dernière fois avant de mourir complètement, l'âme d'une femme apparut dans son Monde Hu Feng Huan Yu. Une puissante Flamme Joss émana de son âme et fut absorbée par Wang Lin!
+Au moment où la femme en blanc trembla une dernière fois avant de mourir complètement, l'âme d'une femme apparut dans son Monde Hu Feng Huan Yu. Une puissante Flamme d'Encens émana de son âme et fut absorbée par Wang Lin!
 
 Après la mort de la femme en blanc, sa chair fondit en une mare de sang. Cependant, un fil doré s'en échappa et fonça vers le vide!
 
@@ -98,11 +98,11 @@ Une pointe de douleur marqua son expression. Elle secoua la tête et se tourna v
 
 Cependant, au moment où elle allait pénétrer dans la fissure spatiale, elle s'arrêta. Une trace de clarté apparut dans ses yeux confus. Elle hésita un instant, puis se tourna vers Wang Lin.
 
-« Bien que je ne puisse pas me souvenir de beaucoup de choses, je sais vaguement certaines choses. Je vois que vous possédez des Flammes Joss dans votre corps… Je me souviens vaguement que la Flamme Joss est un poison… C'était une énorme… arnaque… J'ai l'impression d'avoir tout perdu à cause de cela… »
+« Bien que je ne puisse pas me souvenir de beaucoup de choses, je sais vaguement certaines choses. Je vois que vous possédez des Flammes d'Encens dans votre corps… Je me souviens vaguement que la Flamme d'Encens est un poison… C'était une énorme… arnaque… J'ai l'impression d'avoir tout perdu à cause de cela… »
 
 La fissure de l'espace de stockage se referma après que la femme en argent fut entrée.
 
-Pourtant, ses paroles déclenchèrent une onde de choc immense dans l'esprit de Wang Lin, et ses yeux brillèrent intensément. Du Seigneur du Royaume Scellé, du combat contre Shui Daozi, aux paroles de Lanmeng Daozun, il avait appris que les Flammes Joss étaient la clé pour atteindre la troisième étape et le moyen de nourrir ses essences!
+Pourtant, ses paroles déclenchèrent une onde de choc immense dans l'esprit de Wang Lin, et ses yeux brillèrent intensément. Du Seigneur du Royaume Scellé, du combat contre Shui Daozi, aux paroles de Lanmeng Daozun, il avait appris que les Flammes d'Encens étaient la clé pour atteindre la troisième étape et le moyen de nourrir ses essences!
 
 Il était lui-même parvenu à cette conclusion, mais à présent, les paroles de la femme argentée disaient exactement le contraire!
 
@@ -116,6 +116,6 @@ Après avoir réfléchi un instant, Wang Lin fusionna avec le monde.
 
 « D'après les souvenirs des cultivateurs du Royaume Extérieur que j'ai dévorés, le Clan Shan Lei ne possède pas de cultivateur de la troisième étape… Il existe un éclair qui semble exister depuis la création du ciel et de la terre. Cet éclair ne s'éteint pas depuis cent millions d'années, traversant sans cesse le ciel et la terre, et c'est l'objet sacré du clan! C'est aussi la source qui permet au clan de contrôler le tonnerre! »
 
-« Si je dévore ce tonnerre, cela permettra à mon essence de tonnerre de croître… Quant aux Flammes Joss… Au final, laquelle de ces versions dit la vérité? » Wang Lin utilisa la Déformation Spatiale pour apparaître dans un domaine stellaire étranger. Un éclat de froideur passa dans ses yeux.
+« Si je dévore ce tonnerre, cela permettra à mon essence de tonnerre de croître… Quant aux Flammes d'Encens… Au final, laquelle de ces versions dit la vérité? » Wang Lin utilisa la Déformation Spatiale pour apparaître dans un domaine stellaire étranger. Un éclat de froideur passa dans ses yeux.
 
-« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes Joss dans ma culture. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes Joss! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan Shan Lei.
+« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes d'Encens dans ma culture. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes d'Encens! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan Shan Lei.

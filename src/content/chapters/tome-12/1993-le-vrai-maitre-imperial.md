@@ -74,7 +74,7 @@ Ses yeux se mirent soudainement à briller d'une lumière vive et, inconsciemmen
 
 « Tous les défunts, par le souvenir des vivants, voient naître du néant des pensées: c'est le deuil... »
 
-« Le Clan Dao Wang prend les pensées des vivants, l'existence des morts, le soutien de la quête spirituelle et la force de cette vie et de la suivante pour condenser les Flammes Joss. Par cela... nous transformons le deuil en mort afin que ceux qui existent puissent continuer d'exister, et que les morts... retournent au néant! » murmura Hai Zi en pointant la tête. Toute la lumière dorée se rétracta brusquement vers la tête de l'Ancêtre Céleste.
+« Le Clan Dao Wang prend les pensées des vivants, l'existence des morts, le soutien de la quête spirituelle et la force de cette vie et de la suivante pour condenser les Flammes d'Encens. Par cela... nous transformons le deuil en mort afin que ceux qui existent puissent continuer d'exister, et que les morts... retournent au néant! » murmura Hai Zi en pointant la tête. Toute la lumière dorée se rétracta brusquement vers la tête de l'Ancêtre Céleste.
 
 Lorsque la lumière se dissipa, la tête de l'Ancêtre Céleste fut mise à nu!
 

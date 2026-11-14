@@ -68,7 +68,7 @@ Le regard de ce vieil homme était semblable à la foudre et empreint d'une inte
 
 Sur ce geste, le monde changea de teinte et une bourrasque hurla à travers l'univers. Une ligne grise apparut avant de se muer en un dragon gris. Fier et sauvage, il chargea Wang Lin à une vitesse inimaginable.
 
-Plus stupéfiant encore, ce dragon contenait des Flammes Joss chaotiques. À mesure que les flammes se condensaient, le dragon gris laissait échapper des rugissements terrifiants et stridents.
+Plus stupéfiant encore, ce dragon contenait des Flammes d'Encens chaotiques. À mesure que les flammes se condensaient, le dragon gris laissait échapper des rugissements terrifiants et stridents.
 
 Les yeux de Wang Lin s'illuminèrent et son expression devint extrêmement sérieuse. À cet instant, il ne considérait plus sa propre vie ou sa mort. Cette fois, qu'il survive ou qu'il meure, il devait franchir cette épreuve!
 

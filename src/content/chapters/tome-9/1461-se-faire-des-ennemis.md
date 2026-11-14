@@ -14,7 +14,7 @@ Cependant, à cet instant précis, une flamme aux neuf couleurs brûla d'un écl
 
 « Puisque nos chemins se croisent ici, il est temps que tu meures. Je ne pensais pas que tu serais la cinquième personne à obtenir une plateforme de rang 5. Après t'avoir tué, ma plateforme pourra atteindre le rang 6! »
 
-« Si tu veux blâmer quelqu'un, blâme ta propre malchance d'être tombé sur moi alors que tu cherchais des trésors en cachette ici! » L'homme corpulent sourit et agita sa main gauche. Les Flammes Joss apparurent et formèrent un autre loup de 10 000 pieds qui se jeta sur l'épée de sang.
+« Si tu veux blâmer quelqu'un, blâme ta propre malchance d'être tombé sur moi alors que tu cherchais des trésors en cachette ici! » L'homme corpulent sourit et agita sa main gauche. Les Flammes d'Encens apparurent et formèrent un autre loup de 10 000 pieds qui se jeta sur l'épée de sang.
 
 L'homme corpulent fit un pas en avant et se déplaça comme l'éclair, traversant la restriction de Wang Lin pour foncer sur lui. Ses yeux étaient fixés sur les 18 Anciennes Feuilles devant Wang Lin, et une lueur de cupidité s'y reflétait.
 
@@ -26,9 +26,9 @@ L'homme corpulent fit un pas en avant et se déplaça comme l'éclair, traversan
 
 Cependant, à cet instant précis, une puissante force de rebond jaillit de l'endroit où la main de l'homme avait frappé. Cette force pénétra son corps, faisant changer son expression. Il cracha du sang et s'apprêta à reculer.
 
-Un rire s'échappa du Fourneau Impérial. L'Estimé Ling Dong, les coins de la bouche tachés de sang, surgit de l'océan pourpre contenu dans le fourneau. Debout au sommet d'une vague de cet océan pourpre, une intention meurtrière remplissant son regard, il fonça vers l'homme corpulent. Les Flammes Joss infinies enveloppaient son corps, créant des échos murmurants.
+Un rire s'échappa du Fourneau Impérial. L'Estimé Ling Dong, les coins de la bouche tachés de sang, surgit de l'océan pourpre contenu dans le fourneau. Debout au sommet d'une vague de cet océan pourpre, une intention meurtrière remplissant son regard, il fonça vers l'homme corpulent. Les Flammes d'Encens infinies enveloppaient son corps, créant des échos murmurants.
 
-« Ling Dong!! » Les pupilles de l'homme corpulent se rétractèrent; il sentit que quelque chose clochait. L'apparition de Ling Dong avait bouleversé ses calculs contre Wang Lin. Il fut stupéfait par les Flammes Joss entourant Ling Dong, ne comprenant pas pourquoi ce dernier aidait Wang Lin!
+« Ling Dong!! » Les pupilles de l'homme corpulent se rétractèrent; il sentit que quelque chose clochait. L'apparition de Ling Dong avait bouleversé ses calculs contre Wang Lin. Il fut stupéfait par les Flammes d'Encens entourant Ling Dong, ne comprenant pas pourquoi ce dernier aidait Wang Lin!
 
 « Zhou Jin! » L'Estimé Ling Dong se précipita et rejoignit l'homme corpulent en un éclair. L'océan pourpre rugit et se métamorphosa en une statue noire gigantesque aux bras croisés sur la poitrine. Au grondement de Ling Dong, les bras s'écartèrent et une force destructrice colossale fut projetée vers l'homme corpulent!
 
@@ -38,7 +38,7 @@ Ces yeux étaient impitoyables et un hurlement de loup résonna. Une ombre rouge
 
 Le cœur de l'homme corpulent battait la chamade; il pressentait le danger. Wang Lin n'était déjà plus faible et se montrait extrêmement rusé. Désormais, Ling Dong avait lui aussi franchi le dernier pas vers le troisième stade. L'homme corpulent n'hésita pas à renoncer à sa dignité de cultivateur du troisième stade: dès que le loup rouge jaillit, il battit en retraite avec anxiété.
 
-« Je ne peux pas laisser ce combat continuer, c'est impossible! Lorsque cet Estimé Ling Dong était au cinquième niveau de la Calamité Céleste, je n'étais encore qu'un junior. S'il n'avait pas été aussi obstiné et incapable d'obtenir suffisamment de Flammes Joss, il serait devenu un cultivateur du troisième stade depuis longtemps! »
+« Je ne peux pas laisser ce combat continuer, c'est impossible! Lorsque cet Estimé Ling Dong était au cinquième niveau de la Calamité Céleste, je n'étais encore qu'un junior. S'il n'avait pas été aussi obstiné et incapable d'obtenir suffisamment de Flammes d'Encens, il serait devenu un cultivateur du troisième stade depuis longtemps! »
 
 Wang Lin se tenait toujours au sommet du crâne du Dieu Ancien. Il n'avait pas bougé d'un pouce et son expression était restée presque immuable. Il avait tout observé, de l'arrivée arrogante de l'homme corpulent du Clan Feng Tian Lang jusqu'à sa retraite dans la stupeur.
 
@@ -58,7 +58,7 @@ Dès que l'homme s'élança vers la droite, Wang Lin ricana. D'un geste, il envo
 
 Wang Lin fit un pas en avant et agita sa main droite. Les Anciennes Feuilles restantes foncèrent toutes sur l'homme corpulent du Clan Feng Tian Lang. L'Estimé Ling Dong sortit de l'impact et chargea l'adversaire.
 
-Tandis que les échos de tonnerre résonnaient, toutes les voies de fuite de l'homme corpulent furent obstruées. En cette situation critique, ses mains formèrent un sceau et une immense quantité d'âmes de Flammes Joss apparut. L'espace se distordit et d'innombrables épines jaillirent des bras de l'homme, semblables à des crocs de loup.
+Tandis que les échos de tonnerre résonnaient, toutes les voies de fuite de l'homme corpulent furent obstruées. En cette situation critique, ses mains formèrent un sceau et une immense quantité d'âmes de Flammes d'Encens apparut. L'espace se distordit et d'innombrables épines jaillirent des bras de l'homme, semblables à des crocs de loup.
 
 « Meute de loups, adorez la lune! » rugit l'homme corpulent, puis il balaya l'air de ses deux bras pour que les crocs s'en détachent. Ces dents se transformèrent toutes en loups féroces. Ils étaient si nombreux qu'ils remplirent instantanément le monde, par centaines de milliers. Juste au moment où ils s'apprêtaient à hurler, le ciel s'obscurcit et une lune de sang apparut.
 

@@ -14,11 +14,11 @@ Wang Lin secoua la tête. Son regard était d'un calme absolu. Le Shui Daozi ét
 
 Un coup de poing d'une simplicité extrême, mais empreint d'une puissante assurance. Cette confiance émanait de son coup et donnait à Wang Lin l'apparence d'un dieu contrôlant la vie et la mort!
 
-Le coup partit et percuta la lance de flammes Joss du Shui Daozi. Le monde changea de couleur et la pointe de la lance commença à se fissurer. D'innombrables fragments minuscules se détachèrent tandis que le corps de l'arme tremblait violemment!
+Le coup partit et percuta la lance de flammes d'encens du Shui Daozi. Le monde changea de couleur et la pointe de la lance commença à se fissurer. D'innombrables fragments minuscules se détachèrent tandis que le corps de l'arme tremblait violemment!
 
 Rien ne put l'arrêter, tel un bambou qui se fend!
 
-La lance entière vola en éclats, déclenchant une vague de hurlements déchirants. Un grand nombre des âmes de flammes Joss périrent misérablement sous la force de ce coup. Du sang jaillit de la bouche du Shui Daozi et il fut projeté en arrière, sous le choc. Chaque pas qu'il faisait pour reculer faisait tonner le ciel.
+La lance entière vola en éclats, déclenchant une vague de hurlements déchirants. Un grand nombre des âmes de flammes d'encens périrent misérablement sous la force de ce coup. Du sang jaillit de la bouche du Shui Daozi et il fut projeté en arrière, sous le choc. Chaque pas qu'il faisait pour reculer faisait tonner le ciel.
 
 Le Shui Daozi fut instantanément repoussé de neuf pas et cracha neuf bouffées de sang. Une force brutale s'engouffra dans son corps et des bruits de craquements résonnèrent alors qu'une destruction déchaînée commençait à ravager son organisme!
 
@@ -36,13 +36,13 @@ De l'autre côté, le vieil homme en noir qui combattait l'Estimé Ling Dong fut
 
 « Qui est cet homme pour avoir des cultivateurs du troisième pas comme esclaves?! Comment ai-je pu offenser une telle personne? Tout est la faute de ce Shui Daozi!! »
 
-Il y avait aussi l'homme d'âge moyen qui luttait contre Zhou Jin; il était terrifié. Zhou Jin était tout aussi puissant que lui, mais possédait bien plus de flammes Joss. En conséquence, il n'était pas de taille et fut contraint de battre en retraite, devant même utiliser des trésors pour résister.
+Il y avait aussi l'homme d'âge moyen qui luttait contre Zhou Jin; il était terrifié. Zhou Jin était tout aussi puissant que lui, mais possédait bien plus de flammes d'encens. En conséquence, il n'était pas de taille et fut contraint de battre en retraite, devant même utiliser des trésors pour résister.
 
 « Ce n'est pas rentable, pas rentable du tout! Offenser un homme qui tient des cultivateurs du troisième pas en esclavage, tout cela pour le sort d'arrêt de l'esprit... Moi, Yun Fengzi, je suis perdant dans cette affaire! »
 
 Une lueur d'intention meurtrière traversa le regard calme de Wang Lin. Il s'avança vers le Shui Daozi, prêt à asséner son second coup!
 
-À cet instant précis, le Shui Daozi essuya le sang au coin de sa bouche et renonça à utiliser le Maître de la Secte Po Mie pour détruire le Dao Cœur de Wang Lin. Le Saint Démon de la Secte Gui ne semblait pas non plus se soucier de ses centaines de millions de disciples et de leurs flammes Joss et ne montrait aucun signe d'intervention. Le Shui Daozi leva les yeux et rugit:
+À cet instant précis, le Shui Daozi essuya le sang au coin de sa bouche et renonça à utiliser le Maître de la Secte Po Mie pour détruire le Dao Cœur de Wang Lin. Le Saint Démon de la Secte Gui ne semblait pas non plus se soucier de ses centaines de millions de disciples et de leurs flammes d'encens et ne montrait aucun signe d'intervention. Le Shui Daozi leva les yeux et rugit:
 
 « Tai Aluo!! »
 

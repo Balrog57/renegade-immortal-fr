@@ -102,7 +102,7 @@ Quant à Wang Lin, ils voulaient le sauver, mais il se trouvait précisément l�
 
 L'Estimé Ling Dong et Zhou Jin durent également battre en retraite face à l'éruption de la tempête dorée!
 
-Alors que la tempête se propageait, la Formation de Scellement du Royaume s'effondra à grande échelle. Le jade se dissipa rapidement, se répandant dans toute la formation. Lorsque le jade disparut, le seigneur du Palais Tian Fa fut libéré. Cependant, sitôt libre, il fut dévoré par la tempête dorée. Il n'eut même pas le temps de crier que son âme originelle, les Flammes Joss, et tout ce qui l'entourait disparurent.
+Alors que la tempête se propageait, la Formation de Scellement du Royaume s'effondra à grande échelle. Le jade se dissipa rapidement, se répandant dans toute la formation. Lorsque le jade disparut, le seigneur du Palais Tian Fa fut libéré. Cependant, sitôt libre, il fut dévoré par la tempête dorée. Il n'eut même pas le temps de crier que son âme originelle, les Flammes d'Encens, et tout ce qui l'entourait disparurent.
 
 Le système stellaire extérieur à la Formation de Scellement du Royaume fut également frappé par la tempête, provoquant un effondrement généralisé. Après un long moment, un rugissement monstrueux retentit et tout le champ de bataille fut enveloppé par la tempête dorée, prenant la Formation de Scellement du Royaume pour épicentre.
 

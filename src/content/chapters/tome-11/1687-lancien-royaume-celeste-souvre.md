@@ -105,8 +105,8 @@ Pourtant, comparé à eux, Qing Lin était le plus exalté. Il fit un pas en ava
 
 Cependant, son existence et ses paroles ne captèrent l'attention d'aucun de ces anciens célestes. Les célestes rirent sauvagement et passèrent directement devant eux, filant vers le nouveau Royaume Céleste!
 
-« Ce céleste n'a pas dévoré de Flammes Joss depuis longtemps. Bien que les Flammes Joss ici ne soient pas puissantes, elles apaiseront un peu le manque de plusieurs éternités! »
-« Des Flammes Joss... cet endroit possède l'aura des Flammes Joss! »
-« Haha, je ne m'attendais pas à ce que des Flammes Joss nous attendent à notre réveil. Disciple du Seigneur du Royaume Scellé, tu es très doué! »
+« Ce céleste n'a pas dévoré de Flammes d'Encens depuis longtemps. Bien que les Flammes d'Encens ici ne soient pas puissantes, elles apaiseront un peu le manque de plusieurs éternités! »
+« Des Flammes d'Encens... cet endroit possède l'aura des Flammes d'Encens! »
+« Haha, je ne m'attendais pas à ce que des Flammes d'Encens nous attendent à notre réveil. Disciple du Seigneur du Royaume Scellé, tu es très doué! »
 
 Ces célestes se précipitèrent vers le nouveau Royaume Céleste. En voyant cela, l'esprit de Qing Lin et de ses compagnons trembla de stupeur!

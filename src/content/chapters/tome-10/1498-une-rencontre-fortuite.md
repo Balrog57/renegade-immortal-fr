@@ -30,7 +30,7 @@ Maître Lu Fu joignit les mains devant l'estimé Ling Dong. Bien que Ling Dong f
 
 À ces mots, Maître Lu Fu prit une profonde inspiration. En voyant le loup sanguinaire derrière Zhou Jin, ses soupçons se confirmèrent. Il avait entendu dire qu'il existait un clan dans le Royaume Extérieur qui servait le Loup Céleste! C'était la continuation de ce clan depuis les temps anciens.
 
-Les membres de ce clan étaient liés au loup et, grâce à leur longue lignée, ils possédaient de riches Flammes Joss, permettant ainsi l'apparition de cultivateurs du troisième niveau! En entendant le nom de Zhou Jin, Maître Lu Fu fut certain de son identité!
+Les membres de ce clan étaient liés au loup et, grâce à leur longue lignée, ils possédaient de riches Flammes d'Encens, permettant ainsi l'apparition de cultivateurs du troisième niveau! En entendant le nom de Zhou Jin, Maître Lu Fu fut certain de son identité!
 
 « Ce Wang Lin est réellement allé dans le Royaume Extérieur! Il a réduit deux ancêtres en esclavage. Ceci... » Maître Lu Fu regarda Wang Lin et son regard changea. Lui-même était un cultivateur du troisième niveau et savait à quel point il était difficile de soumettre quelqu'un de sa trempe!
 

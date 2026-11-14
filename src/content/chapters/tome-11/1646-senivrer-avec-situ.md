@@ -120,6 +120,6 @@ Wang Lin resta silencieux, le regard complexe. Il vida la cruche et la jeta sur 
 
 « Si je te disais que les voies de culture que nous pratiquons ont toutes été dictées par d'autres... le croirais-tu? »
 
-« Si je te disais que le monde dans lequel nous vivons n'est qu'une grotte, la grotte d'un ancien souverain céleste, ou un royaume qu'il a ouvert pour collecter les Flammes Joss... le croirais-tu? »
+« Si je te disais que le monde dans lequel nous vivons n'est qu'une grotte, la grotte d'un ancien souverain céleste, ou un royaume qu'il a ouvert pour collecter les Flammes d'Encens... le croirais-tu? »
 
 « De quoi parles-tu?! » Situ Nan lâcha inconsciemment sa cruche qui s'écrasa au sol.

@@ -44,9 +44,9 @@ Le grand palais noir s'approcha lentement, propageant une pression de plus en pl
 
 C'était une épée, une lame faite de lumière cristalline!
 
-L'épée mesurait sept pieds de long pour trois pouces de large, et sa lame était d'une clarté limpide. D'un seul coup d'œil, elle était éblouissante et contenait d'infinies Flammes Joss. Elle faisait distordre l'espace environnant.
+L'épée mesurait sept pieds de long pour trois pouces de large, et sa lame était d'une clarté limpide. D'un seul coup d'œil, elle était éblouissante et contenait d'infinies Flammes d'Encens. Elle faisait distordre l'espace environnant.
 
-On pouvait clairement voir de nombreux royaumes de Flammes Joss à l'intérieur de cette distorsion, où résidaient d'innombrables Âmes de Flammes Joss. Elles y siégeaient, offrant leurs flammes sacrées.
+On pouvait clairement voir de nombreux royaumes de Flammes d'Encens à l'intérieur de cette distorsion, où résidaient d'innombrables Âmes de Flammes d'Encens. Elles y siégeaient, offrant leurs flammes sacrées.
 
 Dans l'Ancien Système Stellaire, il existait un monde qui n'aurait pas dû exister, niché au sein d'une faille spatiale qui avait été ouverte.
 
@@ -76,7 +76,7 @@ Après un long moment, il laissa échapper un soupir et agita sa main droite. La
 
 À l'extérieur de la Formation de Scellement du Royaume, le ciel et la terre grondèrent devant le palais noir. Neuf pétales apparurent aux côtés de l'épée de cristal, formant une tempête monstrueuse!
 
-Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang de Lanmeng Daozun, de sa culture et liée à son esprit, contenait de puissantes Flammes Joss.
+Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang de Lanmeng Daozun, de sa culture et liée à son esprit, contenait de puissantes Flammes d'Encens.
 
 Dans la partie extrême occidentale de l'Ancien Système Stellaire, le monde revêtait une teinte blanchâtre. Tout cultivateur s'y aventurant ressentait un froid glacial envahir son esprit. Même en activant leur culture, ils risquaient d'être gelés!
 

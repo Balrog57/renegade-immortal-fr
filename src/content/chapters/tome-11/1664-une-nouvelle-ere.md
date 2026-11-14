@@ -108,7 +108,7 @@ En cet instant, Luotian et la Mer Yun étaient enfin libres!
 
 Après des centaines de millions d'années, la barrière entre le Royaume Intérieur et le Royaume Extérieur avait disparu; ils ne faisaient plus qu'un! La Formation de Scellement du Royaume, qui semblait avoir toujours existé et qui était transmise de génération en génération, s'était effondrée et avait disparu!
 
-Sans la Formation de Scellement du Royaume, la force mystérieuse qui empêchait le Royaume Intérieur de rassembler les Flammes Joss s'était évanouie. À Luotian, tous les grands puissants affichèrent des visages empreints d'excitation. Même Qing Lin ne fit pas exception.
+Sans la Formation de Scellement du Royaume, la force mystérieuse qui empêchait le Royaume Intérieur de rassembler les Flammes d'Encens s'était évanouie. À Luotian, tous les grands puissants affichèrent des visages empreints d'excitation. Même Qing Lin ne fit pas exception.
 
 Wang Lin avait détruit la Formation de Scellement du Royaume!
 

@@ -20,7 +20,7 @@ Qing Lin était stupéfait, et sa lutte intérieure fut la plus violente. Pourta
 
 Des grondements tonnerreux résonnèrent et une tempête dorée, imprégnée de la puissance de la lignée céleste, s'abattit sur eux. Tandis que la tempête grondait, Qing Lin, Maître Hong Shan et Maître Nan Yunzi tremblèrent de tout leur corps.
 
-« Quelle audace. Vous osez nous empêcher, nous les Célestes, d'absorber les Flammes Joss? » ricana l'un d'eux. Ses paroles étaient empreintes d'une arrogance infinie et d'un sentiment de supériorité absolue!
+« Quelle audace. Vous osez nous empêcher, nous les Célestes, d'absorber les Flammes d'Encens? » ricana l'un d'eux. Ses paroles étaient empreintes d'une arrogance infinie et d'un sentiment de supériorité absolue!
 
 Cette tempête dorée, chargée de la force de la lignée céleste, produisait une suppression qui agissait comme l'ennemi naturel des habitants du Royaume Intérieur. Sous ce poids, Qing Lin, Maître Hong Shan et Maître Nan Yunzi reculèrent, sous le choc.
 
@@ -30,7 +30,7 @@ Il était néanmoins un peu trop lent. Une douzaine de Célestes sortis en premi
 
 Quelques-uns libérèrent immédiatement leur suppression de lignée pour que les cultivateurs en bas n'osent plus bouger. Puis, certains d'entre eux descendirent. L'un d'eux saisit une cultivatrice de Zhao He et s'apprêta à l'aspirer.
 
-Une fois qu'il l'aurait inhalée, il pourrait transformer cette femme en Flammes Joss pour les absorber.
+Une fois qu'il l'aurait inhalée, il pourrait transformer cette femme en Flammes d'Encens pour les absorber.
 
 Cependant, à ce moment précis, un ancien Céleste déploya son Sens Divin tout en riant sauvagement. Mais alors que son Sens Divin se répandait, son rire s'interrompit brusquement et ses yeux s'écarquillèrent. Une panique inimaginable envahit son visage et il poussa un cri strident!
 
@@ -102,7 +102,7 @@ Ils ne reconnurent pas Wang Lin. Bien que sa culture fût profonde, ils ne le co
 
 Les Célestes dorés s'élancèrent en rugissant. L'un d'eux afficha une expression cruelle en chargeant Wang Lin. Il était extrêmement rapide et, lorsqu'il fut à sa hauteur, il leva la main droite avec un sourire narquois.
 
-« Espèce de misérable cultivateur, tu as la malchance de te trouver devant notre porte. Ce Céleste va t'absorber pour faire de toi des Flammes Joss! »
+« Espèce de misérable cultivateur, tu as la malchance de te trouver devant notre porte. Ce Céleste va t'absorber pour faire de toi des Flammes d'Encens! »
 
 « Simple cultivateur du Continent Xian Gang, vulgaire disciple de la Secte Qi Dao, oses-tu te prétendre un Céleste?! » Wang Lin ouvrit les yeux et une lumière dorée en jaillit.
 

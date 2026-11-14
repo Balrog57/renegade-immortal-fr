@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1561 - Emotional Injury, Gifted Treasure!"
 slug: blessure-emotionnelle-tresor-exceptionnel
 ---
-« Atteindre la troisième étape avec l'essence de massacre ne nécessite pas l'aide des Flammes Joss. L'essence de massacre à l'intérieur de Qing Shui a été implantée par la figure aux sept couleurs, mais elle n'a pas été retirée. Au contraire, la majeure partie est restée en lui; ainsi, lorsque le sceau a été levé, cela a déclenché la Porte Kong! » Wang Lin analysa immédiatement la situation.
+« Atteindre la troisième étape avec l'essence de massacre ne nécessite pas l'aide des Flammes d'Encens. L'essence de massacre à l'intérieur de Qing Shui a été implantée par la figure aux sept couleurs, mais elle n'a pas été retirée. Au contraire, la majeure partie est restée en lui; ainsi, lorsque le sceau a été levé, cela a déclenché la Porte Kong! » Wang Lin analysa immédiatement la situation.
 
 « Cependant, pourquoi la figure aux sept couleurs n'a-t-elle pas pris l'essence de massacre... Quel est son dessein? Ne cherchait-il pas l'essence de massacre comme je le pensais... Si ce n'est pas pour cela, à quoi bon a-t-il fait cela... »
 

@@ -62,9 +62,9 @@ Au sein de ces visions, on voyait une femme agenouillée au sol, tandis qu'une m
 
 Il ne fallut qu'un instant pour que ces images tourmentées s'effondrent, laissant émaner de sa tête une riche aura laiteuse. Cette aura était presque solide et révélait une ténue ligne dorée!
 
-Wang Lin connaissait bien cette lueur blanche laiteuse: c'était la Flamme Joss!
+Wang Lin connaissait bien cette lueur blanche laiteuse: c'était la Flamme d'Encens!
 
-Cependant, la Flamme Joss de cette femme était d'une richesse extrême, ce qui surprit Wang Lin. Sa seule flamme suffisait à égaler près de 30 % des Flammes Joss présentes dans le Monde Hu Feng Huan Yu!
+Cependant, la Flamme d'Encens de cette femme était d'une richesse extrême, ce qui surprit Wang Lin. Sa seule flamme suffisait à égaler près de 30 % des Flammes d'Encens présentes dans le Monde Hu Feng Huan Yu!
 
 Alors que l'aura laiteuse enveloppait son corps, le sang cessa de couler de sa blessure. Une fois l'hémorragie stoppée, elle recula avec anxiété. Protégée par cette aura, elle ignora l'énergie originelle déformée et fusionna à nouveau avec le monde!
 

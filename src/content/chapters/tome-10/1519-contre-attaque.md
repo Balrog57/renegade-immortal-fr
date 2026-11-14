@@ -118,7 +118,7 @@ Lui seul suffisait à tuer Wang Lin! Sans parler du fait qu'il possédait des so
 
 L'ancêtre du Clan Huo Que, porté par une intention meurtrière, agita sa main droite. La marque du moineau de feu entre ses sourcils étincela et un géant oiseau de feu noir jaillit. Il contenait une trace de Feu Éthéré en chargeant!
 
-Cet oiseau de feu renfermait d'innombrables Flammes Joss et dégageait une aura d'une chaleur extrême. L'espace lui-même semblait être calciné par lui. L'oiseau se rapprocha instantanément de Wang Lin!
+Cet oiseau de feu renfermait d'innombrables Flammes d'Encens et dégageait une aura d'une chaleur extrême. L'espace lui-même semblait être calciné par lui. L'oiseau se rapprocha instantanément de Wang Lin!
 
 Les yeux de Nanzhao Shangren s'illuminèrent. Sans utiliser de sort, il leva simplement sa main droite. Sa main pâle devint instantanément noire, imprégnée d'un poison inimaginable. Affichant un sourire cruel, il fit un pas en avant et franchit une vaste distance. Il traversa l'oiseau de feu et abattit sa main droite vers Wang Lin!!
 
