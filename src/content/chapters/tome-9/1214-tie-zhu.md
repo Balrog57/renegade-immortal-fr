@@ -10,17 +10,17 @@ La lumière jaune semblait être un appel vers les origines. Quiconque était en
 
 Les sorts contrôlaient le pouvoir du monde et se manifestaient de manière singulière. Leur puissance était liée au niveau de culture de chacun et à la technique employée. Les capacités étaient une méthode pour augmenter de façon explosive la puissance des sorts, un moyen de rassembler et de manipuler l'énergie originelle.
 
-Cependant, le Dao était différent. Il était très rare que quelqu'un maîtrise un sort Dao. La rumeur prétendait que seuls ceux qui atteignaient le Royaume du Dao pouvaient en obtenir un. Les sorts Dao étaient similaires aux batailles de domaines, mais leur essence différait grandement.
+Cependant, le Dao était différent. Il était très rare que quelqu'un maîtrise un sort Dao. La rumeur prétendait que seuls ceux qui atteignaient le Royaume Dao pouvaient en obtenir un. Les sorts Dao étaient similaires aux batailles de domaines, mais leur essence différait grandement.
 
 Une bataille de domaines était une confrontation entre les domaines respectifs et une lutte de l'esprit. En revanche, un sort Dao était un pouvoir sublime spécialisé dans la destruction de l'âme!
 
-Chacun acquiert une compréhension différente au sein du Royaume du Dao. Lorsque le vieil homme aux cheveux blancs devint membre du Clan Feng Mie, il eut le privilège d'entrer brièvement dans le Royaume du Dao. Là, il comprit une vérité sur les origines d'un être.
+Chacun acquiert une compréhension différente au sein du Royaume Dao. Lorsque le vieil homme aux cheveux blancs devint membre du Clan Feng Mie, il eut le privilège d'entrer brièvement dans le Royaume Dao. Là, il comprit une vérité sur les origines d'un être.
 
 Quelle était l'origine d'une personne? À ses yeux, c'étaient les souvenirs de l'âme. Il croyait que la vie entière d'un individu n'était en réalité qu'une succession de souvenirs. Si ces souvenirs n'étaient pas éteints, alors même si cette personne mourait, elle pourrait vivre indéfiniment...
 
 De la même manière, si tous les souvenirs liés à la compréhension du domaine d'une personne étaient effacés sans laisser de trace, comme s'ils n'avaient jamais existé, ses souvenirs en seraient incomplets. Ces souvenirs lacunaires feraient chuter cette personne et la réduiraient à l'état de mortel!
 
-À cet instant précis, le vieil homme aux cheveux blancs utilisa le rare sort Dao qu'il avait compris dans le Royaume du Dao! Le Royaume Ji représentait une force extrême, le Royaume Shi représentait la créativité, et le Royaume Dao représentait une puissance inextinguible!
+À cet instant précis, le vieil homme aux cheveux blancs utilisa le rare sort Dao qu'il avait compris dans le Royaume Dao! Le Royaume Ji représentait une force extrême, le Royaume Shi représentait la créativité, et le Royaume Dao représentait une puissance inextinguible!
 
 La lumière jaune envahit le monde. Cette lueur était douce, mais elle pouvait tout pénétrer en ce monde. Lorsqu'elle tomba sur Wang Lin, elle perça le domaine de bataille qui l'entourait pour s'ancrer directement dans les souvenirs de son âme.
 

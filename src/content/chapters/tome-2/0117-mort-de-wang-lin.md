@@ -42,7 +42,7 @@ Tout ce qui se trouvait dans ce périmètre fut transformé en un océan de glac
 
 Lin Yi plissa les yeux et pensa: « Intéressant, ce petit est intéressant. Non seulement il possède la Métamorphose des Mille Illusions de la Cité Huan, mais aussi la Glace Bleue de la Secte Huang Quan. Cette épée volante n'est pas ordinaire non plus. Bien qu'il s'agisse d'une imitation, elle demeure puissante. »
 
-Le géant dans le ciel fut également surpris; il jeta un regard lourd de sens vers le passage de la Vallée de Jue Ming et laissa échapper un sourire étrange.
+Le géant dans le ciel fut également surpris; il jeta un regard lourd de sens vers le passage de la Vallée Jue Ming et laissa échapper un sourire étrange.
 
 Dans le ciel, le voile formant le cercle des deux dragons noirs avait presque totalement fondu. Il était sur le point de s'ouvrir.
 
@@ -50,7 +50,7 @@ Les huit piliers de sang entourant Teng Huayuan craquèrent sous l'effet du gel 
 
 Au même moment, des vagues de glace bleue grimpèrent rapidement le long des jambes de Teng Huayuan. Il sentit un froid glacial envahir son corps, le rendant raide. Cependant, il ne paniqua pas; une telle température ne pouvait l'atteindre sérieusement. Il fit circuler son énergie spirituelle pour rétablir sa condition.
 
-Simultanément, Wang Lin, qui se trouvait à l'entrée de la Vallée de Jue Ming, utilisa soudainement l'une de ses deux dernières téléportations.
+Simultanément, Wang Lin, qui se trouvait à l'entrée de la Vallée Jue Ming, utilisa soudainement l'une de ses deux dernières téléportations.
 
 Il apparut au moment même où la lumière cyan se répandait. Grâce à sa résistance naturelle au froid, il ne fut pas affecté et se tint silencieusement aux côtés de Teng Huayuan.
 
@@ -118,7 +118,7 @@ Alors que les 30 000 âmes le ravageaient, son corps se désintégrait lentement
 
 Wang Lin laissa échapper un rire de désespoir. Il ne sentait plus la douleur physique. Profitant d'un dernier souffle, il utilisa sa technique d'attraction pour envelopper la glace contenant les âmes de ses parents et les ramener contre sa poitrine. C'était tout ce qu'il pouvait faire. Même face à la mort, il voulait rester auprès d'eux.
 
-Il ne regrettait pas d'être sorti de la Vallée de Jue Ming. Il savait que s'il s'était caché, il n'aurait fait que retarder l'inévitable, mais même un infime espoir valait la peine d'être poursuivi. En sortant, il avait acquis une chance, aussi ténue fût-elle, de récupérer les âmes de ses parents. S'il était resté à l'intérieur, il n'aurait même pas eu cette possibilité.
+Il ne regrettait pas d'être sorti de la Vallée Jue Ming. Il savait que s'il s'était caché, il n'aurait fait que retarder l'inévitable, mais même un infime espoir valait la peine d'être poursuivi. En sortant, il avait acquis une chance, aussi ténue fût-elle, de récupérer les âmes de ses parents. S'il était resté à l'intérieur, il n'aurait même pas eu cette possibilité.
 
 Son corps était prisonnier de cette cage de sang. Il avait tenté la téléportation, en vain. À présent, seule la haine habitait son cœur.
 

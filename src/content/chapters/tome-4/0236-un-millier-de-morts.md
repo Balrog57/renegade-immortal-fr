@@ -152,7 +152,7 @@ L'autre hocha la tête en riant. « C'est vrai. Le niveau de culture de cet indi
 
 « Vraiment? Senior frère, je pensais être le seul à le penser, mais nous avons forcément déjà rencontré cet homme! »
 
-Les deux réfléchirent longuement, sans pour autant parvenir à s'en souvenir. Ils avaient déjà oublié le jeune homme dont le corps avait été détruit lors d'un combat contre Teng Huayuan, à l'extérieur de la Vallée de Jue Ming, alors qu'il n'était qu'au stade de l'Établissement des Fondations.
+Les deux réfléchirent longuement, sans pour autant parvenir à s'en souvenir. Ils avaient déjà oublié le jeune homme dont le corps avait été détruit lors d'un combat contre Teng Huayuan, à l'extérieur de la Vallée Jue Ming, alors qu'il n'était qu'au stade de l'Établissement des Fondations.
 
 Wang Lin se tenait toujours sur sa bête moustique. Son regard restait glacial tandis qu'il fixait un domaine situé à 4 000 kilomètres de là, où se trouvaient cent soixante-quatorze membres de la famille Teng.
 
