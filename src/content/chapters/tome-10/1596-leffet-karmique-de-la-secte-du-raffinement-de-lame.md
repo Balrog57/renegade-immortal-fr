@@ -100,7 +100,7 @@ Seul Wang Lin restait assis en silence, le regard empreint de confusion, sans av
 
 Les candidats commencèrent progressivement à quitter la salle. Certains étaient fiers, d'autres abattus. Ils partaient seuls ou accompagnés de leur serviteur.
 
-Le soleil commença à décliner et la salle d'examen s'assombrit. Il ne restait plus beaucoup de temps, seulement une demi-heure. Le dernier candidat, hormis Wang Lin, se leva en soupirant. Il jeta un regard à Wang Lin, secoua la tête et partit.
+Le soleil commença à décliner et la salle d'examen s'assombrit. Il ne restait plus beaucoup de temps, moins d'une heure. Le dernier candidat, hormis Wang Lin, se leva en soupirant. Il jeta un regard à Wang Lin, secoua la tête et partit.
 
 « Si vous n'êtes pas capable de le faire, partez vite. Ne nous faites pas perdre notre temps », grommela un examinateur en passant près de Wang Lin en frappant sur la table.
 

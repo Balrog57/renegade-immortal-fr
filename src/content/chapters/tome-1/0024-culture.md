@@ -42,9 +42,9 @@ La nuit tomba. Il ouvrit les yeux et sentit que l'énergie spirituelle en lui av
 
 Il se leva et se frotta le menton tout en faisant les cent pas dans la pièce, méditant sur ce qui s'était produit avant et après son entrée dans le rêve. Il finit par identifier le problème.
 
-Lors des deux premières fois, il y était entré presque immédiatement. La troisième fois fut cinq heures après la deuxième, et la quatrième eut lieu une journée entière après la troisième.
+Lors des deux premières fois, il y était entré presque immédiatement. La troisième fois fut plus de quatre heures après la deuxième, et la quatrième eut lieu une journée entière après la troisième.
 
-Suivant cette logique, il existait des restrictions sur l'accès à cet espace onirique. Pour plus de sûreté, il devait attendre cinq heures après chaque utilisation pour garantir son entrée.
+Suivant cette logique, il existait des restrictions sur l'accès à cet espace onirique. Pour plus de sûreté, il devait attendre au moins quatre heures après chaque utilisation pour garantir son entrée.
 
 Une fois ce problème résolu, Wang Lin commença à préparer ses tests pour déterminer ce qu'il pouvait emporter dans le rêve. Il finit par rassembler divers objets, dont trois gourdes: l'une contenait un reste de rosée, la seconde était vide, et la troisième était pleine d'eau de source.
 
@@ -70,7 +70,7 @@ Il était convaincu que les trois gourdes précédentes n'avaient pu entrer dans
 
 Désormais, il remplissait ces courges fraîchement cueillies avec de l'eau de source enrichie. Il pourrait ainsi tromper l'espace du rêve pour les y faire pénétrer.
 
-Cinq heures plus tard, Wang Lin entra dans l'espace du rêve, quatre courges sur l'épaule. À sa grande surprise, il constata qu'elles étaient toutes avec lui.
+Plus de quatre heures plus tard, Wang Lin entra dans l'espace du rêve, quatre courges sur l'épaule. À sa grande surprise, il constata qu'elles étaient toutes avec lui.
 
 Il les ouvrit et vit que l'eau était toujours à l'intérieur. Il en but une gorgée et s'aperçut qu'elle était encore chargée d'énergie spirituelle. Sans dire un mot, Wang Lin prit plusieurs grandes gorgées et commença sa culture.
 

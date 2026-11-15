@@ -52,7 +52,7 @@ Telle la cigale qui mue sa carapace, Wang Lin passa du statut de proie à celui 
 
 Son corps vacilla et il quitta les lieux pour réapparaître dans une autre partie de la prairie. Il s'assit et surveilla l'évolution de la boussole. Possédant l'essence du feu, la boue sous lui sécha naturellement.
 
-Le temps passa lentement, et en un éclair, une heure s'écoula. Durant cette heure, un écart se creusa peu à peu entre les quatre cultivateurs. Les deux vieux monstres de la Tribulation du Vide ne souhaitaient évidemment pas continuer à cette allure. Une fois la direction de Wang Lin identifiée, ils accélérèrent pour poursuivre la boussole.
+Le temps passa lentement, et en un éclair, deux heures s'écoulèrent. Durant ces deux heures, un écart se creusa peu à peu entre les quatre cultivateurs. Les deux vieux monstres de la Tribulation du Vide ne souhaitaient évidemment pas continuer à cette allure. Une fois la direction de Wang Lin identifiée, ils accélérèrent pour poursuivre la boussole.
 
 Les deux cultivateurs du stade initial restèrent à la traîne, et l'écart entre eux et les deux vieux monstres s'élargit davantage. Wang Lin ouvrit les yeux, révélant un éclat glacial.
 

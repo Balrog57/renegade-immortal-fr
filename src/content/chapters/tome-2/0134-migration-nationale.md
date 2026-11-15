@@ -58,7 +58,7 @@ Le temps passa lentement tandis qu'il s'immergeait dans l'étude de la Technique
 
 Une lueur de joie éclaira son visage et il ne put s'empêcher de murmurer: « Ce corps de Ma Liang a bien plus de talent et de racine spirituelle que mon précédent. Bien qu'il ne soit pas exceptionnel, il reste de qualité moyenne, ce qui rend l'apprentissage de cette pseudo-Technique d'Évasion Terrestre abordable. Mais je devrai encore m'entraîner longtemps pour la maîtriser véritablement. »
 
-Wang Lin sortit le seau en bois rempli de liquide spirituel, en but une grande gorgée, puis s'assit en méditation pour respirer. Une demi-heure plus tard, toute la fatigue due à une nuit passée à tâtonner sur la Technique d'Évasion Terrestre avait disparu.
+Wang Lin sortit le seau en bois rempli de liquide spirituel, en but une grande gorgée, puis s'assit en méditation pour respirer. Une heure plus tard, toute la fatigue due à une nuit passée à tâtonner sur la Technique d'Évasion Terrestre avait disparu.
 
 Il saisit nonchalamment le troisième jade pour l'examiner. Celui-ci contenait les traces des activités quotidiennes de Sun Youcai. Il semblait que ce dernier avait pour habitude de tenir un journal. Ce jade recelait approximativement trente ans de sa vie de cultivateur.
 

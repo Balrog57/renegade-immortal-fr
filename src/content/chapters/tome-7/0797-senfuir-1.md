@@ -48,7 +48,7 @@ Les yeux de Wang Lin se plissèrent et il monta immédiatement sur le fragment. 
 
 Grâce à cela, sa progression était bien plus rapide qu'auparavant. Wang Lin n'avait plus qu'à surveiller les fissures de plus de mille pieds; il pouvait ignorer totalement les autres.
 
-Le fragment traversait le Royaume Céleste à une allure fulgurante. Après une demi-heure, Wang Lin commença à se détendre, mais à cet instant précis, son regard se porta devant lui et son expression changea.
+Le fragment traversait le Royaume Céleste à une allure fulgurante. Après une heure, Wang Lin commença à se détendre, mais à cet instant précis, son regard se porta devant lui et son expression changea.
 
 Il aperçut un mince rayon de lumière terne fendant la distance. Une belle femme se trouvait à l'intérieur de ce rayon. Cependant, son visage était livide et ses yeux débordaient de panique alors qu'elle esquivait sans cesse les failles spatiales, manquant d'être engloutie par elles à plusieurs reprises.
 
@@ -70,7 +70,7 @@ Wang Lin la dévisagea et demanda d'un ton calme: « Possédez-vous des jades c�
 
 La femme sursauta et hocha rapidement la tête.
 
-D'une voix posée, Wang Lin déclara: « Dix mille jades célestes pour vous sauver la vie. Et dix mille jades supplémentaires pour chaque heure passée ici! »
+D'une voix posée, Wang Lin déclara: « Dix mille jades célestes pour vous sauver la vie. Et dix mille jades supplémentaires pour chaque tranche de deux heures passée ici! »
 
 Le fragment sous ses pieds s'élança de nouveau vers l'horizon.
 

@@ -112,4 +112,4 @@ Wang Lin regarda Gu Dao sans dire un mot. Il continua de fixer la tempête marin
 
 Dao Yi fut le premier à serrer les dents pour partir, suivi par un Wu Feng impuissant. Seul Jiu Di affichait une expression déformée, les veines de son visage saillantes sous l'effort; il voulait continuer à résister.
 
-Cependant, il ne tint que deux heures de plus avant de disparaître, l'expression amère.
+Cependant, il ne tint que quatre heures de plus avant de disparaître, l'expression amère.

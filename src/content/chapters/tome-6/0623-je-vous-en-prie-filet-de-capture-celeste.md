@@ -90,7 +90,7 @@ Le cœur brûlant de rage, il maudissait Wang Lin. Soudain, un rayon de lumière
 
 Puis, d'un pas vigoureux, il libéra une explosion de feu. Lorsque les flammes s'éteignirent, il avait disparu.
 
-Le regard de Wang Lin devint encore plus rouge. Bien que les techniques du vieil homme fussent médiocres, il maîtrisait indéniablement l'art de la fuite. En seulement une demi-heure, cet homme avait déjà utilisé dix sorts d'évasion qui avaient laissé Wang Lin stupéfait.
+Le regard de Wang Lin devint encore plus rouge. Bien que les techniques du vieil homme fussent médiocres, il maîtrisait indéniablement l'art de la fuite. En seulement une heure, cet homme avait déjà utilisé dix sorts d'évasion qui avaient laissé Wang Lin stupéfait.
 
 C'était son onzième sort d'évasion, et il était totalement différent des dix précédents!
 

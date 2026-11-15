@@ -96,7 +96,7 @@ Il se souvenait clairement que l'enfant était simplement en train de cultiver, 
 
 Cette découverte fit trembler l'esprit de Wang Lin, qui intensifia son observation.
 
-Le temps passa de nouveau. En un clin d'œil, sept jours s'écoulèrent. Wang Lin avait remarqué que toutes les deux à trois heures, la main du garçon changeait de position. Ce changement était si subtil qu'il passait inaperçu pour quiconque n'était pas d'une vigilance extrême.
+Le temps passa de nouveau. En un clin d'œil, sept jours s'écoulèrent. Wang Lin avait remarqué que toutes les quatre à six heures, la main du garçon changeait de position. Ce changement était si subtil qu'il passait inaperçu pour quiconque n'était pas d'une vigilance extrême.
 
 Durant ces sept jours, Wang Lin mémorisa chaque sceau exécuté par l'enfant. Le huitième jour, il s'assit et commença à reproduire les mudras. Dès que les sceaux apparurent, le pavillon entier se mit à trembler. Wang Lin s'interrompit aussitôt pour inspecter les alentours avant de reprendre sa pratique.
 

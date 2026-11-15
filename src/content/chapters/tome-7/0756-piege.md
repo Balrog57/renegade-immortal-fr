@@ -46,7 +46,7 @@ Ce fragment du Royaume Céleste du Tonnerre s'écroula sous la foulée de cette 
 
 De plus en plus de déchirures spatiales, dévorant tout sur leur passage, apparurent dans le ciel. Le sol continuait de se rompre et de sombrer dans le vide. Certains pans furent engloutis par les failles spatiales et disparurent sans laisser de trace.
 
-Une demi-heure plus tard, le ciel n'était plus que néant et la terre n'existait plus. L'un des fragments restants du Royaume Céleste du Tonnerre avait disparu à jamais. Ce changement radical terrifia les quelques cultivateurs du Système Stellaire de Luotian présents sur le fragment. Tous tentèrent désespérément de fuir.
+Une heure plus tard, le ciel n'était plus que néant et la terre n'existait plus. L'un des fragments restants du Royaume Céleste du Tonnerre avait disparu à jamais. Ce changement radical terrifia les quelques cultivateurs du Système Stellaire de Luotian présents sur le fragment. Tous tentèrent désespérément de fuir.
 
 La peur de la mort leur fit perdre tout discernement. Pourtant, peu d'entre eux purent échapper à l'effondrement du fragment.
 

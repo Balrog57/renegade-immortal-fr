@@ -56,7 +56,7 @@ Le regard de Zhou Zihong devint glacial alors qu'elle répondait: « L'une est a
 
 « D'accord! » Wang Lin accepta sans hésiter.
 
-« Tu devrais les connaître. L'une est Xu Si, la Junior sœur de Ma Liang, son amie d'enfance. L'autre est Zhou An, qui a une liaison avec elle. Tu n'as pas besoin de les tuer maintenant, tu pourras le faire lors de ton départ. Quant à la carte, je te l'apporterai d'ici une heure. » Après avoir parlé, Zhou Zihong lança un regard significatif à Wang Lin avant de s'élancer sur son épée volante.
+« Tu devrais les connaître. L'une est Xu Si, la Junior sœur de Ma Liang, son amie d'enfance. L'autre est Zhou An, qui a une liaison avec elle. Tu n'as pas besoin de les tuer maintenant, tu pourras le faire lors de ton départ. Quant à la carte, je te l'apporterai d'ici deux heures. » Après avoir parlé, Zhou Zihong lança un regard significatif à Wang Lin avant de s'élancer sur son épée volante.
 
 « Ma Liang, c'est la dernière fois que je t'aide... » murmura Zhou Zihong avec mélancolie en s'éloignant lentement.
 
@@ -126,7 +126,7 @@ Sans attendre la fin de ses explications, les yeux de Wang Lin s'illuminèrent: 
 
 Le regard de Wang Lin terrifia Li Muwan. Elle était une personne très intelligente, sans quoi elle n'aurait pas osé prononcer ces trois mots dans l'espoir d'être sauvée.
 
-Après tout, ils étaient tous deux originaires de Huo Fen; tomber entre ses mains était préférable à celle de ce cultivateur de la Formation du Noyau. Pensant cela, elle ajouta immédiatement: « Je n'ai pas de Pilule du Ciel Lointain achevée, seulement un produit semi-complet... » Ses yeux s'embuèrent alors qu'elle percevait le regard peu amical de Wang Lin et expliqua précipitamment: « Aucune des pilules de la Secte Luo He n'est complète; elles sont toutes dans un état semi-fini. Cependant, il ne faut qu'une demi-heure de raffinage pour la rendre parfaite. C'est parce qu'une fois la Pilule du Ciel Lointain achevée, elle est impossible à stocker. Elle doit être consommée dans l'année, sinon son efficacité diminue drastiquement. »
+Après tout, ils étaient tous deux originaires de Huo Fen; tomber entre ses mains était préférable à celle de ce cultivateur de la Formation du Noyau. Pensant cela, elle ajouta immédiatement: « Je n'ai pas de Pilule du Ciel Lointain achevée, seulement un produit semi-complet... » Ses yeux s'embuèrent alors qu'elle percevait le regard peu amical de Wang Lin et expliqua précipitamment: « Aucune des pilules de la Secte Luo He n'est complète; elles sont toutes dans un état semi-fini. Cependant, il ne faut qu'une heure de raffinage pour la rendre parfaite. C'est parce qu'une fois la Pilule du Ciel Lointain achevée, elle est impossible à stocker. Elle doit être consommée dans l'année, sinon son efficacité diminue drastiquement. »
 
 L'esprit de Wang Lin tourna à toute vitesse. Il avait initialement prévu de faire un détour pour atteindre la Mer Xiu Mo, mais désormais, tenant la main délicate de Li Muwan, il chargea vers la frontière de Huo Fen.
 
@@ -142,7 +142,7 @@ Le jeune homme continuait sa poursuite. Voyant sa proie s'éloigner davantage, i
 
 La distance entre les deux parties se réduisait, et le visage de Li Muwan devint encore plus livide. Elle n'osait imaginer ce qui arriverait si le jeune homme la rattrapait. Elle en voulait à Wang Lin de ne pas s'être dirigé vers la montagne de l'Union de Huo Fen, mais elle garda sa colère pour elle, craignant qu'il ne l'abandonne.
 
-L'expression de Wang Lin restait calme tandis qu'il calculait précisément le temps. Environ trois heures s'étaient écoulées depuis la nouvelle de la rupture de la formation. En retranchant le temps que l'Âme Naissante avait mis à se téléporter à tout prix pour porter la nouvelle, et en y ajoutant le délai écoulé depuis que les bêtes de feu avaient brisé la formation, celles-ci devaient déjà avoir atteint la frontière de Xuan Wu.
+L'expression de Wang Lin restait calme tandis qu'il calculait précisément le temps. Environ six heures s'étaient écoulées depuis la nouvelle de la rupture de la formation. En retranchant le temps que l'Âme Naissante avait mis à se téléporter à tout prix pour porter la nouvelle, et en y ajoutant le délai écoulé depuis que les bêtes de feu avaient brisé la formation, celles-ci devaient déjà avoir atteint la frontière de Xuan Wu.
 
 Alors qu'il calculait, son Sens Divin détecta un nuage rouge approchant au loin.
 

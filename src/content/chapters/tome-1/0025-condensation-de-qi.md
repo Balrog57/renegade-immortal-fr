@@ -8,7 +8,7 @@ slug: condensation-de-qi
 ---
 Le temps avait filé depuis qu'il était entré dans la Secte Heng Yue. Wang Lin s'était consacré à sa culture dans l'espace de rêve au cours des deux derniers mois, étudiant avec attention les capacités de la perle de pierre.
 
-L'espace de rêve pouvait être investi trois fois par jour. Chaque session durait environ cinquante heures, ce qui représentait un total d'environ six jours.
+L'espace de rêve pouvait être investi trois fois par jour. Chaque session durait plus de quarante heures, ce qui représentait un total d'environ six jours.
 
 Deux mois s'étaient écoulés dans le monde réel, mais il avait cultivé pendant une année entière.
 

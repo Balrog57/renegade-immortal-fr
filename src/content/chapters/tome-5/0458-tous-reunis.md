@@ -46,7 +46,7 @@ Il ne fallut pas longtemps avant que plusieurs autres personnes n'arrivent. Deux
 
 Un autre cultivateur arriva également. Il portait une robe bleue ainsi qu'un masque féroce qui couvrait son visage. Le masque dégageait une aura bleue qui empêchait le sens divin de passer. Une fois au sommet, il inspecta les lieux avant de s'asseoir silencieusement sur le côté.
 
-Une heure plus tard, trois rayons de lumière traversèrent le ciel en direction du sommet, mais alors qu'ils approchaient, toute la montagne spirituelle trembla. La porte fut également secouée violemment et de nouvelles fissures apparurent sur sa surface.
+Deux heures plus tard, trois rayons de lumière traversèrent le ciel en direction du sommet, mais alors qu'ils approchaient, toute la montagne spirituelle trembla. La porte fut également secouée violemment et de nouvelles fissures apparurent sur sa surface.
 
 À cet instant, non seulement la montagne spirituelle vacillait, mais c'était tout le Tombeau Suzaku qui tremblait.
 

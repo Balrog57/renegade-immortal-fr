@@ -102,7 +102,7 @@ Une fois arrêté, Wang Lin s'assit et ferma les yeux. Il commença à cultiver 
 
 Son comportement stupéfia tous les cultivateurs de la troisième étape qui l'observaient.
 
-Le temps s'écoulait lentement. En un clin d'œil, il ne restait plus que 12 heures avant la fin des trois derniers jours de la troisième année. Une fois ces 12 heures écoulées, un changement prodigieux surviendrait dans le monde caverneux!
+Le temps s'écoulait lentement. En un clin d'œil, il ne restait plus que 24 heures avant la fin des trois derniers jours de la troisième année. Une fois ces 24 heures écoulées, un changement prodigieux surviendrait dans le monde caverneux!
 
 Cependant, à cet instant précis, hormis Wang Lin, personne ne savait ce qui allait arriver. Même le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan n'en avaient pas le contrôle total.
 
@@ -110,11 +110,11 @@ Il se pourrait qu'une seule autre personne pressente l'imminence du changement: 
 
 Les yeux de Tian Yunzi brillaient d'une lumière étrange tandis qu'il baissait la tête, ses mains s'agitant frénétiquement devant lui. Tandis qu'il divinait, son regard devenait de plus en plus intense et une expression d'exultation apparut sur son visage.
 
-« C'est presque cela... Les 12 dernières heures... »
+« C'est presque cela... Les 24 dernières heures... »
 
 La silhouette de Wang Lin demeurait immobile alors qu'il cultivait lentement pour maintenir son aura à son apogée. Il maintenait également la goutte de sang céleste pleinement active.
 
-11 heures, 10 heures, 9 heures... Bientôt, la période de trois ans touchait à sa fin. Lorsqu'il ne restait plus que 4 heures, Wang Lin ouvrit soudainement les yeux.
+22 heures, 20 heures, 18 heures... Bientôt, la période de trois ans touchait à sa fin. Lorsqu'il ne restait plus que 8 heures, Wang Lin ouvrit soudainement les yeux.
 
 À cet instant, tous ceux qui l'observaient furent frappés de stupeur et multiplièrent les conjectures.
 

@@ -36,9 +36,9 @@ Nul ne connaissait mieux la huitième carte que Wang Lin. Il s'y déplaçait ave
 
 Wang Lin aurait pu choisir la terre marquée « ancien dieu », mais il se dirigea sans hésiter vers la terre scellée du démon ancien.
 
-Ayant un objectif précis, Wang Lin ne perdit pas une seconde. En une heure, il atteignit les environs de la terre scellée du démon ancien. À cet instant, tous les autres le poursuivaient en suivant leur intuition vague. Wang Lin calcula qu'il lui restait une demi-heure avant d'être rattrapé.
+Ayant un objectif précis, Wang Lin ne perdit pas une seconde. En deux heures, il atteignit les environs de la terre scellée du démon ancien. À cet instant, tous les autres le poursuivaient en suivant leur intuition vague. Wang Lin calcula qu'il lui restait une heure avant d'être rattrapé.
 
-« Une demi-heure... » Les yeux de Wang Lin s'illuminèrent lorsqu'il aperçut un vortex large de plusieurs centaines de milliers de pieds. Ce vortex rugissait, saturé d'une énergie démoniaque dont la simple présence suffisait à faire trembler les cœurs. En se rapprochant, il sentit clairement une puissante vitalité émaner du tourbillon!
+« Une heure... » Les yeux de Wang Lin s'illuminèrent lorsqu'il aperçut un vortex large de plusieurs centaines de milliers de pieds. Ce vortex rugissait, saturé d'une énergie démoniaque dont la simple présence suffisait à faire trembler les cœurs. En se rapprochant, il sentit clairement une puissante vitalité émaner du tourbillon!
 
 « Un démon ancien vivant! » s'exclama Wang Lin dans un souffle. Il fixa le vortex. Au plus profond de celui-ci, une silhouette était assise au cœur d'un cyclone, maintenue par un sceau. C'était ce sceau qui empêchait le démon ancien de s'échapper. Il semblait dormir.
 
@@ -50,7 +50,7 @@ Ses étoiles tournèrent rapidement, une puissance divine ancestrale inondant so
 
 La force mystérieuse réapparut et il l'écrasa rapidement entre ses sourcils. À chaque fois qu'une rune apparaissait, il la récupérait. Il s'exécutait de plus en plus vite, répétant ce cycle sans relâche.
 
-L'aura du démon ancien était ainsi extraite par Wang Lin, tandis que le nombre d'âmes dans la bouteille diminuait. Les runes se multipliaient. Le temps filait et la majeure partie de la demi-heure s'était écoulée. Grâce à l'abondance de puissance démoniaque sur place, Wang Lin avait déjà créé des milliers de runes. Extraire l'aura du démon ancien, saisir une âme de diable et l'écraser, fusionner sa propre puissance de Dieu Ancien... il maîtrisait désormais cette séquence avec une précision absolue.
+L'aura du démon ancien était ainsi extraite par Wang Lin, tandis que le nombre d'âmes dans la bouteille diminuait. Les runes se multipliaient. Le temps filait et la majeure partie de l'heure s'était écoulée. Grâce à l'abondance de puissance démoniaque sur place, Wang Lin avait déjà créé des milliers de runes. Extraire l'aura du démon ancien, saisir une âme de diable et l'écraser, fusionner sa propre puissance de Dieu Ancien... il maîtrisait désormais cette séquence avec une précision absolue.
 
 « Encore plus vite! » Bien qu'il soit déjà d'une rapidité extrême, il était encore loin du rang 9. Sentant quatre auras se précipiter vers lui, il accéléra encore davantage. Peu après, un grondement retentit: une plateforme de 70 000 pieds de large fit son apparition. Une femme charmante se tenait au sommet et, avant même qu'elle ne soit tout à fait là, son rire séduisant résonna déjà.
 

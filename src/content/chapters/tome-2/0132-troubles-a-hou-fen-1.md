@@ -100,6 +100,6 @@ Un cri glaçant jaillit de l'intérieur de la sphère. Le hurlement persista, ma
 
 La sphère de terre tomba dans le vide et s'enfonça dans la lave. Le cœur de Wang Lin sombra à son tour. Il comprenait désormais qu'il n'était pas le seul être vivant enfermé dans ces sphères. Même sans protection, la sphère ne l'aurait pas tué; au pire, il aurait été plongé dans un sommeil profond.
 
-Par la suite, quatre autres sphères furent projetées vers la boule de feu. Des cris déchirants retentirent à chaque absorption. Les hurlements durèrent plus d'une demi-heure. Lorsque la cinquième sphère s'enfonça dans la lave, la sphère de Wang Lin fut brusquement expulsée.
+Par la suite, quatre autres sphères furent projetées vers la boule de feu. Des cris déchirants retentirent à chaque absorption. Les hurlements durèrent près d'une heure. Lorsque la cinquième sphère s'enfonça dans la lave, la sphère de Wang Lin fut brusquement expulsée.
 
 La Perle Défiant le Ciel trembla violemment et, avec une impulsion sans précédent, elle brisa le contrôle de Wang Lin. C'est à ce moment précis que la boule de feu pénétra dans la sphère de terre où il se trouvait.

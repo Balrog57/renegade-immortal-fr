@@ -260,7 +260,7 @@ Wang Lin saisit la substance de sa main droite et le liquide spirituel pénétra
 
 Seul Wang Lin pouvait faire cela. Personne d'autre n'aurait disposé d'une telle quantité de liquide spirituel, et personne d'autre que lui n'aurait utilisé une ressource aussi précieuse pour soigner quelqu'un.
 
-Après deux heures, Wang Lin eut terminé.
+Après quatre heures, Wang Lin eut terminé.
 
 Passant quelques mois supplémentaires à la Secte Yun Tian, Wang Lin continua de collecter du liquide spirituel. Tout en reconstituant ses propres réserves, il en laissait également pour Li Muwan.
 

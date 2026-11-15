@@ -48,7 +48,7 @@ La voix de Li Yuan trahissait son doute lorsqu'il ajouta rapidement: « Frère X
 
 « Très bien! » En parlant, Wang Lin laissait son sens divin progresser lentement devant eux. Ce tunnel ne comportait aucun embranchement, une seule voie plongeant vers les profondeurs.
 
-Ce passage semblait sans fin. Les deux hommes marchaient depuis plus d'une demi-heure sans voir le bout du tunnel. Li Yuan ne put s'empêcher de s'étonner.
+Ce passage semblait sans fin. Les deux hommes marchaient depuis une heure sans voir le bout du tunnel. Li Yuan ne put s'empêcher de s'étonner.
 
 « Quelle est la profondeur de ce lieu? Ce tunnel pourrait-il être un fragment superposé? » Habité par ces doutes, Li Yuan accéléra le pas.
 
@@ -98,7 +98,7 @@ Il prit la tête du cortège. Tandis que Li Yuan le suivait, sa main gauche cont
 
 Leur progression n'était pas rapide, mais ils ne s'arrêtèrent pas.
 
-À mesure qu'ils avançaient, la sensation entre les sourcils de Wang Lin devint plus oppressante, lui donnant un air sombre et lugubre. Une demi-heure plus tard, ses yeux s'éclairèrent: son sens divin avait atteint la fin du tunnel.
+À mesure qu'ils avançaient, la sensation entre les sourcils de Wang Lin devint plus oppressante, lui donnant un air sombre et lugubre. Une heure plus tard, ses yeux s'éclairèrent: son sens divin avait atteint la fin du tunnel.
 
 Ayant perçu l'issue, Wang Lin prit une profonde inspiration et s'élança. Un virage se dressait devant eux; il s'arrêta brusquement juste après avoir tourné. Li Yuan le suivit de près. À cet instant, il aperçut la fin grâce à son sens divin et commença à méditer.
 

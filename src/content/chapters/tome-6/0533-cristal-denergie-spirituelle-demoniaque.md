@@ -36,7 +36,7 @@ Wang Lin pouvait clairement voir une aura ténue, semblable à un fil de soie, s
 
 Malgré tout, cette aura pouvait servir de catalyseur à la formation entourant la vallée. Grâce à elle, il pouvait contrôler la formation et même créer un corps illusoire.
 
-Une heure plus tard, Ouyang Hua ne put s'empêcher d'abandonner. Le visage empreint d'amertume, il secoua silencieusement la tête.
+Deux heures plus tard, Ouyang Hua ne put s'empêcher d'abandonner. Le visage empreint d'amertume, il secoua silencieusement la tête.
 
 Wang Lin ouvrit les yeux, qui s'illuminèrent, puis fit un geste de la main. Ouyang Hua poussa un cri et vola vers Wang Lin. Ce dernier leva deux doigts de sa main gauche et pointa soudainement le dantian d'Ouyang Hua.
 

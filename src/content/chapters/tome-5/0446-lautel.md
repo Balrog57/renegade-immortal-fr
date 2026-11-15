@@ -34,7 +34,7 @@ Murong Yun acquiesça rapidement, puis il lança un regard prudent à Wang Lin a
 
 Quant à la femme laide, elle hésita un instant avant de les suivre à son tour.
 
-Bien que la vitesse de Murong Yun fût très élevée, elle demeurait trop lente aux yeux de Mo Yunhai. Une demi-heure plus tard, Mo Yunhai laissa échapper un grognement et s'élança en avant pour saisir Murong Yun. Il se tourna vers Wang Lin et dit: « Daoïste Zeng, nous allons chacun prendre l'un d'eux et atteindre l'autel à toute allure. Si nous sommes trop lents et que le Cristal de Planète de Culture se brise, nous mourrons tous ici. »
+Bien que la vitesse de Murong Yun fût très élevée, elle demeurait trop lente aux yeux de Mo Yunhai. Une heure plus tard, Mo Yunhai laissa échapper un grognement et s'élança en avant pour saisir Murong Yun. Il se tourna vers Wang Lin et dit: « Daoïste Zeng, nous allons chacun prendre l'un d'eux et atteindre l'autel à toute allure. Si nous sommes trop lents et que le Cristal de Planète de Culture se brise, nous mourrons tous ici. »
 
 Sur ce, il emporta Murong Yun et accéléra soudainement, disparaissant au loin.
 

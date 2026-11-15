@@ -88,7 +88,7 @@ Cependant, il était perplexe: la recherche de la sortie semblait un peu... trop
 
 Wang Lin fut surpris et son expression se fit encore plus sombre. Après avoir réfléchi un instant, il laissa échapper un reniflement méprisant et se dirigea vers la sortie. Arrivé sur place, il observa les environs pendant un long moment. Sans dire un mot, il fit demi-tour et se dirigea vers l'autre bifurcation.
 
-Il déployait son sens divin pour observer attentivement chaque tunnel. Une demi-heure plus tard, son sens divin trouva une autre issue. Une lumière grise émanait de l'ouverture; il était clair que celle-ci menait à la surface.
+Il déployait son sens divin pour observer attentivement chaque tunnel. Une heure plus tard, son sens divin trouva une autre issue. Une lumière grise émanait de l'ouverture; il était clair que celle-ci menait à la surface.
 
 Wang Lin n'hésita pas et chargea directement vers elle. Il se déplaçait déjà très vite, mais il ne pouvait pas se téléporter. Cependant, il atteignit bientôt la sortie. Lorsqu'il ne fut plus qu'à cent pieds de l'issue, il s'élança avec acharnement.
 
@@ -102,7 +102,7 @@ S'il cédait à l'agitation et se précipitait, il lui serait encore plus diffic
 
 À cet instant, quelque part dans le Royaume Céleste du Tonnerre, le vieil homme, les mains derrière le dos, sourit et marmonna: « Cela faisait longtemps qu'une personne liée à ce vieil homme n'était apparue. Si ce junior parvient à sortir en sept jours, cela signifie que son destin est encore plus grand! J'espère vraiment que ce petit gars réussira. Il y a tant d'endroits fascinants dans ce Royaume Céleste du Tonnerre qui sont parfaitement adaptés aux personnes liées à ce vieil homme! »
 
-Trois jours passèrent. Wang Lin traversait les passages souterrains comme un éclair, son sens divin déployé au maximum. Il trouvait une issue presque toutes les demi-heures, mais il ne s'en approchait jamais et poursuivait sa route.
+Trois jours passèrent. Wang Lin traversait les passages souterrains comme un éclair, son sens divin déployé au maximum. Il trouvait une issue presque toutes les heures, mais il ne s'en approchait jamais et poursuivait sa route.
 
 En trois jours, il parcourut tous les passages souterrains. En conséquence, une carte complète se dessina dans son esprit.
 

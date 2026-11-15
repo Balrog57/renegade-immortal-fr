@@ -82,7 +82,7 @@ Alors que le convoi reprenait sa route, un bataillon de mille hommes envoyé pou
 
 Pourtant, le cortège ne s'arrêta pas et continua d'avancer sous la protection des mille soldats.
 
-Une heure plus tard, le convoi atteignit les abords du camp militaire. Des gémissements s'échappaient par intermittence de la grande calèche.
+Deux heures plus tard, le convoi atteignit les abords du camp militaire. Des gémissements s'échappaient par intermittence de la grande calèche.
 
 À mesure qu'ils approchaient, ces sons devinrent plus distincts et furent entendus par l'ensemble des soldats présents. Le vieux général fronça les sourcils, un net déplaisir se lisant dans ses yeux.
 

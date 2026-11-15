@@ -128,4 +128,4 @@ La silhouette de Wang Lin apparut et il s'inclina devant Xuan Luo.
 
 Xuan Luo se leva et, l'expression grave, pénétra à son tour dans la porte.
 
-Après son entrée, la porte gronda et se referma lentement. Une demi-heure plus tard, alors qu'elle allait se clore définitivement, un éclat de lumière fantomatique jaillit des profondeurs et disparut dans la porte.
+Après son entrée, la porte gronda et se referma lentement. Une heure plus tard, alors qu'elle allait se clore définitivement, un éclat de lumière fantomatique jaillit des profondeurs et disparut dans la porte.

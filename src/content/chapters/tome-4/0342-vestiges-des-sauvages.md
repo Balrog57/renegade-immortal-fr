@@ -54,7 +54,7 @@ Le vieil homme Hu éclata de rire: « Cultivatrice Zi Xin, ne me blâmez pas. Si
 
 « Le Fruit de la Réincarnation... » Bien que l'expression de Wang Lin soit restée impassible, son cœur fut troublé.
 
-En entendant parler de l'Arbre de Réincarnation, l'esprit de Wang Lin s'était mis en marche. En entendant les mots « Fruit de la Réincarnation », ses soupçons se renforcèrent. Il réfléchit un instant puis demanda: « Est-ce ce fruit de la taille d'un poing qui change de couleur toutes les deux heures? »
+En entendant parler de l'Arbre de Réincarnation, l'esprit de Wang Lin s'était mis en marche. En entendant les mots « Fruit de la Réincarnation », ses soupçons se renforcèrent. Il réfléchit un instant puis demanda: « Est-ce ce fruit de la taille d'un poing qui change de couleur toutes les quatre heures? »
 
 Les yeux du vieil homme Hu s'illuminèrent. Il dévisagea longuement Wang Lin avant de déclarer: « Frère Wang est vraiment très bien informé! C'est précisément ainsi que l'on identifie le fruit. Pour nous, cultivateurs de la Formation de l'Âme, c'est un trésor inestimable. S'il est consommé au stade avancé de la Formation de l'Âme, à la grande perfection, il augmente les chances d'atteindre le stade de la Transformation de l'Âme de plus de 30 %. Je ne l'ai vu que dans de vieux textes anciens. »
 
@@ -86,7 +86,7 @@ Personne, hormis Suzaku, ne connaissait le nombre exact de couches du Cimetière
 
 « L'Arbre de Réincarnation pousse sous terre et est considéré comme sacré par les sauvages. Cependant, il existe au total neuf Arbres de Réincarnation, ce qui nous donne une chance. »
 
-« Quant au Fruit de la Réincarnation, dès que nous trouverons un arbre, j'ai une méthode secrète pour le faire porter des fruits en moins de trois heures. »
+« Quant au Fruit de la Réincarnation, dès que nous trouverons un arbre, j'ai une méthode secrète pour le faire porter des fruits en moins de six heures. »
 
 Wang Lin réfléchit encore. Il regarda la femme au voile blanc et demanda: « Pourquoi votre père s'est-il rendu au Cimetière des Immortels? »
 

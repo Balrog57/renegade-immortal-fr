@@ -56,9 +56,9 @@ Fixant cette âme, la main droite de Wang Lin se referma impitoyablement! Tout e
 
 Tous les souvenirs de Xu Decai furent extraits par Wang Lin sans la moindre résistance, tandis qu'il cherchait sans relâche la source de cet art.
 
-Bientôt, trois heures passèrent. Xu Decai ayant vécu bien trop longtemps, fouiller ses souvenirs pour trouver un sort précis demandait du temps.
+Bientôt, six heures passèrent. Xu Decai ayant vécu bien trop longtemps, fouiller ses souvenirs pour trouver un sort précis demandait du temps.
 
-Trois heures plus tard, Wang Lin ouvrit soudainement les yeux, l'expression empreinte d'extase.
+Six heures plus tard, Wang Lin ouvrit soudainement les yeux, l'expression empreinte d'extase.
 
 « L'Art Magique Rapide! Ce Xu Decai a bénéficié d'une immense fortune au début de sa vie. Une météorite est tombée du ciel et il y a trouvé une formule de sceaux complexe gravée. Après l'avoir cultivée, il a acquis cette vitesse de lancement terrifiante... » Wang Lin ouvrit la paume. L'âme originelle de Xu Decai trembla et commença à se dissiper lentement, comme si elle allait s'effondrer à tout instant.
 

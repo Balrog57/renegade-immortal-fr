@@ -74,11 +74,11 @@ La compréhension de Wang Lin restait incomplète car sa fusion avec la troisiè
 
 Sa silhouette parut parmi les neuf planètes du ciel. Il se déplaça rapidement entre elles comme s'il cherchait quelque chose, mais sans succès immédiat.
 
-Le temps passa lentement. Wang Lin était entré une demi-heure avant les autres, et après le temps qu'il avait passé à placer ses restrictions, il ne lui en restait plus beaucoup. Debout sur la neuvième planète, Wang Lin fronça les sourcils.
+Le temps passa lentement. Wang Lin était entré une heure avant les autres, et après le temps qu'il avait passé à placer ses restrictions, il ne lui en restait plus beaucoup. Debout sur la neuvième planète, Wang Lin fronça les sourcils.
 
 « La troisième âme n'a aucun souvenir de l'établissement des lois. Il semble que le Souverain Céleste aux Sept Couleurs n'ait eu qu'à déployer son sens divin pour modifier les lois du troisième type de monde... » Un instant plus tard, le sens divin de Wang Lin balaya la zone à plusieurs reprises. Soudain, ses yeux se plissèrent.
 
-Il percevait vaguement une ondulation invisible à travers le vide. Cette ondulation semblait résonner sans cesse, mais elle était si bien dissimulée qu'elle était difficile à détecter. Les yeux de Wang Lin s'illuminèrent et il se focalisa sur cette vibration. Alors que la demi-heure touchait à sa fin, il sentit que l'ondulation provenait de la cinquième planète.
+Il percevait vaguement une ondulation invisible à travers le vide. Cette ondulation semblait résonner sans cesse, mais elle était si bien dissimulée qu'elle était difficile à détecter. Les yeux de Wang Lin s'illuminèrent et il se focalisa sur cette vibration. Alors que l'heure touchait à sa fin, il sentit que l'ondulation provenait de la cinquième planète.
 
 Wang Lin disparut brusquement. Lorsqu'il réapparut sur la cinquième planète, il chargea vers un sommet montagneux. La montagne était dénudée et s'élançait vers le ciel telle une épée perçant les nuages. Wang Lin comprit que l'ondulation qu'il avait ressentie émanait de ce pic.
 

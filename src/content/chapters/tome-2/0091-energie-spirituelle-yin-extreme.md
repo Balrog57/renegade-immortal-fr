@@ -103,7 +103,7 @@ Le tourbillon dans sa poitrine, en absorbant davantage d'énergie, grandit, dép
 
 Alors que le vortex dans sa poitrine devenait colossal, il sentit qu'il perdait le contrôle. Conscient de ses limites, il dirigea cette énergie pour attaquer de toutes ses forces sa Mer de Qi et commencer la percée. Le tourbillon d'énergie Yin agissait comme une pointe rotative, frappant inlassablement la Mer de Qi pour l'ouvrir. Lentement, celle-ci montra des signes de rupture.
 
-Le phénomène s'intensifia. Si l'on comparait cette percée à la destruction d'un mur de pierre, ce mur était désormais parcouru de fissures et prêt à s'effondrer. Après une heure, la Mer de Qi ne put plus résister et céda dans un fracas retentissant.
+Le phénomène s'intensifia. Si l'on comparait cette percée à la destruction d'un mur de pierre, ce mur était désormais parcouru de fissures et prêt à s'effondrer. Après deux heures, la Mer de Qi ne put plus résister et céda dans un fracas retentissant.
 
 Une quantité phénoménale de potentiel humain explosa de la Mer de Qi tel un volcan, se mélangeant rapidement à l'énergie Yin pour former une force Yin extrêmement puissante. L'énergie spirituelle dans son dantian devint alors agitée; elle se précipita vers cette nouvelle force Yin pour la dévorer.
 

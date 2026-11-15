@@ -60,13 +60,13 @@ Après réflexion, il ne put plus contenir son émotion. Il eut envie de pousser
 
 « Si... si c'est vraiment lié au temps, alors je... moi, Tie Zhu, je deviendrai un immortel, peu importe la médiocrité de mon talent! » Wang Lin prit quelques inspirations profondes pour retrouver son calme. Sans dire un mot, il sortit sa lampe à huile et la remplit. Assis sur son lit, la perle de pierre entre les mains, il commença à compter le temps.
 
-Après cinq heures, la lampe s'éteignit.
+Après plus de quatre heures, la lampe s'éteignit.
 
 Wang Lin la remplit promptement. Il fixa la perle et retourna dans le rêve.
 
 Cette fois, il ne pratiqua pas de sauts, mais s'assit en tailleur sur le sol pour compter les heures.
 
-Une heure, cinq heures, dix heures, vingt heures, cinquante heures!
+Une heure, deux heures, dix heures, vingt heures, cinquante heures!
 
 La sensation que son corps soit déchiré revint. Lorsque Wang Lin ouvrit les yeux, la lampe était sur le point de s'éteindre.
 

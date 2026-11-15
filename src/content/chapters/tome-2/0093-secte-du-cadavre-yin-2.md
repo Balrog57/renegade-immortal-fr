@@ -66,7 +66,7 @@ Les yeux de la statue brillèrent d'une lueur pourpre et elle reprit sa descente
 
 L'homme laissa échapper un reniflement froid. Il tendit la main dans le vide pour saisir la statue, qui trembla de nouveau. Sa descente s'arrêta peu à peu. Ensuite, il enchaîna sans cesse les sceaux de la main; la statue, dans un grondement, resta pourtant debout.
 
-Le petit être à l'intérieur de la statue eut l'air soulagé, bien qu'il parût encore plus épuisé. Il dit à Wang Lin: « Cette statue peut résister aux attaques d'Amu pendant une demi-heure, ce qui est amplement suffisant pour que je te raconte l'histoire derrière tout cela. »
+Le petit être à l'intérieur de la statue eut l'air soulagé, bien qu'il parût encore plus épuisé. Il dit à Wang Lin: « Cette statue peut résister aux attaques d'Amu pendant une heure, ce qui est amplement suffisant pour que je te raconte l'histoire derrière tout cela. »
 
 Wang Lin ne dit mot et fixa le petit être.
 

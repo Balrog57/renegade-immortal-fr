@@ -1,6 +1,6 @@
 ---
 n: 349
-title: Une demi-heure
+title: Une heure
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 349 - Half An Hour
@@ -77,7 +77,7 @@ Une fois de retour à l'abri, le silence retomba, ne laissant derrière lui que 
 
 « Combien de temps encore? » demanda Wang Lin en observant l'arbre. Les trois points avaient désormais la taille d'un poing.
 
-Le vieil homme Hu répondit avec assurance: « Bientôt! Encore une demi-heure tout au plus et les fruits seront prêts! »
+Le vieil homme Hu répondit avec assurance: « Bientôt! Encore une heure tout au plus et les fruits seront prêts! »
 
 « Nous n'avons plus le temps, répliqua Wang Lin. Ceux qui sont venus n'étaient que des chamans à cinq feuilles. Si des chamans à six feuilles arrivent, équivalents de cultivateurs de la Formation de l'Âme de stade avancé, j'en retiendrai peut-être un, mais si deux arrivent, je ne pourrai rien faire. Et il y a aussi des chamans à sept feuilles ici; ils sont l'équivalent de cultivateurs de la Transformation de l'Âme! »
 

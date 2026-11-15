@@ -110,7 +110,7 @@ Lorsque le soleil couchant devint une lueur rouge et diffuse, Song Zhi releva la
 
 « Tu ne mourras pas. » Wang Lin regarda calmement la femme. Tout en parlant, il pointa du doigt l'espace entre ses sourcils. La vision de Song Zhi se troubla et elle s'affaissa comme si elle sombrait dans le sommeil.
 
-Une demi-heure plus tard, elle se réveilla, les yeux empreints de confusion. Elle observa silencieusement les alentours en fronçant les sourcils et, après un long moment, sembla se souvenir de quelque chose.
+Une heure plus tard, elle se réveilla, les yeux empreints de confusion. Elle observa silencieusement les alentours en fronçant les sourcils et, après un long moment, sembla se souvenir de quelque chose.
 
 À cet instant, le soleil était presque couché, sur le point de disparaître. Song Zhi se leva et toucha son cou, où elle trouva un pendentif en jade dégageant une douce chaleur.
 

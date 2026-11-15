@@ -44,7 +44,7 @@ Les fils d'énergie originelle étaient très denses et rarement entrelacés. Ce
 
 Les pupilles de Wang Lin se rétractèrent. Il ne pensait pas que le sort subsisterait après l'effondrement des tunnels.
 
-Toutefois, débarrassé de l'obstruction de la terre, il fut bien plus facile pour Wang Lin de s'échapper par la sortie qui apparaissait toutes les demi-heures.
+Toutefois, débarrassé de l'obstruction de la terre, il fut bien plus facile pour Wang Lin de s'échapper par la sortie qui apparaissait toutes les heures.
 
 Dès l'apparition de la porte lumineuse suivante, le corps de Wang Lin vacilla et il franchit le seuil à sa vitesse maximale, suivi de près par la garde céleste et la Bête du Tonnerre.
 

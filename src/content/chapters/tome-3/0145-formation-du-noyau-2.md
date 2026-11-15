@@ -146,7 +146,7 @@ Il pointa l'une d'elles et la lança contre la sphère. Lentement, la pointe de 
 
 Sous son contrôle, les trente-quatre épées restantes furent tour à tour englouties. Finalement, la sphère commença à émettre une lumière arc-en-ciel aveuglante.
 
-Tout le processus, de l'introduction de la Vigne de la Lune Violette jusqu'à cet instant, avait duré près de deux heures. Durant ce laps de temps, Wang Lin n'avait fait que se concentrer sur le raffinage. Loin de se relâcher, il intensifia son attention en sortant l'épée volante noire de son sac de rangement.
+Tout le processus, de l'introduction de la Vigne de la Lune Violette jusqu'à cet instant, avait duré près de quatre heures. Durant ce laps de temps, Wang Lin n'avait fait que se concentrer sur le raffinage. Loin de se relâcher, il intensifia son attention en sortant l'épée volante noire de son sac de rangement.
 
 On pourrait dire que cette épée avait partagé bien des épreuves avec lui: depuis son obtention, quand elle avait tué le maître de Zhang Hu, puis bu le sang de Teng Li, jusqu'à la grande bataille de la Vallée Jue Ming. Lorsque le corps de Wang Lin avait été anéanti et que son sens divin avait été emporté par Situ Nan, la lame de l'épée s'était brisée. Cependant, grâce au raffinage au sang qui la liait à Wang Lin, un fragment de l'esprit de l'épée avait survécu, fusionné dans son sens divin.
 

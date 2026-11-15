@@ -170,7 +170,7 @@ Cependant, en secret, de nombreux cultivateurs profitèrent du chaos pour commet
 
 Mais tout cela ne concernait pas Wang Lin. Pour l'instant, il sentait son noyau rétrécir sans cesse. Un fil rouge reposait sur lui, absorbant rapidement toute son énergie. Si le noyau venait à se fissurer ou à se briser, la mort serait son seul destin.
 
-Sa culture avait déjà chuté du stade avancé de la Formation du Noyau au stade intermédiaire. Selon ses calculs, il passerait du stade intermédiaire au stade initial dans trois heures, puis, une demi-heure après cela, son noyau se briserait.
+Sa culture avait déjà chuté du stade avancé de la Formation du Noyau au stade intermédiaire. Selon ses calculs, il passerait du stade intermédiaire au stade initial dans six heures, puis, une heure après cela, son noyau se briserait.
 
 Wang Lin ne pouvait pas se soucier de son rendez-vous avec Qiu Siping le septième jour. Sa priorité était de trouver un moyen d'extraire ce fil rouge.
 
