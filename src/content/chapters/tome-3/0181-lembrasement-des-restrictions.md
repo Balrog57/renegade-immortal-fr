@@ -208,7 +208,7 @@ S'il le voulait, il pouvait simplement quitter la montagne et attendre que tout 
 
 Mais désormais, il semblait que tous ses préparatifs étaient vains. À moins que le Seigneur Démon des Six Désirs et l'Empereur Antique ne soient devenus fous, ils n'envisageraient jamais de revenir ici, tant l'anneau de lumière noire qui se contractait était intimidant.
 
-Selon le plan de Wang Lin, peu importait que l'un ou l'autre franchisse la deuxième barrière. S'il avait laissé passer l'Empereur Antique, c'était simplement parce que les restrictions suivantes étaient trop ardues pour lui. Il voulait aussi tester la puissance des pièges situés dans les derniers cinq mille pieds afin de mieux les affronter à l'avenir.
+Selon le plan de Wang Lin, peu importait que l'un ou l'autre franchisse la deuxième barrière. S'il avait laissé passer l'Empereur Antique, c'était simplement parce que les restrictions suivantes étaient trop ardues pour lui. Il voulait aussi tester la puissance des pièges situés dans les cinq mille derniers pieds afin de mieux les affronter à l'avenir.
 
 Bien que son objectif fût atteint, Wang Lin ne pouvait s'empêcher de fixer l'anneau noir. Ce phénomène dépassait totalement ses prévisions.
 

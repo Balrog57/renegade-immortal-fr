@@ -78,7 +78,7 @@ Les pas de Wang Lin s'arrêtèrent alors qu'il ressentait les fluctuations d'âm
 
 La poussière sur les marches était particulièrement épaisse; il était évident que personne n'y avait foulé le sol depuis longtemps.
 
-Le Sens Divin de Wang Lin avait balayé les corps d'âmes du septième étage. Le Retour de l'Âme Guidée et l'illusion multicouche étaient présentes, mais celles du huitième étage seraient bien plus complètes.
+Le Sens Divin de Wang Lin avait balayé les corps d'âmes du septième étage. Le Retour de l'Âme Guidée et l'illusion multicouche étaient présents, mais ceux du huitième étage seraient bien plus complètes.
 
 « Si je n'utilise pas le pouvoir de mon avatar dans le vide, il sera très difficile d'atteindre le huitième étage... » Wang Lin fronça les sourcils et commença à évaluer les risques et les bénéfices tout en percevant lentement son avatar dans le vide.
 

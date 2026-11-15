@@ -64,7 +64,7 @@ C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin comprit que s
 
 « Cette planète provient d'une planète illusoire qui brûle éternellement dans le domaine du Kun Xu. Cette planète illusoire était immense, plus de mille fois plus grande que la planète Tian Yun! » La voix de Ling Tianhou était calme, mais empreinte d'une pointe de fierté.
 
-« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par le Estimé Xu Ling de la Secte Kun Xu. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
+« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par l'Estimé Xu Ling de la Secte Kun Xu. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
 
 « Kun Xu! » L'expression de Wang Lin changea. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Qing Shui. Il semblait que le Système Stellaire de l'Alliance s'appelait autrefois le Système Stellaire du Kun Xu.
 

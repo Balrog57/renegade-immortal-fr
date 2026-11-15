@@ -82,7 +82,7 @@ Ses paroles précédentes semblaient banales, mais chaque mot cachait une intent
 
 Mais Tian Yunzi ne s'attendait pas à ce que Wang Lin, qui semblait incapable de trouver son corps originel, en soit désormais capable!
 
-Tian Yunzi lui avait donné cette confiance! C'étaient les 3 000 avatars de Tian Yunzi qui lui donnaient cette confiance!
+Tian Yunzi lui avait donné cette confiance! C'étaient les 3 000 avatars de Tian Yunzi qui lui offraient ce pouvoir!
 
 Wang Lin pouvait verrouiller chaque avatar. Il pouvait utiliser leurs auras pour traquer le corps originel!
 

@@ -60,7 +60,7 @@ Wang Lin poussa un cri: « Tuez! » Les yeux du garde céleste brillèrent inten
 
 Les pupilles de Qian Kuizi se rétractèrent soudainement, mais il ne se leva pas et resta assis. Sa main droite traça des sceaux devant lui tandis qu'il commençait à murmurer. Il cracha ensuite rune après rune qui l'entourèrent immédiatement. Chaque rune dégageait une aura puissante et convergea rapidement vers le garde céleste.
 
-Le garde céleste avait été créé par l'Empereur Céleste Qing Lin dans le but d'imiter un dieu ancien; la plupart de ses capacités résidaient donc dans la puissance brute de son corps. À cet instant, la main du gardien forma un sceau et une explosion de lumière dorée jaillit de sa paume. Bientôt, cette lumière enveloppa tout son corps, le transformant en un colosse d'or. Il fit un pas en avant et lança un coup de poing.
+Le garde céleste avait été créé par l'Empereur Céleste Qing Lin dans le but d'imiter un dieu ancien; la plupart de ses capacités résidaient donc dans la puissance brute de son corps. À cet instant, la main du garde forma un sceau et une explosion de lumière dorée jaillit de sa paume. Bientôt, cette lumière enveloppa tout son corps, le transformant en un colosse d'or. Il fit un pas en avant et lança un coup de poing.
 
 Ce coup provoqua une série de détonations soniques parmi les étoiles. D'innombrables fissures apparurent également, et l'impact brisa toutes les runes sur son passage.
 

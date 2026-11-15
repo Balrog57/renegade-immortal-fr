@@ -30,7 +30,7 @@ Wu Feng fut le premier du Clan Céleste à remarquer ce phénomène; il se tenai
 
 Au même moment, profondément sous le palais de la Cité Ancestrale Céleste, existait un espace superposé. À l'intérieur de cet espace se trouvait une montagne, métamorphose du fou, qui demeurait immobile.
 
-Outre les puissants membres du Clan Céleste, les gens du Clan Ancien portaient également une attention soutenue à l'ouverture du Royaume Divin Immémorial. Les Grands Empyréens des clans Ji Gu et Shi observaient tous deux la scène.
+Outre les puissants membres du Clan Céleste, les gens du Clan Ancien portaient également une attention soutenue à l'ouverture du Royaume Divin Immémorial. Les Grands Empyréens des clans Ji Gu et Shi Gu observaient tous deux la scène.
 
 Quant à Xuan Luo, il avait déjà pressenti une anomalie en observant la montagne désertée où Wang Lin s'était rendu, ainsi que les perturbations célestes. Même l'Empereur Saint, qui était retournée sous le palais, en sortit de nouveau. Elle se tint aux côtés de Xuan Luo et contempla le ciel avec stupeur.
 

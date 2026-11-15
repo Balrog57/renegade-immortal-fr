@@ -24,9 +24,9 @@ L'expression de Wu Dongchan changea également en observant Qing Shui. En partic
 
 Quant à Qing Shui, son œil droit explosa soudainement en un amas de chair et de sang. Tout son Royaume Ji se déversa pour frapper le bras.
 
-Le bras trembla et, à cet instant précis, il relâcha sa prise sur l'âme originelle du Estimé Xuan Bao.
+Le bras trembla et, à cet instant précis, il relâcha sa prise sur l'âme originelle de l'Estimé Xuan Bao.
 
-Le dragon doré qui observait la bataille chargea sans hésiter, l'œil étincelant. Son corps massif fonça vers le Estimé Xuan Bao tandis que sa queue de dragon fouettait Qing Shui.
+Le dragon doré qui observait la bataille chargea sans hésiter, l'œil étincelant. Son corps massif fonça vers l'Estimé Xuan Bao tandis que sa queue de dragon fouettait Qing Shui.
 
 Il y avait aussi le bras imprégné de l'aura du Serpent aux yeux de lune. Il ouvrit la main et, cette fois, tendit ses doigts vers Qing Shui.
 
@@ -34,15 +34,15 @@ L'œil droit de Qing Shui n'était plus qu'un carnage sanglant et son œil gauch
 
 La puissance de ses huit dragons n'était surpassée que par l'« Appel du Vent » de Bai Fan, capable d'invoquer neuf dragons noirs. La force de huit dragons était plusieurs fois supérieure à celle de sept!
 
-Tandis que les huit dragons de l'« Appel du Vent » rugissaient, ils chargèrent directement l'âme originelle du Estimé Xuan Bao. Ils ne la détruisirent pas, mais en passant, ils provoquèrent l'effondrement quasi total de son âme originelle. Alors que les huit dragons encerclaient l'âme originelle, ils la scellaient continuellement, plongeant l'âme du Estimé Xuan Bao dans un état de coma. Puis, ils projetèrent l'âme vers le vortex à l'entrée.
+Tandis que les huit dragons de l'« Appel du Vent » rugissaient, ils chargèrent directement l'âme originelle de l'Estimé Xuan Bao. Ils ne la détruisirent pas, mais en passant, ils provoquèrent l'effondrement quasi total de son âme originelle. Alors que les huit dragons encerclaient l'âme originelle, ils la scellaient continuellement, plongeant l'âme de l'Estimé Xuan Bao dans un état de coma. Puis, ils projetèrent l'âme vers le vortex à l'entrée.
 
-Au moment même où l'âme originelle du Estimé Xuan Bao était expulsée vers l'entrée, le corps de Wang Lin jaillit du vortex. Il saisit immédiatement l'âme et recula avec célérité. En un éclair, il s'échappa du vortex.
+Au moment même où l'âme originelle de l'Estimé Xuan Bao était expulsée vers l'entrée, le corps de Wang Lin jaillit du vortex. Il saisit immédiatement l'âme et recula avec célérité. En un éclair, il s'échappa du vortex.
 
 Tout se déroula avec une fluidité parfaite, sans la moindre hésitation. Le sortilège de Qing Shui et l'intervention de Wang Lin étaient parfaitement synchronisés.
 
 Avant de partir, Wang Lin décela une trace de confiance au fond de la folie qui brûlait dans l'œil gauche de Qing Shui.
 
-« Senior Frère Qing Shui, je ferai de mon mieux! » Wang Lin surgit du vortex. Après avoir jeté l'âme originelle du Estimé Xuan Bao dans son sac, il se retourna et ouvrit son troisième œil sans hésiter. La force originelle de son troisième œil se répandit en éventail le long de la lueur rouge, visant le vortex.
+« Senior Frère Qing Shui, je ferai de mon mieux! » Wang Lin surgit du vortex. Après avoir jeté l'âme originelle de l'Estimé Xuan Bao dans son sac, il se retourna et ouvrit son troisième œil sans hésiter. La force originelle de son troisième œil se répandit en éventail le long de la lueur rouge, visant le vortex.
 
 Le dragon doré poussa un rugissement et changea immédiatement de direction. Il fut si rapide qu'il atteignit le vortex en un instant pour s'y engouffrer.
 
@@ -54,7 +54,7 @@ En voyant la tête du dragon géant, Wang Lin fut ébranlé. La proximité exer�
 
 Tout en s'échappant, les mains de Wang Lin formèrent un sceau; il sentit les dispositions de secours qu'il avait prises autour de lui. Son visage affichait une expression sombre et impitoyable.
 
-Le corps gigantesque du dragon doré était bien plus rapide que celui de Wang Lin. À ses yeux, Wang Lin n'était qu'une fourmi, et une telle fourmi avait osé dérober l'âme originelle du Estimé Xuan Bao sous son regard.
+Le corps gigantesque du dragon doré était bien plus rapide que celui de Wang Lin. À ses yeux, Wang Lin n'était qu'une fourmi, et une telle fourmi avait osé dérober l'âme originelle de l'Estimé Xuan Bao sous son regard.
 
 C'était un véritable sacrilège défiant le ciel!
 

@@ -119,7 +119,7 @@ L'homme fut surpris mais ne posa aucune question. Il frappa sa poitrine de la ma
 
 La pierre était effectivement très rudimentaire, comme l'homme l'avait affirmé. Elle ne détaillait que les nations voisines; plus on s'éloignait, plus les tracés devenaient flous.
 
-Cependant, grâce à la carte et à sa propre compréhension, Wang Lin comprit désormais que les douze nations du nord appartenaient àu Shi Gu. En descendant vers le sud, le territoire se scindait en deux directions pour former un triangle composé du Ji Gu et du Dao Gu.
+Cependant, grâce à la carte et à sa propre compréhension, Wang Lin comprit désormais que les douze nations du nord appartenaient au Shi Gu. En descendant vers le sud, le territoire se scindait en deux directions pour former un triangle composé du Ji Gu et du Dao Gu.
 
 La cité Hei Shi se situait à la périphérie du pays Mu Sang, au sein du Shi Gu.
 

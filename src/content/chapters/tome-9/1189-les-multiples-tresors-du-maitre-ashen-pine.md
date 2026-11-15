@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1189 - The Many Treasures of Master Ashen Pine
 slug: les-multiples-tresors-du-maitre-ashen-pine
 ---
-Les yeux de Cang Songzi brillèrent d'une lueur étrange lorsqu'il déclara lentement: « C'est l'écriture du Dao! Je ne crains pas que le Daoïste Zhao ne découvre mon véritable dessein. Les âmes de bêtes ne sont qu'un objectif secondaire; mon véritable but est de contempler l'écriture du Dao! »
+Les yeux de Cang Songzi brillèrent d'une lueur étrange lorsqu'il déclara lentement: « C'est l'écriture du Dao! Je ne crains pas que la Daoïste Zhao ne découvre mon véritable dessein. Les âmes de bêtes ne sont qu'un objectif secondaire; mon véritable but est de contempler l'écriture du Dao! »
 
 « De nombreux Éveillés sont présents ici, l'écriture du Dao n'est de toute évidence pas simple. Cang Songzi, vous... » La vieille femme en vert fixa Cang Songzi.
 
@@ -28,11 +28,11 @@ La vieille femme en vert observa la barrière de lumière noire. Elle s'en appro
 
 Cang Songzi sourit et tendit la main. Un espace de stockage s'ouvrit et un objet en sortit: une aiguille noire gravée d'une marque spiralée. Dès qu'il l'eut extraite, une pression écrasante commença à se propager.
 
-« Daoïste Zhao sait-elle ce que c'est? » demanda Cang Songzi.
+« La Daoïste Zhao sait-elle ce que c'est? » demanda Cang Songzi.
 
 La vieille femme fixa l'aiguille, les yeux brillants d'un éclat singulier. Après l'avoir longuement examinée, elle murmura: « Un trésor étrange de l'Antiquité... l'Aiguille Brise-Restriction! »
 
-« Daoïste Zhao est véritablement digne de son titre de Grand Maître des restrictions, quelle connaissance! Je me demande avec quelle assurance vous comptez briser cette barrière avec ceci! »
+« La Daoïste Zhao est véritablement digne de son titre de Grand Maître des restrictions, quelle connaissance! Je me demande avec quelle assurance vous comptez briser cette barrière avec ceci! »
 
 La vieille femme réfléchit un instant et demanda: « Combien d'Aiguilles Brise-Restriction possédez-vous? »
 

@@ -28,11 +28,11 @@ Les yeux de Wang Lin s'arrêtèrent sur le troisième corps spirituel parmi les 
 
 « Il semble que la version complète se trouve au neuvième étage. » Wang Lin réfléchit et observa le septième corps spirituel. L'aura de ce dernier était aussi puissante que celle de l'illusion multicouche.
 
-Ce septième corps contenait le Retour de l'Âme Guidée qu'Yan Luan avait utilisée, et ce sort était complet au huitième étage.
+Ce septième corps contenait le Retour de l'Âme Guidée qu'Yan Luan avait utilisé, et ce sort était complet au huitième étage.
 
 Wang Lin pesa le pour et le contre entre ces deux options.
 
-« Même si je ne vais pas au neuvième étage maintenant, j'y irai un jour. Après tout, l'illusion multicouche est une technique que je dois absolument obtenir! De cette façon, il n'est pas nécessaire de la choisir immédiatement, et avec la gourde spirituelle, le Retour de l'Âme Guidée est plus appropriée pour le moment! » Après avoir mûri sa réflexion, les yeux de Wang Lin s'illuminèrent et il prit une décision. Une fois son choix fait, il ne revenait jamais en arrière. Il se dirigea vers le septième corps spirituel et s'assit. Sa main droite forma un sceau et pointa vers l'entité.
+« Même si je ne vais pas au neuvième étage maintenant, j'y irai un jour. Après tout, l'illusion multicouche est une technique que je dois absolument obtenir! De cette façon, il n'est pas nécessaire de la choisir immédiatement, et avec la gourde spirituelle, le Retour de l'Âme Guidée est plus approprié pour le moment! » Après avoir mûri sa réflexion, les yeux de Wang Lin s'illuminèrent et il prit une décision. Une fois son choix fait, il ne revenait jamais en arrière. Il se dirigea vers le septième corps spirituel et s'assit. Sa main droite forma un sceau et pointa vers l'entité.
 
 Le septième corps spirituel trembla et libéra une lumière fantomatique qui enveloppa tout le huitième étage. Elle dériva lentement au-dessus de la tête de Wang Lin, donnant l'impression qu'il était en pleine méditation.
 

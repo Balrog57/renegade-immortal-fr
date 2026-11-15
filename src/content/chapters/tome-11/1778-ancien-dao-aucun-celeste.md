@@ -108,6 +108,6 @@ La quatrième fleur noire s'effondra soudainement, se brisant en une tempête de
 
 Le sang jaillit du coin de la bouche de Wang Lin et il ne put le contenir. Il recula de plusieurs milliers de pieds dans les ruines de l'Ancienne Tombe. Ses yeux étaient empreints de regret et d'amertume.
 
-« J'ai utilisé le pouvoir de "le Dao Gu, Aucun Céleste" de force, mais il s'est quand même échappé... Je n'aurai pas la force de l'utiliser de nouveau de sitôt. Si j'avais eu l'œil gauche et que mon démon ancien avait été à neuf étoiles, cette bataille n'aurait pas été si difficile! »
+« J'ai utilisé le pouvoir de « Dao Gu, Aucun Céleste » de force, mais il s'est quand même échappé... Je n'aurai pas la force de l'utiliser de nouveau de sitôt. Si j'avais eu l'œil gauche et que mon démon ancien avait été à neuf étoiles, cette bataille n'aurait pas été si difficile! »
 
 « Je ne suis toujours pas son égal... Peu importe, je me rendrai à la cinquième fleur pour trouver la véritable porte. J'ouvrirai alors la grande porte du monde caverneux et j'emprunterai la puissance du Continent Xian Gang pour le sceller! » Wang Lin poussa un long soupir et disparut de l'Ancienne Tombe en plein effondrement.

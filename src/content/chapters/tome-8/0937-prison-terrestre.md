@@ -46,7 +46,7 @@ C'était la seule façon pour lui de contourner de justesse l'onde de choc qui p
 
 Deux silhouettes se croisaient au milieu d'un ballet de sorts divers: c'était Qing Shui et le dragon doré en plein combat.
 
-On ignorait ce qui s'était produit auparavant. L'âme originelle du Estimé Xuan Bao ne se trouvait plus auprès du dragon doré; elle était désormais encerclée par plus de dix tentacules, les yeux clos, paraissant extrêmement affaiblie.
+On ignorait ce qui s'était produit auparavant. L'âme originelle de l'Estimé Xuan Bao ne se trouvait plus auprès du dragon doré; elle était désormais encerclée par plus de dix tentacules, les yeux clos, paraissant extrêmement affaiblie.
 
 Une quantité massive d'énergie originelle céleste était absorbée par les tentacules. Des renflements ondulaient sur les tentacules, et quiconque assistait à cette scène en avait l'esprit ébranlé.
 
@@ -58,7 +58,7 @@ Ce tunnel n'avait plus que la moitié de sa longueur initiale; il pouvait en voi
 
 Wang Lin resta immobile, se cachant pour observer attentivement la bataille.
 
-Tandis que le dragon doré rugissait, il encercla le Estimé Xuan Bao. Cinq talismans jaunes crépitant d'éclairs, étroitement liés à son corps, couvraient le dragon. Qing Shui se tenait devant lui, l'expression indifférente. Son œil droit brilla d'une lueur rouge qui se mua en éclairs écarlates. La foudre rouge jaillit vers le dragon doré!
+Tandis que le dragon doré rugissait, il encercla l'Estimé Xuan Bao. Cinq talismans jaunes crépitant d'éclairs, étroitement liés à son corps, couvraient le dragon. Qing Shui se tenait devant lui, l'expression indifférente. Son œil droit brilla d'une lueur rouge qui se mua en éclairs écarlates. La foudre rouge jaillit vers le dragon doré!
 
 Au rugissement du dragon, les écailles de son corps s'illuminèrent. Une aura antique émana de sa voix, proclamant: « Métal ruiné! »
 
@@ -70,7 +70,7 @@ Le regard de Qing Shui demeura glacial; les éclairs rouges précédents s'épai
 
 Une explosion capable de faire trembler les cieux résonna dans le Serpent aux yeux de lune et une tempête déferla dans le tunnel étroit. À cet instant, le passage fut élargi par la force brute. Des fissures apparurent sur la paroi charnue et du sang vert s'en écoula!
 
-Le dragon doré poussa un rugissement de douleur et fut contraint de reculer sous l'impact. Cependant, il s'enroula autour du Estimé Xuan Bao tel un python pour continuer à le protéger.
+Le dragon doré poussa un rugissement de douleur et fut contraint de reculer sous l'impact. Cependant, il s'enroula autour de l'Estimé Xuan Bao tel un python pour continuer à le protéger.
 
 En conséquence, son corps commença à se briser sous le choc, projetant des éclats de sang doré.
 
@@ -106,11 +106,11 @@ Peu importe la puissance de votre sort, vous ne pouviez échapper au concept de 
 
 En un instant, avec Qing Shui comme épicentre, tout fut enveloppé par une force de scellement invisible. Même l'inversion des cinq éléments se trouva piégée.
 
-Qing Shui se déplaça comme l'éclair et rejoignit le dragon doré. Sa main traversa directement le corps du dragon doré pour saisir l'âme originelle du Estimé Xuan Bao, nichée au cœur du dragon.
+Qing Shui se déplaça comme l'éclair et rejoignit le dragon doré. Sa main traversa directement le corps du dragon doré pour saisir l'âme originelle de l'Estimé Xuan Bao, nichée au cœur du dragon.
 
-D'un geste sec de la main, il brisa les innombrables tentacules qui entouraient le Estimé Xuan Bao, projetant des gerbes de sang vert partout.
+D'un geste sec de la main, il brisa les innombrables tentacules qui entouraient l'Estimé Xuan Bao, projetant des gerbes de sang vert partout.
 
-Les yeux clos du Estimé Xuan Bao s'ouvrirent soudainement, empreints de terreur. Pourtant, malgré ses efforts désespérés, il ne pouvait échapper à la main de Qing Shui, semblable à une griffe d'acier!
+Les yeux clos de l'Estimé Xuan Bao s'ouvrirent soudainement, empreints de terreur. Pourtant, malgré ses efforts désespérés, il ne pouvait échapper à la main de Qing Shui, semblable à une griffe d'acier!
 
 Alors que Qing Shui s'apprêtait à partir avec sa prise, une aura maléfique jaillit soudainement de la fissure supérieure. Elle prit la forme d'un bras rouge sang et percuta de plein fouet le corps de Qing Shui.
 
@@ -118,10 +118,10 @@ Cette aura dense et malveillante contenait également l'essence du Serpent aux y
 
 Le bras fut d'une rapidité telle qu'il semblait posséder le pouvoir de briser tous les sorts. En frappant le corps de Qing Shui, il le fit chanceler. Malgré sa culture, ce dernier ne put résister et fut projeté en arrière, crachant une large traînée de sang.
 
-Simultanément, le bras agrippa l'âme originelle du Estimé Xuan Bao et la retira violemment. Il s'apprêtait à la ramener dans la fissure.
+Simultanément, le bras agrippa l'âme originelle de l'Estimé Xuan Bao et la retira violemment. Il s'apprêtait à la ramener dans la fissure.
 
 À cet instant, les yeux habituellement indifférents de Qing Shui se remplirent de folie pure. Le Estimé Xuan Bao était son seul espoir de savoir ce qui s'était passé dans le Royaume Céleste. Le voir ainsi emporté par un tiers rendit Qing Shui fou de rage.
 
 Il est vrai que même Bai Fan n'aurait pas osé provoquer la colère de Qing Shui. Au lieu de cela, il n'avait pu que l'apaiser par des bienfaits et l'accepter comme disciple, pour qu'il lui soit redevable. Même l'être mystérieux du système stellaire de Luotian que Maître Yan Leizi respectait tant ne cherchait pas à s'attirer les foudres de Qing Shui.
 
-Mais aujourd'hui, la colère de Qing Shui explosa lorsque le Estimé Xuan Bao fut arraché!
+Mais aujourd'hui, la colère de Qing Shui explosa lorsque l'Estimé Xuan Bao fut arraché!

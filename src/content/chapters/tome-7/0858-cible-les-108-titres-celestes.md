@@ -102,7 +102,7 @@ Les 36 Célestes du Ciel recevraient une promesse du Temple Lei Xian et des deux
 
 Les yeux de Wang Lin s'illuminèrent et il demanda: « Frère Li, seriez-vous intéressé par la conquête de l'un des 108 titres célestes? »
 
-Li Yuan réfléchit. Après un long silence, il eut un sourire amer. « Ce serait vain avec mon niveau de culture actuel. Je me prépare à entrer en méditation en isolement pour atteindre le stade de l'Yin Illusoire! » Les yeux de Li Yuan brillaient de détermination lorsqu'il parlait. Il devait impérativement réaliser une percée, quoi qu'il en coûte, pour rendre sa gloire à sa famille.
+Li Yuan réfléchit. Après un long silence, il eut un sourire amer. « Ce serait vain avec mon niveau de culture actuel. Je me prépare à entrer en isolement pour atteindre le stade de l'Yin Illusoire! » Les yeux de Li Yuan brillaient de détermination lorsqu'il parlait. Il devait impérativement réaliser une percée, quoi qu'il en coûte, pour rendre sa gloire à sa famille.
 
 Wang Lin hocha la tête et dit calmement: « Avec votre talent, Frère Li, une percée n'est qu'une question de temps! » Il réfléchit un instant avant de frapper son sac pour en sortir un morceau de jade. Il y grava ensuite le sort de l'Origine du Tonnerre.
 

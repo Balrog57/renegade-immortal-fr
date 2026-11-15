@@ -60,7 +60,7 @@ Tandis que Wang Lin écoutait cette voix ancestrale, une onde de choc déferla s
 
 Le Royaume Céleste Antique s'était brisé, entraînant la division du Système Stellaire Antique en deux entités distinctes!
 
-« Le Royaume Céleste Antique subit de lourdes pertes lors de ce bouleversement, et d'innombrables vies furent fauchées. Même l'Empereur Céleste, qui existait depuis l'aube des temps, fut gravement blessé par ce trésor. Il entra en culture en isolement et ne s'intéressa plus au monde extérieur. Cependant, les habitants du Royaume Céleste Antique résidant dans le Royaume Extérieur lorgnaient toujours sur le Royaume Intérieur sous la direction de neuf Concubines Célestes. Ce qu'ils convoitaient, c'était ce trésor et le chemin menant au Royaume Céleste Antique!
+« Le Royaume Céleste Antique subit de lourdes pertes lors de ce bouleversement, et d'innombrables vies furent fauchées. Même l'Empereur Céleste, qui existait depuis l'aube des temps, fut gravement blessé par ce trésor. Il entra en isolement et ne s'intéressa plus au monde extérieur. Cependant, les habitants du Royaume Céleste Antique résidant dans le Royaume Extérieur lorgnaient toujours sur le Royaume Intérieur sous la direction de neuf Concubines Célestes. Ce qu'ils convoitaient, c'était ce trésor et le chemin menant au Royaume Céleste Antique!
 
 « En tant que Céleste du Dao, je suis descendu du Royaume Céleste Antique pour régner sur le Royaume Intérieur afin de repousser l'invasion du Royaume Extérieur et les combattre! Cependant, avant que je ne puisse accomplir ma mission, j'ai été trahi par mon esclave Dao. J'ai été gravement blessé par les gens du Royaume Extérieur et plusieurs habitants du Royaume Céleste Antique extérieur, unis contre moi. Finalement, une concubine céleste a porté l'estocade, détruisant mon corps. J'ai été contraint d'entrer dans la Perle Défiant le Ciel et de subsister en tant qu'esprit du trésor... »
 
@@ -70,7 +70,7 @@ Le cœur de Wang Lin chancela, et il demanda promptement: « Qu'est-ce que la Pe
 
 « Cependant, je ne fus pas le premier maître de la Perle Défiant le Ciel. Au cours de mes innombrables années d'étude, j'ai découvert qu'il y eut deux autres possesseurs. Chacun d'eux était bien plus puissant que moi... Ils devaient être des cultivateurs d'un système stellaire étranger!
 
-« De plus, j'en ai déduit que la Perle Défiant le Ciel était l'élément le plus crucial de la boussole! Hélas, l'Empereur Céleste est en culture en isolement; autrement, il aurait pu percer et découvrir le secret ultime de la Perle Défiant le Ciel: l'emplacement du Royaume Divin Immémorial! »
+« De plus, j'en ai déduit que la Perle Défiant le Ciel était l'élément le plus crucial de la boussole! Hélas, l'Empereur Céleste est en isolement; autrement, il aurait pu percer et découvrir le secret ultime de la Perle Défiant le Ciel: l'emplacement du Royaume Divin Immémorial! »
 
 « Le Royaume Divin Immémorial! » Wang Lin accumulait des secrets de plus en plus vertigineux. Il venait d'apprendre l'origine du Royaume Céleste Antique et de la Perle Défiant le Ciel; voilà qu'on lui parlait maintenant du Royaume Divin Immémorial!
 

@@ -12,7 +12,7 @@ La voix de Xue Zu était empreinte d'une intention meurtrière qui emplissait to
 
 C'était comme si une flamme noire dévorait l'espace de stockage derrière lui. Cette flamme, féroce, cherchait à engloutir Xue Zu.
 
-Alors que Xue Zu s'apprêtait à franchir le réseau de transfert pour s'échapper, l'expression de Wang Lin, qui était poursuivi par l'aiguille rouge, s'assombrit instantanément. Bien que son âme originelle à l'intérieur du garde céleste ait été détruite, le gardien n'avait pas encore été totalement raffiné par la mer de sang.
+Alors que Xue Zu s'apprêtait à franchir le réseau de transfert pour s'échapper, l'expression de Wang Lin, qui était poursuivi par l'aiguille rouge, s'assombrit instantanément. Bien que son âme originelle à l'intérieur du garde céleste ait été détruite, le garde n'avait pas encore été totalement raffiné par la mer de sang.
 
 Grâce au lien qu'il entretenait avec le garde céleste, Wang Lin put voir le réseau de transfert scintiller et la silhouette de Xue Zu se condenser rapidement.
 

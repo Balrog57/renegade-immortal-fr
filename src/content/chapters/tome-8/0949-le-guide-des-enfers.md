@@ -124,4 +124,4 @@ Bang, bang, bang, bang!
 
 En un instant, d'innombrables édifices en forme d'épées s'effondrèrent!
 
-« Qu'est-ce que ce Royaume Sha Yu a bien pu prendre au Senior frère Qing Shui pour qu'il soit si enragé après avoir fouillé la mémoire du Estimé Xuan Bao? » Wang Lin sortit du vortex et fixa froidement le Royaume Sha Yu, l'un des huit royaumes de l'Alliance Xiu Zhen!
+« Qu'est-ce que ce Royaume Sha Yu a bien pu prendre au Senior frère Qing Shui pour qu'il soit si enragé après avoir fouillé la mémoire de l'Estimé Xuan Bao? » Wang Lin sortit du vortex et fixa froidement le Royaume Sha Yu, l'un des huit royaumes de l'Alliance Xiu Zhen!

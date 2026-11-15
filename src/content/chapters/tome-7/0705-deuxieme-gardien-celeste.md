@@ -38,7 +38,7 @@ Peu de temps après, le regard de Wang Lin se glaça alors qu'il entendait des b
 
 Lei Daozi vit la lumière argentée approcher au loin; lorsqu'il comprit qu'il s'agissait de Wang Lin, le désespoir dans ses yeux redoubla. Il avait déjà épuisé la majeure partie de l'énergie originelle de son corps, et s'il en utilisait davantage, son niveau de culture chuterait et il ne pourrait jamais atteindre le stade du Yang Corporel! De plus, il était terrifié, particulièrement par ces deux rayons d'énergie d'épée!
 
-Le regard de Wang Lin était glacial. Il devait tuer ce Lei Daozi! Cet homme était un messager du Temple Lei Xian. S'il n'était pas tué et qu'on le laissait s'échapper, des ennuis sans fin l'attendraient à l'avenir.
+Le regard de Wang Lin était glacial. Il devait tuer Lei Daozi! Cet homme était un messager du Temple Lei Xian. S'il n'était pas tué et qu'on le laissait s'échapper, des ennuis sans fin l'attendraient à l'avenir.
 
 Wang Lin frappa son sac de rangement et sept épées précieuses en sortirent, formant la Formation d'Épée aux Sept Étoiles. Ces lames sifflèrent dans les airs vers Lei Daozi.
 

@@ -26,7 +26,7 @@ Toutefois, le temps semblait long. Une heure plus tard, il était déjà midi. L
 
 Certains ne pouvaient plus supporter cette épreuve. Malgré leur force de caractère, la chaleur accablante les faisait vaciller. Près de l'avant, un homme d'âge moyen vêtu d'une robe de notable reçut un morceau de glace de la part d'un serviteur. En le plaçant sur son front, il ne put s'empêcher de marmonner une plainte:
 
-« Le Grand Céleste a-t-il oublié de venir... Cela fait presque trois heures que nous attendons. Il est midi, l'heure la plus chaude. Combien de temps devrons-nous encore patienter... »
+« Le Grand Céleste a-t-il oublié de venir... Cela fait plus de trois heures que nous attendons. Il est midi, l'heure la plus chaude. Combien de temps devrons-nous encore patienter... »
 
 Un vieillard à l'allure maladive situé devant lui entendit le fonctionnaire et se retourna immédiatement pour lui lancer un regard noir. « Silence! Même si le Grand Céleste ne venait pas, ce serait normal. Si tu ne veux pas attendre, personne ne te force! »
 
