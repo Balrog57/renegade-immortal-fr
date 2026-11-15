@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2010 - The Teacher is Like a Father!"
 slug: le-maitre-est-comme-un-pere
 ---
-Une fois qu'il eut parlé, le silence s'abattit sur l'assemblée et tous les regards se tournèrent vers Wang Lin. C'était comme l'avait dit le vieil homme: dans le Dao Gu, hormis le Grand Empyréen, quiconque se trouvait en présence de l'Empereur du Dao Gu devait s'agenouiller!
+Une fois qu'il eut parlé, le silence s'abattit sur l'assemblée et tous les regards se tournèrent vers Wang Lin. C'était comme l'avait dit le vieil homme: dans le Dao Gu, hormis le Grand Empyréen, quiconque se trouvait en présence de l'Empereur Dao Gu devait s'agenouiller!
 
 C'était là l'incarnation même du pouvoir impérial. Ne pas s'y soumettre équivalait à un acte d'irrespect envers la puissance souveraine!
 
@@ -14,7 +14,7 @@ Et au sein du clan Ancien, peu de crimes étaient plus graves que le manque de r
 
 Même Xuan Luo fut stupéfait en entendant ces mots. Bien qu'il fût un Grand Empyréen, il appartenait toujours au Dao Gu. Avant d'atteindre ce rang, il devait encore s'agenouiller devant l'empereur de sa génération pour marquer son respect.
 
-L'Empereur du Dao Gu sourit en regardant Wang Lin, mais un ricanement intérieur le traversa. Il était venu aujourd'hui pour vérifier si la personne ayant causé l'anomalie de l'encensoir était bien celle qu'il soupçonnait.
+L'Empereur Dao Gu sourit en regardant Wang Lin, mais un ricanement intérieur le traversa. Il était venu aujourd'hui pour vérifier si la personne ayant causé l'anomalie de l'encensoir était bien celle qu'il soupçonnait.
 
 Si ce n'était pas le cas, il recruterait cette personne.
 
@@ -26,7 +26,7 @@ Mais s'il s'agissait bien de l'individu qu'il avait en tête, il devait voir de 
 
 « Un Grand Empyréen n'a pas le droit de décider de mon destin. S'il a agi ainsi autrefois, c'est parce qu'il pensait que son disciple obtiendrait la reconnaissance du Grand Empyréen Gu Dao! »
 
-« Mais il n'est sûrement pas un descendant direct de l'Ancêtre Ancien. Je ne crois pas qu'il obtiendra jamais la reconnaissance du Grand Empyréen Gu Dao!! » L'Empereur du Dao Gu conservait son sourire serein, mais sous cette façade se cachaient des siècles de jalousie!
+« Mais il n'est sûrement pas un descendant direct de l'Ancêtre Ancien. Je ne crois pas qu'il obtiendra jamais la reconnaissance du Grand Empyréen Gu Dao!! » L'Empereur Dao Gu conservait son sourire serein, mais sous cette façade se cachaient des siècles de jalousie!
 
 Cette jalousie brûlait en lui depuis que Wang Lin avait obtenu le sang d'âme, et elle atteignit son paroxysme lorsqu'il comprit que Wang Lin était bel et bien l'Ascendant Empyréen aux Cheveux Blancs, le numéro un sous les Grands Empyréens. Sa rancœur fut soudainement attisée, mais il parvint à la réprimer.
 
@@ -42,7 +42,7 @@ Plus important encore, sous l'égide du regard de Wang Lin, il sentit son sang f
 
 « Assez! Es-tu venu ici pour forcer mon disciple à s'agenouiller devant toi? Il est le futur gardien du Dao Gu que j'ai choisi. » Xuan Luo afficha un visage mécontent.
 
-L'Empereur du Dao Gu sourit et tourna un regard glacial vers le vieil homme.
+L'Empereur Dao Gu sourit et tourna un regard glacial vers le vieil homme.
 
 « Recule. Le disciple du Seigneur Xuan possède le même statut que moi. Tu n'as pas le droit de parler! »
 
@@ -52,7 +52,7 @@ Le vieil homme hocha précipitamment la tête, couvert de sueur. On ignorait si 
 
 « Mais aujourd'hui, je suis comblé de joie! »
 
-« Ce puissant cultivateur, premier sous les Grands Empyréens, est un membre de mon Dao Gu! C'est une nouvelle merveilleuse! » L'Empereur du Dao Gu souriait comme s'il était transporté par le bonheur.
+« Ce puissant cultivateur, premier sous les Grands Empyréens, est un membre de mon Dao Gu! C'est une nouvelle merveilleuse! » L'Empereur Dao Gu souriait comme s'il était transporté par le bonheur.
 
 « Chambellan! » Tandis que l'Empereur souriait, un autre vieil homme derrière lui s'inclina immédiatement.
 
@@ -76,7 +76,7 @@ Cependant, la progression de Wang Lin avait dépassé toutes les attentes de Xua
 
 « Merci... Empereur. » Wang Lin tenait le jade, son expression restant imperturbable. Il recula de quelques pas pour se placer aux côtés de Xuan Luo.
 
-L'Empereur du Dao Gu acquiesça avec un sourire. Il regarda Xuan Luo et s'inclina.
+L'Empereur Dao Gu acquiesça avec un sourire. Il regarda Xuan Luo et s'inclina.
 
 « Je m'en vais maintenant. Je suis très heureux de t'avoir rencontré aujourd'hui, Wang Lin. Le choix du Seigneur Xuan est pour l'avenir de mon Dao Gu! » Après avoir vu Xuan Luo hocher la tête, l'Empereur agita sa manche. Il ne daigna même pas regarder Wang Lin en se détournant pour partir. Ses gardes s'inclinèrent devant Xuan Luo et disparurent rapidement.
 

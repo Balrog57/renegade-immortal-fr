@@ -100,7 +100,7 @@ Cependant, lorsqu'un escroc devient célèbre, ce n'est guère une bonne chose p
 
 Le temps s'écoula lentement, sur une très longue période.
 
-Xuan Luo était depuis longtemps retourné au clan du Dao Gu avec une expression sombre et s'était retiré en culture fermée. Lorsque l'Empereur du Dao Gu vit Xuan Luo revenir seul, il ricana intérieurement. Il finit par oublier pourquoi Xuan Luo était parti chercher quelqu'un.
+Xuan Luo était depuis longtemps retourné au clan du Dao Gu avec une expression sombre et s'était retiré en culture fermée. Lorsque l'Empereur Dao Gu vit Xuan Luo revenir seul, il ricana intérieurement. Il finit par oublier pourquoi Xuan Luo était parti chercher quelqu'un.
 
 Il semblait que beaucoup de gens ne pensaient plus à cet homme nommé Wang Lin. Le Continent Xian Gang était ainsi, et le monde des grottes en était de même. Pourtant, quelques âmes ne pouvaient oublier ce nom dès qu'elles se remémoraient le passé.
 

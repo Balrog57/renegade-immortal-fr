@@ -36,11 +36,11 @@ Wang Lin fronça les sourcils. Il fixa froidement la femme et demanda: « Que vo
 
 La femme porta un doigt près de sa bouche. Ses yeux étaient empreints d'un charme séduisant alors qu'elle souriait. « Quelle autre signification pourrais-je avoir? Je veux simplement que tu goûtes à la beauté de la vie. Je sens une aura très pure émaner de ton corps. Je parie que tu n'as pas encore goûté aux plaisirs d'une femme. Quelle chance pour moi. »
 
-Le regard de Wang Lin devint plus glacial encore et il dit calmement: « Si vous êtes ici, c'est que vous êtes gravement blessée. Honorable troisième ancêtre, reconnaissez-vous cet objet?! » Sur ces mots, il frappa son sac de rangement, faisant apparaître l'Étendard de l'Âme au Milliard d'Âmes. Des fragments d'âmes s'envolèrent en poussant des gémissements fantomatiques.
+Le regard de Wang Lin devint plus glacial encore et il dit calmement: « Si vous êtes ici, c'est que vous êtes gravement blessée. Honorable troisième ancêtre, reconnaissez-vous cet objet?! » Sur ces mots, il frappa son sac de rangement, faisant apparaître l'Étendard au Milliard d'Âmes. Des fragments d'âmes s'envolèrent en poussant des gémissements fantomatiques.
 
 Ces hurlements spectraux affectaient directement l'âme.
 
-Les yeux de la femme s'illuminèrent. Elle fixa le drapeau et répéta, mot pour mot: « L'Étendard de l'Âme au Milliard d'Âmes! »
+Les yeux de la femme s'illuminèrent. Elle fixa le drapeau et répéta, mot pour mot: « L'Étendard au Milliard d'Âmes! »
 
 La main gauche de Wang Lin pointa l'épée céleste, qui commença à briller. Puis, il abattit l'épée pour trancher le sol.
 
@@ -54,7 +54,7 @@ Wang Lin regarda la femme et dit: « Je n'ai utilisé que 10 % de mon énergie s
 
 Il n'avait aucune confiance face à cette femme. Après tout, elle représentait une existence comparable à un cultivateur Ascendant. Même blessée, elle disposait encore de nombreux moyens. Elle ne ressemblait en rien à ces chamans à huit feuilles que Wang Lin pouvait facilement éliminer grâce à son âme Ascendante.
 
-La femme esquissa un léger sourire. Elle regarda Wang Lin comme s'il était son amant et laissa échapper un rire provocateur. « Je ne cherche pas à t'imposer quoi que ce soit, je veux seulement partager le printemps avec toi. Pourquoi me tenir ainsi à distance? D'ailleurs, le Cimetière des Immortels compte 19 couches au total. Une fois que tu auras dépassé cette grande sœur, tu pourras découvrir le secret du pouvoir de tatouage de mon Clan Xian Yi. Plus important encore, il est gardé par le fragment d'âme du premier ancêtre de mon clan. Tu possèdes l'Étendard de l'Âme au Milliard d'Âmes; ne veux-tu pas aller récupérer le fragment d'âme du premier ancêtre... »
+La femme esquissa un léger sourire. Elle regarda Wang Lin comme s'il était son amant et laissa échapper un rire provocateur. « Je ne cherche pas à t'imposer quoi que ce soit, je veux seulement partager le printemps avec toi. Pourquoi me tenir ainsi à distance? D'ailleurs, le Cimetière des Immortels compte 19 couches au total. Une fois que tu auras dépassé cette grande sœur, tu pourras découvrir le secret du pouvoir de tatouage de mon Clan Xian Yi. Plus important encore, il est gardé par le fragment d'âme du premier ancêtre de mon clan. Tu possèdes l'Étendard au Milliard d'Âmes; ne veux-tu pas aller récupérer le fragment d'âme du premier ancêtre... »
 
 Wang Lin la dévisagea. Sa voix était glaciale: « Je vous accorde trois respirations. Que je parte ou que je me batte dépend de vous! »
 

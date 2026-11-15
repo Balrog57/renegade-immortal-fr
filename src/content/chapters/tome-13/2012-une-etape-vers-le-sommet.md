@@ -100,7 +100,7 @@ Il leva soudainement le pied et fit un pas en avant!
 
 Ce pas était la première résistance de Wang Lin contre le clan ancien! C'était son premier acte de défi envers eux. C'était la première fissure dans sa relation avec le clan ancien!
 
-À l'origine, il avait l'intention de rester au sein du clan par gratitude envers son maître. Il était prêt à endurer les prosternations devant l'Empereur du Dao Gu et à supporter l'impuissance face au pouvoir impérial du clan.
+À l'origine, il avait l'intention de rester au sein du clan par gratitude envers son maître. Il était prêt à endurer les prosternations devant l'Empereur Dao Gu et à supporter l'impuissance face au pouvoir impérial du clan.
 
 Cependant, même s'il comptait encore endurer, une fissure existait désormais entre lui et le clan ancien. Peut-être que, si rien d'autre ne se produisait, cette faille se refermerait lentement grâce à Xuan Luo...
 
@@ -108,14 +108,14 @@ Mais...
 
 Cette chance disparut totalement alors qu'un événement majeur se déroulait dans la cité impériale du Dao Gu!
 
-Dans le palais de la cité impériale du Dao Gu, l'Empereur du Dao Gu siégeait dans une salle annexe. Devant lui, trois vieillards vêtus de pourpre étaient agenouillés, transportés par l'excitation.
+Dans le palais de la cité impériale du Dao Gu, l'Empereur Dao Gu siégeait dans une salle annexe. Devant lui, trois vieillards vêtus de pourpre étaient agenouillés, transportés par l'excitation.
 
 « Votre Majesté, depuis des centaines d'années, nous avons cherché d'innombrables femmes pour fusionner avec l'âme, mais aucune n'y est parvenue. Le rejet était immense et aucune ne pouvait nourrir l'âme. »
 
 « Mais désormais, une femme a réussi à fusionner avec l'âme! » La voix du vieillard était vibrante de joie. Ils menaient ce plan en secret depuis des siècles. Ce qui l'attendait devait être une récompense grandiose!
 
-« D'où vient cette femme et quel est son nom? » L'Empereur du Dao Gu paraissait calme, mais il brûlait d'impatience. Il ne pouvait oublier les paroles de l'Enseignant Impérial. Cette âme pourrait lui permettre de devenir un véritable empereur antique, régnant sur l'ensemble du clan ancien!
+« D'où vient cette femme et quel est son nom? » L'Empereur Dao Gu paraissait calme, mais il brûlait d'impatience. Il ne pouvait oublier les paroles de l'Enseignant Impérial. Cette âme pourrait lui permettre de devenir un véritable empereur antique, régnant sur l'ensemble du clan ancien!
 
 L'un des autres vieillards s'exclama rapidement: « Elle vient du clan du Shi Gu, elle s'appelle Song Zhi! »
 
-« Faites entrer cette Song Zhi dans le palais. Je veux rencontrer cette femme en personne. Proclamez au monde que dans trois mois, j'organiserai une cérémonie grandiose! Je prendrai Song Zhi pour épouse et ferai d'elle l'Impératrice Antique! » L'Empereur du Dao Gu éclata de rire en se levant, ses yeux brillant d'une lumière monstrueuse.
+« Faites entrer cette Song Zhi dans le palais. Je veux rencontrer cette femme en personne. Proclamez au monde que dans trois mois, j'organiserai une cérémonie grandiose! Je prendrai Song Zhi pour épouse et ferai d'elle l'Impératrice Antique! » L'Empereur Dao Gu éclata de rire en se levant, ses yeux brillant d'une lumière monstrueuse.

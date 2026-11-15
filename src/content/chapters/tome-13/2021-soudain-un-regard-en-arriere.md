@@ -88,33 +88,33 @@ Lorsque le son du tambour disparut, tout le monde sur la place et sur les platef
 
 Alors que les portes étaient poussées, tous les regards se fixèrent sur la salle, sur l'homme assis sur un trône de dragon.
 
-Cet homme portait une robe royale et une couronne impériale. Il dégageait une pression imposante sans pour autant manifester de colère. C'était l'Empereur du Dao Gu!!
+Cet homme portait une robe royale et une couronne impériale. Il dégageait une pression imposante sans pour autant manifester de colère. C'était l'Empereur Dao Gu!!
 
-« Saluons tous l'Empereur!! » Sur la place et les plateformes, tout le monde, y compris les 18 Rois, s'inclina devant l'Empereur du Dao Gu!
+« Saluons tous l'Empereur!! » Sur la place et les plateformes, tout le monde, y compris les 18 Rois, s'inclina devant l'Empereur Dao Gu!
 
 Les membres n'appartenant pas au Dao Gu n'avaient pas l'obligation de s'agenouiller, mais tous les membres du Dao Gu devaient mettre un genou à terre. Wang Lin se leva en silence et s'inclina sans pour autant s'agenouiller!
 
 Bien que son expression semblât normale, cette sensation de massacre déchaînée submergeait son esprit comme une vague impétueuse. Il arrivait à peine à la contenir.
 
-Ce sentiment devint extrêmement violent au moment même où l'Empereur du Dao Gu apparut!!
+Ce sentiment devint extrêmement violent au moment même où l'Empereur Dao Gu apparut!!
 
-« Relevez-vous tous! C'est un événement joyeux pour moi. Célébrons cela par ce banquet, et buvez tous avec moi! » L'Empereur du Dao Gu sourit, mais lorsque son regard balaya Wang Lin, son cœur fut assombri par l'insatisfaction. Cependant, son expression resta imperturbable et il adressa même un sourire à Wang Lin, comme s'il se souciait de lui.
+« Relevez-vous tous! C'est un événement joyeux pour moi. Célébrons cela par ce banquet, et buvez tous avec moi! » L'Empereur Dao Gu sourit, mais lorsque son regard balaya Wang Lin, son cœur fut assombri par l'insatisfaction. Cependant, son expression resta imperturbable et il adressa même un sourire à Wang Lin, comme s'il se souciait de lui.
 
-« Je suis très heureux que tous ces amis aient pu venir dans mon Dao Gu. Aujourd'hui, je ne dirai pas grand-chose. Permettez-moi de lever mon verre à tous les amis présents! » L'Empereur du Dao Gu leva la main droite et une ombre apparut pour lui présenter une coupe de vin.
+« Je suis très heureux que tous ces amis aient pu venir dans mon Dao Gu. Aujourd'hui, je ne dirai pas grand-chose. Permettez-moi de lever mon verre à tous les amis présents! » L'Empereur Dao Gu leva la main droite et une ombre apparut pour lui présenter une coupe de vin.
 
 Simultanément, tous les convives sur la place et les plateformes saisirent le vin posé devant eux. Ils levèrent respectueusement leurs coupes.
 
 Wang Lin poussa un soupir silencieux et prit sa coupe. Il avait l'intention de remettre le présent de son maître après ce verre, puis de partir. L'irritation dans son cœur avait rendu son visage légèrement pâle.
 
-L'Empereur du Dao Gu sourit et but une gorgée. Tous les autres burent ensuite en signe de félicitations. Wang Lin ne but pas, mais posa sa coupe avec les autres et s'apprêtait à parler.
+L'Empereur Dao Gu sourit et but une gorgée. Tous les autres burent ensuite en signe de félicitations. Wang Lin ne but pas, mais posa sa coupe avec les autres et s'apprêtait à parler.
 
 « Outre cet événement joyeux, je souhaite également annoncer une autre affaire. Certains d'entre vous ont peut-être entendu dire que le disciple du Grand Empyréen Xuan Luo, l'Ascendant Empyréen aux cheveux blancs du clan céleste, sera le gardien de mon Dao Gu! »
 
-« Wang Lin, avance et écoute l'édit! » L'Empereur du Dao Gu sourit.
+« Wang Lin, avance et écoute l'édit! » L'Empereur Dao Gu sourit.
 
 Wang Lin avança silencieusement de quelques pas et joignit à nouveau les mains.
 
-« Tu ne t'agenouilles toujours pas? » L'expression de l'Empereur du Dao Gu se durcit. Il ne parla pas, mais fixa calmement Wang Lin.
+« Tu ne t'agenouilles toujours pas? » L'expression de l'Empereur Dao Gu se durcit. Il ne parla pas, mais fixa calmement Wang Lin.
 
 Après un long moment, tout le monde remarqua cette anomalie et les regards convergèrent vers Wang Lin.
 
@@ -122,12 +122,12 @@ Parmi ces nombreux regards, l'un d'eux provenait du Prince Ji Du. Il réprimait 
 
 « Empereur, je suis venu remettre un cadeau de félicitations au nom de mon Maître. J'ai des affaires importantes à régler, je prends donc congé. » Wang Lin n'avait plus aucune patience, car il était extrêmement irrité; il regarda froidement l'Empereur. Il ne savait pas pourquoi, mais en revoyant cet homme, il ressentait une intention meurtrière et un dégoût indicibles!
 
-Il agita sa manche et sortit la boîte que Xuan Luo lui avait confiée. Il la lança en avant, et elle fut rattrapée par une ombre apparue devant l'Empereur du Dao Gu. L'ombre remit respectueusement la boîte à l'Empereur.
+Il agita sa manche et sortit la boîte que Xuan Luo lui avait confiée. Il la lança en avant, et elle fut rattrapée par une ombre apparue devant l'Empereur Dao Gu. L'ombre remit respectueusement la boîte à l'Empereur.
 
-« Wang Lin, je te déclare gardien des princes de mon Dao Gu! Puisque tu as des affaires importantes, tu peux partir. J'espère que tu pourras assister à la grande cérémonie demain. » L'Empereur du Dao Gu regarda Wang Lin d'un air profond et sourit. Il semblait ne pas se soucier de ce qui venait de se passer et détourna le regard.
+« Wang Lin, je te déclare gardien des princes de mon Dao Gu! Puisque tu as des affaires importantes, tu peux partir. J'espère que tu pourras assister à la grande cérémonie demain. » L'Empereur Dao Gu regarda Wang Lin d'un air profond et sourit. Il semblait ne pas se soucier de ce qui venait de se passer et détourna le regard.
 
-Puis, l'Empereur du Dao Gu déclara: « Faites entrer l'Impératrice! »
+Puis, l'Empereur Dao Gu déclara: « Faites entrer l'Impératrice! »
 
 L'irritation dans le cœur de Wang Lin devint plus forte encore et il se tourna pour partir. Mais soudain, le son des cloches résonna à ses oreilles, fusionnant avec le sentiment qui l'habitait. Cela fit disparaître brusquement l'irritation de son cœur, comme si elle n'avait jamais existé.
 
-Wang Lin fut surpris et regarda en arrière. Il vit une femme vêtue d'une robe de phénix sortir de la salle et se diriger vers l'Empereur du Dao Gu.
+Wang Lin fut surpris et regarda en arrière. Il vit une femme vêtue d'une robe de phénix sortir de la salle et se diriger vers l'Empereur Dao Gu.

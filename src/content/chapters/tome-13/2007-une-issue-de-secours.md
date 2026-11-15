@@ -34,7 +34,7 @@ Le regard de Wang Lin balaya la femme. Elle ressemblait quelque peu au prince.
 
 Wang Lin reprit lentement: « Puisque vous connaissez mon identité, que vous savez que je suis le disciple de Xuan Luo et que vous m'avez vu demander la carte du Dao Gu, vous savez où je me rends. Alors, pourquoi vous inclinez-vous devant moi? »
 
-« Senior, le Dao Gu n'est pas un lieu propice... Même si vous êtes le disciple du Grand Empyréen Xuan Luo, l'Empereur du Dao Gu est d'une étroitesse d'esprit extrême. Si vous y allez, vous serez inévitablement malheureux... » Avant que le prince Ji Du n'ait pu achever sa phrase, une lueur glaciale traversa les yeux de Wang Lin et il laissa échapper un reniflement méprisant.
+« Senior, le Dao Gu n'est pas un lieu propice... Même si vous êtes le disciple du Grand Empyréen Xuan Luo, l'Empereur Dao Gu est d'une étroitesse d'esprit extrême. Si vous y allez, vous serez inévitablement malheureux... » Avant que le prince Ji Du n'ait pu achever sa phrase, une lueur glaciale traversa les yeux de Wang Lin et il laissa échapper un reniflement méprisant.
 
 D'un revers de manche, il se tourna pour quitter le palais.
 
@@ -116,7 +116,7 @@ Une fois ses paroles prononcées, Wang Lin rangea le coffret et le jade que Ji D
 
 Après le départ de Wang Lin, Ji Du était trempé de sueur, mais il était transporté par l'excitation et serra vigoureusement le poing.
 
-« Ma sœur, connaissant l'Empereur du Dao Gu, mon parrain sera certainement mal à l'aise là-bas. Un être aussi puissant ne saurait être contenu par un simple Empereur du Dao Gu. Mon parrain viendra certainement m'aider... Il le doit! »
+« Ma sœur, connaissant l'Empereur Dao Gu, mon parrain sera certainement mal à l'aise là-bas. Un être aussi puissant ne saurait être contenu par un simple Empereur Dao Gu. Mon parrain viendra certainement m'aider... Il le doit! »
 
 La femme se leva et demanda doucement: « En valait-il la peine...? »
 

@@ -48,7 +48,7 @@ Avec son niveau de culture, il n'aurait normalement pas remarqué une telle pres
 
 « Maître... Ceci... C'est... » Le jeune homme haleta. Voyant l'expression lugubre de son mentor, il s'interrompit aussitôt, ravalant ses paroles.
 
-« À part Wang Lin, qui a semé le chaos dans le palais du Dao Gu il y a plus de cent ans, tué l'Empereur du Dao Gu, est venu chez les Shi Gu, a été honoré par ton frère et ne sort plus de sa culture fermée, qui d'autre pourrait bien être? » Un éclair de froideur traversa les yeux de l'homme d'âge moyen.
+« À part Wang Lin, qui a semé le chaos dans le palais du Dao Gu il y a plus de cent ans, tué l'Empereur Dao Gu, est venu chez les Shi Gu, a été honoré par ton frère et ne sort plus de sa culture fermée, qui d'autre pourrait bien être? » Un éclair de froideur traversa les yeux de l'homme d'âge moyen.
 
 En entendant le nom de « Wang Lin », le jeune homme au visage rude eut un haut-le-cœur et, après une courte réflexion, demanda soudain:
 
@@ -58,7 +58,7 @@ L'homme d'âge moyen laissa échapper un froid reniflement.
 
 « Ton maître a déjà croisé ce Wang Lin par le passé, lorsque Xuan Luo l'a amené ici. Sa culture n'est pas faible et sa puissance de combat est extraordinaire, mais il ne mérite toujours pas mon attention!
 
-La seule raison pour laquelle il a pu pénétrer dans le palais du Dao Gu et en ressortir est que Xuan Luo n'est pas intervenu! Il a tué l'Empereur du Dao Gu, pourtant le Grand Empyréen Gu Dao n'a pas prononcé un mot. C'est ce mystère qui préoccupe ton maître, et c'est pourquoi il ne s'est pas précipité pour désigner un futur empereur!
+La seule raison pour laquelle il a pu pénétrer dans le palais du Dao Gu et en ressortir est que Xuan Luo n'est pas intervenu! Il a tué l'Empereur Dao Gu, pourtant le Grand Empyréen Gu Dao n'a pas prononcé un mot. C'est ce mystère qui préoccupe ton maître, et c'est pourquoi il ne s'est pas précipité pour désigner un futur empereur!
 
 La personne qui intéresse ton maître n'est pas cet homme, mais le Grand Empyréen Gu Dao! Quant à lui, il n'est pas digne de mon égard! » L'homme d'âge moyen regardait l'horizon en percevant faiblement la pression. Il était le Grand Empyréen Song Tian des Shi Gu, et le jeune homme derrière lui était le prince, Chi Man.
 

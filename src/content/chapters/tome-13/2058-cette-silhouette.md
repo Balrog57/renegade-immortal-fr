@@ -60,7 +60,7 @@ Une réponse venait enfin d'éclater au grand jour!
 
 « Wang Lin? Ce nom me semble familier... »
 
-« C'est lui! Ce Wang Lin est celui qui a tué l'Empereur du Dao Gu il y a plus de cent ans! C'est bien lui! »
+« C'est lui! Ce Wang Lin est celui qui a tué l'Empereur Dao Gu il y a plus de cent ans! C'est bien lui! »
 
 « La rumeur dit que ce Wang Lin est déjà le dixième soleil du Continent Xian Gang. Mon Dieu, je n'aurais jamais imaginé que la personne subissant la calamité soit ce Wang Lin! »
 

@@ -42,7 +42,7 @@ Cependant, le cœur de Kong Si était en plein chaos. Au moment où Wang Lin ét
 
 Le jeune homme en noir fut le plus choqué. C'était un Seigneur Diable et il avait d'emblée méprisé Wang Lin. Pourtant, après avoir vu Wang Lin sortir si calmement de l'emprise des griffes, il prit une profonde inspiration, ses yeux brillant d'une intention de combat.
 
-Les sept personnes sur le diable ancien étaient venues du Dao Gu sur ordre de l'Empereur du Dao Gu. En voyant Wang Lin refuser de s'agenouiller, ils pensaient assister à un divertissement. Bien qu'ils fussent surpris par sa survie, ils n'y accordèrent pas d'importance; après tout, il ne s'agissait que d'une affaire interne au clan Antique qui ne les concernait pas.
+Les sept personnes sur le diable ancien étaient venues du Dao Gu sur ordre de l'Empereur Dao Gu. En voyant Wang Lin refuser de s'agenouiller, ils pensaient assister à un divertissement. Bien qu'ils fussent surpris par sa survie, ils n'y accordèrent pas d'importance; après tout, il ne s'agissait que d'une affaire interne au clan Antique qui ne les concernait pas.
 
 Toutefois, lorsqu'ils virent Wang Lin marcher vers eux, ils furent perplexes.
 
@@ -92,7 +92,7 @@ Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
 Si le plus fort avait réagi ainsi, il n'était même pas nécessaire de mentionner les six autres qui reculèrent tous, le visage pâle.
 
-« Êtes-vous tous venus de la cité impériale du Dao Gu? » demanda Wang Lin d'un ton calme. Il dégageait l'aura d'un grand maître, exerçant une pression invisible qui asséchait la bouche du vieil homme et faisait accélérer son rythme cardiaque. Il n'avait ressenti cela que face à l'Empereur du Dao Gu, mais ce qui causait cette sensation chez l'Empereur était le pouvoir impérial transmis depuis d'innombrables âges.
+« Êtes-vous tous venus de la cité impériale du Dao Gu? » demanda Wang Lin d'un ton calme. Il dégageait l'aura d'un grand maître, exerçant une pression invisible qui asséchait la bouche du vieil homme et faisait accélérer son rythme cardiaque. Il n'avait ressenti cela que face à l'Empereur Dao Gu, mais ce qui causait cette sensation chez l'Empereur était le pouvoir impérial transmis depuis d'innombrables âges.
 
 Chez l'homme devant lui, c'était sa propre force!
 

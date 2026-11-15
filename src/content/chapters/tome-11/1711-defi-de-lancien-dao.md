@@ -22,7 +22,7 @@ La puissance du lignage ancien à l'intérieur de son corps augmentait rapidemen
 
 Les membres du clan ancien étaient semblables aux êtres célestes: plus leur lignage était puissant, plus leur identité était noble et plus ils pouvaient manifester de puissance.
 
-La fusion des sept gouttes rendit le lignage de Wang Lin second seulement après celui de l'Empereur du Dao Gu. Il faut savoir que cet Empereur était un descendant direct de l'Ancêtre Ancien et possédait donc naturellement son lignage. En conséquence, après avoir obtenu six gouttes de sang, il était devenu l'Empereur du Dao Gu!
+La fusion des sept gouttes rendit le lignage de Wang Lin second seulement après celui de l'Empereur Dao Gu. Il faut savoir que cet Empereur était un descendant direct de l'Ancêtre Ancien et possédait donc naturellement son lignage. En conséquence, après avoir obtenu six gouttes de sang, il était devenu l'Empereur Dao Gu!
 
 Cependant, Wang Lin ne possédait aucun lignage ancien et n'avait pas encore reçu de reconnaissance. Pour cette raison, le lignage formé par sept gouttes ne pouvait pas encore rivaliser avec celui de l'Empereur, qui possédait déjà son propre lignage et avait obtenu six gouttes supplémentaires.
 

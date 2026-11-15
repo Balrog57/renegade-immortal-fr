@@ -110,7 +110,7 @@ C'était là que se trouvait le temple ancestral.
 
 Le prince aîné et Chi Man étaient livides et semblaient sur le point de parler. L'empereur des Shi Gu parut comprendre la situation et, après un soupir, prit la parole pour la première fois:
 
-« Le fait que mon enfant ait un parrain tel que le Seigneur Wang est sa chance et une gloire pour les Shi Gu. Je ne suis pas l'Empereur du Dao Gu, qui, sans discernement, a chassé le Seigneur Wang et attiré le malheur sur lui-même et sur tout son clan...
+« Le fait que mon enfant ait un parrain tel que le Seigneur Wang est sa chance et une gloire pour les Shi Gu. Je ne suis pas l'Empereur Dao Gu, qui, sans discernement, a chassé le Seigneur Wang et attiré le malheur sur lui-même et sur tout son clan...
 
 « Je demande au Seigneur Wang de rester parmi nous chez les Shi Gu. Si vous avez la moindre requête, je ferai tout mon possible pour y satisfaire! » Le vieil homme en robe royale joignit les mains et s'inclina devant Wang Lin.
 
@@ -120,6 +120,6 @@ Le prince Ji Du se leva et s'adressa respectueusement à l'empereur: « Père, m
 
 Le vieil homme sourit et répondit sans la moindre hésitation: « Le temple ancestral? Si Seigneur Wang souhaite s'y rendre, alors j'y consens naturellement! » Il n'osait ni contredire ni émettre l'ombre d'une objection au fait que Ji Du ait pris cet homme pour parrain.
 
-Ce Seigneur Wang avait tué l'Empereur du Dao Gu, avait forcé l'entrée de la cité impériale du Dao Gu et en était ressorti vivant. Même le Grand Empyréen Gu Dao n'avait pas bronché. Et il venait de voir de ses propres yeux que même le Grand Empyréen Song Tian n'était pas son égal: comment oserait-on offenser Wang Lin?
+Ce Seigneur Wang avait tué l'Empereur Dao Gu, avait forcé l'entrée de la cité impériale du Dao Gu et en était ressorti vivant. Même le Grand Empyréen Gu Dao n'avait pas bronché. Et il venait de voir de ses propres yeux que même le Grand Empyréen Song Tian n'était pas son égal: comment oserait-on offenser Wang Lin?
 
 La suprématie du pouvoir impérial ne pesait rien face à une telle puissance.

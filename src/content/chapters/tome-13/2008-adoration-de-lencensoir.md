@@ -26,7 +26,7 @@ Wang Lin murmura doucement: « Ancêtre ancien... »
 
 À l'extérieur de la cité céleste, les pierres en rotation formaient une puissante protection. Quiconque souhaitait y pénétrer devait posséder un jade d'identité, sans quoi il ne pourrait faire le moindre pas dans la ville.
 
-C'était l'apogée du pouvoir impérial du Dao Gu. C'était là que siégeait l'Empereur du Dao Gu!
+C'était l'apogée du pouvoir impérial du Dao Gu. C'était là que siégeait l'Empereur Dao Gu!
 
 La partie orientale de la cité céleste était composée de palais magnifiques formant la résidence impériale! Le palais était gardé par d'innombrables soldats et protégé par des restrictions. Une légère brume violette flottait également dans les airs, dégageant une sensation d'oppression pour quiconque la regardait.
 

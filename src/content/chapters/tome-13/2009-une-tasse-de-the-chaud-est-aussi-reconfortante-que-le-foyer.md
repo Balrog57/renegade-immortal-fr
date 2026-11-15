@@ -14,7 +14,7 @@ Derrière lui, le vieil homme n'osait même pas respirer bruyamment. Il était t
 
 Après un long silence, l'homme en robe royale ordonna: « Vite, fusionnez ces femmes sélectionnées avec l'âme! »
 
-« À vos ordres! » Le vieil homme s'agenouilla immédiatement, le dos trempé de sueur. Face à cet Empereur du Dao Gu au tempérament imprévisible, il avait vu trop de personnes exécutées sans raison.
+« À vos ordres! » Le vieil homme s'agenouilla immédiatement, le dos trempé de sueur. Face à cet Empereur Dao Gu au tempérament imprévisible, il avait vu trop de personnes exécutées sans raison.
 
 L'homme en robe royale agita sa manche et disparut.
 
@@ -100,13 +100,13 @@ Le regard de Wang Lin balaya les deux vieillards, ses pupilles brillant d'une lu
 
 « Ye Dao salue le Seigneur Xuan. » L'homme en robe royale sourit, et son aura imposante se mua en une brise printanière. Quiconque le voyait ressentait un sentiment de familiarité.
 
-Wang Lin resta là, fixant l'homme royal. À en juger par les gens agenouillés et leurs paroles, il comprit qu'il s'agissait de l'Empereur du Dao Gu! En observant cet homme, Wang Lin ne put s'empêcher de le comparer à l'Empereur Céleste Lian Daozhen. Que ce soit par sa culture ou son tempérament, il n'égalait pas l'Empereur Céleste. Cependant, il jouissait d'un respect populaire évident, comme en témoignait la réaction des neuf subordonnés de Xuan Luo.
+Wang Lin resta là, fixant l'homme royal. À en juger par les gens agenouillés et leurs paroles, il comprit qu'il s'agissait de l'Empereur Dao Gu! En observant cet homme, Wang Lin ne put s'empêcher de le comparer à l'Empereur Céleste Lian Daozhen. Que ce soit par sa culture ou son tempérament, il n'égalait pas l'Empereur Céleste. Cependant, il jouissait d'un respect populaire évident, comme en témoignait la réaction des neuf subordonnés de Xuan Luo.
 
 « Son niveau de culture n'est que celui d'un Exalté Empyréen », pensa Wang Lin avec neutralité. Le pouvoir de la famille impériale pouvait influencer tout le Dao Gu, mais il ne pouvait atteindre Wang Lin.
 
 L'expression de Xuan Luo resta inchangée lorsqu'il demanda lentement: « Pourquoi es-tu venu? »
 
-« Il y a trois jours, Ye Dao a remarqué une fumée dense s'élevant vers le ciel et a deviné qu'une personne puissante était apparue dans mon Dao Gu. Je suis donc venu voir. Est-ce lui? » L'Empereur du Dao Gu hocha la tête en direction de Wang Lin.
+« Il y a trois jours, Ye Dao a remarqué une fumée dense s'élevant vers le ciel et a deviné qu'une personne puissante était apparue dans mon Dao Gu. Je suis donc venu voir. Est-ce lui? » L'Empereur Dao Gu hocha la tête en direction de Wang Lin.
 
 « C'est mon disciple. Je présume que son nom ne vous est pas inconnu: l'Ascendant Empyréen aux cheveux blancs du clan céleste, Wang Lin! Il me remplacera lors de ma réincarnation pour protéger le Dao Gu », déclara calmement Xuan Luo en lançant un regard profond à l'Empereur.
 
@@ -118,6 +118,6 @@ L'expression de Wang Lin resta impassible, mais son cœur rata un battement. C'�
 
 Alors que Wang Lin méditait, une sévère semonce s'éleva du vieil homme aux côtés de l'empereur.
 
-« Bien que tu sois le disciple d'un Grand Empyréen, tu restes un membre du Dao Gu. Selon les lois, tous les membres du clan, à l'exception du Grand Empyréen lui-même, doivent s'agenouiller devant l'Empereur du Dao Gu! »
+« Bien que tu sois le disciple d'un Grand Empyréen, tu restes un membre du Dao Gu. Selon les lois, tous les membres du clan, à l'exception du Grand Empyréen lui-même, doivent s'agenouiller devant l'Empereur Dao Gu! »
 
 « Toi! Pourquoi ne t'agenouilles-tu pas? » Les yeux du vieil homme brillaient d'un regard glacial et ses paroles étaient aussi froides que son regard.

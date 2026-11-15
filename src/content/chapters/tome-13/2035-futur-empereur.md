@@ -28,7 +28,7 @@ Wang Lin se tint devant Luo Chen et contempla ce visage familier.
 
 « Toi... Quand t'es-tu séparé du Serpent aux yeux de lune? » demanda Wang Lin.
 
-« Après avoir suivi Seigneur Xuan ici, ce dernier m'a aidé à me séparer du Serpent aux yeux de lune », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empyréen et avait même tué l'Empereur du Dao Gu. L'Empereur Saint du Dao Gu n'avait pu que lui ouvrir la grande formation pour le laisser partir.
+« Après avoir suivi Seigneur Xuan ici, ce dernier m'a aidé à me séparer du Serpent aux yeux de lune », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empyréen et avait même tué l'Empereur Dao Gu. L'Empereur Saint du Dao Gu n'avait pu que lui ouvrir la grande formation pour le laisser partir.
 
 La mer bleue se transformant en champs de mûriers — c'était une expression utilisée pour décrire un changement radical de paysage, mais en cet instant, c'était précisément ce que ressentait Luo Chen.
 
@@ -62,9 +62,9 @@ Le corps de Luo Chen trembla sous l'éclat d'une lumière argentée aveuglante. 
 
 Les yeux de Xuan Luo se plissèrent également. Il observa Wang Lin et Luo Chen, affichant une expression complexe avant de laisser échapper un soupir.
 
-Le corps de Luo Chen frémit; il sentit un flux tiède émaner de Wang Lin pour pénétrer sa lignée, la rendant d'une pureté incomparable. Il possédait déjà une trace de sang royal, mais à mesure que celle-ci se purifiait, il dégagea une pression de lignée comparable à celle de l'ancien Empereur du Dao Gu!
+Le corps de Luo Chen frémit; il sentit un flux tiède émaner de Wang Lin pour pénétrer sa lignée, la rendant d'une pureté incomparable. Il possédait déjà une trace de sang royal, mais à mesure que celle-ci se purifiait, il dégagea une pression de lignée comparable à celle de l'ancien Empereur Dao Gu!
 
-Après un long moment, Wang Lin retira sa main. Il avait infusé une partie de son sang de l'âme en Luo Chen, permettant à la lignée de ce dernier d'atteindre un niveau suffisant pour prétendre au titre d'Empereur du Dao Gu.
+Après un long moment, Wang Lin retira sa main. Il avait infusé une partie de son sang de l'âme en Luo Chen, permettant à la lignée de ce dernier d'atteindre un niveau suffisant pour prétendre au titre d'Empereur Dao Gu.
 
 « Autrefois, tu m'as offert les étoiles de dieu antique... Aujourd'hui, tu protégeras les descendants de Ye Mo... Je te confère la lignée royale pour payer ma dette d'autrefois! » Wang Lin agita sa manche et s'élança dans le ciel avec Song Zhi. Il disparut en un clin d'œil, laissant les membres du Dao Gu pétrifiés par le silence.
 
@@ -84,7 +84,7 @@ Ye Wei manifesta une certaine hésitation face à Luo Chen, puis, après un long
 
 Jusqu'ici, le Grand Empyréen Gu Dao n'était jamais apparu. Même l'émissaire venu apporter ses présents de félicitations restait absent, comme s'il évitait délibérément la situation.
 
-Malgré la mort de l'Empereur du Dao Gu, le Grand Empyréen Gu Dao, gardien des familles royales, n'avait toujours pas agi. Les membres du Dao Gu ne parlaient pas de ce silence, enterrant leur doute au plus profond de leurs cœurs.
+Malgré la mort de l'Empereur Dao Gu, le Grand Empyréen Gu Dao, gardien des familles royales, n'avait toujours pas agi. Les membres du Dao Gu ne parlaient pas de ce silence, enterrant leur doute au plus profond de leurs cœurs.
 
 Wang Lin lui-même s'interrogeait sur cette absence. Il s'était préparé au pire: si le Grand Empyréen Gu Dao était apparu, il aurait tout donné pour invoquer son avatar dans le vide afin de l'affronter!
 
@@ -110,7 +110,7 @@ Lorsque la paume de Wang Lin toucha ce brouillard, celui-ci se transforma en une
 
 Wang Lin resta immobile devant le brouillard, le regard froid. Cette voix lui semblait familière mais étrangement étrangère, ce qui rendait difficile la confirmation de ses soupçons.
 
-« Est-ce là l'Enseignant Impérial du Dao Gu, quelqu'un qui se cache ainsi? Tu as pris l'âme de ma femme et tu as poussé l'Empereur du Dao Gu à chercher un corps pour la fusionner, tout cela pour me cibler. Maintenant que je suis là, tu te caches derrière ce brouillard. As-tu peur que je te reconnaisse, ou es-tu quelqu'un que je connais? » lança froidement Wang Lin.
+« Est-ce là l'Enseignant Impérial du Dao Gu, quelqu'un qui se cache ainsi? Tu as pris l'âme de ma femme et tu as poussé l'Empereur Dao Gu à chercher un corps pour la fusionner, tout cela pour me cibler. Maintenant que je suis là, tu te caches derrière ce brouillard. As-tu peur que je te reconnaisse, ou es-tu quelqu'un que je connais? » lança froidement Wang Lin.
 
 Après un bref silence, un rire rauque s'éleva de la brume, faisant onduler les volutes colorées.
 

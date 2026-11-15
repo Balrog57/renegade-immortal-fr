@@ -38,7 +38,7 @@ Ces quatre tables avaient manifestement été préparées pour le Grand Empyrée
 
 Wang Lin ignorait qui était cette personne, mais après avoir vu la vieille femme et entendu Xuan Luo prononcer le nom de « Ye Wei », il s'en souvint. Lors de son arrivée au Dao Gu, il avait étudié l'histoire des générations passées d'empereurs.
 
-Dans les dizaines de milliers d'années d'histoire du Dao Gu, il y avait eu une femme. Elle fut la seule femme à être devenue Empereur du Dao Gu!
+Dans les dizaines de milliers d'années d'histoire du Dao Gu, il y avait eu une femme. Elle fut la seule femme à être devenue Empereur Dao Gu!
 
 Son accession au trône avait provoqué un tollé dans tout le Dao Gu. Après avoir subi les critiques des membres du clan, le Grand Empyréen Gu Dao avait fait transmettre un message pour la reconnaître officiellement, ce qui finit par apaiser les tensions.
 

@@ -44,7 +44,7 @@ Il se trouvait actuellement dans la Pavillon Yunxian de la Secte Tian Yun. Ses y
 
 Tian Yunzi réfléchit un instant avant de secouer légèrement la tête et de refermer les yeux.
 
-À l'intérieur du Tombeau Suzaku, Wang Lin avait ralenti sa progression et limitait son Sens Divin à une portée plus restreinte. Il y avait tout simplement trop de ces formes de vie aux alentours, et certaines d'entre elles seraient difficiles à affronter pour lui, à moins d'utiliser l'Étendard des Mille Millions d'Âmes.
+À l'intérieur du Tombeau Suzaku, Wang Lin avait ralenti sa progression et limitait son Sens Divin à une portée plus restreinte. Il y avait tout simplement trop de ces formes de vie aux alentours, et certaines d'entre elles seraient difficiles à affronter pour lui, à moins d'utiliser l'Étendard au Milliard d'Âmes.
 
 Il avançait avec une prudence extrême. Dès qu'il détectait un danger, il changeait immédiatement de direction pour l'éviter, ce qui ralentissait considérablement son périple.
 

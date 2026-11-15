@@ -131,4 +131,4 @@ L'un des deux gardes répondit sans rien lui cacher: « Je rapporte au Seigneur 
 
 Le garde répondit avec respect et sans hésiter:
 
-« Cette humble personne ne sait que peu de choses sur ces ambassadeurs. Mais la rumeur veut que la famille royale du Dao Gu envoie des émissaires depuis des centaines d'années à la recherche de femmes magnifiques. Il paraît que... l'Empereur du Dao Gu cherche à choisir une concubine. »
+« Cette humble personne ne sait que peu de choses sur ces ambassadeurs. Mais la rumeur veut que la famille royale du Dao Gu envoie des émissaires depuis des centaines d'années à la recherche de femmes magnifiques. Il paraît que... l'Empereur Dao Gu cherche à choisir une concubine. »

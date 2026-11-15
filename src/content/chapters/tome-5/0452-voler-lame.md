@@ -36,13 +36,13 @@ Dans un fracas retentissant, d'innombrables fissures apparurent sur les tatouage
 
 Le vieil homme voûté poussa un rugissement et chargea vers Wang Lin. Sa main s'étendit, et au centre de sa paume brillait un tatouage très ancien.
 
-Les yeux de Wang Lin s'illuminèrent. Sans un mot, il tendit la main et l'Étendard des Mille Millions d'Âmes apparut. Long de trente pieds, ce drapeau suffisait à terrifier n'importe quel ennemi, même sans attaquer.
+Les yeux de Wang Lin s'illuminèrent. Sans un mot, il tendit la main et l'Étendard au Milliard d'Âmes apparut. Long de trente pieds, ce drapeau suffisait à terrifier n'importe quel ennemi, même sans attaquer.
 
 Le vieil homme voûté ne put s'empêcher de marquer un temps d'arrêt.
 
 « C'est... » Son cœur trembla. Il avait l'impression de connaître ce drapeau et une terreur indicible l'envahit.
 
-Wang Lin agita l'Étendard des Mille Millions d'Âmes, provoquant une série de lamentations fantomatiques alors que les fragments d'âme s'élançaient. Le cri le plus strident provint d'un Qilin pourpre et or qui poussa un rugissement perçant les cieux. Dès son apparition, la créature ouvrit sa gueule maléfique pour tenter de dévorer le vieillard.
+Wang Lin agita l'Étendard au Milliard d'Âmes, provoquant une série de lamentations fantomatiques alors que les fragments d'âme s'élançaient. Le cri le plus strident provint d'un Qilin pourpre et or qui poussa un rugissement perçant les cieux. Dès son apparition, la créature ouvrit sa gueule maléfique pour tenter de dévorer le vieillard.
 
 Derrière le Qilin se trouvaient plus de dix âmes primaires au stade de la Transformation de l'Âme.
 
@@ -56,7 +56,7 @@ Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de culture act
 
 S'ajoutant à cela, des centaines de millions de fragments d'âme plus faibles s'approchaient. Après avoir pesé le pour et le contre, il n'avait aucune intention de combattre et s'enfuit rapidement.
 
-Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a moins d'un siècle ait déjà atteint le stade de la Transformation de l'Âme et possède cet Étendard des Mille Millions d'Âmes que le Clan Xian Yi redoutait tant.
+Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a moins d'un siècle ait déjà atteint le stade de la Transformation de l'Âme et possède cet Étendard au Milliard d'Âmes que le Clan Xian Yi redoutait tant.
 
 Le vieil homme pouvait même sentir qu'une grande partie des fragments d'âme portait l'aura de son propre Clan Xian Yi. Ils devaient être les membres de son clan capturés et raffinés lors de la guerre passée.
 

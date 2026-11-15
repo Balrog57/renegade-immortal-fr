@@ -43,13 +43,13 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « Si Zhu Quezi pouvait encore contrôler le Cristal de la Planète de Culture, la situation ne serait pas telle qu'elle est aujourd'hui. Avec une attaque concertée de tous les cultivateurs de la planète, le Clan Xian Yi risquerait d'être anéanti. »
 
-« S'il en avait eu le contrôle, Zhu Quezi aurait pu s'emparer de l'Étendard de l'Âme au Milliard d'Âmes du Senior Dun Tian bien plus tôt, plutôt que d'attendre jusqu'à maintenant. »
+« S'il en avait eu le contrôle, Zhu Quezi aurait pu s'emparer de l'Étendard au Milliard d'Âmes du Senior Dun Tian bien plus tôt, plutôt que d'attendre jusqu'à maintenant. »
 
 « Le Cristal de la Planète de Culture! Na Duo n'avait aucune raison de me mentir, mais son ton était aussi empreint d'incertitude à l'époque. » La silhouette de Wang Lin disparut de la Petite Terre Bei Yan Ji.
 
 « L'essentiel maintenant est de s'emparer du Cristal de la Planète de Culture et de récupérer cette parcelle de mon âme. Ensuite, je quitterai la planète pour trouver Tian Yunzi. Dans l'état actuel de chaos de la planète Suzaku, elle n'est plus propice à la culture.
 
-« Cependant, je dois faire quelques préparatifs avant cela. L'Étendard de l'Âme au Milliard d'Âmes s'est affaibli; je dois retourner sur le champ de bataille étranger pour capturer des âmes errantes et voir si elles peuvent aider à restaurer l'étendard. Si possible, je capturerai quelques dévoreurs d'âmes pour les utiliser comme âmes primaires. Ainsi, la puissance de l'Étendard devrait se rétablir.
+« Cependant, je dois faire quelques préparatifs avant cela. L'Étendard au Milliard d'Âmes s'est affaibli; je dois retourner sur le champ de bataille étranger pour capturer des âmes errantes et voir si elles peuvent aider à restaurer l'étendard. Si possible, je capturerai quelques dévoreurs d'âmes pour les utiliser comme âmes primaires. Ainsi, la puissance de l'Étendard devrait se rétablir.
 
 « De plus, il y a cette petite fiole de sang de l'ancêtre du Clan Ju Mo. Cette fiole est cruciale pour mon corps originel qui se trouve toujours sur la lune; elle pourrait lui permettre d'utiliser les techniques des Dieux Anciens! La personne qui implorait de l'aide dans la Secte Shi Yin de Zhao devait être l'ancêtre fondateur du Clan Ju Mo. Je dois m'y rendre pour voir si je peux obtenir davantage de sang. »
 

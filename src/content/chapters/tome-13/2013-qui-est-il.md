@@ -74,7 +74,7 @@ Tournant la tête vers la source de la voix, elle vit un homme aux longs cheveux
 
 « Qui... êtes-vous... Qui... suis-je... » La confusion s'accentua dans les yeux de la femme, doublée d'une douleur intense. C'était comme si une force invisible l'empêchait de se retrouver elle-même.
 
-« Je suis l'Empereur du Dao Gu, l'existence suprême du Dao Gu. Je suis ton mari! Tu t'appelles Song Zhi, tu es issue du clan du Shi Gu et tu es mon impératrice! » L'homme sourit en parlant, tandis qu'une aura impériale émanait de son corps.
+« Je suis l'Empereur Dao Gu, l'existence suprême du Dao Gu. Je suis ton mari! Tu t'appelles Song Zhi, tu es issue du clan du Shi Gu et tu es mon impératrice! » L'homme sourit en parlant, tandis qu'une aura impériale émanait de son corps.
 
 « Mari... » À l'écho de ce mot, une autre silhouette surgit dans son esprit. Cette figure contemplait le ciel en poussant un rugissement de douleur.
 
@@ -96,7 +96,7 @@ Des ondulations se formèrent derrière lui lorsqu'un vieil homme apparut et s'i
 
 L'homme en robe impériale déclara froidement: « Tu peux partir. »
 
-Le vieil homme hocha la tête prestement avant de se dissiper en fumée, laissant l'Empereur du Dao Gu seul avec la femme.
+Le vieil homme hocha la tête prestement avant de se dissiper en fumée, laissant l'Empereur Dao Gu seul avec la femme.
 
 L'Empereur s'assit aux côtés de la femme et la contempla avec une lueur étrange dans les yeux.
 

@@ -8,7 +8,7 @@ slug: letoile-du-desastre-pour-le-prince
 ---
 « Quant à savoir si cette affaire est vraie, ce petit ne le sait pas. Cependant, avec la présence du prince à leurs côtés, cela signifie que l'empereur du Shi Gu a dû donner son accord, sinon le seigneur de la ville n'aurait pas ordonné le confinement de la cité », expliqua l'homme corpulent.
 
-« Choisir une concubine? » Wang Lin fut surpris et ne s'attarda pas sur la question. Il pensa simplement qu'il était absurde que l'Empereur du Dao Gu, le lieu même qu'il devait protéger, envoie des émissaires jusque dans les deux autres pays pour choisir une concubine.
+« Choisir une concubine? » Wang Lin fut surpris et ne s'attarda pas sur la question. Il pensa simplement qu'il était absurde que l'Empereur Dao Gu, le lieu même qu'il devait protéger, envoie des émissaires jusque dans les deux autres pays pour choisir une concubine.
 
 « Cependant, puisque je peux rencontrer les gens du Dao Gu ici, ils doivent posséder une carte détaillée pour se rendre dans les douze pays du Dao Gu. Cela m'épargnera du temps dans ma quête d'une carte. » Après avoir réfléchi un instant, Wang Lin s'apprêtait à poser d'autres questions lorsqu'il tourna le regard vers la ville. Des bruits de pas résonnèrent depuis la cité, puis deux escouades de soldats en armure verte surgirent précipitamment par la porte.
 

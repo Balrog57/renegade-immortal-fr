@@ -24,11 +24,11 @@ Ces figures étaient entièrement composées de plantes et dégageaient une aura
 
 « Étranger, quitte cet endroit! » Une voix sans genre s'échappa de la bouche de ces plantes et résonna dans toute la couche.
 
-Les yeux de Wang Lin devinrent froids. Chacune de ces créatures possédait la culture d'un cultivateur de l'Âme Naissante. N'ayant pas le temps de les affronter, il agita la main et l'Étendard de l'Âme au Milliard d'Âmes apparut dans sa paume.
+Les yeux de Wang Lin devinrent froids. Chacune de ces créatures possédait la culture d'un cultivateur de l'Âme Naissante. N'ayant pas le temps de les affronter, il agita la main et l'Étendard au Milliard d'Âmes apparut dans sa paume.
 
 Wang Lin murmura: « Âmes, dispersez-vous! »
 
-Les âmes surgirent une à une pour encercler l'étendard. L'Étendard de l'Âme au Milliard d'Âmes contenait un peu plus de 600 millions de fragments d'âmes et 26 âmes primaires, dont celle de Dun Tian.
+Les âmes surgirent une à une pour encercler l'étendard. L'Étendard au Milliard d'Âmes contenait un peu plus de 600 millions de fragments d'âmes et 26 âmes primaires, dont celle de Dun Tian.
 
 Ces fragments d'âmes ne pouvaient former, une fois fusionnés, ni un cultivateur Ascendant du stade avancé, ni même du stade intermédiaire. Ils pouvaient toutefois se fondre pour créer un cultivateur Ascendant du stade initial.
 
@@ -50,7 +50,7 @@ Sans marquer de pause, Wang Lin chargea vers l'Arbre de Réincarnation et le poi
 
 L'Arbre de Réincarnation s'effondra instantanément, et le chaman à huit feuilles qui trônait au sommet cracha une bouchée de sang avant de mourir.
 
-Ce processus se poursuivit tandis que Wang Lin guidait l'âme Ascendante et l'Étendard de l'Âme au Milliard d'Âmes à travers la cinquième couche, balayant tout sur son passage. Les deux autres chamans à huit feuilles qui tentaient de guérir furent également exécutés; il raffina leurs corps et rangea leurs crânes.
+Ce processus se poursuivit tandis que Wang Lin guidait l'âme Ascendante et l'Étendard au Milliard d'Âmes à travers la cinquième couche, balayant tout sur son passage. Les deux autres chamans à huit feuilles qui tentaient de guérir furent également exécutés; il raffina leurs corps et rangea leurs crânes.
 
 Wang Lin n'éprouvait aucune pitié pour le Clan Xian Yi. Il vola rapidement vers la sixième couche, tel un démon massacrant chaque membre du clan qu'il croisait sur sa route.
 
@@ -62,7 +62,7 @@ Wang Lin traversa la septième couche, la huitième... pour atteindre directemen
 
 Arrivé à la dixième couche, l'âme Ascendante s'effondra en de faibles fragments d'âmes. Ils retournèrent dans l'étendard et ne purent plus être invoqués.
 
-Wang Lin rangea l'Étendard de l'Âme au Milliard d'Âmes. En chemin, il avait pu étudier l'artefact. Bien que l'âme Ascendante fût puissante, sa durée était trop courte et une différence de puissance subsistait par rapport à un véritable cultivateur Ascendant.
+Wang Lin rangea l'Étendard au Milliard d'Âmes. En chemin, il avait pu étudier l'artefact. Bien que l'âme Ascendante fût puissante, sa durée était trop courte et une différence de puissance subsistait par rapport à un véritable cultivateur Ascendant.
 
 De plus, chaque utilisation endommageait considérablement les fragments d'âmes, qui avaient besoin de beaucoup de temps pour se rétablir. C'était la raison pour laquelle Dun Tian ne s'en servait que pour intimider ses adversaires plutôt que pour combattre.
 
