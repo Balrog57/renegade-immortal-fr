@@ -72,7 +72,7 @@ Non seulement l'expression de Wang Lin était sereine, mais son esprit l'était 
 
 Chaque régiment de mille hommes possédait un chef, dont la plupart étaient de fidèles lieutenants de Sima Yan. Quant aux six soldats du restaurant, bien que leur niveau de culture fût modeste, ils occupaient des fonctions importantes ici.
 
-S'il n'avait pas agi immédiatement, c'était parce qu'il comprenait parfaitement les lois militaires de ces contrées, grâce aux souvenirs de Luo Yun. Les neuf pays de cette région suivaient un droit militaire très différent du monde de la culture. À moins d'avoir une puissance suffisante pour défier l'Empereur Démon, il fallait se plier à leurs lois si l'on souhaitait bénéficier de leur puissance!
+S'il n'avait pas agi immédiatement, c'était parce qu'il comprenait parfaitement les lois militaires de ces contrées, grâce aux souvenirs de Luo Yun. Les neuf commanderies de cette région suivaient un droit militaire très différent du monde de la culture. À moins d'avoir une puissance suffisante pour défier l'Empereur Démon, il fallait se plier à leurs lois si l'on souhaitait bénéficier de leur puissance!
 
 Tout étranger arrivant en Terre Yao Ling devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la culture de ces soldats ne fût pas élevée, certains d'entre eux étaient de véritables maîtres; leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
 

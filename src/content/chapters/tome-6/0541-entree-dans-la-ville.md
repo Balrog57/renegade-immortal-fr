@@ -58,7 +58,7 @@ Auparavant, lorsque Wang Lin était entré pour la première fois dans les Terre
 
 Il y avait des tribus fortes et faibles, grandes et petites, et leur population variait considérablement.
 
-« Si ma Tribu Lian Hun parvient à unir toutes les tribus des Terres des Esprits Démoniaques, elle deviendra une force capable de choquer les neuf pays de cette région! » Les yeux de Wang Lin devinrent froids.
+« Si ma Tribu Lian Hun parvient à absorber et assimiler toutes les tribus des Terres des Esprits Démoniaques, elle deviendra une force capable de choquer les neuf commanderies de cette région! » Les yeux de Wang Lin devinrent froids.
 
 Après sept jours, la Cité Gu Yao apparut au loin. Lorsqu'ils furent à 50 kilomètres de la cité, Wang Lin rangea la bête moustique et lui, Treize et Hu Pao atterrirent sur le sol.
 

@@ -48,7 +48,7 @@ L'objectif de Wang Lin était la terre de l'Ancien Dieu située dans les Étoile
 
 Wang Lin réfléchit longuement. C'était le seul endroit où il pourrait achever le drapeau de restriction sans déclencher la Tribulation Céleste qui aurait détruit l'objet. En outre, le lieu regorgeait de bêtes spirituelles et même de bêtes désolées; Wang Lin souhaitait en capturer une.
 
-Il voulait tout mettre en œuvre pour se préparer à l'ouverture de la porte du monde immortel, au jour du Dao céleste. Il avait même prévu de visiter le champ de bataille étranger afin de rassembler suffisamment d'âmes errantes et de démons.
+Il voulait tout mettre en œuvre pour achever ses préparatifs avant l'arrivée du jour du Dao céleste et son entrée par la porte du monde immortel. Il avait même prévu de visiter le champ de bataille étranger afin de rassembler suffisamment d'âmes errantes et de démons.
 
 Wang Lin prédisait que tant qu'il ne s'enfoncerait pas dans la première épreuve de l'Ancien Dieu, Tuo Sen ne pourrait pas le détecter. Et même s'il était détecté, grâce à son niveau de culture, Wang Lin pourrait s'éclipser avant d'être rattrapé.
 

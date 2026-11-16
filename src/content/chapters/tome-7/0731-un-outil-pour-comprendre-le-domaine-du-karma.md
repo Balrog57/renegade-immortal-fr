@@ -30,7 +30,7 @@ C'était le Fouet Kunji!
 
 Ce fouet l'avait suivi pendant longtemps; sa puissance présentait des avantages et des inconvénients évidents. Auparavant, Wang Lin ne lui accordait que peu d'importance, mais désormais, il s'y intéressait de près.
 
-Wang Lin observa le Fouet Kunji dans sa main et murmura: « Parmi tous mes trésors, en termes de tranchant, il ne peut égaler l'épée céleste ou la lame Demi-Lune. En termes de défense, il n'égale ni l'Étendard au Milliard d'Âmes, ni l'Écran des Montagnes et des Rivières. En termes de capacités, il ne vaut pas la Montagne Céleste ou le Char de Guerre Divin. Pourtant, c'est le seul trésor qui contient l'aura de la troisième étape que j'ai aperçue. Cet objet est véritablement étrange! »
+Wang Lin observa le Fouet Kunji dans sa main et murmura: « Parmi tous mes trésors, en termes de tranchant, il ne peut égaler l'épée céleste ou la lame Demi-Lune. En termes de défense, il n'égale ni l'Étendard de l'Âme, ni l'Écran des Montagnes et des Rivières. En termes de capacités, il ne vaut pas la Montagne Céleste ou le Char de Guerre Divin. Pourtant, c'est le seul trésor qui contient l'aura de la troisième étape que j'ai aperçue. Cet objet est véritablement étrange! »
 
 Ce fouet semblait tout à fait ordinaire, mais le fantôme céleste avait failli se disperser corps et âme en le voyant, comme s'il le reconnaissait.
 
@@ -66,7 +66,7 @@ Tous furent instantanément dévorés par le brouillard noir dès qu'ils s'y pr�
 
 Quant aux mortels, ils étaient moins problématiques. En voyant ce brouillard noir, ils comprirent qu'il était empreint de danger et s'en détournèrent.
 
-Si certains s'y perdaient par mégarde, Wang Lin ne commettait pas de meurtres inutiles. L'Étendard au Milliard d'Âmes contenait son sens divin: ces mortels tombaient simplement dans le coma avant d'être déposés à la lisière de la région, à 5 000 kilomètres de la montagne.
+Si certains s'y perdaient par mégarde, Wang Lin ne commettait pas de meurtres inutiles. L'Étendard de l'Âme contenait son sens divin: ces mortels tombaient simplement dans le coma avant d'être déposés à la lisière de la région, à 5 000 kilomètres de la montagne.
 
 Pendant ces trois années, Wang Lin se concentra sur l'affinage de ses trésors. La seule source de nuisance était Xu Liguo. Il avait réussi, d'une manière ou d'une autre, à briser le sceau que Wang Lin avait placé sur la sacoche de stockage. Bien qu'il ne puisse toujours pas en sortir, il n'arrêtait pas de clamer sans cesse.
 

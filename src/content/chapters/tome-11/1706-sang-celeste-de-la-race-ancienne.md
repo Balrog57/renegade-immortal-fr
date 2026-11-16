@@ -82,7 +82,7 @@ Un sentiment de puissance brute envahit l'esprit de Wang Lin. Il serra les poing
 
 La troisième épreuve des clans anciens, où les trois viendraient à la fois!
 
-Cette troisième épreuve comportait trois calamités: la première étant le Sang Céleste de la Race Ancienne! La deuxième, les Trois Distractions du Dao Gu! Et quant à la troisième, c'était la plus redoutable des calamités des individus des trois clans anciens: la Bénédiction de l'Ancêtre Ancien!
+Cette troisième épreuve comportait trois calamités: la première étant le Sang Céleste de la Race Ancienne! La deuxième, la Division en Trois de l'Esprit du Gu Dao! Et quant à la troisième, c'était la plus redoutable des calamités des individus des trois clans anciens: la Bénédiction de l'Ancêtre Ancien!
 
 Wang Lin ne connaissait pas tous les détails. Bien qu'il ait reçu l'héritage de Ye Mo, ses souvenirs étaient limités. Il savait seulement que pour affronter les deux dernières calamités, surtout la dernière, il devrait se rendre au temple ancien du Pays Ancien sur le Continent Xian Gang.
 
